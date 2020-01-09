@@ -3,11 +3,11 @@ title: Philips Norelco HQ8 Dual Precision Replacement Heads,
 description: Philips Norelco HQ8 Dual Precision Replacement Heads,
 author: Suvojit Manna,
 tags: Philips Norelco HQ8 Dual Precision Replacement Heads,
-publishedAt: Thu Jan 09 2020 18:43:19 GMT+0530 (India Standard Time),
-modifiedAt: Thu Jan 09 2020 18:43:19 GMT+0530 (India Standard Time),
+publishedAt: Thu Jan 09 2020 18:52:11 GMT+0530 (India Standard Time),
+modifiedAt: Thu Jan 09 2020 18:52:11 GMT+0530 (India Standard Time),
 ---
 
-# [Philips Norelco HQ8 Dual Precision Replacement Heads](https://products.checkmycream,.com/products/Philips-Norelco-HQ8-Dual-Precision-Replacement-Heads)
+# [Philips Norelco HQ8 Dual Precision Replacement Heads](https://products.checkmycream.com/products/Philips-Norelco-HQ8-Dual-Precision-Replacement-Heads.html)
 
 ### Positive Reviews
 
