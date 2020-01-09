@@ -7,7 +7,7 @@ publishedAt: Thu Jan 09 2020 17:46:46 GMT+0530 (India Standard Time),
 modifiedAt: Thu Jan 09 2020 17:46:46 GMT+0530 (India Standard Time),
 ---
 
-# [Philips Norelco HQ8 Dual Precision Replacement Heads](Philips-Norelco-HQ8-Dual-Precision-Replacement-Heads)
+# [Philips Norelco HQ8 Dual Precision Replacement Heads](https://products.checkmycream.com/products/Philips-Norelco-HQ8-Dual-Precision-Replacement-Heads.html)
 
 ### Positive Reviews
 
