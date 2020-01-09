@@ -4,16 +4,17 @@
   "license": "MIT",
   "private": true,
   "scripts": {
-    "dev": "vuepress dev docs --port $PORT -d public",
+    "dev": "vuepress dev docs --port 8089 ",
     "build": "vuepress build docs -d public",
     "postbuild": "vuepress-sitemap -H https://products.checkmycream.com -d public"
   },
   "devDependencies": {
-    "vuepress": "^1.2.0",
-    "vuepress-plugin-social-share": "^0.1.2",
-    "vuepress-plugin-sitemap": "^2.3.1",
+    "@limdongjin/vuepress-plugin-simple-seo": "^1.0.4-alpha.5",
     "chalk": "^3.0.0",
     "commander": "^4.0.1",
-    "esm": "^3.2.25"
+    "esm": "^3.2.25",
+    "vuepress": "^1.2.0",
+    "vuepress-plugin-sitemap": "^2.3.1",
+    "vuepress-plugin-social-share": "^0.1.2"
   }
 }

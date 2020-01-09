@@ -1,3 +1,4 @@
+const hostname = 'https://products.checkmycream.com/';
 module.exports = {
   title: "CheckMyCream",
   description: "Know more about your skin care products",
@@ -9,11 +10,17 @@ module.exports = {
   },
   dest: "public",
   plugins: [
-    'social-share',
-    {
+    'social-share', {
       'sitemap': {
-        hostname: 'https://products.checkmycream.com/'
+        hostname
       },
-    }
+    },
+      {
+        '@limdongjin/vuepress-plugin-simple-seo': {
+          default_image: '/images/main-image-min.jpg',
+          root_url: hostname,
+          default_site_name: 'CheckMyCream'
+        }
+      }
   ],
 };
