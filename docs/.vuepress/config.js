@@ -1,12 +1,19 @@
 module.exports = {
-  title: "Vuepress",
-  description: "This is a Zeit Now 2.0 example",
+  title: "CheckMyCream",
+  description: "Know more about your skin care products",
   themeConfig: {
     nav: [
       { text: "Home", link: "/" },
-      { text: "Guide", link: "/guide/" },
-      { text: "Config Page", link: "/config" }
+      { text: "Products", link: "/products/" },
     ]
   },
-  dest: "public"
+  dest: "public",
+  plugins: [
+    'social-share',
+    {
+      'sitemap': {
+        hostname: 'https://products.checkmycream.com/'
+      },
+    }
+  ],
 };
