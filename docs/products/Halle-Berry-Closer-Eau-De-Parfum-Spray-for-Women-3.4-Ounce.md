@@ -1,0 +1,86 @@
+---
+title: Halle Berry Closer Eau De Parfum Spray for Women, 3.4 Ounce,
+description: Halle Berry Closer Eau De Parfum Spray for Women, 3.4 Ounce,
+author: Suvojit Manna,
+tags: Halle Berry Closer Eau De Parfum Spray for Women, 3.4 Ounce,
+publishedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
+---
+
+# [Halle Berry Closer Eau De Parfum Spray for Women, 3.4 Ounce](https://products.checkmycream.com/products/Halle-Berry-Closer-Eau-De-Parfum-Spray-for-Women-3.4-Ounce.html)
+
+### Positive Reviews
+
+<ol>
+      <li>This smells really good!</li>
+      <li>The price was great for the size of this perfume.  </li>
+      <li>Wonderful sophisticated smell.</li>
+      <li>I&#x27;m very satisfied with this product and the company.</li>
+      <li>Great price, love the smell....</li>
+      <li>The price for the bottle size is amazing.</li>
+      <li>I have got so many complements when wearing this perfume.</li>
+      <li>I ended up liking it a lot more.</li>
+      <li>but as I wore it and got more familiar with it</li>
+      <li>At first I thought it was kind of manly</li>
+      <li>I think this is a great perfume overall</li>
+      <li>Love this fragrance and the price was really right.</li>
+      <li>I  love it very much.</li>
+      <li>The fragrance is light and fresh.</li>
+      <li>My only thing is that while it still smells good....</li>
+      <li>It&#x27;s fresh clean smell</li>
+      <li>Came on time and exactly as described!</li>
+      <li>Big bottle at a great price, fast shipping, thanks</li>
+      <li>the scent seems to fade in a very short amount of time where as the girl at work can wear for the whole day and still smells strong!</li>
+      <li>It took me a while to get used to because this perfume as a very earthy sent.</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> This smells really good!</li>
+<li> The price was great for the size of this perfume.  </li>
+<li> Wonderful sophisticated smell.</li>
+<li> I&#x27;m very satisfied with this product and the company.</li>
+<li> Great price, love the smell....</li>
+<li> The price for the bottle size is amazing.</li>
+<li> I have got so many complements when wearing this perfume.</li>
+<li> I ended up liking it a lot more.</li>
+<li> but as I wore it and got more familiar with it</li>
+<li> At first I thought it was kind of manly</li>
+<li> I think this is a great perfume overall</li>
+<li> Love this fragrance and the price was really right.</li>
+<li> I  love it very much.</li>
+<li> The fragrance is light and fresh.</li>
+<li> My only thing is that while it still smells good....</li>
+<li> It&#x27;s fresh clean smell</li>
+<li> Came on time and exactly as described!</li>
+<li> Big bottle at a great price, fast shipping, thanks</li>
+<li> the scent seems to fade in a very short amount of time where as the girl at work can wear for the whole day and still smells strong!</li>
+<li> It took me a while to get used to because this perfume as a very earthy sent.</li>
+<li> This product was described as &#x27;new&#x27; and the only thing missing was the plastic wrap/seal around the perfume box itself so FYI.</li>
+<li> What I expected and will be purchasing again!</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> Makes you want to get closer to her</li>
+    <li> This smells really good! If you like smells that could be either for a lady or gentleman then get it!</li>
+    <li> Wonderful sophisticated smell.</li>
+    <li> I&#x27;m very satisfied with this product and the company.</li>
+    <li> I have got so many complements when wearing this perfume. It&#x27;s fresh clean smell</li>
+    <li> Great price, love the smell....</li>
+    <li> A girl at work has this perfume but bought it at Kohls or something. The price for the bottle size is amazing. My only thing is that while it still smells good.... the scent seems to fade in a very short amount of time where as the girl at work can wear for the whole day and still smells strong! This product was described as &#x27;new&#x27; and the only thing missing was the plastic wrap/seal around the perfume box itself so FYI.</li>
+    <li> I  love it very much.</li>
+    <li> Big bottle at a great price, fast shipping, thanks</li>
+    <li> The price was great for the size of this perfume.  I will order this again.</li>
+    <li> Love this fragrance and the price was really right.</li>
+    <li> Came on time and exactly as described!</li>
+    <li> What I expected and will be purchasing again!</li>
+    <li> The fragrance is light and fresh. It arrived within a short time ordering.</li>
+    <li> It took me a while to get used to because this perfume as a very earthy sent. At first I thought it was kind of manly but as I wore it and got more familiar with it I ended up liking it a lot more. I think this is a great perfume overall but it has a lot of earthy smells to it.</li>
+</ol>
+
+
+
+

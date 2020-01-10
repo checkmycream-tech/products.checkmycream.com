@@ -1,0 +1,140 @@
+---
+title: Philosophy Pure Grace Perfumed Body Lotion Super Sized 32 Oz.,
+description: Philosophy Pure Grace Perfumed Body Lotion Super Sized 32 Oz.,
+author: Suvojit Manna,
+tags: Philosophy Pure Grace Perfumed Body Lotion Super Sized 32 Oz.,
+publishedAt: Fri Jan 10 2020 15:00:09 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:09 GMT+0530 (India Standard Time),
+---
+
+# [Philosophy Pure Grace Perfumed Body Lotion Super Sized 32 Oz.](https://products.checkmycream.com/products/Philosophy-Pure-Grace-Perfumed-Body-Lotion-Super-Sized-32-Oz..html)
+
+### Positive Reviews
+
+<ol>
+      <li>Wonderful product.</li>
+      <li>Excellent</li>
+      <li>Great product!</li>
+      <li>Happy about the size .</li>
+      <li>This is my favorite lotion, I don&#x27;t like a lot of perfume, so this is perfect for me.  </li>
+      <li>I love all the Philosophy products!</li>
+      <li>The best part is that my skin is soft and never greasy.</li>
+      <li>no problems- easy transaction!</li>
+      <li>and I just love this stuff</li>
+      <li>I need to buy some more now.</li>
+      <li>Absolutely my favorite.</li>
+      <li>Love that amazon carries it in the 32 ounce size.  </li>
+      <li>I&#x27;ve used it for years and love it from the way it makes my skin feel all day to the wonderful soft clean sent I have all day.</li>
+      <li>i use pure grace in the winter and amazing grace in summer the best frageance ever, very soft, not overpowering like some.</li>
+      <li>The super sized option provides more product at a better price.  </li>
+      <li>I also get so many compliments on how good I smell, even from complete strangers.  </li>
+      <li>Love Love Love Pure Grace...</li>
+      <li>We originally got the 16 oz bottle and she liked so much we have up sized to the 32.</li>
+      <li>I love the fresh clean smell.</li>
+      <li>I absolutely love Pure Grace!</li>
+      <li>It is definitely worth the money!</li>
+      <li>It goes on smooth and absorbs quickly.</li>
+      <li>going back to this as it is the best for her sensitive skin.</li>
+      <li>It&#x27;s a soothing, clean scent.</li>
+      <li>This is a special lotion I purchased to treat myself.</li>
+      <li>I love all of the Pure Grace products.</li>
+      <li>It smells so fresh and clean</li>
+      <li>If you want to feel hydrated and smell fresh and clean then this is the body lotion for you.</li>
+      <li>This is one fragrance that is not a fragrance just a right out of the shower clean smell.</li>
+      <li>Love this soft clean scent.  </li>
+      <li>like the other review, only lotion that truly works and the scent is wonderful...</li>
+      <li>Product as expected, delivery took quite a while BC of some kind of mix up.</li>
+      <li>I am very particular about the way things smell on me.</li>
+      <li>The fragrance is light, but distinctive at the same time.</li>
+      <li>It is the only lotion I have come across that actually smells better as the day goes on.</li>
+      <li>Highly recommend.</li>
+      <li>I use it everyday so that is important.  </li>
+      <li>This lotion is not heavy enough.  </li>
+      <li>It is too light and for the money I paid for this product, it was NOT a good deal.</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> Wonderful product.</li>
+<li> Excellent</li>
+<li> Great product!</li>
+<li> Happy about the size .</li>
+<li> This is my favorite lotion, I don&#x27;t like a lot of perfume, so this is perfect for me.  </li>
+<li> I love all the Philosophy products!</li>
+<li> The best part is that my skin is soft and never greasy.</li>
+<li> no problems- easy transaction!</li>
+<li> and I just love this stuff</li>
+<li> I need to buy some more now.</li>
+<li> Absolutely my favorite.</li>
+<li> Love that amazon carries it in the 32 ounce size.  </li>
+<li> I&#x27;ve used it for years and love it from the way it makes my skin feel all day to the wonderful soft clean sent I have all day.</li>
+<li> i use pure grace in the winter and amazing grace in summer the best frageance ever, very soft, not overpowering like some.</li>
+<li> The super sized option provides more product at a better price.  </li>
+<li> I also get so many compliments on how good I smell, even from complete strangers.  </li>
+<li> Love Love Love Pure Grace...</li>
+<li> We originally got the 16 oz bottle and she liked so much we have up sized to the 32.</li>
+<li> I love the fresh clean smell.</li>
+<li> I absolutely love Pure Grace!</li>
+<li> It is definitely worth the money!</li>
+<li> It goes on smooth and absorbs quickly.</li>
+<li> going back to this as it is the best for her sensitive skin.</li>
+<li> It&#x27;s a soothing, clean scent.</li>
+<li> This is a special lotion I purchased to treat myself.</li>
+<li> I love all of the Pure Grace products.</li>
+<li> It smells so fresh and clean</li>
+<li> If you want to feel hydrated and smell fresh and clean then this is the body lotion for you.</li>
+<li> This is one fragrance that is not a fragrance just a right out of the shower clean smell.</li>
+<li> Love this soft clean scent.  </li>
+<li> like the other review, only lotion that truly works and the scent is wonderful...</li>
+<li> Product as expected, delivery took quite a while BC of some kind of mix up.</li>
+<li> I am very particular about the way things smell on me.</li>
+<li> The fragrance is light, but distinctive at the same time.</li>
+<li> It is the only lotion I have come across that actually smells better as the day goes on.</li>
+<li> Highly recommend.</li>
+<li> I use it everyday so that is important.  </li>
+<li> This lotion is not heavy enough.  </li>
+<li> It is too light and for the money I paid for this product, it was NOT a good deal.</li>
+<li> It doesn&#x27;t stay with your skin long enough.</li>
+<li> It is the only thing that helps my extremely dry skin and stops it from itching.  </li>
+<li> i will use it as long as philosophy makes it.&lt;br /&gt;tx</li>
+<li> This bottle also lasts a long time.</li>
+<li> I usually order the 32 oz bottle and it typically lasts me for a whole year (and that is using it</li>
+<li> The lotion smelled and felt different than my usual lotion, and it is clearly not the same lotion I have owned in the past nor is it the one pictured on the website.  </li>
+<li> She has tried other products but&lt;br /&gt;keeps</li>
+<li> and I can&#x27;t imagine using any other lotion!</li>
+<li> It&#x27;s such a subtle fragrance, but it reminds me of a vacation I took!</li>
+<li> Mine did not include a pump,,,,Having a hard time getting the lotion out....</li>
+<li> Can&#x27;t go wrong with Philosophy products.</li>
+<li> Awful!!!</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> Wonderful product. Lasting scent not greasy.pleasant fragrance not overbearing</li>
+    <li> I&#x27;ve been using this lotion for years. It is the only thing that helps my extremely dry skin and stops it from itching.  I find the scent calming.  I also get so many compliments on how good I smell, even from complete strangers.  It&#x27;s a soothing, clean scent.</li>
+    <li> Mine did not include a pump,,,,Having a hard time getting the lotion out....My last order for Philosophy...</li>
+    <li> I&#x27;ve used it for years and love it from the way it makes my skin feel all day to the wonderful soft clean sent I have all day. This is a special lotion I purchased to treat myself.</li>
+    <li> no problems- easy transaction!</li>
+    <li> Love this soft clean scent.  The super sized option provides more product at a better price.  I use it everyday so that is important.  Product arrives on time as promised.</li>
+    <li> I absolutely love Pure Grace! It&#x27;s such a subtle fragrance, but it reminds me of a vacation I took! I use it every day!</li>
+    <li> Love Love Love Pure Grace...like the other review, only lotion that truly works and the scent is wonderful...no need for perfume...the lotion does double duty.  Love that amazon carries it in the 32 ounce size.  Can&#x27;t go wrong with Philosophy products.</li>
+    <li> If you want to feel hydrated and smell fresh and clean then this is the body lotion for you. I am very particular about the way things smell on me. This is one fragrance that is not a fragrance just a right out of the shower clean smell. I get lots of compliments on how I smell. The best part is that my skin is soft and never greasy. I love all of the Pure Grace products.</li>
+    <li> Product as expected, delivery took quite a while BC of some kind of mix up.</li>
+    <li> My package didn&#x27;t come with a pump,and the label is slightly different than the one in the photo on the website.  I think this is a knock off.  The lotion smelled and felt different than my usual lotion, and it is clearly not the same lotion I have owned in the past nor is it the one pictured on the website.  Awful!!!</li>
+    <li> Happy about the size .</li>
+    <li> We originally got the 16 oz bottle and she liked so much we have up sized to the 32. So I guess to describe it&#x27;s attributes would be to say it does what a lotion is supposed to do.</li>
+    <li> Absolutely my favorite. I love the fresh clean smell. Highly recommend. I love all the Philosophy products! It goes on smooth and absorbs quickly. Great product!</li>
+    <li> i use pure grace in the winter and amazing grace in summer the best frageance ever, very soft, not overpowering like some. i will use it as long as philosophy makes it.&lt;br /&gt;tx</li>
+    <li> This is my favorite lotion, I don&#x27;t like a lot of perfume, so this is perfect for me.  This bottle also lasts a long time.</li>
+    <li> This lotion is not heavy enough.  It is too light and for the money I paid for this product, it was NOT a good deal. It doesn&#x27;t stay with your skin long enough.</li>
+    <li> All time Fave! I need to buy some more now. It smells so fresh and clean and I just love this stuff</li>
+    <li> I have bought this body lotion for my grown daughter for several years for Christmas.  She has tried other products but&lt;br /&gt;keeps going back to this as it is the best for her sensitive skin.</li>
+    <li> I have used this lotion for 2 years and I can&#x27;t imagine using any other lotion! It is definitely worth the money! It is the only lotion I have come across that actually smells better as the day goes on. The fragrance is light, but distinctive at the same time. I would definitely recommend to anyone. I usually order the 32 oz bottle and it typically lasts me for a whole year (and that is using it every day).&lt;br /&gt;All of the Philosophy products get 5 stars from me.</li>
+    <li> Used for years. Excellent</li>
+</ol>
+
+
+
+

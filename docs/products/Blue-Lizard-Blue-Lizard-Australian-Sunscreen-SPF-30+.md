@@ -1,0 +1,307 @@
+---
+title: Blue Lizard Blue Lizard Australian Sunscreen SPF 30+,
+description: Blue Lizard Blue Lizard Australian Sunscreen SPF 30+,
+author: Suvojit Manna,
+tags: Blue Lizard Blue Lizard Australian Sunscreen SPF 30+,
+publishedAt: Fri Jan 10 2020 14:59:23 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:59:23 GMT+0530 (India Standard Time),
+---
+
+# [Blue Lizard Blue Lizard Australian Sunscreen SPF 30+](https://products.checkmycream.com/products/Blue-Lizard-Blue-Lizard-Australian-Sunscreen-SPF-30+.html)
+
+### Positive Reviews
+
+<ol>
+      <li>The best sunscreen I&#x27;ve found for people with excema.  </li>
+      <li>This stuff is AWESOME.</li>
+      <li>This stuff is great!  </li>
+      <li>Great price!</li>
+      <li>Works great!  </li>
+      <li>This is the best lotion.</li>
+      <li>Awesome stuff!</li>
+      <li>It is the best sunscreen.</li>
+      <li>Great product!  </li>
+      <li>Great stuff!</li>
+      <li>Best sunscreen I&#x27;ve ever used......</li>
+      <li>Awesome product!  </li>
+      <li>This is a great product!</li>
+      <li>but this is the best.  </li>
+      <li>Not too happy!!!!!!</li>
+      <li>best sunscreen ever!</li>
+      <li>This is the BEST sunscreen!</li>
+      <li>Perfect travel size</li>
+      <li>Great stuff!</li>
+      <li>my son who used this was totally fine after HOURS of playing in the sunshine!!!!</li>
+      <li>Perfect on the beach.</li>
+      <li>I bought it because of the recommendation of my dermatologist, who said it contained the best ingredients to protect the skin.</li>
+      <li>very good sunscreen.</li>
+      <li>I am very fair skinned.  </li>
+      <li>works great in the AZ SUN.</li>
+      <li>So I have a great tube of sunscreen that we can&#x27;t use.....</li>
+      <li>Great product.</li>
+      <li>great for people who get a lot of sun  </li>
+      <li>Great sunscreen.</li>
+      <li>and I think it works great.</li>
+      <li>Great item.</li>
+      <li>Great product.</li>
+      <li>Haven&#x27;t tried it on my face, but it&#x27;s great everywhere else.</li>
+      <li>LOVE this product!!  </li>
+      <li>Good price</li>
+      <li>(To be fair, there were bits of shade throughout the park -- so we weren&#x27;t baking in the sun</li>
+      <li>I am a bit on the fair side</li>
+      <li>Maybe good if you don&#x27;t plan on sweating.  </li>
+      <li>Baby sunblock by them good too -</li>
+      <li>so I knew I needed some good sunscreen.</li>
+      <li>This from a guy who is fair skinned and hates to burn.</li>
+      <li>It works great and the color changing bottle comes in handy when explaining to kids the importance of using sunscreen.</li>
+      <li>no smell, goes right on and into your skin and give wonderful protection.</li>
+      <li>It provides superb protection and it&#x27;s very waterproof!</li>
+      <li>Just nice and moisturized.  </li>
+      <li>Has a very mild, pleasant scent.</li>
+      <li>Excellent sunscreen protected my fair skin from the sweltering Hong Kong heat during the middle of July - and that&#x27;s saying something.  </li>
+      <li>When warm, the sunscreen does get a bit more liquid-y and will come out rapidly when the cap is opened.</li>
+      <li>After reading the our favorite sunscreen--which worked fair-to-middlin&#x27; for him--was panned by the Environmental Working Group for having eight known toxins it it, we searched and found this.</li>
+      <li>Was recommended by a friend, glad that I bought it.  </li>
+      <li>Love this sunscreen.  </li>
+      <li>Love, love, love.  </li>
+      <li>Fragrance free, does what it promises and it absorbs well!</li>
+      <li>We have an inground pool and spend most of the summer in it.  </li>
+      <li>It costs more than the others</li>
+      <li>but I think it absorbs into the skin better before you start perspiring from your outdoor activities.  </li>
+      <li>Just make sure to apply *</li>
+      <li>Blue Lizard is perfect for me.  </li>
+      <li>Love this sunscreen...</li>
+      <li>I love this sunscreen.</li>
+      <li>Fantastic product!</li>
+      <li>I have tried many of the sports oriented sunscreens and none are better than this product.  </li>
+      <li>and I LOVE it.  </li>
+      <li>I used it in Jamaica and it worked better than anything I&#x27;ve ever used.  </li>
+      <li>Legs, and the top of our feet, are our problem areas for burns</li>
+      <li>Love this sunscreen.</li>
+      <li>great product - really protects the skin</li>
+      <li>Item arrived on time :).</li>
+      <li>Glad I read the reviews before ordering as it gave valuable advice.  </li>
+      <li>So glad I found this on Amazon.  </li>
+      <li>Blue Lizzard is an awesome product.</li>
+      <li>used to be able to get in stores but can not find it anywhere but on website.</li>
+      <li>and when I go to tropical places I need to make sure I don&#x27;t get burnt or else my trip will be ruined.  </li>
+      <li>With a red-headed daughter who burns easily, I am constantly trying to find the best sunscreen out there.</li>
+      <li>This sun cream has a very light texture and applies &amp; absorbs easily on the skin.  </li>
+      <li>Now more than ever it is important to make sure that she never has a sunburn.</li>
+      <li>Love that it&#x27;s Chem free and safe.....</li>
+      <li>It&#x27;s great for my very sensitive skin.  </li>
+      <li>I am very fair skinned, and suffered from sunburns my entire childhood.</li>
+      <li>This stuff goes on easily and stays on for hours, even in water.  </li>
+      <li>Easy to spread.  </li>
+      <li>Goes on easy.  </li>
+      <li>Easy to apply and does not leave my hands greasy.  </li>
+      <li>This is the only sunscreen that provides the protection that I need and is also great on my skin.  </li>
+      <li>It does leave a white residue, but he&#x27;s not trying to win a beauty contest.</li>
+      <li>and I decided to switch to this sunscreen because I primarily use it for basketball.&lt;br /&gt;&lt;br</li>
+      <li>I still have to reapply but it&#x27;s great to know she can be out &amp; about at the beach, pool, wherever and not come back burned.  </li>
+      <li>I have used this stuff for several years and it is great.</li>
+      <li>So far so good.  </li>
+      <li>I&#x27;ve been using Blue Lizard sunscreen for years - it is the best for really protecting your skin.</li>
+      <li>It was recommended to me originally by my dermatologist.  </li>
+      <li>But worth it!</li>
+      <li>&amp; it&#x27;s probably true.  </li>
+      <li>sure to shake really well before using.</li>
+      <li>Our entire family has fair skin.  </li>
+      <li>It goes on smooth, is easy to apply and truly last longer than most, even in the water.  </li>
+      <li>Blue Lizard, when applied properly and according to the package recommendations, is the best sunscreen I have ever used.</li>
+      <li>, I reapply every 4 hrs, no sunburn issues and we live in FL :)</li>
+      <li>Although we hadn&#x27;t a whole lot of sun exposure yet this year, it successfully kept us from avoiding sunburn despite being out in the midday sun in the Middle East.</li>
+      <li>This is the first time I&#x27;ve made it through a week in the carribbean with no burning whatsoever!</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> The best sunscreen I&#x27;ve found for people with excema.  </li>
+<li> This stuff is AWESOME.</li>
+<li> This stuff is great!  </li>
+<li> Great price!</li>
+<li> Works great!  </li>
+<li> This is the best lotion.</li>
+<li> Awesome stuff!</li>
+<li> It is the best sunscreen.</li>
+<li> Great product!  </li>
+<li> Great stuff!</li>
+<li> Best sunscreen I&#x27;ve ever used......</li>
+<li> Awesome product!  </li>
+<li> This is a great product!</li>
+<li> but this is the best.  </li>
+<li> Not too happy!!!!!!</li>
+<li> best sunscreen ever!</li>
+<li> This is the BEST sunscreen!</li>
+<li> Perfect travel size</li>
+<li> Great stuff!</li>
+<li> my son who used this was totally fine after HOURS of playing in the sunshine!!!!</li>
+<li> Perfect on the beach.</li>
+<li> I bought it because of the recommendation of my dermatologist, who said it contained the best ingredients to protect the skin.</li>
+<li> very good sunscreen.</li>
+<li> I am very fair skinned.  </li>
+<li> works great in the AZ SUN.</li>
+<li> So I have a great tube of sunscreen that we can&#x27;t use.....</li>
+<li> Great product.</li>
+<li> great for people who get a lot of sun  </li>
+<li> Great sunscreen.</li>
+<li> and I think it works great.</li>
+<li> Great item.</li>
+<li> Great product.</li>
+<li> Haven&#x27;t tried it on my face, but it&#x27;s great everywhere else.</li>
+<li> LOVE this product!!  </li>
+<li> Good price</li>
+<li> (To be fair, there were bits of shade throughout the park -- so we weren&#x27;t baking in the sun</li>
+<li> I am a bit on the fair side</li>
+<li> Maybe good if you don&#x27;t plan on sweating.  </li>
+<li> Baby sunblock by them good too -</li>
+<li> so I knew I needed some good sunscreen.</li>
+<li> This from a guy who is fair skinned and hates to burn.</li>
+<li> It works great and the color changing bottle comes in handy when explaining to kids the importance of using sunscreen.</li>
+<li> no smell, goes right on and into your skin and give wonderful protection.</li>
+<li> It provides superb protection and it&#x27;s very waterproof!</li>
+<li> Just nice and moisturized.  </li>
+<li> Has a very mild, pleasant scent.</li>
+<li> Excellent sunscreen protected my fair skin from the sweltering Hong Kong heat during the middle of July - and that&#x27;s saying something.  </li>
+<li> When warm, the sunscreen does get a bit more liquid-y and will come out rapidly when the cap is opened.</li>
+<li> After reading the our favorite sunscreen--which worked fair-to-middlin&#x27; for him--was panned by the Environmental Working Group for having eight known toxins it it, we searched and found this.</li>
+<li> Was recommended by a friend, glad that I bought it.  </li>
+<li> Love this sunscreen.  </li>
+<li> Love, love, love.  </li>
+<li> Fragrance free, does what it promises and it absorbs well!</li>
+<li> We have an inground pool and spend most of the summer in it.  </li>
+<li> It costs more than the others</li>
+<li> but I think it absorbs into the skin better before you start perspiring from your outdoor activities.  </li>
+<li> Just make sure to apply *</li>
+<li> Blue Lizard is perfect for me.  </li>
+<li> Love this sunscreen...</li>
+<li> I love this sunscreen.</li>
+<li> Fantastic product!</li>
+<li> I have tried many of the sports oriented sunscreens and none are better than this product.  </li>
+<li> and I LOVE it.  </li>
+<li> I used it in Jamaica and it worked better than anything I&#x27;ve ever used.  </li>
+<li> Legs, and the top of our feet, are our problem areas for burns</li>
+<li> Love this sunscreen.</li>
+<li> great product - really protects the skin</li>
+<li> Item arrived on time :).</li>
+<li> Glad I read the reviews before ordering as it gave valuable advice.  </li>
+<li> So glad I found this on Amazon.  </li>
+<li> Blue Lizzard is an awesome product.</li>
+<li> used to be able to get in stores but can not find it anywhere but on website.</li>
+<li> and when I go to tropical places I need to make sure I don&#x27;t get burnt or else my trip will be ruined.  </li>
+<li> With a red-headed daughter who burns easily, I am constantly trying to find the best sunscreen out there.</li>
+<li> This sun cream has a very light texture and applies &amp; absorbs easily on the skin.  </li>
+<li> Now more than ever it is important to make sure that she never has a sunburn.</li>
+<li> Love that it&#x27;s Chem free and safe.....</li>
+<li> It&#x27;s great for my very sensitive skin.  </li>
+<li> I am very fair skinned, and suffered from sunburns my entire childhood.</li>
+<li> This stuff goes on easily and stays on for hours, even in water.  </li>
+<li> Easy to spread.  </li>
+<li> Goes on easy.  </li>
+<li> Easy to apply and does not leave my hands greasy.  </li>
+<li> This is the only sunscreen that provides the protection that I need and is also great on my skin.  </li>
+<li> It does leave a white residue, but he&#x27;s not trying to win a beauty contest.</li>
+<li> and I decided to switch to this sunscreen because I primarily use it for basketball.&lt;br /&gt;&lt;br</li>
+<li> I still have to reapply but it&#x27;s great to know she can be out &amp; about at the beach, pool, wherever and not come back burned.  </li>
+<li> I have used this stuff for several years and it is great.</li>
+<li> So far so good.  </li>
+<li> I&#x27;ve been using Blue Lizard sunscreen for years - it is the best for really protecting your skin.</li>
+<li> It was recommended to me originally by my dermatologist.  </li>
+<li> But worth it!</li>
+<li> &amp; it&#x27;s probably true.  </li>
+<li> sure to shake really well before using.</li>
+<li> Our entire family has fair skin.  </li>
+<li> It goes on smooth, is easy to apply and truly last longer than most, even in the water.  </li>
+<li> Blue Lizard, when applied properly and according to the package recommendations, is the best sunscreen I have ever used.</li>
+<li> , I reapply every 4 hrs, no sunburn issues and we live in FL :)</li>
+<li> Although we hadn&#x27;t a whole lot of sun exposure yet this year, it successfully kept us from avoiding sunburn despite being out in the midday sun in the Middle East.</li>
+<li> This is the first time I&#x27;ve made it through a week in the carribbean with no burning whatsoever!</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> For my wife, the only sunscreen her dermotologist recommends.  Thanks, ThinkFast for the speedy delivery!</li>
+    <li> This stuff is great!  I primarily bought it because it was one of the few choices of sunblock in 3 oz tubes that isn&#x27;t specifically designed for your face.  I used it in Jamaica and it worked better than anything I&#x27;ve ever used.  This stuff goes on easily and stays on for hours, even in water.  This is the first time I&#x27;ve made it through a week in the carribbean with no burning whatsoever!</li>
+    <li> I love Blue Lizard sunscreen.  I am allergic to regular sunscreen, so I must use the ones with titanium and zinc.  I also do not like and SPF over 30.  Blue Lizard is perfect for me.  It goes on smooth, is easy to apply and truly last longer than most, even in the water.  I highly recommend Blue Lizard.</li>
+    <li> great for people who get a lot of sun  helps people who have skin cancer!.  the only problem has been finding it.  used to be able to get in stores but can not find it anywhere but on website.</li>
+    <li> With a red-headed daughter who burns easily, I am constantly trying to find the best sunscreen out there. Blue Lizard seems to be it. I still have to reapply but it&#x27;s great to know she can be out &amp; about at the beach, pool, wherever and not come back burned.  I always try to get the Sport for the water resistance.</li>
+    <li> great product - really protects the skin</li>
+    <li> Blue Lizzard is an awesome product.</li>
+    <li> I do not have the time to write 2o words for every thing I buy from Amazon. If you persist in trying to force people to write long reviews, they will just skip it as I will do henceforward.</li>
+    <li> This sun cream has a very light texture and applies &amp; absorbs easily on the skin.  Even with heavy application, there is no embarrasing white makeup look on your face.  And Blue Lizard is company with a reputation for making quality sunscreens without using a lot of harsh chemicals.</li>
+    <li> a little thick, but works good</li>
+    <li> So far so good.  Need to measure for longer time.</li>
+    <li> All of the natural sunscreens will be white and harder to blend in.  This one came out of the tube easiest, blended in easiest, and didn&#x27;t smell stale or like dirt like the other ones (You know, that cheap dollar store lotion smell). This is the first sunscreen that my irish husband and son can use and not burn, which is a miracle for me.      Other lotions I&#x27;m comparing it to; Alba, Coola, Badger, Burnout, Kidsport, Tropical Sands.</li>
+    <li> This is the only sunscreen that I use from watersports activities to just walking in the sun.  I have tried many of the sports oriented sunscreens and none are better than this product.  I like it because it comes out in a paste and not an aerosol, you apply where you need it.  The product does not have obnoxious perfumes or smells bad.  You really have to work it into your skin because it comes out thick and it is the only sunscreen that is truly waterproof.  I&#x27;ve tried other &#x27;waterproof&#x27; sunscreens that merely wash off in the water requiring another re-coat.  I think the most important thing to this product is to put it on BEFORE you go into the sun, it requires a little planning but I think it absorbs into the skin better before you start perspiring from your outdoor activities.  I&#x27;ve tried both the Sport version and Kid&#x27;s version, I have not noticed a difference in the performance in either product, they see the same to me.  It costs more than the others but it&#x27;s worth every penny, the tubes also last a long time because you don&#x27;t have to always re-apply.</li>
+    <li> We got this sunscreen because of orange stains that show up on our clothes with other sunscreens.  We have hard water with lots of iron in it and apparently that reacts with the Avobenzene that is in a lot of sunscreens.  We just used Blue Lizard for our trip to the zoo.  I didn&#x27;t even put that much on, but we had no problem with sunburn.  Easy to spread.  Blends in well without too much rubbing.  I&#x27;d say in terms of blending it is very comparable with Coppertone Water Babies but your skin feels a lot less icky.  Just nice and moisturized.  I may even start using it as a facial sunscreen!  Like other reviews say, there is no heavy sunscreen smell.  Great product!  Great price!</li>
+    <li> LOVE this product!!  Baby sunblock by them good too - but this is the best.  We NEVER burn with this one, even in tropical locations.  Like this one that it rubs in well and doesn&#x27;t leave that purple look white on skin.  The provider we purchased from seemed very slow in delivery though.....baby sunblock came full 1 - 1 1/2 weeks earlier</li>
+    <li> I am out in the sun a lot and this stays on even with the sweat. Great stuff!</li>
+    <li> I have not used it yet, because of out bad, rainy, weather. I bought it because of the recommendation of my dermatologist, who said it contained the best ingredients to protect the skin.</li>
+    <li> works great in the AZ SUN.</li>
+    <li> I usually wind up using multiple sun screens for protection, but where ever I apply this stuff, I don&#x27;t burn. Haven&#x27;t tried it on my face, but it&#x27;s great everywhere else.</li>
+    <li> This stuff is AWESOME. Whenever we go to the beach, my friends use Waterbabies and Banana Boat and all that crap and they always burn like lobsters. But this stuff has zinc in it- which is what really makes it work. Great sunscreen. Just make sure to apply *before* you get on the beach!</li>
+    <li> Easy to apply and does not leave my hands greasy.  I can apply this in the golf cart in the middle of a round and my hands feel fine to grab my golf club for my next swing.  My sensitive skin feels very comfortable with this product and it leaves my skin smoother and softer.</li>
+    <li> Works really well and doesn&#x27;t burn your eyes when sweating.</li>
+    <li> Perfect travel size and I didn&#x27;t get burned on my trip to the Florida Keys so it did its job.  Goes on easy.  Got a little thin/runny after the bottle sat in my bag in the sun but that only made it easier to put on.</li>
+    <li> We used the sensitive on everything but our legs.  Legs, and the top of our feet, are our problem areas for burns so we decided to try the sport formula.  It worked extremely well, with not only the sun but also in helping prevent wind burn.  I will purchase this product again.</li>
+    <li> I bought this for my trip to Punta Cana. I am a bit on the fair side so I knew I needed some good sunscreen. I didn&#x27;t burn until the last day when I started to run out of sunscreen (I shared a bit with fellow travelers) but even then it wasn&#x27;t bad. It seemed to stay on very well even after swimming in the ocean. I will buy it again.</li>
+    <li> I&#x27;m told my children have my sensitive skin &amp; it&#x27;s probably true.  Our dermatologist recommended Blue Lizard -- Australia/New Zealand origin -- about 10 years ago. I can tell if a buddy puts a sunscreen-coated arm across his shoulder . . . within a few hours he has a rash! I must order from internet since it is nearly impossible to find locally &amp; Amazon has best prices.  I definitely recommend the SPORT for those sweaty instances like soccer camp.  The Regular did not last until reapplication at lunch, but works for other non-sweaty situations.  The Derm also says we really only need SPF 30 so that is not an issue for us. Protects us well when used.</li>
+    <li> I like the sunscreen, however, the price is significantly higher (~ +50%) than what you can find on other websites selling it.</li>
+    <li> Goes on very easily for a 30+ SPF ... not sticky at all, gentle enough on my son&#x27;s sensitive skin.  Was recommended by a friend, glad that I bought it.  Lasts a while too, I reapply every 4 hrs, no sunburn issues and we live in FL :)</li>
+    <li> Love, love, love.  Hangs in there despite the sweat.</li>
+    <li> It is the best sunscreen. No smell, rubs in completely, is waterproof and lasts.I used it in Hawaii and will use it again.</li>
+    <li> This is the best lotion. I never get burned with it even when I am out all day in the sun.</li>
+    <li> I&#x27;m a cyclist and highly recommend Blue Lizard Sport sunscreen. Dermatologist recommended, easy to apply and stays on through extreme sweating.</li>
+    <li> this is the best sunscreen I have ever used, goes on easy, last thru water and sweat but is hard to find in stores</li>
+    <li> This formula is not the same as Blue Lizard Baby and contains fragrance and parabens that aren&#x27;t listed on Amazon&#x27;s website. (Note that even the active ingredients aren&#x27;t as safe as Blue Lizard Baby).  The EWG rating of this Sport formula is the same as for Coppertone.  I ordered this without checking EWG&#x27;s website but just relying on Amazon&#x27;s list of ingredients, which was a mistake.</li>
+    <li> Used it during our 17-day Hawaiian vacation. With 90% of our trip in the water or on the beach...not a single day lost due to sunburns. Fantastic product!</li>
+    <li> I love this sunscreen. It works great and the color changing bottle comes in handy when explaining to kids the importance of using sunscreen. I have eczema, sensitive skin and tons of allergies and have never had any issues with this product. I have also never got a sunburn when using Blue Lizard! It is expensive so only the people with sensitive skin and prone to sunscreen use Blue Lizard in our family. The cost also makes you worry a bit too much about losing it and it makes you feel stingy when your friends want to &amp;#34;borrow&amp;#34; your sunscreen.</li>
+    <li> This sunscreen works very well, and I also like that the packaging changes color when exposed to harmful UV rays!</li>
+    <li> Great item. Would definitely buy again or recommend.</li>
+    <li> This is the BEST sunscreen! My kids are allergic to sunscreen and they can use this. We go to the beach for a week each summer and when we are not at the beach we our in our pool. Our kids NEVER burn!! Ever! It provides superb protection and it&#x27;s very waterproof! My kids are ages 4 and 7</li>
+    <li> Great product a little goes a long way.</li>
+    <li> This is a great product! Stays on even when you sweat. Is very gentle. Doesn&#x27;t burn if you put it on your face. Has a very mild, pleasant scent. I use it every day.</li>
+    <li> This is the one sunscreen that my wife prefers for my son, who is sensitive to aluminum silicate.  It doesn&#x27;t feel too sticky and it protects well and does not cause a rash.</li>
+    <li> Love this sunscreen.  When warm, the sunscreen does get a bit more liquid-y and will come out rapidly when the cap is opened.</li>
+    <li> A friend of mine referred to me to this brand and I LOVE it.  Plus it&#x27;s high on the non-nasty ingredient list as well!</li>
+    <li> very good sunscreen. better than anything i brought so far.</li>
+    <li> My husband burns just thinking about the sun, but he is a runner, so it is a constant battle for him. After reading the our favorite sunscreen--which worked fair-to-middlin&#x27; for him--was panned by the Environmental Working Group for having eight known toxins it it, we searched and found this. IT WORKS. My husband has not been sunburned using this. Period. It does leave a white residue, but he&#x27;s not trying to win a beauty contest. And it doesn&#x27;t burn his eyes when he sweats, like all the others did. Awesome stuff!</li>
+    <li> I used this stuff in the heat of August in the South Dakota sun. It really does work and actually lets you get a tan. Applied it once a day and it worked all day. It goes on white/blue but blends in and really does the job. This from a guy who is fair skinned and hates to burn.</li>
+    <li> I was looking for a non-greasy sunscreen, this is not it!&lt;br /&gt;The sunscreen works, but the &amp;#34;white ghost look&amp;#34; you get from it is what I don&#x27;t care for!</li>
+    <li> EDIT: I would like to apologize for my review below! It has been a mystery of why I&#x27;ve been getting sunburned the past week, even with lots of sunscreen applied. I forgot that while taking antibiotics, your skin is ultra-sensitive to the sun. I will have to write another review when those antibiotics have left my system, but for now, I&#x27;m sure the sunscreen works fine, so it&#x27;s back up to a 4.  I purchased this sunscreen (Blue Lizard Sport) to use while surfing. I often surf for 1-2 hours at a time. Because I wear a wetsuit, I only apply it to my face. I tried the sunscreen twice on my face, and both times I burned after a 1.5 hour session in the water.  After the first time getting burned I thought that I just didn&#x27;t give it enough time to soak in, as I&#x27;m usually excited to get in the water.  The second time I waited the usual 20 minutes before going in the water. Burned after 2 hours.  This is obviously not working for me. I will have to stick with more expensive surfing sunscreens. Too bad Amazon won&#x27;t let me return it. May have to use it on the rest of my body when hanging out at the beach. Hopefully it works better for overall beach use.</li>
+    <li> Excellent sunscreen protected my fair skin from the sweltering Hong Kong heat during the middle of July - and that&#x27;s saying something.  Applied once or twice a day with no oily residue and absolutely no burns.  Highly recommend!</li>
+    <li> Great stuff! I have very sensitive skin and this is the only sunscreen I can tolerate. Even the stuff put out by skin specialists bother me. If you have sensitive skin, it&#x27;ll probably work for you, too.</li>
+    <li> Beware....if you order Blue Lizard Very Water Resistant (240 min) Sunscreen  formula, you will be shipped Water Resistant (80 min) formula.</li>
+    <li> Item arrived on time :). I&#x27;ve been using Blue Lizard sunscreen for years - it is the best for really protecting your skin. I have very pale skin and when I go to tropical places I need to make sure I don&#x27;t get burnt or else my trip will be ruined.  I&#x27;ve used the sport sunscreen in the water for snorkeling and general activities for hours at a time and had no problem! None of the US brands I have tried compare to this!</li>
+    <li> Best sunscreen I&#x27;ve ever used......one hint, apply lite, or you&#x27;ll get a heavy white coating...Also, must be shaken for each use...That was a bit to get used to...all in all, our family braved to HOT Florida sun on a recent vacation with no sunburns!!!!!! Love that it&#x27;s Chem free and safe.....&lt;br /&gt;Just received my second tube and this one has an expired date!!!!!!!! Unfortunately for me, this product is not eligible for returns.....So I have a great tube of sunscreen that we can&#x27;t use.....Not too happy!!!!!!</li>
+    <li> best sunscreen ever! Wish it was cheaper and could get a larger size. But worth it! I don&#x27;t have to worry when I use it on my kids.</li>
+    <li> Leaves a little white residue on the skin but a very effective sunscreen. Good price and does what it should.Perfect on the beach.</li>
+    <li> A dermatologist suggested this product. Our entire family has fair skin.  Works great!  We have an inground pool and spend most of the summer in it.  Not one sun burn all summer using blue lizard.</li>
+    <li> Being a cancer survivor who had radiation, it was suggested to me by two different oncologists to try this product to avoid any sunburns to my radiation area (upper left breast).  After a 10 day cruise in the Southern Caribbean, I can totally pledge that this product works!  Even with lots of snorkeling, this sunscreen never let me down.  I highly recommend it to anyone who can burn easily.  One caution:  a little goes a very long way; squeeze just a little out of the tube at a time.</li>
+    <li> Purchased because it contains zinc and is a highly rated product on other sites. I find it overly expensive compared to No-Ad Sport, but No-Ad does not contain zinc.  I would use BL on my face and No-Ad everywhere else.&lt;br /&gt;&lt;br /&gt;Be sure to shake really well before using. Goes on my face nicely, seems to protect well for hour+ long bike rides. Have not used it yet while swimming in the ocean.</li>
+    <li> Love this sunscreen. I work as a mail carrier and I think it works great.</li>
+    <li> This is an easy to use though somewhat thin sunscreen that goes on quite white. Although it seems to survive swims in the Pacific ocean here in Hawaii, any sweat reducing activity caused it too come off rather readily. If you&#x27;re an athlete looking for a replacement for Scape -- this isn&#x27;t it. And whatever you do,  do NOT use it on your face, it comes off way too readily to be used there -- you&#x27;ll have your eyes stinging in no time.</li>
+    <li> Use if every day.  Great product.</li>
+    <li> We bought this to use in the NC summer sun, and wanted something without all the chemicals in it for our kids. It goes on easily, and a little bit goes a long way! Easy to use - it starts out white and then rubs in.</li>
+    <li> I bought this because of all the positive reviews. Was disappointed after I started sweating, as it started to mix with my sweat and you could see it starting to rub off with the sweat. Maybe good if you don&#x27;t plan on sweating.  So for sport, I would say NO.</li>
+    <li> So glad I found this on Amazon.  This is the only sunscreen that provides the protection that I need and is also great on my skin.  We didn&#x27;t get burned this entire summer in the Texas sun, not at all!</li>
+    <li> I was using the sensitive sunscreen from blue lizard and I decided to switch to this sunscreen because I primarily use it for basketball.&lt;br /&gt;&lt;br /&gt;I noticed that when I use this sunscreen I get dark and stay dark and then I have a terrible itch around my neck that has lingered for a couple of weeks.&lt;br /&gt;&lt;br /&gt;With the sensitive sunscreen I got dark but returned closer to my natural skin color the same day. I also did not have any itch in my neck.&lt;br /&gt;&lt;br /&gt;I will go back to sensitive. The sunscreen does its job but maybe I&#x27;m not the right person for this product.</li>
+    <li> I have used this stuff for several years and it is great. My dermatologist no longer complains about my sun exposure.</li>
+    <li> Great product. Fragrance free, does what it promises and it absorbs well!</li>
+    <li> I LOVE Blue Lizard.  This works almost instantly...no smell, goes right on and into your skin and give wonderful protection.</li>
+    <li> Love this sunscreen... It was recommended by our dermatologist and it&#x27;s all we use now.</li>
+    <li> WOW!  I applied this to my son in the morning before he left for a 2 1/2 hour baseball practice, then 1 hour after, he subbed for another team.  We are in South Florida. My husband came home FRIED, my son who used this was totally fine after HOURS of playing in the sunshine!!!!</li>
+    <li> Worked well for us.&lt;br /&gt;&lt;br /&gt;Used it at a water park in Abu Dhabi. Although we hadn&#x27;t a whole lot of sun exposure yet this year, it successfully kept us from avoiding sunburn despite being out in the midday sun in the Middle East. (To be fair, there were bits of shade throughout the park -- so we weren&#x27;t baking in the sun all 5 hours.)&lt;br /&gt;&lt;br /&gt;Used it at other times on the trip.  And despite sweating in some locations, it seemed to hold up well.&lt;br /&gt;&lt;br /&gt;We prefer Blue Lizard for Sensitive Skin since it is toxic-chemical free, but we brought this along, too, for the water parks and the such.</li>
+    <li> The best sunscreen I&#x27;ve found for people with excema.  It works well, and doesn&#x27;t feel bad when it gets wet.</li>
+    <li> Recommended by my dermatologist-didn&#x27;t like the consistency &amp; also felt I got a little bit more sun than I normally did with my regular sunscreen.  Will not buy again.</li>
+    <li> It was recommended to me originally by my dermatologist.  It&#x27;s great for my very sensitive skin.  It really protects me from sunburn on the beach.</li>
+    <li> According to my dermatologist, sunscreen formulas for products made in the USA have not  changed in over 20 years as FDA has not approved any requests.  I am very fair skinned.  I spend lots of time outside and wanted something that would protect me.  The doctor recommended this and I have not been disappointed.  Spreads evenly and does take much.  Have not had any problems with lasting for several hours.  Very little if any smell.  Will continue to purchase.</li>
+    <li> This product was recommended to us for our excursion to the Galapagos Islands by a sister-in-law.  Awesome product!  Glad I read the reviews before ordering as it gave valuable advice.  Apply 15+ minutes before going outside or into the water to allow it to set and be absorbed.  If you don&#x27;t you will get it in your eyes and sting!!  But if you follow the instructions (what an idea!) it works like a dream.  This girl who burns through her shirts came back with a light golden tan and never burned once, even after the daily hiking on the islands and time on the water!  Get it, you won&#x27;t be sorry!</li>
+    <li> Over 15 years ago, my Dermatologist removed a small brown spot from my skin and diagnosed me with basal cell carcinoma. This was a bit scary to me as I was very young. I am very fair skinned, and suffered from sunburns my entire childhood. On the advice of that doctor, my family has been using Blue Lizard sunscreen products now for almost 15 years. I personally use sport, regular and face, but have used the baby and sensitive formulas on my family.&lt;br /&gt;&lt;br /&gt;My parents generation didn&#x27;t believe in using sunscreen. I have been educated the hard way from the harmful effects of the sun, so I know how important it is to prevent them from BIRTH! We have always made sure our kids were properly protected when going out in the sun. That being said, our youngest had a small brown mole on the bottom of her foot from birth. At age 5, the dermatologist began measuring the mole and said eventually it would have to be removed with surgery. At age 8, we went ahead and had it taken off. Now more than ever it is important to make sure that she never has a sunburn. Blue Lizard, when applied properly and according to the package recommendations, is the best sunscreen I have ever used. My daughter uses the sensitive formula because she has very sensitive skin.&lt;br /&gt;&lt;br /&gt;If these reasons aren&#x27;t enough, my husband suffers from a sort of sun allergy. The ONLY sunscreen that keeps him from itching after sun exposure is Blue Lizard.&lt;br /&gt;&lt;br /&gt;It works best if you apply it to dry skin, let it dry before going out in the sun, reapply as needed</li>
+</ol>
+
+
+
+

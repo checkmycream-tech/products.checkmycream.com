@@ -1,0 +1,144 @@
+---
+title: Glow By Jennifer Lopez For Women. Body Lotion 6.7 Ounces,
+description: Glow By Jennifer Lopez For Women. Body Lotion 6.7 Ounces,
+author: Suvojit Manna,
+tags: Glow By Jennifer Lopez For Women. Body Lotion 6.7 Ounces,
+publishedAt: Fri Jan 10 2020 14:59:06 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:59:06 GMT+0530 (India Standard Time),
+---
+
+# [Glow By Jennifer Lopez For Women. Body Lotion 6.7 Ounces](https://products.checkmycream.com/products/Glow-By-Jennifer-Lopez-For-Women.-Body-Lotion-6.7-Ounces.html)
+
+### Positive Reviews
+
+<ol>
+      <li>Body Lotion 6.7 Ounces is teh perfect size for travel and home use.  </li>
+      <li>Guys if you want your wife to smell awesome, BUY IT!</li>
+      <li>Smells wonderful.</li>
+      <li>Shopped around for this product and found that Amazon had the best price.</li>
+      <li>She was very happy that I bought it .  </li>
+      <li>price and good product ... Smells good!!!  </li>
+      <li>Great product.  </li>
+      <li>I always get compliments when I wear Glow, and its even better layered with the lotion!</li>
+      <li>This lotion smells amazing.  </li>
+      <li>The lotion has a great scent and makes your body smooth.</li>
+      <li>It&#x27;s a really nice scent for an affordable price.</li>
+      <li>Smells great, a sexy light scent without the smell of pouring a perfume bottle over your body.  </li>
+      <li>have to keep writing more words on this review, because they require SO many!  </li>
+      <li>I will buy more I have 3 now</li>
+      <li>Always love and will buy again and again</li>
+      <li>I can&#x27;t explain the scent I love it.</li>
+      <li>totally refreshing...</li>
+      <li>This is one of my favorite scents.</li>
+      <li>love it...thks.mjm</li>
+      <li>Glad to see</li>
+      <li>I love the scent.  </li>
+      <li>I love it..</li>
+      <li>I love J Lo Glow.  </li>
+      <li>Many compliments are made when I weat this scent.  </li>
+      <li>People always stop and asked me what perfume I am wearing&amp;#62;  It just has a nice clean smell.</li>
+      <li>glad to see it&#x27;s still available</li>
+      <li>It does everything a man needs to make your special someone feel .....sexy!</li>
+      <li>has a clean shower fresh scent,,,very perfumy and lovely.  </li>
+      <li>I have had it for many, many years, and the only way I could buy it was to get the perfume with it.  </li>
+      <li>When first put on its like you just stepped out of the shower fresh soap scent then it turns into a scent so mellow and smooth and no soap scent.</li>
+      <li>I really like the fact that it&#x27;s not too strong.</li>
+      <li>love jlo glow lotion, last all day, just love the smell and the price was decent so thank you .</li>
+      <li>This was exactly what I wanted.</li>
+      <li>I still love the perfume and the body lotion in the summer months especially!</li>
+      <li>Fast shipping also.</li>
+      <li>Reasonable price, too.</li>
+      <li>Very please with purchase.</li>
+      <li>Thanks again .</li>
+      <li>I high recommend this product</li>
+      <li>She really likes the lite fragrance as she has a sensitive nose.</li>
+      <li>The Body Lotion is not something new for me.  </li>
+      <li>Brand new and legit.</li>
+      <li>so I bought her one for her stocking, even though she is 47 years old.</li>
+      <li>It has a soft, non instrusive fragrance...</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> Body Lotion 6.7 Ounces is teh perfect size for travel and home use.  </li>
+<li> Guys if you want your wife to smell awesome, BUY IT!</li>
+<li> Smells wonderful.</li>
+<li> Shopped around for this product and found that Amazon had the best price.</li>
+<li> She was very happy that I bought it .  </li>
+<li> price and good product ... Smells good!!!  </li>
+<li> Great product.  </li>
+<li> I always get compliments when I wear Glow, and its even better layered with the lotion!</li>
+<li> This lotion smells amazing.  </li>
+<li> The lotion has a great scent and makes your body smooth.</li>
+<li> It&#x27;s a really nice scent for an affordable price.</li>
+<li> Smells great, a sexy light scent without the smell of pouring a perfume bottle over your body.  </li>
+<li> have to keep writing more words on this review, because they require SO many!  </li>
+<li> I will buy more I have 3 now</li>
+<li> Always love and will buy again and again</li>
+<li> I can&#x27;t explain the scent I love it.</li>
+<li> totally refreshing...</li>
+<li> This is one of my favorite scents.</li>
+<li> love it...thks.mjm</li>
+<li> Glad to see</li>
+<li> I love the scent.  </li>
+<li> I love it..</li>
+<li> I love J Lo Glow.  </li>
+<li> Many compliments are made when I weat this scent.  </li>
+<li> People always stop and asked me what perfume I am wearing&amp;#62;  It just has a nice clean smell.</li>
+<li> glad to see it&#x27;s still available</li>
+<li> It does everything a man needs to make your special someone feel .....sexy!</li>
+<li> has a clean shower fresh scent,,,very perfumy and lovely.  </li>
+<li> I have had it for many, many years, and the only way I could buy it was to get the perfume with it.  </li>
+<li> When first put on its like you just stepped out of the shower fresh soap scent then it turns into a scent so mellow and smooth and no soap scent.</li>
+<li> I really like the fact that it&#x27;s not too strong.</li>
+<li> love jlo glow lotion, last all day, just love the smell and the price was decent so thank you .</li>
+<li> This was exactly what I wanted.</li>
+<li> I still love the perfume and the body lotion in the summer months especially!</li>
+<li> Fast shipping also.</li>
+<li> Reasonable price, too.</li>
+<li> Very please with purchase.</li>
+<li> Thanks again .</li>
+<li> I high recommend this product</li>
+<li> She really likes the lite fragrance as she has a sensitive nose.</li>
+<li> The Body Lotion is not something new for me.  </li>
+<li> Brand new and legit.</li>
+<li> so I bought her one for her stocking, even though she is 47 years old.</li>
+<li> It has a soft, non instrusive fragrance...</li>
+<li> just a little on the hands and knees</li>
+<li> We have been trying to find Glow in a department store but have been unable to find it anywhere.</li>
+<li> something has changed :(</li>
+<li> and I HATE IT!!!</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> smell is good~~~&lt;br /&gt;Thanks~~</li>
+    <li> Glow By Jennifer Lopez For Women. Body Lotion 6.7 Ounces is teh perfect size for travel and home use.  It has a soft, non instrusive fragrance...I high recommend this product</li>
+    <li> The Body Lotion is not something new for me.  I have had it for many, many years, and the only way I could buy it was to get the perfume with it.  I prefer to just buy the Body Lotion.  love it...thks.mjm</li>
+    <li> I still love the perfume and the body lotion in the summer months especially!</li>
+    <li> I bought it for my wife who loves the product.We have been trying to find Glow in a department store but have been unable to find it anywhere.Macy&#x27;s did have it at one time but carries it no longer .  She really likes the lite fragrance as she has a sensitive nose.She was very happy that I bought it .  Thanks again .</li>
+    <li> I love J Lo Glow.  I really like the fact that it&#x27;s not too strong. It&#x27;s a really nice scent for an affordable price.</li>
+    <li> This lotion smells amazing.  People always stop and asked me what perfume I am wearing&amp;#62;  It just has a nice clean smell. Like you just stepped out of the shower.</li>
+    <li> Shopped around for this product and found that Amazon had the best price. The lotion has a great scent and makes your body smooth.</li>
+    <li> My daughter loves this product so I bought her one for her stocking, even though she is 47 years old. HA! Smells wonderful.</li>
+    <li> Glad to see this hasn&#x27;t changed purchase the perfume at the same time and I HATE IT!!! something has changed :(</li>
+    <li> has a clean shower fresh scent,,,very perfumy and lovely.  totally refreshing... just a little on the hands and knees and I&#x27;m good.&lt;br /&gt;fair price considering I couldn&#x27;t find it in the stores anymore...thought it was discontinued... glad to see it&#x27;s still available</li>
+    <li> Guys if you want your wife to smell awesome, BUY IT! It does everything a man needs to make your special someone feel .....sexy!</li>
+    <li> love jlo glow lotion, last all day, just love the smell and the price was decent so thank you .</li>
+    <li> my wife loves it and so do i</li>
+    <li> Smells great, a sexy light scent without the smell of pouring a perfume bottle over your body.  Many compliments are made when I weat this scent.  Reasonable price, too.</li>
+    <li> Smells Good.&lt;br /&gt;I have to keep writing more words on this review, because they require SO many!  Now I am done.</li>
+    <li> This was exactly what I wanted. Brand new and legit. Very please with purchase. Fast shipping also. A+ seller.</li>
+    <li> Glow By Jennifer Lopez For Women. Body Lotion 6.7 Ounces...&lt;br /&gt;good price and good product ... Smells good!!!  I love it..</li>
+    <li> I have been wearing this scent since it came out and still get complimented all the time. I hope she never stops making it!</li>
+    <li> I love the scent.  I will buy more I have 3 now but I use daily.  When first put on its like you just stepped out of the shower fresh soap scent then it turns into a scent so mellow and smooth and no soap scent. I can&#x27;t explain the scent I love it.</li>
+    <li> Great product.  I Wish I could also find the shower gel.  I hope they aren&#x27;t going to discontinue the product.</li>
+    <li> Always love and will buy again and again</li>
+    <li> This is one of my favorite scents. I always get compliments when I wear Glow, and its even better layered with the lotion! You gotta Try Glow.</li>
+</ol>
+
+
+
+

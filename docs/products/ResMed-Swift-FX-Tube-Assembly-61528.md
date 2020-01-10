@@ -1,0 +1,157 @@
+---
+title: ResMed Swift FX Tube Assembly, 61528,
+description: ResMed Swift FX Tube Assembly, 61528,
+author: Suvojit Manna,
+tags: ResMed Swift FX Tube Assembly, 61528,
+publishedAt: Fri Jan 10 2020 15:00:08 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:08 GMT+0530 (India Standard Time),
+---
+
+# [ResMed Swift FX Tube Assembly, 61528](https://products.checkmycream.com/products/ResMed-Swift-FX-Tube-Assembly-61528.html)
+
+### Positive Reviews
+
+<ol>
+      <li>It works and is the best C pap nose pillow out there.  </li>
+      <li>Perfect match</li>
+      <li>Excellent service and product ...</li>
+      <li>They had the best price!</li>
+      <li>This works perfectly.</li>
+      <li>best mask and accessories Ive tried</li>
+      <li>works great.</li>
+      <li>This is a perfect fit replacement</li>
+      <li>OEM replacement part for a good price.</li>
+      <li>Perfect fit, fast shipping great!!!!</li>
+      <li>I am so happy these things are available online for a fraction of the price I used to pay with insurance.</li>
+      <li>Nice to find a replacement.</li>
+      <li>Perfect replacement for older Swift FX assembly</li>
+      <li>As good as the original</li>
+      <li>Good price, true replacement.</li>
+      <li>Works great and a reasonable price.</li>
+      <li>Perfect replacement part here at 1/3 the price of the medical suppliers and &amp;#34;wholesalers&amp;#34;.</li>
+      <li>Perfect fit, works just as advertised, saved considerable money over going through insurance.</li>
+      <li>Just what I ordered and  a better price.</li>
+      <li>It is great to buy the item without having to buy the whole head gear.</li>
+      <li>This is an original ResMed replacement part at a fraction of the cost from ResMed providers since I was able to buy the hose on it&#x27;s own without the headgear</li>
+      <li>I just dry it as best</li>
+      <li>It&#x27;s easy to disassemble and clean.  </li>
+      <li>So this one works just like the original &amp;</li>
+      <li>like original product</li>
+      <li>Arrived quickly and works fine</li>
+      <li>Other than that minor confusion, the piece assembles easily, fits well, and works wonderfully.</li>
+      <li>EXACTLY WHAT I WAS LOOKING FOR!</li>
+      <li>, i will certainly be looking elsewhere first because of price,  however if no where else is available, ResMed did deliver fast.</li>
+      <li>This product is exactly what I was looking for.</li>
+      <li>Exactly what I was hoping for</li>
+      <li>Exactly as described.</li>
+      <li>Be aware it does not.</li>
+      <li>Sure makes getting tube completely  dry.</li>
+      <li>Mostly very durable, but one can break it.</li>
+      <li>Price was reasonable as well and was shipped promptly</li>
+      <li>Really works</li>
+      <li>Every easy to use with nasal adapters (small, med and large), Easier to clean.</li>
+      <li>works, seems to be well made, is simple to clean, what else can I say?</li>
+      <li>Exactly what I expected at a very reasonable price.</li>
+      <li>New from factory in all that I could see.</li>
+      <li>It&#x27;s nice, a little hard to get inside the hole, but nice, thin, and easy to move around,</li>
+      <li>My old one leaked air from every joint.</li>
+      <li>,  works exactly like the other one.  </li>
+      <li>I had good results with the Swift FX mask, and when my old mask failed prematurely, I found this, and the other pieces for a new mask.</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> It works and is the best C pap nose pillow out there.  </li>
+<li> Perfect match</li>
+<li> Excellent service and product ...</li>
+<li> They had the best price!</li>
+<li> This works perfectly.</li>
+<li> best mask and accessories Ive tried</li>
+<li> works great.</li>
+<li> This is a perfect fit replacement</li>
+<li> OEM replacement part for a good price.</li>
+<li> Perfect fit, fast shipping great!!!!</li>
+<li> I am so happy these things are available online for a fraction of the price I used to pay with insurance.</li>
+<li> Nice to find a replacement.</li>
+<li> Perfect replacement for older Swift FX assembly</li>
+<li> As good as the original</li>
+<li> Good price, true replacement.</li>
+<li> Works great and a reasonable price.</li>
+<li> Perfect replacement part here at 1/3 the price of the medical suppliers and &amp;#34;wholesalers&amp;#34;.</li>
+<li> Perfect fit, works just as advertised, saved considerable money over going through insurance.</li>
+<li> Just what I ordered and  a better price.</li>
+<li> It is great to buy the item without having to buy the whole head gear.</li>
+<li> This is an original ResMed replacement part at a fraction of the cost from ResMed providers since I was able to buy the hose on it&#x27;s own without the headgear</li>
+<li> I just dry it as best</li>
+<li> It&#x27;s easy to disassemble and clean.  </li>
+<li> So this one works just like the original &amp;</li>
+<li> like original product</li>
+<li> Arrived quickly and works fine</li>
+<li> Other than that minor confusion, the piece assembles easily, fits well, and works wonderfully.</li>
+<li> EXACTLY WHAT I WAS LOOKING FOR!</li>
+<li> , i will certainly be looking elsewhere first because of price,  however if no where else is available, ResMed did deliver fast.</li>
+<li> This product is exactly what I was looking for.</li>
+<li> Exactly what I was hoping for</li>
+<li> Exactly as described.</li>
+<li> Be aware it does not.</li>
+<li> Sure makes getting tube completely  dry.</li>
+<li> Mostly very durable, but one can break it.</li>
+<li> Price was reasonable as well and was shipped promptly</li>
+<li> Really works</li>
+<li> Every easy to use with nasal adapters (small, med and large), Easier to clean.</li>
+<li> works, seems to be well made, is simple to clean, what else can I say?</li>
+<li> Exactly what I expected at a very reasonable price.</li>
+<li> New from factory in all that I could see.</li>
+<li> It&#x27;s nice, a little hard to get inside the hole, but nice, thin, and easy to move around,</li>
+<li> My old one leaked air from every joint.</li>
+<li> ,  works exactly like the other one.  </li>
+<li> I had good results with the Swift FX mask, and when my old mask failed prematurely, I found this, and the other pieces for a new mask.</li>
+<li> Priced a little high, but when you need a hose..</li>
+<li> now I can wash one &amp; let dry &amp; change out a week later.  </li>
+<li> I bought this because I could not get the one I had dry in 24 hrs.  </li>
+<li> Exactly like the one from my health care provider but less expensive.</li>
+<li> I can, then attach it to the machine and turn it on for a few minutes before I put it on.  </li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> Arrived quickly and works fine</li>
+    <li> Well needed replacement.</li>
+    <li> Perfect replacement for older Swift FX assembly</li>
+    <li> Perfect match,  works exactly like the other one.  Priced a little high, but when you need a hose..&lt;br /&gt;&lt;br /&gt;if i need a future hose, i will certainly be looking elsewhere first because of price,  however if no where else is available, ResMed did deliver fast.</li>
+    <li> Perfect fit, fast shipping great!!!!</li>
+    <li> I prefer this method over the mask attachment as it allows me to use the nasal pillows over the ears, which doesn&#x27;t pull my hair.  It&#x27;s easy to disassemble and clean.  I just dry it as best I can, then attach it to the machine and turn it on for a few minutes before I put it on.  That helps &amp;#34;blow dry&amp;#34; it.</li>
+    <li> EXACTLY WHAT I WAS LOOKING FOR!</li>
+    <li> I am so happy these things are available online for a fraction of the price I used to pay with insurance.</li>
+    <li> I had good results with the Swift FX mask, and when my old mask failed prematurely, I found this, and the other pieces for a new mask. Price was reasonable as well and was shipped promptly</li>
+    <li> This is an original ResMed replacement part at a fraction of the cost from ResMed providers since I was able to buy the hose on it&#x27;s own without the headgear</li>
+    <li> It does everything it&#x27;s supposed to do. Mostly very durable, but one can break it. Nice to find a replacement.</li>
+    <li> This one of those things where somthing works or it doesn&#x27;t.&lt;br /&gt;This works, seems to be well made, is simple to clean, what else can I say?</li>
+    <li> Don&#x27;t be fooled by the local health at home store or your hospital. Perfect replacement part here at 1/3 the price of the medical suppliers and &amp;#34;wholesalers&amp;#34;.</li>
+    <li> Exactly what I expected at a very reasonable price.</li>
+    <li> I bought this because I could not get the one I had dry in 24 hrs.  So this one works just like the original &amp; now I can wash one &amp; let dry &amp; change out a week later.  Sure makes getting tube completely  dry.</li>
+    <li> Works great and a reasonable price. My old one leaked air from every joint. This is a perfect fit replacement</li>
+    <li> What can you say about a tube? It&#x27;s nice, a little hard to get inside the hole, but nice, thin, and easy to move around,</li>
+    <li> Good price, true replacement.</li>
+    <li> Just what I ordered and  a better price.</li>
+    <li> Excellent service and product ...</li>
+    <li> Exactly as described. New from factory in all that I could see.</li>
+    <li> Perfect fit, works just as advertised, saved considerable money over going through insurance.</li>
+    <li> As good as the original</li>
+    <li> It works and is the best C pap nose pillow out there.  It is great to buy the item without having to buy the whole head gear. Really works</li>
+    <li> This works perfectly. I was unsure however, if it included the hose. Be aware it does not. Other than that minor confusion, the piece assembles easily, fits well, and works wonderfully.</li>
+    <li> Easier than dealing with insurance and local supplier. Same parts to maintain my CPAP.</li>
+    <li> like original product</li>
+    <li> Every easy to use with nasal adapters (small, med and large), Easier to clean.</li>
+    <li> Exactly like the one from my health care provider but less expensive.</li>
+    <li> This product is exactly what I was looking for. They had the best price!</li>
+    <li> OEM replacement part for a good price.</li>
+    <li> works great. best mask and accessories Ive tried</li>
+    <li> Exactly what I was hoping for</li>
+</ol>
+
+
+
+

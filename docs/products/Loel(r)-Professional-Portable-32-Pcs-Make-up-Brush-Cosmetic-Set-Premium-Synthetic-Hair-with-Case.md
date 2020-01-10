@@ -1,0 +1,224 @@
+---
+title: Loel® Professional Portable 32 Pcs Make up Brush Cosmetic Set Premium Synthetic Hair with Case,
+description: Loel® Professional Portable 32 Pcs Make up Brush Cosmetic Set Premium Synthetic Hair with Case,
+author: Suvojit Manna,
+tags: Loel® Professional Portable 32 Pcs Make up Brush Cosmetic Set Premium Synthetic Hair with Case,
+publishedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
+---
+
+# [Loel® Professional Portable 32 Pcs Make up Brush Cosmetic Set Premium Synthetic Hair with Case](https://products.checkmycream.com/products/Loel(r)-Professional-Portable-32-Pcs-Make-up-Brush-Cosmetic-Set-Premium-Synthetic-Hair-with-Case.html)
+
+### Positive Reviews
+
+<ol>
+      <li>Very good quality for the price!</li>
+      <li>Iam very happy with my Order.</li>
+      <li>Excellent product for a good price!</li>
+      <li>Over all rate very good.</li>
+      <li>Just as good as MAC!</li>
+      <li>BEAUTIFUL</li>
+      <li>Its a great set for beginners all the way to experts.</li>
+      <li>Great brushes for the cost.</li>
+      <li>and i just Love them!!</li>
+      <li>SO MANY pcs!!</li>
+      <li>/&gt;It also comes in a cute faux leather pouch, great for travelling and great for MUA&#x27;s!</li>
+      <li>For the price they are good.</li>
+      <li>Good product for this price.</li>
+      <li>but it was a great buy :)</li>
+      <li>I love it!</li>
+      <li>alot more!</li>
+      <li>My clients love them and couldnt believe i got them for $14!</li>
+      <li>This is amazing for the price.</li>
+      <li>Loving every inches of my package.</li>
+      <li>Brushes fall apart very easy, I guess you get what you pay for</li>
+      <li>I kind of wish they were labeled since there are sooo many brushes, but I accepted that I&#x27;ll just figure it out on my own.&lt;br /&gt;&lt;br</li>
+      <li>Because I love my brushes.</li>
+      <li>SOO IN LOVE MAKEUP</li>
+      <li>Love Love love</li>
+      <li>i recommend them to all who love doing make up.</li>
+      <li>but It was a tip received from a top makeup artist and It works for me :)</li>
+      <li>/&gt;Aside from the scent, this set is FANTASTIC!</li>
+      <li>Most of the brushes are great, but the bigger ones shed a lot.</li>
+      <li>I was surprised when they arrived so quickly and turned out to be great quality</li>
+      <li>Great product for low price.</li>
+      <li>Nice set of brushes in a decent storage case.</li>
+      <li>Anyways, it is VERY much worth the price!</li>
+      <li>They are very soft and nice.</li>
+      <li>The big brushes aren&#x27;t  to good</li>
+      <li>Also, the bag and brushes are SUPER smelly</li>
+      <li>The rest of the brushes were great but a lot of them were too similar and there wasn&#x27;t even a blending eye shadow brush in the whole bunch.</li>
+      <li>The smaller brushes are pretty good at picking up product though.</li>
+      <li>With that being said, the brushes are super soft and there are SO MANY options -</li>
+      <li>Fast &amp; Accurate shipping.</li>
+      <li>The quality is amazing for the price, obviously it&#x27;s not going to be like the $20 each brush sets, however it is very much worth the money.</li>
+      <li>They are well worth the money.</li>
+      <li>and such a great value, so far i&#x27;ve used the eye shadow brushes, blush brush, lip color brush and also the eyebrow brush.</li>
+      <li>I haven&#x27;t actually used the brushed for makeup application, but they definitely seem like they&#x27;ll work great!</li>
+      <li>its not much of a eyeshadow brushes... and one thing I think is very saddening, the most important in a makeup set, is that it DOES NOT have a blending brush.</li>
+      <li>The smaller brushes are more of concealer brushes and lip brushes...</li>
+      <li>They are way better than the bigger brushes.</li>
+      <li>Personally they are good enough brushes.</li>
+      <li>It&#x27;s mild and once aired out, I don&#x27;t smell it any longer.</li>
+      <li>Most of them were super similar just slightly different in size.</li>
+      <li>Fast shipping.</li>
+      <li>They shed way too much (</li>
+      <li>didnt really do the job.</li>
+      <li>This is a fantastic set, especially for the price.</li>
+      <li>I just set the whole thing outdoors and let it air for an afternoon, opened up.</li>
+      <li>It&#x27;s not worth the very cheap price.</li>
+      <li>I won&#x27;t use the case unless I find a way to clean the leather, but I&#x27;ll be using a different brush case in the meantime.</li>
+      <li>Highly recommend.</li>
+      <li>First of all, I washed them first with mild soap and left them to dry for over 10hrs.</li>
+      <li>The tan/brown tipped brushes are soo soft and apply makeup really well.</li>
+      <li>I ordered for Halloween makeup application and really expected cheap, flimsy tools.</li>
+      <li>These are actually quite nice for such a low price.</li>
+      <li>/&gt;Lastly, I was stuck choosing between another set that was $11 and this one, and although the brushes shed ever so slightly, I&#x27;m so glad I spent the extra $2.</li>
+      <li>like I expected there to be in a full set of brushes.</li>
+      <li>Wow what a run on sentence.</li>
+      <li>Also one thing you should know that the big brushes are very flimsy.</li>
+      <li>The brushes are pretty stiff so they don&#x27;t help much with blending my eyeshadow</li>
+      <li>The big fluffy brushes are rough but the smaller ones are better</li>
+      <li>The four big brushes was shedding and not as soft as the smaller brushes.</li>
+      <li>Little Black Beauty Book, 48 Piece Palette, Warm]], and the brushes pick up make up extremely well.</li>
+      <li>I tend to be very nice in reviews, but this product I&#x27;m just extremely disappointed in.</li>
+      <li>Other than that they look well made and very professional.</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> Very good quality for the price!</li>
+<li> Iam very happy with my Order.</li>
+<li> Excellent product for a good price!</li>
+<li> Over all rate very good.</li>
+<li> Just as good as MAC!</li>
+<li> BEAUTIFUL</li>
+<li> Its a great set for beginners all the way to experts.</li>
+<li> Great brushes for the cost.</li>
+<li> and i just Love them!!</li>
+<li> SO MANY pcs!!</li>
+<li> /&gt;It also comes in a cute faux leather pouch, great for travelling and great for MUA&#x27;s!</li>
+<li> For the price they are good.</li>
+<li> Good product for this price.</li>
+<li> but it was a great buy :)</li>
+<li> I love it!</li>
+<li> alot more!</li>
+<li> My clients love them and couldnt believe i got them for $14!</li>
+<li> This is amazing for the price.</li>
+<li> Loving every inches of my package.</li>
+<li> Brushes fall apart very easy, I guess you get what you pay for</li>
+<li> I kind of wish they were labeled since there are sooo many brushes, but I accepted that I&#x27;ll just figure it out on my own.&lt;br /&gt;&lt;br</li>
+<li> Because I love my brushes.</li>
+<li> SOO IN LOVE MAKEUP</li>
+<li> Love Love love</li>
+<li> i recommend them to all who love doing make up.</li>
+<li> but It was a tip received from a top makeup artist and It works for me :)</li>
+<li> /&gt;Aside from the scent, this set is FANTASTIC!</li>
+<li> Most of the brushes are great, but the bigger ones shed a lot.</li>
+<li> I was surprised when they arrived so quickly and turned out to be great quality</li>
+<li> Great product for low price.</li>
+<li> Nice set of brushes in a decent storage case.</li>
+<li> Anyways, it is VERY much worth the price!</li>
+<li> They are very soft and nice.</li>
+<li> The big brushes aren&#x27;t  to good</li>
+<li> Also, the bag and brushes are SUPER smelly</li>
+<li> The rest of the brushes were great but a lot of them were too similar and there wasn&#x27;t even a blending eye shadow brush in the whole bunch.</li>
+<li> The smaller brushes are pretty good at picking up product though.</li>
+<li> With that being said, the brushes are super soft and there are SO MANY options -</li>
+<li> Fast &amp; Accurate shipping.</li>
+<li> The quality is amazing for the price, obviously it&#x27;s not going to be like the $20 each brush sets, however it is very much worth the money.</li>
+<li> They are well worth the money.</li>
+<li> and such a great value, so far i&#x27;ve used the eye shadow brushes, blush brush, lip color brush and also the eyebrow brush.</li>
+<li> I haven&#x27;t actually used the brushed for makeup application, but they definitely seem like they&#x27;ll work great!</li>
+<li> its not much of a eyeshadow brushes... and one thing I think is very saddening, the most important in a makeup set, is that it DOES NOT have a blending brush.</li>
+<li> The smaller brushes are more of concealer brushes and lip brushes...</li>
+<li> They are way better than the bigger brushes.</li>
+<li> Personally they are good enough brushes.</li>
+<li> It&#x27;s mild and once aired out, I don&#x27;t smell it any longer.</li>
+<li> Most of them were super similar just slightly different in size.</li>
+<li> Fast shipping.</li>
+<li> They shed way too much (</li>
+<li> didnt really do the job.</li>
+<li> This is a fantastic set, especially for the price.</li>
+<li> I just set the whole thing outdoors and let it air for an afternoon, opened up.</li>
+<li> It&#x27;s not worth the very cheap price.</li>
+<li> I won&#x27;t use the case unless I find a way to clean the leather, but I&#x27;ll be using a different brush case in the meantime.</li>
+<li> Highly recommend.</li>
+<li> First of all, I washed them first with mild soap and left them to dry for over 10hrs.</li>
+<li> The tan/brown tipped brushes are soo soft and apply makeup really well.</li>
+<li> I ordered for Halloween makeup application and really expected cheap, flimsy tools.</li>
+<li> These are actually quite nice for such a low price.</li>
+<li> /&gt;Lastly, I was stuck choosing between another set that was $11 and this one, and although the brushes shed ever so slightly, I&#x27;m so glad I spent the extra $2.</li>
+<li> like I expected there to be in a full set of brushes.</li>
+<li> Wow what a run on sentence.</li>
+<li> Also one thing you should know that the big brushes are very flimsy.</li>
+<li> The brushes are pretty stiff so they don&#x27;t help much with blending my eyeshadow</li>
+<li> The big fluffy brushes are rough but the smaller ones are better</li>
+<li> The four big brushes was shedding and not as soft as the smaller brushes.</li>
+<li> Little Black Beauty Book, 48 Piece Palette, Warm]], and the brushes pick up make up extremely well.</li>
+<li> I tend to be very nice in reviews, but this product I&#x27;m just extremely disappointed in.</li>
+<li> Other than that they look well made and very professional.</li>
+<li> It makes the brushes last so much longer - I&#x27;m not exactly sure why</li>
+<li> All of the eye brushes are flat, so there are no blending brushes.</li>
+<li> Although there are a lot of the other reviews mentioning how the scent of the package is repulsive, it wasn&#x27;t that big of an issue for me.</li>
+<li> - i was a little worried with such a low price</li>
+<li> Only thing you must know is that the big brushes are not good.</li>
+<li> Very fast shipping ill be ordering from Loel</li>
+<li> It has a bit of a funny smell when you open it, but it&#x27;s not that bad.</li>
+<li> The actual brushes were just ok aside from the horrible smell.</li>
+<li> Nothing was missing from the set.</li>
+<li> The large dark haired brushes smelt so bad even after I washed them twice</li>
+<li> the brushes are somewhat stiff.</li>
+<li> I use these everyday!</li>
+<li> Althought the big brushes were somewhat bad, they can get product, but not much.</li>
+<li> the big brushes i did not like at all, theyre rough and alittle painful to use against my skin.</li>
+<li> It doesn&#x27;t come with an eye shadow blending brush, to my disappointment, but it comes with basically every other thing you need for makeup, other than a beauty blender, but I wasn&#x27;t expecting that.</li>
+<li> Its not that bad of a scent actually.</li>
+<li> When the brushes arrived, the first thing i noticed was that they stink horribly.</li>
+<li> I mean, there&#x27;s even a mascara applicator!</li>
+<li> It came with 32 brushes but I was disappointed that NONE were small and fluffy (meant for eyeshadow)</li>
+<li> I thought it would come off with some specialty soap, but I was wrong.</li>
+<li> It does have a weird smell but nothing  to crazy to fuss about.</li>
+<li> I cannot use the brushes on my face when they smell that bad.</li>
+<li> removed the horrible smell.</li>
+<li> The case however smells HORRIBLE.</li>
+<li> but I wasnt disgusted by it.</li>
+<li> Very disappointed with this purchase!</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> Very disappointed with this purchase! When the brushes arrived, the first thing i noticed was that they stink horribly. Then after examining them closely i realized that 1. None of the brushes are labeled 2. All of the eye brushes are flat, so there are no blending brushes. 3. They all fall apart when you use them. Then again what should i expect for only $13.00 for 36 brushes...</li>
+    <li> The brushes are pretty stiff so they don&#x27;t help much with blending my eyeshadow but over all I like the bigger brushes for my foundation and stuff. ((:</li>
+    <li> Very good quality for the price! My clients love them and couldnt believe i got them for $14! Its a great set for beginners all the way to experts. Very fast shipping ill be ordering from Loel alot more!</li>
+    <li> Most of the brushes are great, but the bigger ones shed a lot. The tan/brown tipped brushes are soo soft and apply makeup really well. The case however smells HORRIBLE. It&#x27;s like someone sprayed it with gasoline or something. I won&#x27;t use the case unless I find a way to clean the leather, but I&#x27;ll be using a different brush case in the meantime.</li>
+    <li> The big fluffy brushes are rough but the smaller ones are better they don&#x27;t even have stiple brush and give you multiple of the same brushes</li>
+    <li> While reading reviews for these brushes, i figured people were exaggerating about the smell. I thought it would come off with some specialty soap, but I was wrong. I&#x27;ve had these brushes for 3 days, tried 3 different soaps including dish washing liquid, beauty blender cleaner soap, and ELF brush shampoo and nothing removed the horrible smell. I cannot use the brushes on my face when they smell that bad. Also, a lot of hair fell out from the big brushes while i was cleaning them.  I am returning them. I wouldn&#x27;t recommend these brushes.</li>
+    <li> This is amazing for the price. It has a bit of a funny smell when you open it, but it&#x27;s not that bad. The quality is amazing for the price, obviously it&#x27;s not going to be like the $20 each brush sets, however it is very much worth the money. It doesn&#x27;t come with an eye shadow blending brush, to my disappointment, but it comes with basically every other thing you need for makeup, other than a beauty blender, but I wasn&#x27;t expecting that. Wow what a run on sentence. Anyways, it is VERY much worth the price!</li>
+    <li> Fast &amp; Accurate shipping. Great product for low price. The four big brushes was shedding and not as soft as the smaller brushes. Over all rate very good.</li>
+    <li> Item was as described and it arrived in 48 hours.</li>
+    <li> The large dark haired brushes smelt so bad even after I washed them twice so I&#x27;m probably throwing them out. The rest of the brushes were great but a lot of them were too similar and there wasn&#x27;t even a blending eye shadow brush in the whole bunch.</li>
+    <li> For the price they are good. No problem with the hairs shedding</li>
+    <li> SO MANY pcs!! and such a great value, so far i&#x27;ve used the eye shadow brushes, blush brush, lip color brush and also the eyebrow brush. Brushes usually cost me $10 starting, so I was pretty psyched about this deal. I was surprised when they arrived so quickly and turned out to be great quality - i was a little worried with such a low price but it was a great buy :)&lt;br /&gt;&lt;br /&gt;TIP : Always wash your brushes before you use them! It makes the brushes last so much longer - I&#x27;m not exactly sure why but It was a tip received from a top makeup artist and It works for me :)&lt;br /&gt;&lt;br /&gt;It also comes in a cute faux leather pouch, great for travelling and great for MUA&#x27;s!</li>
+    <li> SOO IN LOVE MAKEUP FOREVER BEAUTIFUL WILL BUY AGAIN AND AGAIN</li>
+    <li> Good product for this price.</li>
+    <li> The bristle fell off as soon as i used them. Haven&#x27;t touched them since.</li>
+    <li> Although there are a lot of the other reviews mentioning how the scent of the package is repulsive, it wasn&#x27;t that big of an issue for me. In fact, it seemed to have faded within minutes.&lt;br /&gt;&lt;br /&gt;Aside from the scent, this set is FANTASTIC! For starters, it came within a day, instead of two, even with using amazon prime. I bought it with the [[ASIN:B008OINZAM e.l.f. Little Black Beauty Book, 48 Piece Palette, Warm]], and the brushes pick up make up extremely well. With that being said, the brushes are super soft and there are SO MANY options - I mean, there&#x27;s even a mascara applicator! I kind of wish they were labeled since there are sooo many brushes, but I accepted that I&#x27;ll just figure it out on my own.&lt;br /&gt;&lt;br /&gt;Lastly, I was stuck choosing between another set that was $11 and this one, and although the brushes shed ever so slightly, I&#x27;m so glad I spent the extra $2. This is a fantastic set, especially for the price.</li>
+    <li> the brushes are somewhat stiff. the big brushes i did not like at all, theyre rough and alittle painful to use against my skin. didnt really do the job.</li>
+    <li> It came with 32 brushes but I was disappointed that NONE were small and fluffy (meant for eyeshadow) like I expected there to be in a full set of brushes. Also, the bag and brushes are SUPER smelly and I can&#x27;t seem to find a way to rid of the smell even after washing and spraying everything. They still smell like chemicals. Nothing was missing from the set. The actual brushes were just ok aside from the horrible smell. Most of them were super similar just slightly different in size. I tend to be very nice in reviews, but this product I&#x27;m just extremely disappointed in. It&#x27;s not worth the very cheap price.</li>
+    <li> I chose this rating because I have no clue which brush is for what makeup application. Other than that they look well made and very professional. Maybe I&#x27;ll go to a cosmetic store and see if they can help me identify the brushes</li>
+    <li> Brushes fall apart very easy, I guess you get what you pay for</li>
+    <li> Fast shipping. I overall like the brushes. The big brushes aren&#x27;t  to good but i already  have big brushes. It does have a weird smell but nothing  to crazy to fuss about.</li>
+    <li> Because I love my brushes. They are well worth the money. Loving every inches of my package. Love Love love</li>
+    <li> Great brushes for the cost. Highly recommend.</li>
+    <li> Personally they are good enough brushes. First of all, I washed them first with mild soap and left them to dry for over 10hrs.They are very soft and nice. It did have a somewhat foul scent but I wasnt disgusted by it. Its not that bad of a scent actually. By the next day the scent went away. Only thing you must know is that the big brushes are not good. They shed way too much (which I know all brushes shed, but these shed like 6-10 hairs/fibers per usage...) Althought the big brushes were somewhat bad, they can get product, but not much. Also one thing you should know that the big brushes are very flimsy. The smaller brushes are more of concealer brushes and lip brushes... its not much of a eyeshadow brushes... and one thing I think is very saddening, the most important in a makeup set, is that it DOES NOT have a blending brush. The smaller brushes are pretty good at picking up product though. They are way better than the bigger brushes.</li>
+    <li> I love it! Excellent product for a good price! I use these everyday! Just as good as MAC! Thank you!</li>
+    <li> I got my brushes yesterday and i just Love them!! i recommend them to all who love doing make up. Iam very happy with my Order.</li>
+    <li> Nice set of brushes in a decent storage case. I ordered for Halloween makeup application and really expected cheap, flimsy tools. These are actually quite nice for such a low price. The storage case does have a chemical odor. It&#x27;s mild and once aired out, I don&#x27;t smell it any longer. I just set the whole thing outdoors and let it air for an afternoon, opened up. I haven&#x27;t actually used the brushed for makeup application, but they definitely seem like they&#x27;ll work great!</li>
+</ol>
+
+
+
+

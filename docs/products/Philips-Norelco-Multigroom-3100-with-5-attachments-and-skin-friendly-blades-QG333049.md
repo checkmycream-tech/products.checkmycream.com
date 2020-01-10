@@ -3,8 +3,8 @@ title: Philips Norelco Multigroom 3100 with 5 attachments and skin-friendly blad
 description: Philips Norelco Multigroom 3100 with 5 attachments and skin-friendly blades, QG3330/49,
 author: Suvojit Manna,
 tags: Philips Norelco Multigroom 3100 with 5 attachments and skin-friendly blades, QG3330/49,
-publishedAt: Thu Jan 09 2020 19:08:39 GMT+0530 (India Standard Time),
-modifiedAt: Thu Jan 09 2020 19:08:39 GMT+0530 (India Standard Time),
+publishedAt: Fri Jan 10 2020 15:00:37 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:37 GMT+0530 (India Standard Time),
 ---
 
 # [Philips Norelco Multigroom 3100 with 5 attachments and skin-friendly blades, QG3330/49](https://products.checkmycream.com/products/Philips-Norelco-Multigroom-3100-with-5-attachments-and-skin-friendly-blades-QG333049.html)
@@ -12,211 +12,211 @@ modifiedAt: Thu Jan 09 2020 19:08:39 GMT+0530 (India Standard Time),
 ### Positive Reviews
 
 <ol>
+      <li>These units are excellent for beard trimming (that is what I use them for) and the best that I have found over the years.  </li>
+      <li>Best all in one ever.</li>
+      <li>Works so well, so happy with this purchase!</li>
       <li>Awesome product to use!</li>
       <li>Excellent littke trimmer.</li>
-      <li>This trimmer is awesome.</li>
-      <li>I use it to trim my beard and my eyebrows and the adjustable guard is perfect for choosing the length you want and keeping it uniform.</li>
-      <li>Cordless is the best.</li>
-      <li>My wife will be impressed!  </li>
-      <li>and it shaves perfectly.</li>
-      <li>Excellent product at a excellent price.</li>
-      <li>For the price, I&#x27;m very happy though.</li>
-      <li>Perfect gift for bearded son.</li>
-      <li>Great for the price!</li>
-      <li>Awesome product..</li>
-      <li>Best trimmer I&#x27;ve ever had!</li>
-      <li>this is a very good quality trimmer!</li>
-      <li>Works perfectly.</li>
-      <li>Excellent product, 100% recommended!</li>
-      <li>Works perfect for the price</li>
-      <li>At this cost, this would be a perfect gift for anyone.</li>
-      <li>Perfect for the money.</li>
-      <li>Best electric trimmer I&#x27;ve owned--perfect.</li>
-      <li>Excellent value..</li>
-      <li>I use this on my bikini area and it works GREAT!</li>
-      <li>Life saver, Perfect for what I need!</li>
-      <li>This trimmer is the best value you can get.</li>
-      <li>BEST THING I&#x27;VE BBOUGHT</li>
-      <li>For the price we pay this is a excellent package.&lt;br /&gt;&lt;br</li>
-      <li>This is one of the best beard trimmers that I&#x27;ve had!</li>
-      <li>all for this price this beard trimmer is excellent!</li>
-      <li>I can&#x27;t believe how awesome this is!</li>
-      <li>the product is released and arrived in perfect condition.</li>
-      <li>Perfect for trimming everything.  </li>
-      <li>and it does its job very good!</li>
-      <li>Perfect for what I needed</li>
-      <li>/&gt;Works great!!</li>
-      <li>These units are excellent for beard trimming (that is what I use them for) and the best that I have found over the years.  </li>
-      <li>Awesome product.</li>
-      <li>Got this for Father&#x27;s Day for my dad and husband and they both loved it!!</li>
-      <li>It works really good!!</li>
-      <li>Wonderful product.</li>
-      <li>Best multigroom I&#x27;ve ever bought...</li>
-      <li>If grooming is a priority for you, this is a great tool for you!</li>
-      <li>I am completely impressed.</li>
-      <li>Awesome price point for a groomer that does the trick.</li>
-      <li>Trimmed my walnuts perfectly.</li>
-      <li>With lots of accessories, this trimmer is great all around!</li>
-      <li>Excellent value.</li>
-      <li>It works excellent and for the price it is awesome.</li>
-      <li>Excellent trimmer for the price</li>
-      <li>The trimmers work wonderfully.</li>
-      <li>best of lot was the Panasonic Multigroomer Pro Q63280 which I still have</li>
-      <li>Came in perfect time, works great!!</li>
-      <li>I&#x27;m very happy with all of the attachments and their results.</li>
-      <li>and I found my perfect length to be between two of the settings.  </li>
-      <li>Search for the perfect trimmer continues...</li>
-      <li>Great price and product!</li>
-      <li>Bought this for my Hubby and he was very happy with it.  </li>
-      <li>Does a great job!</li>
-      <li>Great replacement shaver for my husband!</li>
-      <li>Great!</li>
       <li>I am very happy I made this purchase.</li>
-      <li>Works so well, so happy with this purchase!</li>
-      <li>Best all in one ever.</li>
+      <li>excellent product for the price</li>
       <li>Excellent value.</li>
       <li>for me this is the best  </li>
       <li>This was the best price also .</li>
       <li>Awesome!</li>
       <li>EXCELLENT PRICE&lt;br /&gt;I</li>
+      <li>Great!</li>
+      <li>This trimmer is awesome.</li>
+      <li>I use it to trim my beard and my eyebrows and the adjustable guard is perfect for choosing the length you want and keeping it uniform.</li>
       <li>the best beard trimmer I have owned.</li>
+      <li>Great replacement shaver for my husband!</li>
+      <li>Does a great job!</li>
+      <li>Bought this for my Hubby and he was very happy with it.  </li>
       <li>Great product for a bargain!</li>
+      <li>Great price and product!</li>
       <li>The best trimmer ever.</li>
+      <li>Search for the perfect trimmer continues...</li>
       <li>Amazing Raze for the price!!!!!</li>
+      <li>and I found my perfect length to be between two of the settings.  </li>
       <li>Great product and service!</li>
       <li>Works Great!</li>
+      <li>Works perfectly well.</li>
       <li>Great Value!</li>
       <li>there&#x27;s no mount just a plug adapter which works best for me</li>
       <li>woks perfect ..&lt;</li>
       <li>really good quality !!</li>
+      <li>I&#x27;m very happy with all of the attachments and their results.</li>
+      <li>Cordless is the best.</li>
       <li>best groomer I have ever had.  </li>
+      <li>Came in perfect time, works great!!</li>
       <li>Works great!</li>
       <li>---It has every attachment that you would need and they all work great !!</li>
+      <li>This works perfectly and you can&#x27;t beat the price.</li>
       <li>service was great !!</li>
+      <li>This shaver is perfect...</li>
       <li>I will admit that I was concerned about some of the attachments but they all work flawlessly!</li>
       <li>Priceless!</li>
+      <li>best of lot was the Panasonic Multigroomer Pro Q63280 which I still have</li>
       <li>Best beard trimmers and multi goom product on the market!</li>
+      <li>It is an awesome product at the price it is offered.</li>
       <li>Best product for students.&lt;br /&gt;I</li>
       <li>Amazing!!!</li>
       <li>Great build and quality!!</li>
+      <li>The trimmers work wonderfully.</li>
       <li>Thank&#x27;s for best supply!!!!</li>
+      <li>Excellent trimmer for the price</li>
       <li>Perfect product..perfect price</li>
       <li>This is a great product!!!!</li>
+      <li>It works excellent and for the price it is awesome.</li>
       <li>An excellent unit</li>
       <li>My son is very happy with this</li>
+      <li>Excellent value.</li>
+      <li>With lots of accessories, this trimmer is great all around!</li>
+      <li>Trimmed my walnuts perfectly.</li>
       <li>The best EVER for the price.</li>
       <li>Excellent product.</li>
       <li>Its the best product in this price range</li>
+      <li>My wife will be impressed!  </li>
       <li>and it performed marvelously.</li>
       <li>Don&#x27;t hesitate on purchasing this item it has been a wonderful groomer for me.</li>
       <li>but if you want the best http://amzn.to/1K8KQ4B</li>
       <li>Excellent service.</li>
       <li>This thing is awesome.  </li>
+      <li>The price, of course, is the best feature!</li>
+      <li>Best beard trimmer my husband has ever had.  </li>
+      <li>Works wonderfully!</li>
+      <li>Wonderful product with a wonderful price!</li>
+      <li>Awesome price point for a groomer that does the trick.</li>
+      <li>Amazon&#x27;s shipping is the best.</li>
+      <li>This trimmer - for the price - is a great deal!</li>
+      <li>I am completely impressed.</li>
+      <li>excellent product!</li>
+      <li>If grooming is a priority for you, this is a great tool for you!</li>
+      <li>and it shaves perfectly.</li>
+      <li>The Philips Norelco has been the best trimmer that I have ever purchased!</li>
+      <li>Very happy customer.</li>
+      <li>Excellent product at a excellent price.</li>
+      <li>I&#x27;m still on the lookout for the buzzer that works best &amp;#34;down there&amp;#34;.</li>
+      <li>This trimmer works great for EVERYTHING!</li>
+      <li>Wonderful Christmas presents.</li>
+      <li>Perfect timings for shipping, They said it was boxed and</li>
+      <li>This is perfect for this pricing.&lt;br /&gt;&lt;br</li>
+      <li>Best electric grooming kit I have owned.</li>
+      <li>Best choice for the price.</li>
+      <li>Does the Work Perfectly...</li>
+      <li>BRILLIANT!</li>
+      <li>I especially love the nose-hair clipper; this baby is truly pain-free!  </li>
+      <li>/&gt;Works flawlessly in the shower.</li>
+      <li>Best multigroom I&#x27;ve ever bought...</li>
+      <li>I&#x27;m still on the lookout for the buzzer that works best &amp;#34;down there&amp;#34;.</li>
+      <li>Works great for me too!</li>
+      <li>Wonderful product.</li>
+      <li>This is the best bang for your  buck.  </li>
+      <li>The battery life is excellent.</li>
 </ol>
 
 
 <h2>Negative Reviews</h2>
 <ol>
+<li> These units are excellent for beard trimming (that is what I use them for) and the best that I have found over the years.  </li>
+<li> Best all in one ever.</li>
+<li> Works so well, so happy with this purchase!</li>
 <li> Awesome product to use!</li>
 <li> Excellent littke trimmer.</li>
-<li> This trimmer is awesome.</li>
-<li> I use it to trim my beard and my eyebrows and the adjustable guard is perfect for choosing the length you want and keeping it uniform.</li>
-<li> Cordless is the best.</li>
-<li> My wife will be impressed!  </li>
-<li> and it shaves perfectly.</li>
-<li> Excellent product at a excellent price.</li>
-<li> For the price, I&#x27;m very happy though.</li>
-<li> Perfect gift for bearded son.</li>
-<li> Great for the price!</li>
-<li> Awesome product..</li>
-<li> Best trimmer I&#x27;ve ever had!</li>
-<li> this is a very good quality trimmer!</li>
-<li> Works perfectly.</li>
-<li> Excellent product, 100% recommended!</li>
-<li> Works perfect for the price</li>
-<li> At this cost, this would be a perfect gift for anyone.</li>
-<li> Perfect for the money.</li>
-<li> Best electric trimmer I&#x27;ve owned--perfect.</li>
-<li> Excellent value..</li>
-<li> I use this on my bikini area and it works GREAT!</li>
-<li> Life saver, Perfect for what I need!</li>
-<li> This trimmer is the best value you can get.</li>
-<li> BEST THING I&#x27;VE BBOUGHT</li>
-<li> For the price we pay this is a excellent package.&lt;br /&gt;&lt;br</li>
-<li> This is one of the best beard trimmers that I&#x27;ve had!</li>
-<li> all for this price this beard trimmer is excellent!</li>
-<li> I can&#x27;t believe how awesome this is!</li>
-<li> the product is released and arrived in perfect condition.</li>
-<li> Perfect for trimming everything.  </li>
-<li> and it does its job very good!</li>
-<li> Perfect for what I needed</li>
-<li> /&gt;Works great!!</li>
-<li> These units are excellent for beard trimming (that is what I use them for) and the best that I have found over the years.  </li>
-<li> Awesome product.</li>
-<li> Got this for Father&#x27;s Day for my dad and husband and they both loved it!!</li>
-<li> It works really good!!</li>
-<li> Wonderful product.</li>
-<li> Best multigroom I&#x27;ve ever bought...</li>
-<li> If grooming is a priority for you, this is a great tool for you!</li>
-<li> I am completely impressed.</li>
-<li> Awesome price point for a groomer that does the trick.</li>
-<li> Trimmed my walnuts perfectly.</li>
-<li> With lots of accessories, this trimmer is great all around!</li>
-<li> Excellent value.</li>
-<li> It works excellent and for the price it is awesome.</li>
-<li> Excellent trimmer for the price</li>
-<li> The trimmers work wonderfully.</li>
-<li> best of lot was the Panasonic Multigroomer Pro Q63280 which I still have</li>
-<li> Came in perfect time, works great!!</li>
-<li> I&#x27;m very happy with all of the attachments and their results.</li>
-<li> and I found my perfect length to be between two of the settings.  </li>
-<li> Search for the perfect trimmer continues...</li>
-<li> Great price and product!</li>
-<li> Bought this for my Hubby and he was very happy with it.  </li>
-<li> Does a great job!</li>
-<li> Great replacement shaver for my husband!</li>
-<li> Great!</li>
 <li> I am very happy I made this purchase.</li>
-<li> Works so well, so happy with this purchase!</li>
-<li> Best all in one ever.</li>
+<li> excellent product for the price</li>
 <li> Excellent value.</li>
 <li> for me this is the best  </li>
 <li> This was the best price also .</li>
 <li> Awesome!</li>
 <li> EXCELLENT PRICE&lt;br /&gt;I</li>
+<li> Great!</li>
+<li> This trimmer is awesome.</li>
+<li> I use it to trim my beard and my eyebrows and the adjustable guard is perfect for choosing the length you want and keeping it uniform.</li>
 <li> the best beard trimmer I have owned.</li>
+<li> Great replacement shaver for my husband!</li>
+<li> Does a great job!</li>
+<li> Bought this for my Hubby and he was very happy with it.  </li>
 <li> Great product for a bargain!</li>
+<li> Great price and product!</li>
 <li> The best trimmer ever.</li>
+<li> Search for the perfect trimmer continues...</li>
 <li> Amazing Raze for the price!!!!!</li>
+<li> and I found my perfect length to be between two of the settings.  </li>
 <li> Great product and service!</li>
 <li> Works Great!</li>
+<li> Works perfectly well.</li>
 <li> Great Value!</li>
 <li> there&#x27;s no mount just a plug adapter which works best for me</li>
 <li> woks perfect ..&lt;</li>
 <li> really good quality !!</li>
+<li> I&#x27;m very happy with all of the attachments and their results.</li>
+<li> Cordless is the best.</li>
 <li> best groomer I have ever had.  </li>
+<li> Came in perfect time, works great!!</li>
 <li> Works great!</li>
 <li> ---It has every attachment that you would need and they all work great !!</li>
+<li> This works perfectly and you can&#x27;t beat the price.</li>
 <li> service was great !!</li>
+<li> This shaver is perfect...</li>
 <li> I will admit that I was concerned about some of the attachments but they all work flawlessly!</li>
 <li> Priceless!</li>
+<li> best of lot was the Panasonic Multigroomer Pro Q63280 which I still have</li>
 <li> Best beard trimmers and multi goom product on the market!</li>
+<li> It is an awesome product at the price it is offered.</li>
 <li> Best product for students.&lt;br /&gt;I</li>
 <li> Amazing!!!</li>
 <li> Great build and quality!!</li>
+<li> The trimmers work wonderfully.</li>
 <li> Thank&#x27;s for best supply!!!!</li>
+<li> Excellent trimmer for the price</li>
 <li> Perfect product..perfect price</li>
 <li> This is a great product!!!!</li>
+<li> It works excellent and for the price it is awesome.</li>
 <li> An excellent unit</li>
 <li> My son is very happy with this</li>
+<li> Excellent value.</li>
+<li> With lots of accessories, this trimmer is great all around!</li>
+<li> Trimmed my walnuts perfectly.</li>
 <li> The best EVER for the price.</li>
 <li> Excellent product.</li>
 <li> Its the best product in this price range</li>
+<li> My wife will be impressed!  </li>
 <li> and it performed marvelously.</li>
 <li> Don&#x27;t hesitate on purchasing this item it has been a wonderful groomer for me.</li>
 <li> but if you want the best http://amzn.to/1K8KQ4B</li>
 <li> Excellent service.</li>
 <li> This thing is awesome.  </li>
+<li> The price, of course, is the best feature!</li>
+<li> Best beard trimmer my husband has ever had.  </li>
+<li> Works wonderfully!</li>
+<li> Wonderful product with a wonderful price!</li>
+<li> Awesome price point for a groomer that does the trick.</li>
+<li> Amazon&#x27;s shipping is the best.</li>
+<li> This trimmer - for the price - is a great deal!</li>
+<li> I am completely impressed.</li>
+<li> excellent product!</li>
+<li> If grooming is a priority for you, this is a great tool for you!</li>
+<li> and it shaves perfectly.</li>
+<li> The Philips Norelco has been the best trimmer that I have ever purchased!</li>
+<li> Very happy customer.</li>
+<li> Excellent product at a excellent price.</li>
+<li> I&#x27;m still on the lookout for the buzzer that works best &amp;#34;down there&amp;#34;.</li>
+<li> This trimmer works great for EVERYTHING!</li>
+<li> Wonderful Christmas presents.</li>
+<li> Perfect timings for shipping, They said it was boxed and</li>
+<li> This is perfect for this pricing.&lt;br /&gt;&lt;br</li>
+<li> Best electric grooming kit I have owned.</li>
+<li> Best choice for the price.</li>
+<li> Does the Work Perfectly...</li>
+<li> BRILLIANT!</li>
+<li> I especially love the nose-hair clipper; this baby is truly pain-free!  </li>
+<li> /&gt;Works flawlessly in the shower.</li>
+<li> Best multigroom I&#x27;ve ever bought...</li>
+<li> I&#x27;m still on the lookout for the buzzer that works best &amp;#34;down there&amp;#34;.</li>
+<li> Works great for me too!</li>
+<li> Wonderful product.</li>
+<li> This is the best bang for your  buck.  </li>
+<li> The battery life is excellent.</li>
 </ol>
 
 <h2>All Reviews</h2>
@@ -1590,6 +1590,7 @@ modifiedAt: Thu Jan 09 2020 19:08:39 GMT+0530 (India Standard Time),
     <li> This is pretty straight forward. It&#x27;s a decent trimmer at a good price.</li>
     <li> OK so I read the reviews before purchasing. and frankly thee were other products that were rated a bit higher but those were much more expensive.&lt;br /&gt;I took a chance. I&#x27;m glad I did.&lt;br /&gt;My old, cheap, $10 AA battery trimmer had worn out. I&#x27;m pretty cheap and if something simply works and is low cost I usually stick with it.&lt;br /&gt;I don&#x27;t know what got into me and made me step up to the plate and spend $17 this time.&lt;br /&gt;But I must emphatically say this product is infinitely better than my old cheap, battery operated trimmer.&lt;br /&gt;It is powerful, rechargeable, and has an attachment for all my needs. The battery charge lasts me at least 30 days between charging.&lt;br /&gt;It seems solid and well made. BTW the white stuff inside the attachment that another reviewer thought was glue is actually white grease. That is the spot where the motor arm contacts the blade holder.&lt;br /&gt;&lt;br /&gt;I just struggled for a couple hours figuring out how to attach the depth adjustment. I&#x27;m not stupid. I operate and troubleshoot a complicated $50 million machine at work. But could I figure out how to attach the depth adjuster on a $17 machine? Nope.&lt;br /&gt;So after some frustration I sat it aside for a week. It sat on the vanity taunting and reminding me just how unbearably arrogant at work I must be.&lt;br /&gt;Eventually when I felt like I could handle failing a task. One that everyone else on Amazon.com who purchased this accomplished.  Fearful of having an emotional meltdown, I bravely decided to go into that small dark, windowless room and confront my newest nemesis.  In a short period of time I won the battle. I rode that wild stallion until it finally succumbed to my superior intellect and mechanical skills.&lt;br /&gt;&lt;br /&gt;Now, with humility I will be generous and share the knowledge for free that I so dearly suffered for. Are you ready?&lt;br /&gt;OK, move in close. Can you read this clearly? I am only gonna say this once.&lt;br /&gt;You hold the shaver in one hand. Then you grasp the depth adjustment plasticpiece in the other hand. Now you slide the edges of the plastic piece into the corresponding slots in the shaver.... You&#x27;re welcome.</li>
 </ol>
+
 
 
 

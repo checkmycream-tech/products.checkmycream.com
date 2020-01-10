@@ -1,0 +1,143 @@
+---
+title: Crest Sensi-Relief Teeth Whitening, Plus Scope Anticavity Toothpaste, Maximum Strength Sensitivity Relief,
+description: Crest Sensi-Relief Teeth Whitening, Plus Scope Anticavity Toothpaste, Maximum Strength Sensitivity Relief,
+author: Suvojit Manna,
+tags: Crest Sensi-Relief Teeth Whitening, Plus Scope Anticavity Toothpaste, Maximum Strength Sensitivity Relief,
+publishedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
+---
+
+# [Crest Sensi-Relief Teeth Whitening, Plus Scope Anticavity Toothpaste, Maximum Strength Sensitivity Relief](https://products.checkmycream.com/products/Crest-Sensi-Relief-Teeth-Whitening-Plus-Scope-Anticavity-Toothpaste-Maximum-Strength-Sensitivity-Relief.html)
+
+### Positive Reviews
+
+<ol>
+      <li>The best whitening toothpaste for your money.</li>
+      <li>The perfect combination is using this twice a day and Crest whitening strips every couple of months, the combination keeps my teeth</li>
+      <li>Perfect working.</li>
+      <li>Great tooth paste!</li>
+      <li>Quality is very good.</li>
+      <li>Great Price</li>
+      <li>It does a great job.</li>
+      <li>Great product.  </li>
+      <li>Great Product.</li>
+      <li>Great products.</li>
+      <li>Worked great.</li>
+      <li>WE ABSOLUTELY LOVE THIS TOOTHPASTE!</li>
+      <li>THIS IS THE BEST PRICE I COULD FIND BY FAR!</li>
+      <li>no matter what i drink or eat :)</li>
+      <li>the attached cap is so much better than the toothpastes that come with twist offs.&lt;br /&gt;I</li>
+      <li>This is my favorite toothpaste.</li>
+      <li>Most toothpaste feels like it&#x27;s burning my mouth.&lt;br /&gt;This</li>
+      <li>I love this toothpaste and will keep using it until they come out with another toothpaste that whitens better.</li>
+      <li>Even my dentist says she can see a huge improvement.  </li>
+      <li>great price for a standard product .</li>
+      <li>Crest is my favorite toothpaste, love the double 3D pack.</li>
+      <li>Not as effective as strips, but see a difference vs regular toothpaste.</li>
+      <li>IT IS THE ONLY KIND I BUY FOR MY FAMILY.</li>
+      <li>I will be completely honest, it doesnt actually whiten my teeth, but no toothpaste does.</li>
+      <li>Good replacement for other tooth pastes .  </li>
+      <li>Strong clean smell left in my mouth after use of the toothpaste.</li>
+      <li>than that, I really like this toothpaste and Amazon!</li>
+      <li>The whole Family likes this toothpaste very much.</li>
+      <li>If it were two twin-packs, it would come out right, but the detailed description says that the shipping weight is 12 ounces, so it&#x27;s definitely a single 2-pack.&lt;br /&gt;&lt;br /&gt;Other</li>
+      <li>It doesn&#x27;t whiten my teeth as much as I would like it too, but there is a very noticeable difference.</li>
+      <li>This really works to brighten your teeth over time.</li>
+      <li>at least it tastes good.</li>
+      <li>Price is bit high</li>
+      <li>This is the only toothpaste that actually leaves your mouth feeling clean!</li>
+      <li>It helps keep my teeth white and my breath fresh.</li>
+      <li>love the taste and whitens in a few weeks</li>
+      <li>and i keep going back to it, is great for sensitive teeth and gums and in my opinion it works just as well as the more expensive Crest products that come in smaller tubes.</li>
+      <li>I have been using Crest 3d products for about two years, pretty much tried most of them from the expensive ones to these, very affordable tooth pastes.</li>
+      <li>I drink soda (Diet Coke) every day and coffee about twice a week, this definitely keeps my teeth from getting super yellow like they used to before i started with Crest.</li>
+      <li>don&#x27;t think it kept my teeth super white over that period of time, but cleanings are essential.</li>
+      <li>Doesn&#x27;t make my teeth sensitive.</li>
+      <li>I finally went and I was expecting to need 3 root canals, a crown, and 15 fillings, but this stuff apparently works.</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> The best whitening toothpaste for your money.</li>
+<li> The perfect combination is using this twice a day and Crest whitening strips every couple of months, the combination keeps my teeth</li>
+<li> Perfect working.</li>
+<li> Great tooth paste!</li>
+<li> Quality is very good.</li>
+<li> Great Price</li>
+<li> It does a great job.</li>
+<li> Great product.  </li>
+<li> Great Product.</li>
+<li> Great products.</li>
+<li> Worked great.</li>
+<li> WE ABSOLUTELY LOVE THIS TOOTHPASTE!</li>
+<li> THIS IS THE BEST PRICE I COULD FIND BY FAR!</li>
+<li> no matter what i drink or eat :)</li>
+<li> the attached cap is so much better than the toothpastes that come with twist offs.&lt;br /&gt;I</li>
+<li> This is my favorite toothpaste.</li>
+<li> Most toothpaste feels like it&#x27;s burning my mouth.&lt;br /&gt;This</li>
+<li> I love this toothpaste and will keep using it until they come out with another toothpaste that whitens better.</li>
+<li> Even my dentist says she can see a huge improvement.  </li>
+<li> great price for a standard product .</li>
+<li> Crest is my favorite toothpaste, love the double 3D pack.</li>
+<li> Not as effective as strips, but see a difference vs regular toothpaste.</li>
+<li> IT IS THE ONLY KIND I BUY FOR MY FAMILY.</li>
+<li> I will be completely honest, it doesnt actually whiten my teeth, but no toothpaste does.</li>
+<li> Good replacement for other tooth pastes .  </li>
+<li> Strong clean smell left in my mouth after use of the toothpaste.</li>
+<li> than that, I really like this toothpaste and Amazon!</li>
+<li> The whole Family likes this toothpaste very much.</li>
+<li> If it were two twin-packs, it would come out right, but the detailed description says that the shipping weight is 12 ounces, so it&#x27;s definitely a single 2-pack.&lt;br /&gt;&lt;br /&gt;Other</li>
+<li> It doesn&#x27;t whiten my teeth as much as I would like it too, but there is a very noticeable difference.</li>
+<li> This really works to brighten your teeth over time.</li>
+<li> at least it tastes good.</li>
+<li> Price is bit high</li>
+<li> This is the only toothpaste that actually leaves your mouth feeling clean!</li>
+<li> It helps keep my teeth white and my breath fresh.</li>
+<li> love the taste and whitens in a few weeks</li>
+<li> and i keep going back to it, is great for sensitive teeth and gums and in my opinion it works just as well as the more expensive Crest products that come in smaller tubes.</li>
+<li> I have been using Crest 3d products for about two years, pretty much tried most of them from the expensive ones to these, very affordable tooth pastes.</li>
+<li> I drink soda (Diet Coke) every day and coffee about twice a week, this definitely keeps my teeth from getting super yellow like they used to before i started with Crest.</li>
+<li> don&#x27;t think it kept my teeth super white over that period of time, but cleanings are essential.</li>
+<li> Doesn&#x27;t make my teeth sensitive.</li>
+<li> I finally went and I was expecting to need 3 root canals, a crown, and 15 fillings, but this stuff apparently works.</li>
+<li> I use it to keep my teeth from getting worse while i drink so much soda that makes teeth stain..</li>
+<li> She now recommends this toothpaste to her other patients.</li>
+<li> I am obsessed with white teeth, but i literally had to use a bajillion different branded products to get my teeth to where they are now, but i used these for years, and it never worked.</li>
+<li> Price per ounce is very wrong on this listing.  </li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> great price for a standard product .</li>
+    <li> Most toothpaste feels like it&#x27;s burning my mouth.&lt;br /&gt;This has a milder taste.</li>
+    <li> Crest is my favorite toothpaste, love the double 3D pack.</li>
+    <li> Stands on its head.  Good replacement for other tooth pastes .  Strong clean smell left in my mouth after use of the toothpaste.</li>
+    <li> Perfect working. Make teeth white. Recommended to buy.</li>
+    <li> The whole Family likes this toothpaste very much. It does a great job.</li>
+    <li> Great tooth paste! Once you start using this one, you will not go back to others. This is the only toothpaste that actually leaves your mouth feeling clean!</li>
+    <li> Price per ounce is very wrong on this listing.  Amazon says that $8.40 for two 5.5oz tubes is 38 cents per ounce, while my math says that&#x27;s about 76 cents per ounce.  If it were two twin-packs, it would come out right, but the detailed description says that the shipping weight is 12 ounces, so it&#x27;s definitely a single 2-pack.&lt;br /&gt;&lt;br /&gt;Other than that, I really like this toothpaste and Amazon!</li>
+    <li> Great Product. Great Price</li>
+    <li> Read the ingredients list, this contains Polyethylene which is tiny blue plastic particles used for the look of the toothpaste only. These can and do get lodged in between the gums and the teeth and also potentially into the body if swallowed. What was Crest thinking? Avoid!</li>
+    <li> I am obsessed with white teeth, but i literally had to use a bajillion different branded products to get my teeth to where they are now, but i used these for years, and it never worked. at least it tastes good.</li>
+    <li> It doesn&#x27;t whiten my teeth as much as I would like it too, but there is a very noticeable difference. I love this toothpaste and will keep using it until they come out with another toothpaste that whitens better.</li>
+    <li> No burning at all. Worked great.</li>
+    <li> Not as effective as strips, but see a difference vs regular toothpaste. Doesn&#x27;t make my teeth sensitive.</li>
+    <li> Quality is very good. Price is bit high</li>
+    <li> This is my favorite toothpaste. It helps keep my teeth white and my breath fresh.</li>
+    <li> I went 6 years without going to a dentist. I finally went and I was expecting to need 3 root canals, a crown, and 15 fillings, but this stuff apparently works. No problems! after 6 years!. That speaks for itself.&lt;br /&gt;I dig the mint.&lt;br /&gt;And the attached cap is so much better than the toothpastes that come with twist offs.&lt;br /&gt;I don&#x27;t think it kept my teeth super white over that period of time, but cleanings are essential.</li>
+    <li> I&#x27;ve been using this toothpaste for a while and it actually helps my teeth whiten.The trick is to keep using it.</li>
+    <li> Husband loves this and won&#x27;t use anything else.</li>
+    <li> love the taste and whitens in a few weeks</li>
+    <li> Use it with their whitening rinses. Great products.</li>
+    <li> The best whitening toothpaste for your money. I get compliments all the time about how white my teeth are.  Even my dentist says she can see a huge improvement.  She now recommends this toothpaste to her other patients.</li>
+    <li> WE ABSOLUTELY LOVE THIS TOOTHPASTE! IT IS THE ONLY KIND I BUY FOR MY FAMILY. THIS IS THE BEST PRICE I COULD FIND BY FAR!</li>
+    <li> I have been using Crest 3d products for about two years, pretty much tried most of them from the expensive ones to these, very affordable tooth pastes. This one does the job well and i keep going back to it, is great for sensitive teeth and gums and in my opinion it works just as well as the more expensive Crest products that come in smaller tubes. I drink soda (Diet Coke) every day and coffee about twice a week, this definitely keeps my teeth from getting super yellow like they used to before i started with Crest. I will be completely honest, it doesnt actually whiten my teeth, but no toothpaste does. I use it to keep my teeth from getting worse while i drink so much soda that makes teeth stain.. The perfect combination is using this twice a day and Crest whitening strips every couple of months, the combination keeps my teeth white no matter what i drink or eat :)</li>
+    <li> This really works to brighten your teeth over time.</li>
+    <li> Great product.  Helps maintain whiteness after a treatment.</li>
+</ol>
+
+
+
+

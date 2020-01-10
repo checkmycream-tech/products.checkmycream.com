@@ -1,0 +1,123 @@
+---
+title: Plant Therapy Clarity Synergy Essential Oil Blend,
+description: Plant Therapy Clarity Synergy Essential Oil Blend,
+author: Suvojit Manna,
+tags: Plant Therapy Clarity Synergy Essential Oil Blend,
+publishedAt: Fri Jan 10 2020 15:00:17 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:17 GMT+0530 (India Standard Time),
+---
+
+# [Plant Therapy Clarity Synergy Essential Oil Blend](https://products.checkmycream.com/products/Plant-Therapy-Clarity-Synergy-Essential-Oil-Blend.html)
+
+### Positive Reviews
+
+<ol>
+      <li>I am very happy with this purchase.</li>
+      <li>Smells delightful.  </li>
+      <li>They are a great value!</li>
+      <li>I thought this would be a good oil to run in a diffuser while my children were doing their schoolwork.</li>
+      <li>This was as good as the forty dollar</li>
+      <li>Good quality</li>
+      <li>Good product</li>
+      <li>Which in the end is good, because the citrus smell didn&#x27;t seem to have any depth, I think it would be more effective and pleasant to just peel an orange.</li>
+      <li>LOVE Plant Therapy oils!</li>
+      <li>I love it!  </li>
+      <li>Nice blend.</li>
+      <li>I rub it on her chest &amp; neck before school each day, and she has seemed to do better.  </li>
+      <li>She was doing much better, so we had not renewed her medication (which irritates her stomach).  </li>
+      <li>love the brand...</li>
+      <li>Lots of others are so much more money ...</li>
+      <li>it&#x27;s not another charge on top of the bottle of oil.</li>
+      <li>I won&#x27;t be able to use it at all.</li>
+      <li>I have purchased many other oils from this manufacturer and have been pleasantly impressed.  </li>
+      <li>She also has commented on how good it smells and how her schoolmates have noted they like her new &amp;#34;perfume.&amp;#34;</li>
+      <li>Unique blend to offers the senses a pleasant experience.  </li>
+      <li>but Plant Therapy even has free shipping, so</li>
+      <li>oh my, a new favorite!</li>
+      <li>This is an awesome scent, and it helps me mid day to early evening if I need a boost of energy or just to give me clarity!</li>
+      <li>It hadn&#x27;t been diffusing long enough to say if it works or not, but the smell is wonderful!!!</li>
+      <li>VERY intense scent of basil.  </li>
+      <li>just not this scent ;)</li>
+      <li>First wiff from the bottle</li>
+      <li>I&#x27;m a teacher and my brain often feels like I have many tabs open at once.</li>
+      <li>Basil seems to be prevalent as I diffuse (I&#x27;m personally not a basil scent fan) but the scent lingers in my home for hours and leaves a sweet fresh aroma....</li>
+      <li>This blend is very soothing and calming.</li>
+      <li>I really like the fragrance of the Clarity blend.</li>
+      <li>Not sure it&#x27;s my favorite blend, but it&#x27;s definitely worth trying.</li>
+      <li>, I needed to be sitting almost directly in front of it to smell anything, and the smell didn&#x27;t linger at all after the diffuser was off.</li>
+      <li>Exactly what I expected</li>
+      <li>Thus actually work to clear up the fog in my brain.</li>
+      <li>and im serious, this stuff is STRONG.  </li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> I am very happy with this purchase.</li>
+<li> Smells delightful.  </li>
+<li> They are a great value!</li>
+<li> I thought this would be a good oil to run in a diffuser while my children were doing their schoolwork.</li>
+<li> This was as good as the forty dollar</li>
+<li> Good quality</li>
+<li> Good product</li>
+<li> Which in the end is good, because the citrus smell didn&#x27;t seem to have any depth, I think it would be more effective and pleasant to just peel an orange.</li>
+<li> LOVE Plant Therapy oils!</li>
+<li> I love it!  </li>
+<li> Nice blend.</li>
+<li> I rub it on her chest &amp; neck before school each day, and she has seemed to do better.  </li>
+<li> She was doing much better, so we had not renewed her medication (which irritates her stomach).  </li>
+<li> love the brand...</li>
+<li> Lots of others are so much more money ...</li>
+<li> it&#x27;s not another charge on top of the bottle of oil.</li>
+<li> I won&#x27;t be able to use it at all.</li>
+<li> I have purchased many other oils from this manufacturer and have been pleasantly impressed.  </li>
+<li> She also has commented on how good it smells and how her schoolmates have noted they like her new &amp;#34;perfume.&amp;#34;</li>
+<li> Unique blend to offers the senses a pleasant experience.  </li>
+<li> but Plant Therapy even has free shipping, so</li>
+<li> oh my, a new favorite!</li>
+<li> This is an awesome scent, and it helps me mid day to early evening if I need a boost of energy or just to give me clarity!</li>
+<li> It hadn&#x27;t been diffusing long enough to say if it works or not, but the smell is wonderful!!!</li>
+<li> VERY intense scent of basil.  </li>
+<li> just not this scent ;)</li>
+<li> First wiff from the bottle</li>
+<li> I&#x27;m a teacher and my brain often feels like I have many tabs open at once.</li>
+<li> Basil seems to be prevalent as I diffuse (I&#x27;m personally not a basil scent fan) but the scent lingers in my home for hours and leaves a sweet fresh aroma....</li>
+<li> This blend is very soothing and calming.</li>
+<li> I really like the fragrance of the Clarity blend.</li>
+<li> Not sure it&#x27;s my favorite blend, but it&#x27;s definitely worth trying.</li>
+<li> , I needed to be sitting almost directly in front of it to smell anything, and the smell didn&#x27;t linger at all after the diffuser was off.</li>
+<li> Exactly what I expected</li>
+<li> Thus actually work to clear up the fog in my brain.</li>
+<li> and im serious, this stuff is STRONG.  </li>
+<li> A few months ago, she began slipping into old inattentive patterns.  </li>
+<li> Disappointed in THIS oil, but not with all my others. :(</li>
+<li> I hate basil.  </li>
+<li> However, this smells horrible.</li>
+<li> It just smells awful.</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> Basil seems to be prevalent as I diffuse (I&#x27;m personally not a basil scent fan) but the scent lingers in my home for hours and leaves a sweet fresh aroma....don&#x27;t know if I am thinking clearer. ..but the air around me is refreshed!  Good product</li>
+    <li> This was as good as the forty dollar a bottle stuff!&lt;br /&gt; I would buy at again. But it will last me for a year!&lt;br /&gt; Alan</li>
+    <li> For husband to concentrate on school. He is getting use to using EOs. Nice blend.</li>
+    <li> This blend is very soothing and calming. I wish they would make larger bottles of this!  The 1/3 oz is not enough.</li>
+    <li> I use these during the day when I find I&#x27;m loosing focus.  I&#x27;m a teacher and my brain often feels like I have many tabs open at once.</li>
+    <li> I really like the fragrance of the Clarity blend. I like to diffuse it at work to help me focus. Others have also commented on the fragrance. Not sure it&#x27;s my favorite blend, but it&#x27;s definitely worth trying.</li>
+    <li> Exactly what I expected</li>
+    <li> VERY intense scent of basil.  I hate basil.  and im serious, this stuff is STRONG.  even my kids didn&#x27;t like it. we threw it away.  love the brand...just not this scent ;)</li>
+    <li> Thus actually work to clear up the fog in my brain.</li>
+    <li> I have purchased many other oils from this manufacturer and have been pleasantly impressed.  I thought this would be a good oil to run in a diffuser while my children were doing their schoolwork. However, this smells horrible. It is a musty smell I can&#x27;t even describe. It just smells awful. I won&#x27;t be able to use it at all. Disappointed in THIS oil, but not with all my others. :(</li>
+    <li> Unique blend to offers the senses a pleasant experience.  Works well in my diffuser and is quite affordable as compared the MLM oils.  Good quality</li>
+    <li> I love it!  Use at work when I need to focus.  Smells delightful.  I am very happy with this purchase.</li>
+    <li> LOVE Plant Therapy oils! They are a great value! Lots of others are so much more money ... but Plant Therapy even has free shipping, so it&#x27;s not another charge on top of the bottle of oil. This is an awesome scent, and it helps me mid day to early evening if I need a boost of energy or just to give me clarity!</li>
+    <li> My daughter has a history of attention problems.  At various times, we&#x27;ve tried diet changes, exercize, and medications.  She was doing much better, so we had not renewed her medication (which irritates her stomach).  A few months ago, she began slipping into old inattentive patterns.  I ordered Clarity to try, before we try medications again.  I rub it on her chest &amp; neck before school each day, and she has seemed to do better.  She also has commented on how good it smells and how her schoolmates have noted they like her new &amp;#34;perfume.&amp;#34;</li>
+    <li> This oil did not work well in my diffuser, I needed to be sitting almost directly in front of it to smell anything, and the smell didn&#x27;t linger at all after the diffuser was off. Which in the end is good, because the citrus smell didn&#x27;t seem to have any depth, I think it would be more effective and pleasant to just peel an orange.</li>
+    <li> First wiff from the bottle I though oh my, a new favorite! It hadn&#x27;t been diffusing long enough to say if it works or not, but the smell is wonderful!!!</li>
+    <li> It helps me to focus on my daily tasks at work</li>
+</ol>
+
+
+
+

@@ -1,0 +1,107 @@
+---
+title: Replacement Brush Head for Body Cleansing (GENERIC) Twin Pack - by PAZ Generix,
+description: Replacement Brush Head for Body Cleansing (GENERIC) Twin Pack - by PAZ Generix,
+author: Suvojit Manna,
+tags: Replacement Brush Head for Body Cleansing (GENERIC) Twin Pack - by PAZ Generix,
+publishedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
+---
+
+# [Replacement Brush Head for Body Cleansing (GENERIC) Twin Pack - by PAZ Generix](https://products.checkmycream.com/products/Replacement-Brush-Head-for-Body-Cleansing-(GENERIC)-Twin-Pack-by-PAZ-Generix.html)
+
+### Positive Reviews
+
+<ol>
+      <li>The replacement brush heads fits perfectly and work as advertised.</li>
+      <li>I found it to be perfect for exfoliating.  </li>
+      <li>I&#x27;m very happy!</li>
+      <li>These or great, never pay 25.00 for one ever again.</li>
+      <li>Great product at a great price.</li>
+      <li>Love the product!</li>
+      <li>Buy at your own risk</li>
+      <li>I was looking for something inexpensive to help deal with dry skin and this fit the bill perfectly.</li>
+      <li>and I stumbled across these brushes that claim to fit my name brand handle.</li>
+      <li>They seem to be exactly like the brush heads made by the brand name, and they  are much more affordable.  </li>
+      <li>These brushes really clean your skin and help to remove skin blemishes, leaving my skin very clean and soft.</li>
+      <li>They work but would more recommend as a Sensitive Head.</li>
+      <li>Great alternative to more expensive brands.</li>
+      <li>its ok i guess not much of big fan tho</li>
+      <li>and it seems a most of these reviewers have all purchased and reviewed the same four or five products.  </li>
+      <li>How good these are, but I do know that most of these reviews are fake.  </li>
+      <li>Worked very well with my Clairsonic device.</li>
+      <li>Very trustworthy brand.</li>
+      <li>The brushed were of good quality and performed exactly as I expected.</li>
+      <li>I highly recommend them.</li>
+      <li>Fast shipping, early delivery.</li>
+      <li>not a stiff brush</li>
+      <li>I was pleasantly surprised to find this deal.</li>
+      <li>The brush is cheap but a bit to harsh on my skin.</li>
+      <li>What good is a review if it&#x27;s fake and just the seller trying to pad their star rating?  </li>
+      <li>I&#x27;m not sure how the original brushes are but these generic brush heads were really rough on my skin.</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> The replacement brush heads fits perfectly and work as advertised.</li>
+<li> I found it to be perfect for exfoliating.  </li>
+<li> I&#x27;m very happy!</li>
+<li> These or great, never pay 25.00 for one ever again.</li>
+<li> Great product at a great price.</li>
+<li> Love the product!</li>
+<li> Buy at your own risk</li>
+<li> I was looking for something inexpensive to help deal with dry skin and this fit the bill perfectly.</li>
+<li> and I stumbled across these brushes that claim to fit my name brand handle.</li>
+<li> They seem to be exactly like the brush heads made by the brand name, and they  are much more affordable.  </li>
+<li> These brushes really clean your skin and help to remove skin blemishes, leaving my skin very clean and soft.</li>
+<li> They work but would more recommend as a Sensitive Head.</li>
+<li> Great alternative to more expensive brands.</li>
+<li> its ok i guess not much of big fan tho</li>
+<li> and it seems a most of these reviewers have all purchased and reviewed the same four or five products.  </li>
+<li> How good these are, but I do know that most of these reviews are fake.  </li>
+<li> Worked very well with my Clairsonic device.</li>
+<li> Very trustworthy brand.</li>
+<li> The brushed were of good quality and performed exactly as I expected.</li>
+<li> I highly recommend them.</li>
+<li> Fast shipping, early delivery.</li>
+<li> not a stiff brush</li>
+<li> I was pleasantly surprised to find this deal.</li>
+<li> The brush is cheap but a bit to harsh on my skin.</li>
+<li> What good is a review if it&#x27;s fake and just the seller trying to pad their star rating?  </li>
+<li> I&#x27;m not sure how the original brushes are but these generic brush heads were really rough on my skin.</li>
+<li> I have a Clarisonic and their brushes are no better and much more expensive.  </li>
+<li> I bought a few because the price was so low</li>
+<li> this brush head doesnt spin like the other head does but</li>
+<li> It was a waste of money.</li>
+<li> I did not think think that the bristles were too stiff.  </li>
+<li> A bit disappointed bc</li>
+<li> Disappointed!</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> Not the same firmness as the brand name.  They work but would more recommend as a Sensitive Head.</li>
+    <li> I have a Clarisonic and their brushes are no better and much more expensive.  I especially like the generic replacement body brush head. I found it to be perfect for exfoliating.  I did not think think that the bristles were too stiff.  I have recommended these to friends &amp; families</li>
+    <li> Works on my Clarisonic Plus. Thumbs up!</li>
+    <li> How good these are, but I do know that most of these reviews are fake.  Got suspicious of the grammar and it seems a most of these reviewers have all purchased and reviewed the same four or five products.  What good is a review if it&#x27;s fake and just the seller trying to pad their star rating?  That said I have no confidence in the product.  Buy at your own risk</li>
+    <li> I ordered these in the hopes that I would start using my clairsonic again.  They seem to be exactly like the brush heads made by the brand name, and they  are much more affordable.  I&#x27;m very happy!</li>
+    <li> This product did not work with my Clairsonic brush. The bristles did not move like they should have. Wish I could send them back. Disappointed!</li>
+    <li> A bit disappointed bc this brush head doesnt spin like the other head does but its ok i guess not much of big fan tho</li>
+    <li> I was pleasantly surprised to find this deal. I was looking for the name brand brush head to purchase on Amazon and I stumbled across these brushes that claim to fit my name brand handle. I bought a few because the price was so low and if the brushes didn&#x27;t perform well then I could through them away without spending a lot of money.&lt;br /&gt;I found the brushes to be equivalent to the name brand brushes in everyway, the feel, the look, the way it attached to the handle and the final outcome how well it cleansed my face.</li>
+    <li> Great product at a great price.</li>
+    <li> Fast shipping, early delivery. The replacement brush heads fits perfectly and work as advertised. These brushes really clean your skin and help to remove skin blemishes, leaving my skin very clean and soft.</li>
+    <li> They really get all of the goop, dirt, dead skin and what not off of you. I highly recommend them.</li>
+    <li> Bought it as a gift for my daugther. She loves it and uses it a lot</li>
+    <li> they work as well as the clairisonic.  for the price you will never beat this product.  not a stiff brush</li>
+    <li> Love the product! Works well for my skin. Ever since I bought my Clarisonic, I&#x27;ve used these brushes. Very trustworthy brand.</li>
+    <li> Great alternative to more expensive brands.</li>
+    <li> These or great, never pay 25.00 for one ever again.</li>
+    <li> I&#x27;m not sure how the original brushes are but these generic brush heads were really rough on my skin. Would not recommend or repurchase. It was a waste of money.</li>
+    <li> The brush is cheap but a bit to harsh on my skin. Makes me break out everytime I use it so I stopped using these. Will not buy again.</li>
+    <li> Worked very well with my Clairsonic device. I was looking for something inexpensive to help deal with dry skin and this fit the bill perfectly. The brushed were of good quality and performed exactly as I expected. A+</li>
+</ol>
+
+
+
+

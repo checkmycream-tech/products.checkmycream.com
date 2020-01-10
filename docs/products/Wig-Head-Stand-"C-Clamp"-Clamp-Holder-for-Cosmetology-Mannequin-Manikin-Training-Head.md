@@ -1,0 +1,103 @@
+---
+title: Wig Head Stand - &quot;C-Clamp&quot; Clamp Holder for Cosmetology Mannequin Manikin Training Head,
+description: Wig Head Stand - &quot;C-Clamp&quot; Clamp Holder for Cosmetology Mannequin Manikin Training Head,
+author: Suvojit Manna,
+tags: Wig Head Stand - &quot;C-Clamp&quot; Clamp Holder for Cosmetology Mannequin Manikin Training Head,
+publishedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
+---
+
+# [Wig Head Stand - &quot;C-Clamp&quot; Clamp Holder for Cosmetology Mannequin Manikin Training Head](https://products.checkmycream.com/products/Wig-Head-Stand-&quot;C-Clamp&quot;-Clamp-Holder-for-Cosmetology-Mannequin-Manikin-Training-Head.html)
+
+### Positive Reviews
+
+<ol>
+      <li>Received order yesterday and the c-clamp works perfect.  </li>
+      <li>Works perfectly with the cosmetology head.</li>
+      <li>great!!</li>
+      <li>It worked beautifully for me and is the best investment I made to help me work with my wigs.</li>
+      <li>Stand works great.</li>
+      <li>It&#x27;s awesome and fun to use.</li>
+      <li>great product very pleased fast shipping no complaints at all</li>
+      <li>I was pleased with the product i purchased</li>
+      <li>:}</li>
+      <li>I got three for my grand children to use for their manikin heads.  </li>
+      <li>Couldn&#x27;t ask for more.</li>
+      <li>Works perfect and fit any standard foam head..</li>
+      <li>They are easy to use and the kids can handle them  easily.</li>
+      <li>and it work just fine.</li>
+      <li>It was very useful and manageable.</li>
+      <li>Shipping was fast and quick.</li>
+      <li>Exactly as pictured.</li>
+      <li>They are very portable and can go anywhere.  </li>
+      <li>I bought this product for my child and it absolutely works.</li>
+      <li>Thanks</li>
+      <li>but I was using it on a highly polyurethaned table, too.  </li>
+      <li>anymore while I try out new brades...</li>
+      <li>Material about inferior, have no other choice I have to use it anyway</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> Received order yesterday and the c-clamp works perfect.  </li>
+<li> Works perfectly with the cosmetology head.</li>
+<li> great!!</li>
+<li> It worked beautifully for me and is the best investment I made to help me work with my wigs.</li>
+<li> Stand works great.</li>
+<li> It&#x27;s awesome and fun to use.</li>
+<li> great product very pleased fast shipping no complaints at all</li>
+<li> I was pleased with the product i purchased</li>
+<li> :}</li>
+<li> I got three for my grand children to use for their manikin heads.  </li>
+<li> Couldn&#x27;t ask for more.</li>
+<li> Works perfect and fit any standard foam head..</li>
+<li> They are easy to use and the kids can handle them  easily.</li>
+<li> and it work just fine.</li>
+<li> It was very useful and manageable.</li>
+<li> Shipping was fast and quick.</li>
+<li> Exactly as pictured.</li>
+<li> They are very portable and can go anywhere.  </li>
+<li> I bought this product for my child and it absolutely works.</li>
+<li> Thanks</li>
+<li> but I was using it on a highly polyurethaned table, too.  </li>
+<li> anymore while I try out new brades...</li>
+<li> Material about inferior, have no other choice I have to use it anyway</li>
+<li> The clamp was a lot smaller than I expected.</li>
+<li> It did slip a bit but not much and not often.  </li>
+<li> Works like a charm...very convenient when using a wig head and wanting to keep everything tight and in place.</li>
+<li> the clamp area is somewhat narrow</li>
+<li> these aren&#x27;t bad for the price not great, its easy to over tighten them when this happens they strip out.</li>
+<li> It was dirty with crumbs all over it.</li>
+<li> And it&#x27;s so horrible.</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> Got it for my girlfriend and she loves it</li>
+    <li> Exactly as pictured. Works perfect and fit any standard foam head.. I recommend putting tape on the stick part to ensure security of the foam head.</li>
+    <li> I actually just received this product today and I put it together and it work just fine. I will recommend this  product to friends and family.</li>
+    <li> Works reallly well.  I got three for my grand children to use for their manikin heads.  They are very portable and can go anywhere.  They are easy to use and the kids can handle them  easily.</li>
+    <li> I just used this C-Clamp holder to work on 12 wigs. It did slip a bit but not much and not often.  I was steaming and running a comb through the hair. Sometimes I&#x27;d hit a tangle which would pull on the Styrofoam head and thus the clamp. Hitting enough of them would eventually cause the clamp to move a bit but I was using it on a highly polyurethaned table, too.  Out of 12 wigs I only had to re-tighten it three times. It worked beautifully for me and is the best investment I made to help me work with my wigs.</li>
+    <li> Didn&#x27;t come with instructions. And it&#x27;s so horrible. Don&#x27;t get it</li>
+    <li> these aren&#x27;t bad for the price not great, its easy to over tighten them when this happens they strip out.</li>
+    <li> It was sufficient enough to do the job it was intended to do. I was pleased with the product i purchased</li>
+    <li> Works like a charm...very convenient when using a wig head and wanting to keep everything tight and in place. Thanks</li>
+    <li> It was very useful and manageable. No problems using it while working with the head. It&#x27;s awesome and fun to use.</li>
+    <li> Material about inferior, have no other choice I have to use it anyway</li>
+    <li> I have no problems with this Mannequin holder!</li>
+    <li> The clamp was a lot smaller than I expected.</li>
+    <li> Received order yesterday and the c-clamp works perfect.  Thank you.</li>
+    <li> Works perfectly with the cosmetology head. Sturdy and adjustable!</li>
+    <li> It serves its purpose well.</li>
+    <li> Stand works great. I bought this product for my child and it absolutely works. Shipping was fast and quick. Couldn&#x27;t ask for more.</li>
+    <li> great product very pleased fast shipping no complaints at all</li>
+    <li> great!! now I dont have to have my daughter hold my manquin head anymore while I try out new brades... :}</li>
+    <li> the clamp area is somewhat narrow so it limits where you can clamp it</li>
+    <li> Package was open, and used. It was dirty with crumbs all over it. I inspected it throughly and discovered it was Used. These are definitely going back.</li>
+</ol>
+
+
+
+

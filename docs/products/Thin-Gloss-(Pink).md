@@ -1,0 +1,164 @@
+---
+title: Thin Gloss (Pink),
+description: Thin Gloss (Pink),
+author: Suvojit Manna,
+tags: Thin Gloss (Pink),
+publishedAt: Fri Jan 10 2020 15:00:09 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:09 GMT+0530 (India Standard Time),
+---
+
+# [Thin Gloss (Pink)](https://products.checkmycream.com/products/Thin-Gloss-(Pink).html)
+
+### Positive Reviews
+
+<ol>
+      <li>The best benefit is how it plumps my lips!  </li>
+      <li>It smells awesome and my lips are now plumper than before.</li>
+      <li>It smells awesome!  </li>
+      <li>&lt;3  </li>
+      <li>The idea of having hoodia in the ingredients is a great one!</li>
+      <li>So if you want plumper lips and a lip gloss that smells awesome</li>
+      <li>I have 2 best features!  </li>
+      <li>This is the best product that I have found for plumper lips.</li>
+      <li>It works great and smells awesome.</li>
+      <li>I ordered, it and it smells awesome and works great.  </li>
+      <li>It works great, smells great, and tastes great.</li>
+      <li>This is a great lip gloss for on the go shine.</li>
+      <li>The smell is great too.</li>
+      <li>The product works great</li>
+      <li>It is great lip gloss</li>
+      <li>and I love the smell!!</li>
+      <li>This product is amazing!</li>
+      <li>I absolutely love the color and it smells awesome.</li>
+      <li>I just love the way it tastes and it has a delicious smell!  </li>
+      <li>This kind of gloss works so great.</li>
+      <li>She loves the smell and her lips are looking gorgeous with this gloss.</li>
+      <li>does it keep your lips looking good but also the rest of your body by curving your appetite.</li>
+      <li>The product works great, i LOVE the colour, it gives me plumper lips, and i know most of you will worry it might have a chemical smell, but this doesn&#x27;t,it SMELLS GREAT!!</li>
+      <li>It smells awesome too - worth a buy!</li>
+      <li>It&#x27;s great to see something like that, try it , and love it.</li>
+      <li>I love the color of it, it is not over bearing and most of all I love the awesome smells.</li>
+      <li>I love this stuff!</li>
+      <li>I&#x27;m so glad I did!</li>
+      <li>I love this lip gloss!</li>
+      <li>Can&#x27;t wait for more to be in stock!</li>
+      <li>That was until i stumbled across theis amazing product.</li>
+      <li>Like many others here, I also saw this on ABC&#x27;s Shark Tank show and thought it would be a good product to try.</li>
+      <li>Thanks for this wonderful product.</li>
+      <li>Perfect for summer, don&#x27;t need much of anything else. :)</li>
+      <li>I really love the color and the way it shines.</li>
+      <li>Like many here, I also saw this product on Shark Tank.</li>
+      <li>Lastly the smell is awesome and gives you plumper lips.</li>
+      <li>I love the color.</li>
+      <li>and I love the color.</li>
+      <li>I love the color and my fiance thinks my lips look plumper.  </li>
+      <li>but after I bought it, I was surprised by the quality vs the price and it smells good!</li>
+      <li>I loved the colour but wasn&#x27;t really expecting it to make lips plumper - but it did!</li>
+      <li>I saw this on the show shark tank last week and thought the woman who created this was amazing!  </li>
+      <li>and I&#x27;ve got to say I am not disappointed.</li>
+      <li>Looks amazing and very classy.</li>
+      <li>I love the color and the gold highlights immediately brighten up my whole face.</li>
+      <li>And most of all the price is very affordable wherein everyone that like this product can afford to buy.</li>
+      <li>It works as great as any other product I have tried.</li>
+      <li>I have lips that typically do not require lipstick or gloss, because typically when I wear these products it takes away from my eyes, which I would consider to be my best feature.  </li>
+      <li>I was pretty interested</li>
+      <li>This could most likely be the weight loss product of the year.</li>
+      <li>Thin Gloss works great for lip gloss.</li>
+      <li>Saw this on ABC&#x27;s Shark Tank and really thought it was a neat idea.</li>
+      <li>Highly recommended.</li>
+      <li>Results can be seen almost instantly, and is so much safer and cheaper than injections.</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> The best benefit is how it plumps my lips!  </li>
+<li> It smells awesome and my lips are now plumper than before.</li>
+<li> It smells awesome!  </li>
+<li> &lt;3  </li>
+<li> The idea of having hoodia in the ingredients is a great one!</li>
+<li> So if you want plumper lips and a lip gloss that smells awesome</li>
+<li> I have 2 best features!  </li>
+<li> This is the best product that I have found for plumper lips.</li>
+<li> It works great and smells awesome.</li>
+<li> I ordered, it and it smells awesome and works great.  </li>
+<li> It works great, smells great, and tastes great.</li>
+<li> This is a great lip gloss for on the go shine.</li>
+<li> The smell is great too.</li>
+<li> The product works great</li>
+<li> It is great lip gloss</li>
+<li> and I love the smell!!</li>
+<li> This product is amazing!</li>
+<li> I absolutely love the color and it smells awesome.</li>
+<li> I just love the way it tastes and it has a delicious smell!  </li>
+<li> This kind of gloss works so great.</li>
+<li> She loves the smell and her lips are looking gorgeous with this gloss.</li>
+<li> does it keep your lips looking good but also the rest of your body by curving your appetite.</li>
+<li> The product works great, i LOVE the colour, it gives me plumper lips, and i know most of you will worry it might have a chemical smell, but this doesn&#x27;t,it SMELLS GREAT!!</li>
+<li> It smells awesome too - worth a buy!</li>
+<li> It&#x27;s great to see something like that, try it , and love it.</li>
+<li> I love the color of it, it is not over bearing and most of all I love the awesome smells.</li>
+<li> I love this stuff!</li>
+<li> I&#x27;m so glad I did!</li>
+<li> I love this lip gloss!</li>
+<li> Can&#x27;t wait for more to be in stock!</li>
+<li> That was until i stumbled across theis amazing product.</li>
+<li> Like many others here, I also saw this on ABC&#x27;s Shark Tank show and thought it would be a good product to try.</li>
+<li> Thanks for this wonderful product.</li>
+<li> Perfect for summer, don&#x27;t need much of anything else. :)</li>
+<li> I really love the color and the way it shines.</li>
+<li> Like many here, I also saw this product on Shark Tank.</li>
+<li> Lastly the smell is awesome and gives you plumper lips.</li>
+<li> I love the color.</li>
+<li> and I love the color.</li>
+<li> I love the color and my fiance thinks my lips look plumper.  </li>
+<li> but after I bought it, I was surprised by the quality vs the price and it smells good!</li>
+<li> I loved the colour but wasn&#x27;t really expecting it to make lips plumper - but it did!</li>
+<li> I saw this on the show shark tank last week and thought the woman who created this was amazing!  </li>
+<li> and I&#x27;ve got to say I am not disappointed.</li>
+<li> Looks amazing and very classy.</li>
+<li> I love the color and the gold highlights immediately brighten up my whole face.</li>
+<li> And most of all the price is very affordable wherein everyone that like this product can afford to buy.</li>
+<li> It works as great as any other product I have tried.</li>
+<li> I have lips that typically do not require lipstick or gloss, because typically when I wear these products it takes away from my eyes, which I would consider to be my best feature.  </li>
+<li> I was pretty interested</li>
+<li> This could most likely be the weight loss product of the year.</li>
+<li> Thin Gloss works great for lip gloss.</li>
+<li> Saw this on ABC&#x27;s Shark Tank and really thought it was a neat idea.</li>
+<li> Highly recommended.</li>
+<li> Results can be seen almost instantly, and is so much safer and cheaper than injections.</li>
+<li> I was genetically cursed with thin lips, and this is the first product to give me plump juicy lips!</li>
+<li> Having been cursed since birth with thin lips I have tried a lot of products in the hope of getting plumper lips but without success.</li>
+<li> I&#x27;m a complete cosmetic junkie, and this stuff rivals some of the extremely expensive products i&#x27;ve tried!</li>
+<li> Too bad it&#x27;s not available here on Amazon, so I&#x27;m trying to get it elsewhere.</li>
+<li> Thin gloss, fat lips!!</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> I was genetically cursed with thin lips, and this is the first product to give me plump juicy lips! I had tried everything, and when I saw this product on ABC&#x27;s show Shark Tank I knew I had to try it. I&#x27;m so glad I did! It works great, smells great, and tastes great. Definitely recommend!</li>
+    <li> I have lips that typically do not require lipstick or gloss, because typically when I wear these products it takes away from my eyes, which I would consider to be my best feature.  Now that I&#x27;ve bought this gloss to add to my make up bag I have 2 best features!  I just love the way it tastes and it has a delicious smell!  The best benefit is how it plumps my lips!  Highly recommended.</li>
+    <li> I really love the color and the way it shines. It works as great as any other product I have tried. The smell is great too.</li>
+    <li> This kind of gloss works so great. I love the color of it, it is not over bearing and most of all I love the awesome smells.And most of all the price is very affordable wherein everyone that like this product can afford to buy.</li>
+    <li> Like many others here, I also saw this on ABC&#x27;s Shark Tank show and thought it would be a good product to try. Too bad it&#x27;s not available here on Amazon, so I&#x27;m trying to get it elsewhere. The idea of having hoodia in the ingredients is a great one!</li>
+    <li> I love this stuff! &lt;3  It smells awesome!  I hope they get it in stock here again soon!</li>
+    <li> Having been cursed since birth with thin lips I have tried a lot of products in the hope of getting plumper lips but without success. That was until i stumbled across theis amazing product. So if you want plumper lips i urge you to give this a go as soon as possible.</li>
+    <li> Saw this on ABC&#x27;s Shark Tank and really thought it was a neat idea. Looks amazing and very classy. Can&#x27;t wait for more to be in stock!</li>
+    <li> I saw this lip gloss on ABCs Shark Tank and definitely wanted to try it.  I ordered, it and it smells awesome and works great.  I love the color and my fiance thinks my lips look plumper.  Will buy again!</li>
+    <li> I saw this on the show shark tank last week and thought the woman who created this was amazing!  It is great lip gloss and I love the smell!!</li>
+    <li> Thin Gloss works great for lip gloss. I love the color. I had to buy it after I saw this on ABC&#x27;s Shark Tank. Lastly the smell is awesome and gives you plumper lips.</li>
+    <li> Like many here, I also saw this product on Shark Tank. It&#x27;s great to see something like that, try it , and love it. It works great and smells awesome.</li>
+    <li> This is a great lip gloss for on the go shine. I love the color and the gold highlights immediately brighten up my whole face. Perfect for summer, don&#x27;t need much of anything else. :)</li>
+    <li> I saw this product in ABCs Shark Tank. Ordered immediately for my wife as a present. She loves the smell and her lips are looking gorgeous with this gloss. Thanks for this wonderful product.</li>
+    <li> Thin gloss, fat lips!! This product is amazing! I&#x27;m a complete cosmetic junkie, and this stuff rivals some of the extremely expensive products i&#x27;ve tried! The product works great, i LOVE the colour, it gives me plumper lips, and i know most of you will worry it might have a chemical smell, but this doesn&#x27;t,it SMELLS GREAT!! A defo must have!</li>
+    <li> When I saw this on ABCs Shark Tank I was pretty interested but after I bought it, I was surprised by the quality vs the price and it smells good!</li>
+    <li> I love this lip gloss! I absolutely love the color and it smells awesome. This is the best product that I have found for plumper lips. Results can be seen almost instantly, and is so much safer and cheaper than injections.</li>
+    <li> This product rocks, not only does it keep your lips looking good but also the rest of your body by curving your appetite. This could most likely be the weight loss product of the year.</li>
+    <li> The product works great and I love the color.I saw this on ABCs Shark Tank a while and I finally decided to buy it and I&#x27;ve got to say I am not disappointed. It smells awesome and my lips are now plumper than before. So if you want plumper lips and a lip gloss that smells awesome then this is the product for you.</li>
+    <li> I loved the colour but wasn&#x27;t really expecting it to make lips plumper - but it did! It smells awesome too - worth a buy!</li>
+</ol>
+
+
+
+

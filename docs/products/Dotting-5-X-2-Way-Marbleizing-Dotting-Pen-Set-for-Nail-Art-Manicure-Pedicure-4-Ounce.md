@@ -3,8 +3,8 @@ title: Dotting 5 X 2 Way Marbleizing Dotting Pen Set for Nail Art Manicure Pedic
 description: Dotting 5 X 2 Way Marbleizing Dotting Pen Set for Nail Art Manicure Pedicure, 4 Ounce,
 author: Suvojit Manna,
 tags: Dotting 5 X 2 Way Marbleizing Dotting Pen Set for Nail Art Manicure Pedicure, 4 Ounce,
-publishedAt: Thu Jan 09 2020 19:08:32 GMT+0530 (India Standard Time),
-modifiedAt: Thu Jan 09 2020 19:08:32 GMT+0530 (India Standard Time),
+publishedAt: Fri Jan 10 2020 15:00:03 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:03 GMT+0530 (India Standard Time),
 ---
 
 # [Dotting 5 X 2 Way Marbleizing Dotting Pen Set for Nail Art Manicure Pedicure, 4 Ounce](https://products.checkmycream.com/products/Dotting-5-X-2-Way-Marbleizing-Dotting-Pen-Set-for-Nail-Art-Manicure-Pedicure-4-Ounce.html)
@@ -12,211 +12,211 @@ modifiedAt: Thu Jan 09 2020 19:08:32 GMT+0530 (India Standard Time),
 ### Positive Reviews
 
 <ol>
-      <li>Awesome set.</li>
-      <li>Perfect For Nail Art!</li>
-      <li>These dotting pens are perfect, I have used them twice now.</li>
-      <li>The price is also great!</li>
-      <li>its not like you need all 10 sizes 5 is perfect.</li>
-      <li>They are perfect!</li>
-      <li>Great set of tools!</li>
-      <li>They are perfect for any nail art designs that include dots!</li>
-      <li>These are great!</li>
-      <li>For this price it&#x27;s a great buy!!!!!!!!!!!!!!</li>
-      <li>Excellent tools that work like a charm!</li>
-      <li>Excellent quality for the price!</li>
-      <li>Very happy!</li>
-      <li>They are great!</li>
-      <li>and you&#x27;ll get a perfect dot every time.</li>
+      <li>If your trying to find your solution to which product would be best.</li>
+      <li>Absolutely beautiful!!!</li>
       <li>Great product!</li>
-      <li>VERY easy to use!!!</li>
-      <li>so I was very happy to begin with.</li>
-      <li>This product is awesome!!</li>
-      <li>Also awesome for making flowers.</li>
-      <li>They&#x27;re excellent for drawing dots, flowers, etc....</li>
-      <li>This is the best ever.</li>
-      <li>Their awesome!!!</li>
-      <li>Although  they came all the way from Hong Kong and took almost a month to get here, they cam out to be awesome.</li>
-      <li>Great product, and price!</li>
-      <li>These were a great bargain!</li>
-      <li>perfect for use doing nail art!</li>
-      <li>there also very beautiful</li>
-      <li>Will be perfect for Christmas presents for my neices!</li>
-      <li>:D</li>
-      <li>These dotting tools work great!</li>
-      <li>these dotting tools are great!!!</li>
-      <li>These dotting tools do their job perfectly.</li>
-      <li>These are great!</li>
-      <li>I got these for polymer clay, And for that they work great!</li>
-      <li>I also used them for what they were made for (nails) and they work great too!</li>
-      <li>One of the best nail products I could have bought.</li>
-      <li>THIS WAS PERFECT.  </li>
-      <li>They&#x27;re excellent for drawing dots, flowers, mickey mouse, etc....</li>
-      <li>and I&#x27;m very happy with this purchase.</li>
-      <li>It didn&#x27;t make perfect circles on my nails either.</li>
-      <li>Awesome &amp; does job, but one broke almost immediately</li>
-      <li>These are the perfect tools for nail art!</li>
-      <li>Perfect Amazing&lt;br /&gt;Wow .</li>
-      <li>Perfect price.</li>
-      <li>Great find an buy!</li>
-      <li>Wonderful Idea.</li>
-      <li>Nonetheless, great value for $1.49!</li>
-      <li>I am extremely happy with my purchase!</li>
-      <li>These are awesome</li>
-      <li>I use them all the time and they are great tools for manicure/pedicure designs!</li>
-      <li>If you like to do nail art these are perfect.</li>
-      <li>these are great!</li>
-      <li>they are a quality product and have the perfect variety of sizes.</li>
-      <li>This dotting set is the set that everybody has, because it&#x27;s the best.</li>
-      <li>They are perfect for my Tux nails!&lt;br /&gt;They</li>
-      <li>but she says they work great!</li>
-      <li>it works excellent</li>
-      <li>GREAT PRICE!!!</li>
-      <li>These dotting tools are awesome!</li>
-      <li>They are awesome.</li>
-      <li>Very great for nail art.</li>
-      <li>These are a great buy!</li>
-      <li>there are so awesome to have .</li>
-      <li>Im so very happy</li>
-      <li>Also i feel that i got an awesome deal on them.</li>
-      <li>Wonderful purchase</li>
-      <li>so it worked out as a perfect gift.</li>
-      <li>working perfectly.</li>
-      <li>What a great deal!</li>
-      <li>These are so awesome!</li>
-      <li>theyre great!</li>
-      <li>She has already done perfect flowers, daisies, lines &amp; squiggles.  </li>
-      <li>Probably one of the best purchases I&#x27;ve made ever.</li>
-      <li>And this one had the best price.</li>
-      <li>but this is a great product for the price!</li>
-      <li>I got them as a gift and the price was great!</li>
-      <li>Wonderful tool set, it&#x27;s variety</li>
-      <li>Very Happy!!!!!</li>
-      <li>These dotting pens are the best!</li>
-      <li>The dotting tools are great!</li>
-      <li>Great product!!</li>
-      <li>impressed!</li>
-      <li>These worked perfectly for nail designs.</li>
-      <li>Really happy with the product and price!</li>
-      <li>Happy day!</li>
-      <li>They are one of my best purchases!</li>
+      <li>Awesome set.</li>
+      <li>These nail dotting tools work wonderfully!</li>
+      <li>Cant best the price either.</li>
       <li>I was never too impressed with any of the alternatives, and for $2.15, I eventually figured I&#x27;d give them a try.</li>
+      <li>/&gt;Everything was perfect and flawless.&lt;br /&gt;I</li>
+      <li>but you need to buy this wonderful tools for it</li>
+      <li>and they would be perfect.</li>
+      <li>Create perfect circle or dotted nail art desings</li>
+      <li>Perfect tools for dotting.</li>
+      <li>Perfect dots every time.</li>
       <li>Great Price!</li>
+      <li>And best part of course was the price!</li>
+      <li>i am very happy with this product.</li>
       <li>This one of the best investments I&#x27;ve ever made.</li>
+      <li>Great price!</li>
+      <li>Am very happy with this order I would recommend and buy again if I lost them or for a gift.</li>
+      <li>They still work great!</li>
+      <li>Perfect For Nail Art!</li>
+      <li>i choose this rating because these dotting tools are awesome.</li>
+      <li>and they are in perfect condition.</li>
+      <li>These dotting pens are perfect, I have used them twice now.</li>
       <li>Excellent!!!</li>
+      <li>These are great!</li>
+      <li>and I&#x27;m happy about it!</li>
+      <li>This are excellent for the price, I bought them for my daughter</li>
+      <li>all in all it is great for the price!</li>
+      <li>and they are great!</li>
+      <li>Great price!</li>
+      <li>Awesome!</li>
       <li>Best deal ever.</li>
+      <li>I would recommend this excellent price!</li>
+      <li>The price is also great!</li>
+      <li>Got to me in a timely matter and very excellent quality!!!</li>
+      <li>but this is a great product for the price!</li>
+      <li>so they served their purpose perfectly.</li>
+      <li>Awesome deal.</li>
+      <li>These are awesome dotting tools.</li>
+      <li>This was a great value!</li>
+      <li>Which is great because they are part of Christmas baskets!!!!</li>
+      <li>So happy!</li>
+      <li>The worked great!!!</li>
+      <li>Buy them! :D</li>
+      <li>Great tools!</li>
+      <li>I absolutely loved these!!!!</li>
+      <li>its not like you need all 10 sizes 5 is perfect.</li>
+      <li>Great Price!</li>
       <li>And the price was great!</li>
+      <li>They are perfect!</li>
+      <li>my girls love these!!!!!!!!!!!</li>
+      <li>These are great!!</li>
+      <li>Great set of tools!</li>
+      <li>great product!</li>
+      <li>The make perfect dots, flowers etc.</li>
+      <li>These are the best for nail art!!</li>
+      <li>these dotting pens are awesome there easier to use than others.</li>
+      <li>This set of 5 tools is great for dong your nails in the summer!!!</li>
+      <li>Great item!</li>
+      <li>This is a great tool for nails!</li>
+      <li>but the are awesome</li>
+      <li>Good purchase!!!</li>
+      <li>These are great!</li>
+      <li>and I can make dots on my nails and flowers with them, the price is awesome</li>
+      <li>These tools are absolutely perfect for anyone who loves doing there nails.</li>
+      <li>And this one had the best price.</li>
+      <li>Works great!</li>
+      <li>I&#x27;m very happy I bought these.</li>
+      <li>and I&#x27;m grateful for the wonderful service!</li>
+      <li>They are perfect for any nail art designs that include dots!</li>
+      <li>Great price!</li>
+      <li>These are great!</li>
+      <li>it works perfectly on any nail size.</li>
+      <li>BUT IT IS A GOOD PRODUCT TO USE WHEN MAKING DOTS!!!</li>
       <li>Perfect choice.</li>
-      <li>Great Deal!</li>
-      <li>I used these tools to make polka dots on my nails and they made them perfectly.</li>
-      <li>These dotting pen are awesome</li>
-      <li>She&#x27;s happy now!!</li>
-      <li>So, we are very happy!</li>
-      <li>I&#x27;m very happy with my purchase.</li>
+      <li>I don&#x27;t have the dexterity to paint the greatest dots ever</li>
+      <li>These are so great!</li>
+      <li>It was a great purchase!!!</li>
+      <li>these dotting tools are great!</li>
+      <li>And they are GREAT!!!</li>
+      <li>this tools are amaizing to draw your nails, there are perfect to do cicles in all sizes.</li>
+      <li>I use them with both nail enamel and acrylic paint and they work great!</li>
+      <li>For this price it&#x27;s a great buy!!!!!!!!!!!!!!</li>
+      <li>daughter was very happy to receive these for Christmas in her stocking.  </li>
+      <li>Very good quality!</li>
+      <li>These are great!</li>
+      <li>I feel like I got a great deal!</li>
+      <li>Excellent tools that work like a charm!</li>
+      <li>They are great!!</li>
+      <li>Excellent quality for the price!</li>
+      <li>Great price too!!</li>
+      <li>These are great!</li>
+      <li>Although these took a month to arrive - despite the fact that I was informed that they would arrive for Christmas - we are very happy with these.</li>
+      <li>LOVE IT!!!!!!!!!!</li>
+      <li>This product  makes so easy to put dot on the nail!!!!</li>
+      <li>These tools work great!</li>
+      <li>If you want the perfect polka dot nail art then these are the babies to buy!</li>
+      <li>Makes the PERFECT circle!</li>
+      <li>Great price!</li>
 </ol>
 
 
 <h2>Negative Reviews</h2>
 <ol>
-<li> Awesome set.</li>
-<li> Perfect For Nail Art!</li>
-<li> These dotting pens are perfect, I have used them twice now.</li>
-<li> The price is also great!</li>
-<li> its not like you need all 10 sizes 5 is perfect.</li>
-<li> They are perfect!</li>
-<li> Great set of tools!</li>
-<li> They are perfect for any nail art designs that include dots!</li>
-<li> These are great!</li>
-<li> For this price it&#x27;s a great buy!!!!!!!!!!!!!!</li>
-<li> Excellent tools that work like a charm!</li>
-<li> Excellent quality for the price!</li>
-<li> Very happy!</li>
-<li> They are great!</li>
-<li> and you&#x27;ll get a perfect dot every time.</li>
+<li> If your trying to find your solution to which product would be best.</li>
+<li> Absolutely beautiful!!!</li>
 <li> Great product!</li>
-<li> VERY easy to use!!!</li>
-<li> so I was very happy to begin with.</li>
-<li> This product is awesome!!</li>
-<li> Also awesome for making flowers.</li>
-<li> They&#x27;re excellent for drawing dots, flowers, etc....</li>
-<li> This is the best ever.</li>
-<li> Their awesome!!!</li>
-<li> Although  they came all the way from Hong Kong and took almost a month to get here, they cam out to be awesome.</li>
-<li> Great product, and price!</li>
-<li> These were a great bargain!</li>
-<li> perfect for use doing nail art!</li>
-<li> there also very beautiful</li>
-<li> Will be perfect for Christmas presents for my neices!</li>
-<li> :D</li>
-<li> These dotting tools work great!</li>
-<li> these dotting tools are great!!!</li>
-<li> These dotting tools do their job perfectly.</li>
-<li> These are great!</li>
-<li> I got these for polymer clay, And for that they work great!</li>
-<li> I also used them for what they were made for (nails) and they work great too!</li>
-<li> One of the best nail products I could have bought.</li>
-<li> THIS WAS PERFECT.  </li>
-<li> They&#x27;re excellent for drawing dots, flowers, mickey mouse, etc....</li>
-<li> and I&#x27;m very happy with this purchase.</li>
-<li> It didn&#x27;t make perfect circles on my nails either.</li>
-<li> Awesome &amp; does job, but one broke almost immediately</li>
-<li> These are the perfect tools for nail art!</li>
-<li> Perfect Amazing&lt;br /&gt;Wow .</li>
-<li> Perfect price.</li>
-<li> Great find an buy!</li>
-<li> Wonderful Idea.</li>
-<li> Nonetheless, great value for $1.49!</li>
-<li> I am extremely happy with my purchase!</li>
-<li> These are awesome</li>
-<li> I use them all the time and they are great tools for manicure/pedicure designs!</li>
-<li> If you like to do nail art these are perfect.</li>
-<li> these are great!</li>
-<li> they are a quality product and have the perfect variety of sizes.</li>
-<li> This dotting set is the set that everybody has, because it&#x27;s the best.</li>
-<li> They are perfect for my Tux nails!&lt;br /&gt;They</li>
-<li> but she says they work great!</li>
-<li> it works excellent</li>
-<li> GREAT PRICE!!!</li>
-<li> These dotting tools are awesome!</li>
-<li> They are awesome.</li>
-<li> Very great for nail art.</li>
-<li> These are a great buy!</li>
-<li> there are so awesome to have .</li>
-<li> Im so very happy</li>
-<li> Also i feel that i got an awesome deal on them.</li>
-<li> Wonderful purchase</li>
-<li> so it worked out as a perfect gift.</li>
-<li> working perfectly.</li>
-<li> What a great deal!</li>
-<li> These are so awesome!</li>
-<li> theyre great!</li>
-<li> She has already done perfect flowers, daisies, lines &amp; squiggles.  </li>
-<li> Probably one of the best purchases I&#x27;ve made ever.</li>
-<li> And this one had the best price.</li>
-<li> but this is a great product for the price!</li>
-<li> I got them as a gift and the price was great!</li>
-<li> Wonderful tool set, it&#x27;s variety</li>
-<li> Very Happy!!!!!</li>
-<li> These dotting pens are the best!</li>
-<li> The dotting tools are great!</li>
-<li> Great product!!</li>
-<li> impressed!</li>
-<li> These worked perfectly for nail designs.</li>
-<li> Really happy with the product and price!</li>
-<li> Happy day!</li>
-<li> They are one of my best purchases!</li>
+<li> Awesome set.</li>
+<li> These nail dotting tools work wonderfully!</li>
+<li> Cant best the price either.</li>
 <li> I was never too impressed with any of the alternatives, and for $2.15, I eventually figured I&#x27;d give them a try.</li>
+<li> /&gt;Everything was perfect and flawless.&lt;br /&gt;I</li>
+<li> but you need to buy this wonderful tools for it</li>
+<li> and they would be perfect.</li>
+<li> Create perfect circle or dotted nail art desings</li>
+<li> Perfect tools for dotting.</li>
+<li> Perfect dots every time.</li>
 <li> Great Price!</li>
+<li> And best part of course was the price!</li>
+<li> i am very happy with this product.</li>
 <li> This one of the best investments I&#x27;ve ever made.</li>
+<li> Great price!</li>
+<li> Am very happy with this order I would recommend and buy again if I lost them or for a gift.</li>
+<li> They still work great!</li>
+<li> Perfect For Nail Art!</li>
+<li> i choose this rating because these dotting tools are awesome.</li>
+<li> and they are in perfect condition.</li>
+<li> These dotting pens are perfect, I have used them twice now.</li>
 <li> Excellent!!!</li>
+<li> These are great!</li>
+<li> and I&#x27;m happy about it!</li>
+<li> This are excellent for the price, I bought them for my daughter</li>
+<li> all in all it is great for the price!</li>
+<li> and they are great!</li>
+<li> Great price!</li>
+<li> Awesome!</li>
 <li> Best deal ever.</li>
+<li> I would recommend this excellent price!</li>
+<li> The price is also great!</li>
+<li> Got to me in a timely matter and very excellent quality!!!</li>
+<li> but this is a great product for the price!</li>
+<li> so they served their purpose perfectly.</li>
+<li> Awesome deal.</li>
+<li> These are awesome dotting tools.</li>
+<li> This was a great value!</li>
+<li> Which is great because they are part of Christmas baskets!!!!</li>
+<li> So happy!</li>
+<li> The worked great!!!</li>
+<li> Buy them! :D</li>
+<li> Great tools!</li>
+<li> I absolutely loved these!!!!</li>
+<li> its not like you need all 10 sizes 5 is perfect.</li>
+<li> Great Price!</li>
 <li> And the price was great!</li>
+<li> They are perfect!</li>
+<li> my girls love these!!!!!!!!!!!</li>
+<li> These are great!!</li>
+<li> Great set of tools!</li>
+<li> great product!</li>
+<li> The make perfect dots, flowers etc.</li>
+<li> These are the best for nail art!!</li>
+<li> these dotting pens are awesome there easier to use than others.</li>
+<li> This set of 5 tools is great for dong your nails in the summer!!!</li>
+<li> Great item!</li>
+<li> This is a great tool for nails!</li>
+<li> but the are awesome</li>
+<li> Good purchase!!!</li>
+<li> These are great!</li>
+<li> and I can make dots on my nails and flowers with them, the price is awesome</li>
+<li> These tools are absolutely perfect for anyone who loves doing there nails.</li>
+<li> And this one had the best price.</li>
+<li> Works great!</li>
+<li> I&#x27;m very happy I bought these.</li>
+<li> and I&#x27;m grateful for the wonderful service!</li>
+<li> They are perfect for any nail art designs that include dots!</li>
+<li> Great price!</li>
+<li> These are great!</li>
+<li> it works perfectly on any nail size.</li>
+<li> BUT IT IS A GOOD PRODUCT TO USE WHEN MAKING DOTS!!!</li>
 <li> Perfect choice.</li>
-<li> Great Deal!</li>
-<li> I used these tools to make polka dots on my nails and they made them perfectly.</li>
-<li> These dotting pen are awesome</li>
-<li> She&#x27;s happy now!!</li>
-<li> So, we are very happy!</li>
-<li> I&#x27;m very happy with my purchase.</li>
+<li> I don&#x27;t have the dexterity to paint the greatest dots ever</li>
+<li> These are so great!</li>
+<li> It was a great purchase!!!</li>
+<li> these dotting tools are great!</li>
+<li> And they are GREAT!!!</li>
+<li> this tools are amaizing to draw your nails, there are perfect to do cicles in all sizes.</li>
+<li> I use them with both nail enamel and acrylic paint and they work great!</li>
+<li> For this price it&#x27;s a great buy!!!!!!!!!!!!!!</li>
+<li> daughter was very happy to receive these for Christmas in her stocking.  </li>
+<li> Very good quality!</li>
+<li> These are great!</li>
+<li> I feel like I got a great deal!</li>
+<li> Excellent tools that work like a charm!</li>
+<li> They are great!!</li>
+<li> Excellent quality for the price!</li>
+<li> Great price too!!</li>
+<li> These are great!</li>
+<li> Although these took a month to arrive - despite the fact that I was informed that they would arrive for Christmas - we are very happy with these.</li>
+<li> LOVE IT!!!!!!!!!!</li>
+<li> This product  makes so easy to put dot on the nail!!!!</li>
+<li> These tools work great!</li>
+<li> If you want the perfect polka dot nail art then these are the babies to buy!</li>
+<li> Makes the PERFECT circle!</li>
+<li> Great price!</li>
 </ol>
 
 <h2>All Reviews</h2>
@@ -2641,6 +2641,7 @@ modifiedAt: Thu Jan 09 2020 19:08:32 GMT+0530 (India Standard Time),
     <li> awesome little tool. works great for dotting . Not only for dotting  let your artistic imagination run wild and the possibilities are endless.</li>
     <li> good item...no issues</li>
 </ol>
+
 
 
 

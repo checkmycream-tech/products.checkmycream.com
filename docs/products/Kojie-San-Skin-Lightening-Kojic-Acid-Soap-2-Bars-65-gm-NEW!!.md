@@ -1,0 +1,129 @@
+---
+title: Kojie San Skin Lightening Kojic Acid Soap 2 Bars - 65 gm - NEW!!,
+description: Kojie San Skin Lightening Kojic Acid Soap 2 Bars - 65 gm - NEW!!,
+author: Suvojit Manna,
+tags: Kojie San Skin Lightening Kojic Acid Soap 2 Bars - 65 gm - NEW!!,
+publishedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
+---
+
+# [Kojie San Skin Lightening Kojic Acid Soap 2 Bars - 65 gm - NEW!!](https://products.checkmycream.com/products/Kojie-San-Skin-Lightening-Kojic-Acid-Soap-2-Bars-65-gm-NEW!!.html)
+
+### Positive Reviews
+
+<ol>
+      <li>Perfect packaging</li>
+      <li>and I&#x27;m happy with the product.</li>
+      <li>happy customer</li>
+      <li>Great seller, product was delivered within 2 days after I place the order.</li>
+      <li>This product is amazing!</li>
+      <li>Also good for acne treatment</li>
+      <li>works well good soap.</li>
+      <li>this is a super great product to try.</li>
+      <li>It came right on time and was so happy.</li>
+      <li>still using it for more improvements</li>
+      <li>For many years living in India I got brown skin tone when I moved to usa</li>
+      <li>love it</li>
+      <li>I love this face soap.</li>
+      <li>no matter how many hours I stay in the sun</li>
+      <li>It works really good, for those who don&#x27;t want to be super light,  use it once a day</li>
+      <li>love the soap and it is strong</li>
+      <li>Great soap I will buy more in future</li>
+      <li>Great soap that will last awhile.  </li>
+      <li>or you don&#x27;t follow it up with a good lotion and sunscreen for protection when going outside.</li>
+      <li>Faster than expected to be honest and on top of that the product seems to do exactly what it states.</li>
+      <li>Product works&#x27; very good just make sure that you use the lotion I am using this Product to even my skin tone from blotches from pimples I recommend wearing  sunscreen because without it you get really dark or wear long sleeves.</li>
+      <li>Gentle and sweet smelling.</li>
+      <li>It kind of melts, but I have it on a soap holder that drains well and soap is dry.  </li>
+      <li>Worked at first but stopped working after a while.</li>
+      <li>My order came really fast!</li>
+      <li>Leaves my skin feeling CLEAN and soft.  </li>
+      <li>I was very excited to try this, but when I tryed it on my body but it made my skin xtremely dry and darker....</li>
+      <li>but I will say it leaves my skin feeling soft and it has a slight orange smell which is nice.</li>
+      <li>Overall I am very please with this Seller.</li>
+      <li>In my early fifties &amp; wanted to fad the spots on my face.</li>
+      <li>But the soap is gentle, I did not experience any type of discomfort while using it, it does leave your skin a bit dry</li>
+      <li>I&#x27;m still currently using it and it has change my skin completely.</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> Perfect packaging</li>
+<li> and I&#x27;m happy with the product.</li>
+<li> happy customer</li>
+<li> Great seller, product was delivered within 2 days after I place the order.</li>
+<li> This product is amazing!</li>
+<li> Also good for acne treatment</li>
+<li> works well good soap.</li>
+<li> this is a super great product to try.</li>
+<li> It came right on time and was so happy.</li>
+<li> still using it for more improvements</li>
+<li> For many years living in India I got brown skin tone when I moved to usa</li>
+<li> love it</li>
+<li> I love this face soap.</li>
+<li> no matter how many hours I stay in the sun</li>
+<li> It works really good, for those who don&#x27;t want to be super light,  use it once a day</li>
+<li> love the soap and it is strong</li>
+<li> Great soap I will buy more in future</li>
+<li> Great soap that will last awhile.  </li>
+<li> or you don&#x27;t follow it up with a good lotion and sunscreen for protection when going outside.</li>
+<li> Faster than expected to be honest and on top of that the product seems to do exactly what it states.</li>
+<li> Product works&#x27; very good just make sure that you use the lotion I am using this Product to even my skin tone from blotches from pimples I recommend wearing  sunscreen because without it you get really dark or wear long sleeves.</li>
+<li> Gentle and sweet smelling.</li>
+<li> It kind of melts, but I have it on a soap holder that drains well and soap is dry.  </li>
+<li> Worked at first but stopped working after a while.</li>
+<li> My order came really fast!</li>
+<li> Leaves my skin feeling CLEAN and soft.  </li>
+<li> I was very excited to try this, but when I tryed it on my body but it made my skin xtremely dry and darker....</li>
+<li> but I will say it leaves my skin feeling soft and it has a slight orange smell which is nice.</li>
+<li> Overall I am very please with this Seller.</li>
+<li> In my early fifties &amp; wanted to fad the spots on my face.</li>
+<li> But the soap is gentle, I did not experience any type of discomfort while using it, it does leave your skin a bit dry</li>
+<li> I&#x27;m still currently using it and it has change my skin completely.</li>
+<li> side if left on too long</li>
+<li> Received order earlier than expected.</li>
+<li> I think it helps on my dark spots.</li>
+<li> I also noticed my hands are now slightly lighter than my arms.</li>
+<li> Brightened my skin a little</li>
+<li> my skin got little lighter ,so I did some research and came to this soap I tried this after 2 weeks</li>
+<li> a little improvements on lighting up a fade/burn spot.</li>
+<li> It&#x27;s a little harsh</li>
+<li> so you&#x27;ll need to buy like 200 bars for a few months supply.</li>
+<li> my skin got pale</li>
+<li> The soap is too small</li>
+<li> I have purchased from this seller in the past and would purchase again.</li>
+<li> but the size is very small.</li>
+<li> I have been using a water base lotion to help with the dryness.</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> Still using it 2X a day. night and morning. a little improvements on lighting up a fade/burn spot. still using it for more improvements</li>
+    <li> love the soap and it is strong I only used it 3 times a week</li>
+    <li> Leaves my skin feeling CLEAN and soft.  I like it.</li>
+    <li> This product is amazing! In my early fifties &amp; wanted to fad the spots on my face. I saw results in two weeks. I also noticed my hands are now slightly lighter than my arms. I now wear latex gloves to wash my face with this product.</li>
+    <li> Worked at first but stopped working after a while.</li>
+    <li> I have only been using it for 3 days I can&#x27;t tell if it works.</li>
+    <li> It came right on time and was so happy. it&#x27;s only been fore days so can&#x27;t say if it works, however I will say one bar is gone after only fore days so you&#x27;ll need to buy like 200 bars for a few months supply.</li>
+    <li> I&#x27;m still currently using it and it has change my skin completely. It looks radiant! happy customer</li>
+    <li> I saw results within a week of using the soap</li>
+    <li> For many years living in India I got brown skin tone when I moved to usa my skin got little lighter ,so I did some research and came to this soap I tried this after 2 weeks my skin got pale it does work it take your skin back to the color you  were born with .now no matter how many hours I stay in the sun my skin doesn&#x27;t get darker. Great soap I will buy more in future</li>
+    <li> Brightened my skin a little but I will say it leaves my skin feeling soft and it has a slight orange smell which is nice.</li>
+    <li> Received order earlier than expected. Perfect packaging and I&#x27;m happy with the product. I have purchased from this seller in the past and would purchase again. Thank You!</li>
+    <li> My order came really fast! Faster than expected to be honest and on top of that the product seems to do exactly what it states. It&#x27;s a little harsh so I would stop all exfoliating when using this and it can be on the drying(and burning!) side if left on too long or you don&#x27;t follow it up with a good lotion and sunscreen for protection when going outside. All in all if you&#x27;re looking for something to lighten pigmintation and scars this is a super great product to try.</li>
+    <li> I love this face soap. I think it helps on my dark spots. I will continue using this.</li>
+    <li> I was very excited to try this, but when I tryed it on my body but it made my skin xtremely dry and darker....plz DoNT BUY</li>
+    <li> Great seller, product was delivered within 2 days after I place the order. It&#x27;s too soon to see if it actually fading the acne scars and blemishes. But the soap is gentle, I did not experience any type of discomfort while using it, it does leave your skin a bit dry but I guess that&#x27;s because of the acid. I have been using a water base lotion to help with the dryness. Overall I am very please with this Seller.</li>
+    <li> works well good soap. love it</li>
+    <li> Great soap that will last awhile.  It kind of melts, but I have it on a soap holder that drains well and soap is dry.  Gentle and sweet smelling.</li>
+    <li> The soap is too small</li>
+    <li> Product works&#x27; very good just make sure that you use the lotion I am using this Product to even my skin tone from blotches from pimples I recommend wearing  sunscreen because without it you get really dark or wear long sleeves.</li>
+    <li> Works well but the size is very small.</li>
+    <li> It works really good, for those who don&#x27;t want to be super light,  use it once a day that&#x27;s works for me  if not use it twice a day. Also good for acne treatment</li>
+</ol>
+
+
+
+

@@ -3,8 +3,8 @@ title: Honest Amish Beard Balm Leave-in Conditioner - All Natural -Vegan Friendl
 description: Honest Amish Beard Balm Leave-in Conditioner - All Natural -Vegan Friendly Organic Oils and Butters,
 author: Suvojit Manna,
 tags: Honest Amish Beard Balm Leave-in Conditioner - All Natural -Vegan Friendly Organic Oils and Butters,
-publishedAt: Thu Jan 09 2020 19:08:39 GMT+0530 (India Standard Time),
-modifiedAt: Thu Jan 09 2020 19:08:39 GMT+0530 (India Standard Time),
+publishedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
 ---
 
 # [Honest Amish Beard Balm Leave-in Conditioner - All Natural -Vegan Friendly Organic Oils and Butters](https://products.checkmycream.com/products/Honest-Amish-Beard-Balm-Leave-in-Conditioner-All-Natural-Vegan-Friendly-Organic-Oils-and-Butters.html)
@@ -12,211 +12,211 @@ modifiedAt: Thu Jan 09 2020 19:08:39 GMT+0530 (India Standard Time),
 ### Positive Reviews
 
 <ol>
-      <li>Excellent product.</li>
-      <li>Best I&#x27;ve tried - and I feel like I&#x27;ve tried them all!!</li>
-      <li>Leaves the beard feeling awesome</li>
-      <li>This stuff is great!</li>
-      <li>and it softens my beard up great!</li>
-      <li>Smells great too!</li>
-      <li>LOL!</li>
-      <li>This is a great product!</li>
-      <li>And my beard looks great!</li>
-      <li>The product is excellent but the burlap bag it comes in seems a bit hokey to me.</li>
-      <li>it great!</li>
-      <li>Awesome.  </li>
-      <li>Great service too!</li>
-      <li>My husband says this is the best product he has ever used in his beard</li>
-      <li>Great product!</li>
-      <li>Great product!</li>
-      <li>Good stuff!!</li>
-      <li>Great Product!  </li>
-      <li>Moisturizes beard excellently.</li>
-      <li>Makes my beard look and feel great!</li>
-      <li>Great product!</li>
-      <li>This stuff is awesome.</li>
-      <li>Awesome stuff!</li>
-      <li>Works great!  </li>
-      <li>Smell wise!!!!</li>
-      <li>Great product!  </li>
-      <li>It&#x27;s hands-down the best stuff</li>
-      <li>This stuff is wonderful.</li>
-      <li>Best beard balm ever.</li>
-      <li>Hubby loved!!</li>
-      <li>Great stuff!  </li>
-      <li>I&#x27;ve tried a bunch of beard conditioners and like this one best.</li>
-      <li>Good Product !!.</li>
-      <li>it&#x27;s excellent stuff, if you want something that has a bit of hold look elsewhere.</li>
-      <li>This is an awesome product!</li>
-      <li>and I&#x27;m very happy with it.  </li>
-      <li>I was impressed with everything that went into this balm</li>
-      <li>Great product!</li>
-      <li>This beard balm is incredible!</li>
-      <li>The smell was great!  </li>
-      <li>This stuff is awesome!</li>
-      <li>It’s the best beard tamer I have tried yet.</li>
-      <li>Really awesome stuff!</li>
-      <li>Great Stuff!</li>
-      <li>Goes great with the Soap!</li>
-      <li>Best beard balm I have ever tried</li>
-      <li>Very good!</li>
-      <li>But this scent is great!  </li>
-      <li>Makes my beard feel awesome.</li>
-      <li>This stuff is awesome.</li>
-      <li>Very happy with my purchase.</li>
-      <li>excellent product.</li>
-      <li>Excellent Service.</li>
-      <li>GOOD STUFF !!</li>
-      <li>Excellent product.</li>
-      <li>Great Product!  </li>
-      <li>Bought for boyfriend for anniversary and it works great!</li>
-      <li>Perfect and smells great!</li>
-      <li>I am very happy to have found this product.</li>
-      <li>and it made it look great!</li>
-      <li>Best thing to happen to my beard ever.</li>
-      <li>Works wonderfully.</li>
-      <li>Works great!  </li>
-      <li>Definitely impressed.</li>
-      <li>It&#x27;s perfect!</li>
-      <li>This stuff is great!</li>
-      <li>Great stuff!  </li>
-      <li>Very happy!</li>
-      <li>Best beard oil I have ever used!</li>
-      <li>Excellent product...</li>
-      <li>Great product!</li>
-      <li>Smells real good.</li>
-      <li>Excellent product, in fact the best I have used.  </li>
-      <li>It truly is, &amp;#34;the best for your beard&amp;#34;.</li>
-      <li>Excellent service and product!</li>
-      <li>Excellent product, exceeds expectations, but please BEWARE: LEAVE</li>
-      <li>Very Awesome!</li>
-      <li>Best beard balm ever.&lt;br</li>
-      <li>great product!</li>
-      <li>and I&#x27;m very happy with the results</li>
-      <li>And the smell is great as well!!!!</li>
-      <li>Work great!!</li>
-      <li>Truly a perfect product!</li>
-      <li>but it&#x27;s great!</li>
-      <li>Great stuff!</li>
-      <li>Really great product!</li>
-      <li>so I don&#x27;t know the best way to apply.</li>
-      <li>Awesome!  </li>
-      <li>Best thing I can say, it does as advertised.</li>
-      <li>What a great balm!</li>
-      <li>Great product!</li>
-      <li>Best product Ive ever bought!</li>
-      <li>Awesome beard balm!</li>
-      <li>I works perfectly.</li>
-      <li>This is excellent.</li>
+      <li>I&#x27;m impressed with that!  </li>
       <li>Awesome product, awesome packaging.</li>
-      <li>For the price, it&#x27;s an excellent product with a pleasing scent.  </li>
       <li>I&#x27;m definitely a happy customer!</li>
       <li>i&#x27;m really impressed.</li>
+      <li>Excellent product.</li>
       <li>Good stuff that kills the beard-druff!!!</li>
+      <li>consistency of the balm is perfect for use as a leave-in conditioner.</li>
+      <li>I felt like I had just purchased the best product at NPH&#x27;s Moustachery in &amp;</li>
+      <li>This is an awesome product!</li>
+      <li>and you can tell they care about the product, which is awesome.</li>
+      <li>This is a great beard product!</li>
+      <li>Wonderful, herb-y fragrance.</li>
+      <li>This is excellent.</li>
+      <li>and I&#x27;m very happy with it.  </li>
+      <li>Thank you for making an affordable, great product!</li>
+      <li>Best I&#x27;ve tried - and I feel like I&#x27;ve tried them all!!</li>
+      <li>I works perfectly.</li>
+      <li>it&#x27;s excellent stuff, if you want something that has a bit of hold look elsewhere.</li>
+      <li>Awesome beard balm!</li>
+      <li>plus this is a gift for my hairdresser, he does a wonderful job .</li>
+      <li>I am very happy on my purchase</li>
+      <li>I was impressed with everything that went into this balm</li>
+      <li>Excellent at taming frazzled hairs and keeping everything in place.  </li>
+      <li>Accept no substitutions, this is the very best there is.&lt;br /&gt;&lt;br</li>
+      <li>Best product Ive ever bought!</li>
+      <li>The best beard conditioner on the market.</li>
+      <li>This stuff works great!</li>
+      <li>/&gt;The scent of this product is best compared to Jagermeister!</li>
+      <li>Great product!</li>
+      <li>What a great balm!</li>
+      <li>It&#x27;s the best.  </li>
+      <li>Leaves the beard feeling awesome</li>
+      <li>Best thing I can say, it does as advertised.</li>
+      <li>and I’m very happy it.</li>
+      <li>Very happy with this purchase.</li>
+      <li>but this one was regarded as the best</li>
+      <li>Good Product !!.</li>
+      <li>Great product!</li>
+      <li>Makes my beard look awesome!</li>
+      <li>Awesome!  </li>
+      <li>so I don&#x27;t know the best way to apply.</li>
+      <li>This stuff is great!  </li>
+      <li>Awesome stuff.</li>
+      <li>This stuff is great, my wife has noticed a difference!</li>
+      <li>Works great!</li>
+      <li>This is a great product!</li>
+      <li>Really great product!</li>
+      <li>Great stuff!</li>
+      <li>This stuff smells great!</li>
+      <li>This stuff is awesome.  </li>
+      <li>Smells great too!</li>
+      <li>Excellent product.</li>
+      <li>Great buy!</li>
+      <li>this stuff is great!</li>
+      <li>It&#x27;s especially nice that it doesn&#x27;t contain fragrance.  </li>
+      <li>This stuff is awesome.</li>
+      <li>and now I am very happy about how it smells and how it makes my beard shiny.</li>
+      <li>Excellent beard balm.</li>
+      <li>I bought this for someone as a gift, and am told it is awesome!</li>
+      <li>Great stuff and will buy again!</li>
+      <li>but it&#x27;s great!</li>
+      <li>I ordered this for my boyfriend for Christmas and he has been very happy.</li>
+      <li>Awesome product.</li>
+      <li>It smells awesome and it no longer hurts to get kissed!</li>
+      <li>So this beard balm is so great!</li>
+      <li>I&#x27;ve tried a bunch of beard conditioners and like this one best.</li>
+      <li>awesome, conditions skin.</li>
+      <li>Great product!!!  </li>
+      <li>Great product!</li>
+      <li>GREAT STUFF!</li>
+      <li>Smells great to!</li>
+      <li>Best results of any product I&#x27;ve used.</li>
+      <li>Smells awesome, doesn&#x27;t feel greasy.</li>
+      <li>Awesome product!</li>
+      <li>, it&#x27;s great stuff!  </li>
+      <li>Wifey is happy!</li>
+      <li>This beard balm is awesome!</li>
+      <li>Great Job!</li>
+      <li>Awesome!</li>
+      <li>Great product!</li>
+      <li>Excellent quality.</li>
+      <li>I was very impressed by the formula, the packaging, and the quality.</li>
+      <li>The smell was great though!</li>
+      <li>Excellent product!</li>
+      <li>This beard balm is incredible!</li>
+      <li>Excellent product.</li>
+      <li>Smells great!</li>
+      <li>Not overly impressed with the conditioning aspect/quality.  </li>
+      <li>This stuff is awesome!</li>
+      <li>Truly a perfect product!</li>
+      <li>I have a beard and look awesome.</li>
+      <li>Work great!!</li>
+      <li>Awesome product!</li>
+      <li>Great product, as advertised!  </li>
+      <li>This product will soften your beard and make you happy!!</li>
+      <li>Awesome product.</li>
+      <li>And the smell is great as well!!!!</li>
+      <li>and I&#x27;m very happy with the results</li>
+      <li>Goes perfect with the oil.</li>
+      <li>great product!</li>
 </ol>
 
 
 <h2>Negative Reviews</h2>
 <ol>
-<li> Excellent product.</li>
-<li> Best I&#x27;ve tried - and I feel like I&#x27;ve tried them all!!</li>
-<li> Leaves the beard feeling awesome</li>
-<li> This stuff is great!</li>
-<li> and it softens my beard up great!</li>
-<li> Smells great too!</li>
-<li> LOL!</li>
-<li> This is a great product!</li>
-<li> And my beard looks great!</li>
-<li> The product is excellent but the burlap bag it comes in seems a bit hokey to me.</li>
-<li> it great!</li>
-<li> Awesome.  </li>
-<li> Great service too!</li>
-<li> My husband says this is the best product he has ever used in his beard</li>
-<li> Great product!</li>
-<li> Great product!</li>
-<li> Good stuff!!</li>
-<li> Great Product!  </li>
-<li> Moisturizes beard excellently.</li>
-<li> Makes my beard look and feel great!</li>
-<li> Great product!</li>
-<li> This stuff is awesome.</li>
-<li> Awesome stuff!</li>
-<li> Works great!  </li>
-<li> Smell wise!!!!</li>
-<li> Great product!  </li>
-<li> It&#x27;s hands-down the best stuff</li>
-<li> This stuff is wonderful.</li>
-<li> Best beard balm ever.</li>
-<li> Hubby loved!!</li>
-<li> Great stuff!  </li>
-<li> I&#x27;ve tried a bunch of beard conditioners and like this one best.</li>
-<li> Good Product !!.</li>
-<li> it&#x27;s excellent stuff, if you want something that has a bit of hold look elsewhere.</li>
-<li> This is an awesome product!</li>
-<li> and I&#x27;m very happy with it.  </li>
-<li> I was impressed with everything that went into this balm</li>
-<li> Great product!</li>
-<li> This beard balm is incredible!</li>
-<li> The smell was great!  </li>
-<li> This stuff is awesome!</li>
-<li> It’s the best beard tamer I have tried yet.</li>
-<li> Really awesome stuff!</li>
-<li> Great Stuff!</li>
-<li> Goes great with the Soap!</li>
-<li> Best beard balm I have ever tried</li>
-<li> Very good!</li>
-<li> But this scent is great!  </li>
-<li> Makes my beard feel awesome.</li>
-<li> This stuff is awesome.</li>
-<li> Very happy with my purchase.</li>
-<li> excellent product.</li>
-<li> Excellent Service.</li>
-<li> GOOD STUFF !!</li>
-<li> Excellent product.</li>
-<li> Great Product!  </li>
-<li> Bought for boyfriend for anniversary and it works great!</li>
-<li> Perfect and smells great!</li>
-<li> I am very happy to have found this product.</li>
-<li> and it made it look great!</li>
-<li> Best thing to happen to my beard ever.</li>
-<li> Works wonderfully.</li>
-<li> Works great!  </li>
-<li> Definitely impressed.</li>
-<li> It&#x27;s perfect!</li>
-<li> This stuff is great!</li>
-<li> Great stuff!  </li>
-<li> Very happy!</li>
-<li> Best beard oil I have ever used!</li>
-<li> Excellent product...</li>
-<li> Great product!</li>
-<li> Smells real good.</li>
-<li> Excellent product, in fact the best I have used.  </li>
-<li> It truly is, &amp;#34;the best for your beard&amp;#34;.</li>
-<li> Excellent service and product!</li>
-<li> Excellent product, exceeds expectations, but please BEWARE: LEAVE</li>
-<li> Very Awesome!</li>
-<li> Best beard balm ever.&lt;br</li>
-<li> great product!</li>
-<li> and I&#x27;m very happy with the results</li>
-<li> And the smell is great as well!!!!</li>
-<li> Work great!!</li>
-<li> Truly a perfect product!</li>
-<li> but it&#x27;s great!</li>
-<li> Great stuff!</li>
-<li> Really great product!</li>
-<li> so I don&#x27;t know the best way to apply.</li>
-<li> Awesome!  </li>
-<li> Best thing I can say, it does as advertised.</li>
-<li> What a great balm!</li>
-<li> Great product!</li>
-<li> Best product Ive ever bought!</li>
-<li> Awesome beard balm!</li>
-<li> I works perfectly.</li>
-<li> This is excellent.</li>
+<li> I&#x27;m impressed with that!  </li>
 <li> Awesome product, awesome packaging.</li>
-<li> For the price, it&#x27;s an excellent product with a pleasing scent.  </li>
 <li> I&#x27;m definitely a happy customer!</li>
 <li> i&#x27;m really impressed.</li>
+<li> Excellent product.</li>
 <li> Good stuff that kills the beard-druff!!!</li>
+<li> consistency of the balm is perfect for use as a leave-in conditioner.</li>
+<li> I felt like I had just purchased the best product at NPH&#x27;s Moustachery in &amp;</li>
+<li> This is an awesome product!</li>
+<li> and you can tell they care about the product, which is awesome.</li>
+<li> This is a great beard product!</li>
+<li> Wonderful, herb-y fragrance.</li>
+<li> This is excellent.</li>
+<li> and I&#x27;m very happy with it.  </li>
+<li> Thank you for making an affordable, great product!</li>
+<li> Best I&#x27;ve tried - and I feel like I&#x27;ve tried them all!!</li>
+<li> I works perfectly.</li>
+<li> it&#x27;s excellent stuff, if you want something that has a bit of hold look elsewhere.</li>
+<li> Awesome beard balm!</li>
+<li> plus this is a gift for my hairdresser, he does a wonderful job .</li>
+<li> I am very happy on my purchase</li>
+<li> I was impressed with everything that went into this balm</li>
+<li> Excellent at taming frazzled hairs and keeping everything in place.  </li>
+<li> Accept no substitutions, this is the very best there is.&lt;br /&gt;&lt;br</li>
+<li> Best product Ive ever bought!</li>
+<li> The best beard conditioner on the market.</li>
+<li> This stuff works great!</li>
+<li> /&gt;The scent of this product is best compared to Jagermeister!</li>
+<li> Great product!</li>
+<li> What a great balm!</li>
+<li> It&#x27;s the best.  </li>
+<li> Leaves the beard feeling awesome</li>
+<li> Best thing I can say, it does as advertised.</li>
+<li> and I’m very happy it.</li>
+<li> Very happy with this purchase.</li>
+<li> but this one was regarded as the best</li>
+<li> Good Product !!.</li>
+<li> Great product!</li>
+<li> Makes my beard look awesome!</li>
+<li> Awesome!  </li>
+<li> so I don&#x27;t know the best way to apply.</li>
+<li> This stuff is great!  </li>
+<li> Awesome stuff.</li>
+<li> This stuff is great, my wife has noticed a difference!</li>
+<li> Works great!</li>
+<li> This is a great product!</li>
+<li> Really great product!</li>
+<li> Great stuff!</li>
+<li> This stuff smells great!</li>
+<li> This stuff is awesome.  </li>
+<li> Smells great too!</li>
+<li> Excellent product.</li>
+<li> Great buy!</li>
+<li> this stuff is great!</li>
+<li> It&#x27;s especially nice that it doesn&#x27;t contain fragrance.  </li>
+<li> This stuff is awesome.</li>
+<li> and now I am very happy about how it smells and how it makes my beard shiny.</li>
+<li> Excellent beard balm.</li>
+<li> I bought this for someone as a gift, and am told it is awesome!</li>
+<li> Great stuff and will buy again!</li>
+<li> but it&#x27;s great!</li>
+<li> I ordered this for my boyfriend for Christmas and he has been very happy.</li>
+<li> Awesome product.</li>
+<li> It smells awesome and it no longer hurts to get kissed!</li>
+<li> So this beard balm is so great!</li>
+<li> I&#x27;ve tried a bunch of beard conditioners and like this one best.</li>
+<li> awesome, conditions skin.</li>
+<li> Great product!!!  </li>
+<li> Great product!</li>
+<li> GREAT STUFF!</li>
+<li> Smells great to!</li>
+<li> Best results of any product I&#x27;ve used.</li>
+<li> Smells awesome, doesn&#x27;t feel greasy.</li>
+<li> Awesome product!</li>
+<li> , it&#x27;s great stuff!  </li>
+<li> Wifey is happy!</li>
+<li> This beard balm is awesome!</li>
+<li> Great Job!</li>
+<li> Awesome!</li>
+<li> Great product!</li>
+<li> Excellent quality.</li>
+<li> I was very impressed by the formula, the packaging, and the quality.</li>
+<li> The smell was great though!</li>
+<li> Excellent product!</li>
+<li> This beard balm is incredible!</li>
+<li> Excellent product.</li>
+<li> Smells great!</li>
+<li> Not overly impressed with the conditioning aspect/quality.  </li>
+<li> This stuff is awesome!</li>
+<li> Truly a perfect product!</li>
+<li> I have a beard and look awesome.</li>
+<li> Work great!!</li>
+<li> Awesome product!</li>
+<li> Great product, as advertised!  </li>
+<li> This product will soften your beard and make you happy!!</li>
+<li> Awesome product.</li>
+<li> And the smell is great as well!!!!</li>
+<li> and I&#x27;m very happy with the results</li>
+<li> Goes perfect with the oil.</li>
+<li> great product!</li>
 </ol>
 
 <h2>All Reviews</h2>
@@ -2200,6 +2200,7 @@ modifiedAt: Thu Jan 09 2020 19:08:39 GMT+0530 (India Standard Time),
     <li> Makes your beard soft and shiny.... a little goes a long way.</li>
     <li> Love what it does to the beard. No frizz at all.</li>
 </ol>
+
 
 
 

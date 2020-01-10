@@ -1,0 +1,127 @@
+---
+title: Opi Swiss Shades Cuckoo For This Color (Green) 0.5 oz.,
+description: Opi Swiss Shades Cuckoo For This Color (Green) 0.5 oz.,
+author: Suvojit Manna,
+tags: Opi Swiss Shades Cuckoo For This Color (Green) 0.5 oz.,
+publishedAt: Fri Jan 10 2020 14:59:58 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:59:58 GMT+0530 (India Standard Time),
+---
+
+# [Opi Swiss Shades Cuckoo For This Color (Green) 0.5 oz.](https://products.checkmycream.com/products/Opi-Swiss-Shades-Cuckoo-For-This-Color-(Green)-0.5-oz..html)
+
+### Positive Reviews
+
+<ol>
+      <li>Awesome Color.  </li>
+      <li>I gave it four stars because, of it&#x27;s quality, OPI is one of the best brands.</li>
+      <li>Just perfect!</li>
+      <li>The formula is great and wears for me for a week without chipping without any touch ups.  </li>
+      <li>This would be great for anyone that enjoys wearing nail polish.</li>
+      <li>I bought this for St Patty&#x27;s Day and it was great.  </li>
+      <li>love it!!</li>
+      <li>This is a gorgeous color.</li>
+      <li>LOVE it!</li>
+      <li>Love this color!  </li>
+      <li>Nice color for winter..</li>
+      <li>Like it muck better than the lighter/ brighter greens</li>
+      <li>and so I paid more money for it here on Amazon.</li>
+      <li>I love OPI products, and this color is no exception.  </li>
+      <li>I love it.</li>
+      <li>This is a very beautiful color which wears very well and looks really pretty on hands and feet.  </li>
+      <li>Awesome, long lasting color and great seller.</li>
+      <li>Love the colour, particularly on my toes!</li>
+      <li>it looks really good on short nails, the color shimmers in the sun.</li>
+      <li>it&#x27;s high quality, the nail polish I received is the same pictured, and because it&#x27;s a beautiful color.</li>
+      <li>It&#x27;s a pretty green-blue</li>
+      <li>Green is my favorite color and this green so gorgeous!</li>
+      <li>This is one of my favorites from OPI ,This is a beautiful green color ,last long without chipping and has a nice shine.</li>
+      <li>Fast Service.</li>
+      <li>but I really like it.</li>
+      <li>The green looks exactly as it does in the picture, so it is a lovely shade, but I don&#x27;t think I&#x27;m there yet in terms of non-traditional nail colors.</li>
+      <li>I absolutely love this color, it&#x27;s very hard for me to green nail polish colors I like, this is gorgeous, and I&#x27;ve seen it go well with any skin tone and any color clothing.</li>
+      <li>Green was to light and had a shimmer I did not want!</li>
+      <li>That said, it is such a beautiful green that there is nothing gimmicky about it.</li>
+      <li>I thought the nail polish might be too old and clumpy as a result..</li>
+      <li>Polish old and bubbles arises...</li>
+      <li>I loved this OPI dark green shade of nail polish!</li>
+      <li>I know that this color is long lasting reflecting its high quality since it lasted for about a week.</li>
+      <li>It looks exactly like picture; green and blue hues - like a peacock color.</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> Awesome Color.  </li>
+<li> I gave it four stars because, of it&#x27;s quality, OPI is one of the best brands.</li>
+<li> Just perfect!</li>
+<li> The formula is great and wears for me for a week without chipping without any touch ups.  </li>
+<li> This would be great for anyone that enjoys wearing nail polish.</li>
+<li> I bought this for St Patty&#x27;s Day and it was great.  </li>
+<li> love it!!</li>
+<li> This is a gorgeous color.</li>
+<li> LOVE it!</li>
+<li> Love this color!  </li>
+<li> Nice color for winter..</li>
+<li> Like it muck better than the lighter/ brighter greens</li>
+<li> and so I paid more money for it here on Amazon.</li>
+<li> I love OPI products, and this color is no exception.  </li>
+<li> I love it.</li>
+<li> This is a very beautiful color which wears very well and looks really pretty on hands and feet.  </li>
+<li> Awesome, long lasting color and great seller.</li>
+<li> Love the colour, particularly on my toes!</li>
+<li> it looks really good on short nails, the color shimmers in the sun.</li>
+<li> it&#x27;s high quality, the nail polish I received is the same pictured, and because it&#x27;s a beautiful color.</li>
+<li> It&#x27;s a pretty green-blue</li>
+<li> Green is my favorite color and this green so gorgeous!</li>
+<li> This is one of my favorites from OPI ,This is a beautiful green color ,last long without chipping and has a nice shine.</li>
+<li> Fast Service.</li>
+<li> but I really like it.</li>
+<li> The green looks exactly as it does in the picture, so it is a lovely shade, but I don&#x27;t think I&#x27;m there yet in terms of non-traditional nail colors.</li>
+<li> I absolutely love this color, it&#x27;s very hard for me to green nail polish colors I like, this is gorgeous, and I&#x27;ve seen it go well with any skin tone and any color clothing.</li>
+<li> Green was to light and had a shimmer I did not want!</li>
+<li> That said, it is such a beautiful green that there is nothing gimmicky about it.</li>
+<li> I thought the nail polish might be too old and clumpy as a result..</li>
+<li> Polish old and bubbles arises...</li>
+<li> I loved this OPI dark green shade of nail polish!</li>
+<li> I know that this color is long lasting reflecting its high quality since it lasted for about a week.</li>
+<li> It looks exactly like picture; green and blue hues - like a peacock color.</li>
+<li> I was trying to open myself up to new colors with purchasing a green polish, but I remain on the fence with this color.  </li>
+<li> I used 2 coats of color with 30 minute dry time between coats (I do my nails while watching a movie dvd).  </li>
+<li> This is my go to green color - especially around the holidays for for creating designs and nail art!  </li>
+<li> This is a really dark color and doesn&#x27;t look as green on me as in the photo</li>
+<li> Quite opaque, but comes out a little lighter in colour on</li>
+<li> This green is to die for!!&lt;br /&gt;Reminds me of the rain forest.  </li>
+<li> ( no question, it&#x27;s still green after a few coats).</li>
+<li> No top coat and no chips.    </li>
+<li> I used a clear base coat because I was afraid of the dark color staining my nails.  </li>
+<li> With the base coat, I had no problems.  </li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> I love OPI products, and this color is no exception.  It looks exactly like picture; green and blue hues - like a peacock color.</li>
+    <li> Nice color for winter..</li>
+    <li> This green is to die for!!&lt;br /&gt;Reminds me of the rain forest.  It blends with everything.&lt;br /&gt;I challenge women to use this as a neutral color.&lt;br /&gt;I love it!!</li>
+    <li> Green was to light and had a shimmer I did not want!</li>
+    <li> Love the colour, particularly on my toes! Quite opaque, but comes out a little lighter in colour on ( no question, it&#x27;s still green after a few coats). Looks quite metallic, but jewel-like, not like an oilslick.</li>
+    <li> I loved this OPI dark green shade of nail polish! I am not one to prefer darker colors but this one has a bit of a sheen to it that I like. I gave it four stars because, of it&#x27;s quality, OPI is one of the best brands. I know that this color is long lasting reflecting its high quality since it lasted for about a week. I probably could have gotten this same nail polish cheaper from a store, however I wanted to this color immediately and so I paid more money for it here on Amazon.This would be great for anyone that enjoys wearing nail polish. I gave it four stars for it&#x27;s high quality, the nail polish I received is the same pictured, and because it&#x27;s a beautiful color.</li>
+    <li> I was trying to open myself up to new colors with purchasing a green polish, but I remain on the fence with this color.  The green looks exactly as it does in the picture, so it is a lovely shade, but I don&#x27;t think I&#x27;m there yet in terms of non-traditional nail colors.</li>
+    <li> Green is my favorite color and this green so gorgeous! it looks really good on short nails, the color shimmers in the sun.</li>
+    <li> I bought this for St Patty&#x27;s Day and it was great.  That said, it is such a beautiful green that there is nothing gimmicky about it.</li>
+    <li> I absolutely love this color, it&#x27;s very hard for me to green nail polish colors I like, this is gorgeous, and I&#x27;ve seen it go well with any skin tone and any color clothing.</li>
+    <li> Love this color!  Timely delivery.</li>
+    <li> Polish old and bubbles arises...</li>
+    <li> OPI does it again!  This nailpolish lasted over 2 weeks on toenails with no chips at all.  It&#x27;s a pretty green-blue color-- I call that type of color peacock blue.  It&#x27;s darker than the picture.    I thought the nail polish might be too old and clumpy as a result.. but I had no problems with application.  I used a clear base coat because I was afraid of the dark color staining my nails.  With the base coat, I had no problems.  I used 2 coats of color with 30 minute dry time between coats (I do my nails while watching a movie dvd).  No top coat and no chips.    Just perfect!</li>
+    <li> This is one of my favorites from OPI ,This is a beautiful green color ,last long without chipping and has a nice shine.Looks just like the picture!</li>
+    <li> This is a gorgeous color. I get tons of compliments whenever I wear it.</li>
+    <li> This is a really dark color and doesn&#x27;t look as green on me as in the photo but I really like it. Like it muck better than the lighter/ brighter greens</li>
+    <li> This is my go to green color - especially around the holidays for for creating designs and nail art!  Always get alot of compliments when I wear this!  The formula is great and wears for me for a week without chipping without any touch ups.  LOVE it!</li>
+    <li> Awesome Color.  Fast Service.</li>
+    <li> Awesome, long lasting color and great seller.</li>
+    <li> This is a very beautiful color which wears very well and looks really pretty on hands and feet.  I love it.</li>
+</ol>
+
+
+
+

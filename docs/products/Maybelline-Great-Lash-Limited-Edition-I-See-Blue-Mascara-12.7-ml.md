@@ -1,0 +1,161 @@
+---
+title: Maybelline Great Lash Limited Edition I See Blue Mascara 12.7 ml,
+description: Maybelline Great Lash Limited Edition I See Blue Mascara 12.7 ml,
+author: Suvojit Manna,
+tags: Maybelline Great Lash Limited Edition I See Blue Mascara 12.7 ml,
+publishedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
+---
+
+# [Maybelline Great Lash Limited Edition I See Blue Mascara 12.7 ml](https://products.checkmycream.com/products/Maybelline-Great-Lash-Limited-Edition-I-See-Blue-Mascara-12.7-ml.html)
+
+### Positive Reviews
+
+<ol>
+      <li>Always was a fan of Great Lash, not this one!</li>
+      <li>She loves it, so it must be great!</li>
+      <li>Beautiful!!!</li>
+      <li>/&gt;Service was exellent and product awesome.</li>
+      <li>Out of the 5 colors I purchased, this one works the best.</li>
+      <li>but it&#x27;s amazing!!</li>
+      <li>I look good so why not make it pop!</li>
+      <li>Goes on easily beautiful color.</li>
+      <li>Love the way my lashes look!!</li>
+      <li>I love it!!</li>
+      <li>LOVE, LOVE, LOVE this color!!!!</li>
+      <li>I absolutely love this productI have always used product and was very excited to see the variety of colors to choose from!!</li>
+      <li>Nice color</li>
+      <li>My new favorite lower-lash mascara  :D  </li>
+      <li>Maybelline Great Lash is my absolute favorite mascara, and to know that it comes in colors is even better!  </li>
+      <li>i have bought this product before and love it comes in a sealed container doesn&#x27;t clump and lasts all day</li>
+      <li>Love the color and product</li>
+      <li>I love it.</li>
+      <li>love the product.</li>
+      <li>I will definitely order more!!!!</li>
+      <li>Definitely satisfied with my purchase.</li>
+      <li>/&gt;-:&lt;br /&gt;you may need to apply 3 or more coats.</li>
+      <li>The color is amazing and its maybelline tried and true though out the years.</li>
+      <li>I wanted it to be a very bright blue.</li>
+      <li>Reasonable price and the quality is good as well.</li>
+      <li>It does wash off easily.</li>
+      <li>So happy with my blue mascara.&lt;br</li>
+      <li>It is too light for me.</li>
+      <li>I love this mascara and the delivery was super quick</li>
+      <li>Was expecting more intense colors and texture.</li>
+      <li>Not a bad product at all.</li>
+      <li>looks pretty dark under shade, but under light, color appears super vibrant and I love it!</li>
+      <li>Glad to have different colors</li>
+      <li>I get many compliments when I wear this blue!</li>
+      <li>thanks seller.</li>
+      <li>Did not like much of a color.</li>
+      <li>Bought it for my Girl who is very picky about mascara.</li>
+      <li>Thanks Maybelline</li>
+      <li>I love the colors for this product, but I need a more dramatic extension.</li>
+      <li>Pops particularly well if you line the lower lashes with a bronze or peachy toned liner/ shadow.</li>
+      <li>so I really appreciate a mascara that offers lengthening.</li>
+      <li>,I do recommend if you want to try something new</li>
+      <li>So much brighter than the standard Navy Blue.</li>
+      <li>It&#x27;s actually noticeably colored, it&#x27;s just disappointing because blue is not the most complimentary color for my eyes.</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> Always was a fan of Great Lash, not this one!</li>
+<li> She loves it, so it must be great!</li>
+<li> Beautiful!!!</li>
+<li> /&gt;Service was exellent and product awesome.</li>
+<li> Out of the 5 colors I purchased, this one works the best.</li>
+<li> but it&#x27;s amazing!!</li>
+<li> I look good so why not make it pop!</li>
+<li> Goes on easily beautiful color.</li>
+<li> Love the way my lashes look!!</li>
+<li> I love it!!</li>
+<li> LOVE, LOVE, LOVE this color!!!!</li>
+<li> I absolutely love this productI have always used product and was very excited to see the variety of colors to choose from!!</li>
+<li> Nice color</li>
+<li> My new favorite lower-lash mascara  :D  </li>
+<li> Maybelline Great Lash is my absolute favorite mascara, and to know that it comes in colors is even better!  </li>
+<li> i have bought this product before and love it comes in a sealed container doesn&#x27;t clump and lasts all day</li>
+<li> Love the color and product</li>
+<li> I love it.</li>
+<li> love the product.</li>
+<li> I will definitely order more!!!!</li>
+<li> Definitely satisfied with my purchase.</li>
+<li> /&gt;-:&lt;br /&gt;you may need to apply 3 or more coats.</li>
+<li> The color is amazing and its maybelline tried and true though out the years.</li>
+<li> I wanted it to be a very bright blue.</li>
+<li> Reasonable price and the quality is good as well.</li>
+<li> It does wash off easily.</li>
+<li> So happy with my blue mascara.&lt;br</li>
+<li> It is too light for me.</li>
+<li> I love this mascara and the delivery was super quick</li>
+<li> Was expecting more intense colors and texture.</li>
+<li> Not a bad product at all.</li>
+<li> looks pretty dark under shade, but under light, color appears super vibrant and I love it!</li>
+<li> Glad to have different colors</li>
+<li> I get many compliments when I wear this blue!</li>
+<li> thanks seller.</li>
+<li> Did not like much of a color.</li>
+<li> Bought it for my Girl who is very picky about mascara.</li>
+<li> Thanks Maybelline</li>
+<li> I love the colors for this product, but I need a more dramatic extension.</li>
+<li> Pops particularly well if you line the lower lashes with a bronze or peachy toned liner/ shadow.</li>
+<li> so I really appreciate a mascara that offers lengthening.</li>
+<li> ,I do recommend if you want to try something new</li>
+<li> So much brighter than the standard Navy Blue.</li>
+<li> It&#x27;s actually noticeably colored, it&#x27;s just disappointing because blue is not the most complimentary color for my eyes.</li>
+<li> It applies smoothly, but I don&#x27;t wear false lashes</li>
+<li> if it starts to dry out,I simply add a drop of water.&lt;br /&gt;&lt;br</li>
+<li> It looks pretty if you want to be subtle though.</li>
+<li> +:&lt;br /&gt;noticeably blue even on my dark eyelashes.</li>
+<li> Even though it was a bit darker than I expected, it still looks</li>
+<li> It takes a few coats to look really blue</li>
+<li> but you have to apply coat after coat to make it thick enough.</li>
+<li> I will never use black again.  </li>
+<li> I layer over black mascara.</li>
+<li> It was completely dried up.</li>
+<li> This color is really hard to find.</li>
+<li> I don&#x27;t like it by itself, the formula is too thin and the mascara does not lengthen or add volume.</li>
+<li> My lashes are wimpy, this does nothing :(</li>
+<li> Real disappointed Maybelline.</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> Even though it was a bit darker than I expected, it still looks amazing!&lt;br /&gt;It looks pretty dark under shade, but under light, color appears super vibrant and I love it!</li>
+    <li> Love the color and product</li>
+    <li> Out of the 5 colors I purchased, this one works the best. I don&#x27;t like it by itself, the formula is too thin and the mascara does not lengthen or add volume. I layer over black mascara. It&#x27;s actually noticeably colored, it&#x27;s just disappointing because blue is not the most complimentary color for my eyes.</li>
+    <li> Beautiful!!! Love the way my lashes look!!</li>
+    <li> Maybelline Great Lash is my absolute favorite mascara, and to know that it comes in colors is even better!  Thanks Maybelline</li>
+    <li> Goes on easily beautiful color. Enhances blue eyes. Will buy again.</li>
+    <li> Lacks any lengthening or thickening. Real disappointed Maybelline. Always was a fan of Great Lash, not this one! My lashes are wimpy, this does nothing :(</li>
+    <li> I absolutely love this productI have always used product and was very excited to see the variety of colors to choose from!!</li>
+    <li> This blue mascara is something I wore when I was in college years ago...I am 57 now! I look good so why not make it pop! Thank you, just like I remembered!</li>
+    <li> Did not like much of a color. It is too light for me. Was expecting more intense colors and texture.</li>
+    <li> I love this mascara and the delivery was super quick</li>
+    <li> I love the colors for this product, but I need a more dramatic extension. It applies smoothly, but I don&#x27;t wear false lashes so I really appreciate a mascara that offers lengthening.</li>
+    <li> This color is the beast!!! I will never use black again.  I never leave home without it.</li>
+    <li> Bought it for my Girl who is very picky about mascara. She loves it, so it must be great!</li>
+    <li> So happy with my blue mascara.&lt;br /&gt;Service was exellent and product awesome.</li>
+    <li> I love it!! It takes a few coats to look really blue but it&#x27;s amazing!!</li>
+    <li> +:&lt;br /&gt;noticeably blue even on my dark eyelashes. stays on all day,easy to remove.&lt;br /&gt;-:&lt;br /&gt;you may need to apply 3 or more coats. if it starts to dry out,I simply add a drop of water.&lt;br /&gt;&lt;br /&gt;anyhow,I do recommend if you want to try something new</li>
+    <li> It was completely dried up.</li>
+    <li> My new favorite lower-lash mascara  :D  Pops particularly well if you line the lower lashes with a bronze or peachy toned liner/ shadow.</li>
+    <li> The color is amazing and its maybelline tried and true though out the years.</li>
+    <li> I wanted it to be a very bright blue. It looks pretty if you want to be subtle though. Not a bad product at all.</li>
+    <li> Gives my eyes an electric highlight!  Came in the mail two days after ordering. Reasonable price and the quality is good as well. Definitely satisfied with my purchase.</li>
+    <li> Nice color but you have to apply coat after coat to make it thick enough. It does wash off easily.</li>
+    <li> love the product. thanks seller.</li>
+    <li> LOVE, LOVE, LOVE this color!!!! So much brighter than the standard Navy Blue. I will definitely order more!!!!</li>
+    <li> Don&#x27;t like the color on my eyelashes</li>
+    <li> Glad to have different colors</li>
+    <li> This color is really hard to find. I love it. The color of blue is just what I wanted. This mascara does not clump.</li>
+    <li> i have bought this product before and love it comes in a sealed container doesn&#x27;t clump and lasts all day</li>
+    <li> I get many compliments when I wear this blue!</li>
+</ol>
+
+
+
+

@@ -1,0 +1,162 @@
+---
+title: NOW Vitamin E Cream 28,000 IU, 4-Ounce,
+description: NOW Vitamin E Cream 28,000 IU, 4-Ounce,
+author: Suvojit Manna,
+tags: NOW Vitamin E Cream 28,000 IU, 4-Ounce,
+publishedAt: Fri Jan 10 2020 14:59:24 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:59:24 GMT+0530 (India Standard Time),
+---
+
+# [NOW Vitamin E Cream 28,000 IU, 4-Ounce](https://products.checkmycream.com/products/NOW-Vitamin-E-Cream-28000-IU-4-Ounce.html)
+
+### Positive Reviews
+
+<ol>
+      <li>Great price too!</li>
+      <li>This is the best moisturizer!</li>
+      <li>I am happy with this product.</li>
+      <li>I also purchased a tube of the vitamin e cream for a friend and she has been getting great compliments as well.</li>
+      <li>It has made a great difference in the tone of my skin.</li>
+      <li>Great for the severely acne-prone skin (I know it because I have one).</li>
+      <li>Its just not as pleasant as I like for my lotions to be.</li>
+      <li>I LOVE THIS!</li>
+      <li>the nice smell the cream has, and that it doesn&#x27;t make my face greasy.</li>
+      <li>I love love love this product!  </li>
+      <li>I love this cream</li>
+      <li>And love the tube container for traveling.&lt;br</li>
+      <li>Also it does not clog my pores, hooray &#x3D;)</li>
+      <li>and I love it.</li>
+      <li>product was ok.</li>
+      <li>Love the cream,  will be buying more soon</li>
+      <li>It goes on a bit greasy at first, but absorbs nicely</li>
+      <li>It doesn&#x27;t go on as smoothly as I&#x27;d like</li>
+      <li>i purchased this vitamin e cream because it is paraben free and the price.  </li>
+      <li>This is moisturizing, light, and has anti-aging benefits.</li>
+      <li>Feels great on my dry skin!</li>
+      <li>but it dissipates fairly quickly.</li>
+      <li>I have extremely sensitive skin and have tried so many products.</li>
+      <li>Suggested Use: Apply to the face, neck and area around the eyes, or wherever skin is most prone to the physical effects of aging.</li>
+      <li>but I wanted to try something for my face because many moisturizers I tried were too light or too heavy and caused me to break out</li>
+      <li>Prompt serviced appreciated very much.</li>
+      <li>Seriously, this stuff is so simple and great!</li>
+      <li>After the summer months on European nudist beaches, I use the NOW Foods Vitamin E Cream for the area of my [blank] that is prone to cracking, dryness and soreness due to the sun.&lt;br /&gt;&lt;br /&gt;It&#x27;s pretty good stuff and close to being more natural than chemical.&lt;br /&gt;&lt;br</li>
+      <li>vitamin e cream is very helpful to heal the scar.  </li>
+      <li>I like it but don&#x27;t really care for the smell.</li>
+      <li>It feels thick when put on at first but absorbs nicely.</li>
+      <li>because it&#x27;s so thick, I believe it clogged my pores and caused more breakouts, which left more blemishes so this product was counterproductive for me.  </li>
+      <li>This product was recommend to me and so far I am very please and will be order another one very soon</li>
+      <li>I normally used the Vitamin E oil</li>
+      <li>I use this everyday instead of a more mainstream moisturizer on my face</li>
+      <li>I love every single thing about this cream &amp; don&#x27;t plan to use anything else to moisturize my facial skin.</li>
+      <li>It doesn&#x27;t cause breakouts, and it completely moisturizes your skin!</li>
+      <li>I noticed a significant change in my dark spots within a week.</li>
+      <li>The acne marks in my face has faded and my skin has been so clear and soft.</li>
+      <li>Reasonably priced enough to slather on neck and chest, too.</li>
+      <li>I have terribly sensitive skin and this stuff does not clog my pores or irritate my face at ALL.</li>
+      <li>This cream is not too greasy and has natural ingredients.  </li>
+      <li>/&gt;Ingredients: De-ionized Water, d-alpha Tocopheryl Acetate, Organic Aloe Vera Leaf Juice, Glyceryl Stearate, Stearic Acid (vegetable source), Sunflower Seed Oil, Vegetable Glycerin, Wheat Germ Oil, Ceteareth-20, Cetyl Alcohol, Avocado Oil, Glucose/Glucose Oxidase/Lactoperoxidase (natural preservative), Tocopheryl Linoleate, Xanthan Gum, Cedar Bark Extract, Grapefruit Seed Extract, Rhodiola Extract and Natural Vanilla Extract.</li>
+      <li>I just received this in the mail, and so far I give it 5 stars due to fast delivery,</li>
+      <li>it&#x27;s very moisturizing and it fades dark spots.</li>
+      <li>feels like cum on your face, put it in Refrigerator, so it would feel nicer on your skin, its a litle thick , smells like  avocado butter , not bad</li>
+      <li>I have really dry and sensitive skin</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> Great price too!</li>
+<li> This is the best moisturizer!</li>
+<li> I am happy with this product.</li>
+<li> I also purchased a tube of the vitamin e cream for a friend and she has been getting great compliments as well.</li>
+<li> It has made a great difference in the tone of my skin.</li>
+<li> Great for the severely acne-prone skin (I know it because I have one).</li>
+<li> Its just not as pleasant as I like for my lotions to be.</li>
+<li> I LOVE THIS!</li>
+<li> the nice smell the cream has, and that it doesn&#x27;t make my face greasy.</li>
+<li> I love love love this product!  </li>
+<li> I love this cream</li>
+<li> And love the tube container for traveling.&lt;br</li>
+<li> Also it does not clog my pores, hooray &#x3D;)</li>
+<li> and I love it.</li>
+<li> product was ok.</li>
+<li> Love the cream,  will be buying more soon</li>
+<li> It goes on a bit greasy at first, but absorbs nicely</li>
+<li> It doesn&#x27;t go on as smoothly as I&#x27;d like</li>
+<li> i purchased this vitamin e cream because it is paraben free and the price.  </li>
+<li> This is moisturizing, light, and has anti-aging benefits.</li>
+<li> Feels great on my dry skin!</li>
+<li> but it dissipates fairly quickly.</li>
+<li> I have extremely sensitive skin and have tried so many products.</li>
+<li> Suggested Use: Apply to the face, neck and area around the eyes, or wherever skin is most prone to the physical effects of aging.</li>
+<li> but I wanted to try something for my face because many moisturizers I tried were too light or too heavy and caused me to break out</li>
+<li> Prompt serviced appreciated very much.</li>
+<li> Seriously, this stuff is so simple and great!</li>
+<li> After the summer months on European nudist beaches, I use the NOW Foods Vitamin E Cream for the area of my [blank] that is prone to cracking, dryness and soreness due to the sun.&lt;br /&gt;&lt;br /&gt;It&#x27;s pretty good stuff and close to being more natural than chemical.&lt;br /&gt;&lt;br</li>
+<li> vitamin e cream is very helpful to heal the scar.  </li>
+<li> I like it but don&#x27;t really care for the smell.</li>
+<li> It feels thick when put on at first but absorbs nicely.</li>
+<li> because it&#x27;s so thick, I believe it clogged my pores and caused more breakouts, which left more blemishes so this product was counterproductive for me.  </li>
+<li> This product was recommend to me and so far I am very please and will be order another one very soon</li>
+<li> I normally used the Vitamin E oil</li>
+<li> I use this everyday instead of a more mainstream moisturizer on my face</li>
+<li> I love every single thing about this cream &amp; don&#x27;t plan to use anything else to moisturize my facial skin.</li>
+<li> It doesn&#x27;t cause breakouts, and it completely moisturizes your skin!</li>
+<li> I noticed a significant change in my dark spots within a week.</li>
+<li> The acne marks in my face has faded and my skin has been so clear and soft.</li>
+<li> Reasonably priced enough to slather on neck and chest, too.</li>
+<li> I have terribly sensitive skin and this stuff does not clog my pores or irritate my face at ALL.</li>
+<li> This cream is not too greasy and has natural ingredients.  </li>
+<li> /&gt;Ingredients: De-ionized Water, d-alpha Tocopheryl Acetate, Organic Aloe Vera Leaf Juice, Glyceryl Stearate, Stearic Acid (vegetable source), Sunflower Seed Oil, Vegetable Glycerin, Wheat Germ Oil, Ceteareth-20, Cetyl Alcohol, Avocado Oil, Glucose/Glucose Oxidase/Lactoperoxidase (natural preservative), Tocopheryl Linoleate, Xanthan Gum, Cedar Bark Extract, Grapefruit Seed Extract, Rhodiola Extract and Natural Vanilla Extract.</li>
+<li> I just received this in the mail, and so far I give it 5 stars due to fast delivery,</li>
+<li> it&#x27;s very moisturizing and it fades dark spots.</li>
+<li> feels like cum on your face, put it in Refrigerator, so it would feel nicer on your skin, its a litle thick , smells like  avocado butter , not bad</li>
+<li> I have really dry and sensitive skin</li>
+<li> but I didn&#x27;t only because it&#x27;s not ideal for my sensitive skin in this high climate area I live in, especially during the summer.  </li>
+<li> Its helped so far with fading my dark marks.</li>
+<li> This is almost too moisturizing, a little goes a long way.</li>
+<li> It makes my skin extremely oily.  </li>
+<li> After a couple months of using the cream the facial scars that i had from past acne went away.</li>
+<li> I use it twice daily in the winter and usually just at night during the summer months.</li>
+<li> she used this cream often along with other healing cream.  </li>
+<li> You only have to use a very small amount</li>
+<li> It was a little confusing in that there were 2 different  </li>
+<li> I&#x27;ve been using this now for a little over two weeks</li>
+<li> I have recommended these 2 items to family members and a few co workers.</li>
+<li> did not love the nutty smell</li>
+<li> It&#x27;s not too heavy, and does not contain a bunch of weird chemicals.</li>
+<li> There&#x27;s a faint vanilla fragrance that I don&#x27;t care for</li>
+<li> It smells horrible.</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> Feels great on my dry skin! Reasonably priced enough to slather on neck and chest, too. And love the tube container for traveling.&lt;br /&gt;&lt;br /&gt;I noticed it has wheat germ oil, which affects some gluten-sensitive people -- so there&#x27;s that.</li>
+    <li> Prompt serviced appreciated very much. It was a little confusing in that there were 2 different  pictures used for this product but we did receive the product wanted,</li>
+    <li> I just received this in the mail, and so far I give it 5 stars due to fast delivery, the nice smell the cream has, and that it doesn&#x27;t make my face greasy. It feels thick when put on at first but absorbs nicely. I bought it to see if my scars will fade and will be updating in about 2 weeks.</li>
+    <li> I love this cream it&#x27;s very moisturizing and it fades dark spots. I use the vitamin e oil by now foods as well and that work wonders with the oil I noticed a significant change in my dark spots within a week. I also purchased a tube of the vitamin e cream for a friend and she has been getting great compliments as well. I have recommended these 2 items to family members and a few co workers.</li>
+    <li> All of the name brand moisturizer in the store can&#x27;t compare to this. After a couple months of using the cream the facial scars that i had from past acne went away. Also it does not clog my pores, hooray &#x3D;)</li>
+    <li> This cream is not too greasy and has natural ingredients.  I&#x27;ve been using it every night at bedtime for about 3 months, and my complexion has noticeably improved.</li>
+    <li> i purchased this vitamin e cream because it is paraben free and the price.  i&#x27;ve researched vitamin e cream is very helpful to heal the scar.  i bought it for my wife who had deep cut.  she used this cream often along with other healing cream.  i guess it helps.</li>
+    <li> product was ok. It smells horrible. Would not repurchase.</li>
+    <li> I use this everyday instead of a more mainstream moisturizer on my face and I love it. It&#x27;s not too heavy, and does not contain a bunch of weird chemicals.</li>
+    <li> After the summer months on European nudist beaches, I use the NOW Foods Vitamin E Cream for the area of my [blank] that is prone to cracking, dryness and soreness due to the sun.&lt;br /&gt;&lt;br /&gt;It&#x27;s pretty good stuff and close to being more natural than chemical.&lt;br /&gt;&lt;br /&gt;My Suggested Use: Apply to the face, neck and area around the eyes, or wherever skin is most prone to the physical effects of aging. Use at night on facial areas.&lt;br /&gt;&lt;br /&gt;I typed all the Ingredients from my product:&lt;br /&gt;&lt;br /&gt;Ingredients: De-ionized Water, d-alpha Tocopheryl Acetate, Organic Aloe Vera Leaf Juice, Glyceryl Stearate, Stearic Acid (vegetable source), Sunflower Seed Oil, Vegetable Glycerin, Wheat Germ Oil, Ceteareth-20, Cetyl Alcohol, Avocado Oil, Glucose/Glucose Oxidase/Lactoperoxidase (natural preservative), Tocopheryl Linoleate, Xanthan Gum, Cedar Bark Extract, Grapefruit Seed Extract, Rhodiola Extract and Natural Vanilla Extract.</li>
+    <li> I LOVE THIS! I normally used the Vitamin E oil but I wanted to try something for my face because many moisturizers I tried were too light or too heavy and caused me to break out But boy did this make me a believer. It doesn&#x27;t go on as smoothly as I&#x27;d like but it gets the job done. The acne marks in my face has faded and my skin has been so clear and soft. I am happy with this product.</li>
+    <li> I love love love this product!  I would&#x27;ve given this product 5 stars but I didn&#x27;t only because it&#x27;s not ideal for my sensitive skin in this high climate area I live in, especially during the summer.  It makes my skin extremely oily.  You only have to use a very small amount and I would recommend using it at night before bed.  I did notice a change in my blemishes but because it&#x27;s so thick, I believe it clogged my pores and caused more breakouts, which left more blemishes so this product was counterproductive for me.  Back to the drawing board.</li>
+    <li> I&#x27;ve been using this now for a little over two weeks and I can see an improvement on my skin. I am a pimple popper and I have a lot of scars on my face to prove. This is almost too moisturizing, a little goes a long way. Its helped so far with fading my dark marks.</li>
+    <li> This is the best moisturizer! It&#x27;s one of the only things I will use on my face! It goes on a bit greasy at first, but absorbs nicely and my skin feels instantly nourished. I use it twice daily in the winter and usually just at night during the summer months. I have terribly sensitive skin and this stuff does not clog my pores or irritate my face at ALL. I&#x27;ll even put a dab on my lips if they are especially chapped. Seriously, this stuff is so simple and great!</li>
+    <li> comes in a different tube, similar to what you see in the retail store&lt;br /&gt;smells like cake or candy</li>
+    <li> This product was recommend to me and so far I am very please and will be order another one very soon</li>
+    <li> I like it but don&#x27;t really care for the smell. Its just not as pleasant as I like for my lotions to be. It does soften the skin though.</li>
+    <li> Love the cream,  will be buying more soon</li>
+    <li> Great for the severely acne-prone skin (I know it because I have one). It doesn&#x27;t cause breakouts, and it completely moisturizes your skin!</li>
+    <li> feels like cum on your face, put it in Refrigerator, so it would feel nicer on your skin, its a litle thick , smells like  avocado butter , not bad</li>
+    <li> I love every single thing about this cream &amp; don&#x27;t plan to use anything else to moisturize my facial skin. It has made a great difference in the tone of my skin. Great price too!</li>
+    <li> This cream has been a lifesaver for my skin, especially my face. I have extremely sensitive skin and have tried so many products. This is moisturizing, light, and has anti-aging benefits.</li>
+    <li> I have really dry and sensitive skin so this product has been terrific. I use this on my face daily. There&#x27;s a faint vanilla fragrance that I don&#x27;t care for but it dissipates fairly quickly.</li>
+    <li> did not love the nutty smell</li>
+</ol>
+
+
+
+

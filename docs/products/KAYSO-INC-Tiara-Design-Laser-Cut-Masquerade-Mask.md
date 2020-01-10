@@ -1,0 +1,131 @@
+---
+title: KAYSO INC Tiara Design Laser Cut Masquerade Mask,
+description: KAYSO INC Tiara Design Laser Cut Masquerade Mask,
+author: Suvojit Manna,
+tags: KAYSO INC Tiara Design Laser Cut Masquerade Mask,
+publishedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
+---
+
+# [KAYSO INC Tiara Design Laser Cut Masquerade Mask](https://products.checkmycream.com/products/KAYSO-INC-Tiara-Design-Laser-Cut-Masquerade-Mask.html)
+
+### Positive Reviews
+
+<ol>
+      <li>Best mask EVER!  </li>
+      <li>A great find!</li>
+      <li>Excellent find for the price.</li>
+      <li>Beautiful!</li>
+      <li>Just perfect!</li>
+      <li>Perfect!</li>
+      <li>Beautiful product!</li>
+      <li>Great product thank you!</li>
+      <li>absolutely beautiful!!!</li>
+      <li>Beautiful mask and a great price!</li>
+      <li>This was beautiful.</li>
+      <li>it is beautiful.  </li>
+      <li>Great quality, i changed the to elastic as suggested and it stayed on all night no problem.  </li>
+      <li>item was packaged great and with care and all was intact.  </li>
+      <li>Fabulous price for beautiful mask!</li>
+      <li>Great fit, great price, quality made and look&lt;br /&gt;Cons</li>
+      <li>Very beautiful and light fitting</li>
+      <li>It fits perfectly and is exactly like it is described.  </li>
+      <li>Received product in amazing time....</li>
+      <li>Nice mask and</li>
+      <li>I got it quickly and it is beautiful.</li>
+      <li>Very nice and comfortable.</li>
+      <li>I own lots of mask, this is the best so far.</li>
+      <li>I had to use a hair clip as well to make sure it would stay on.</li>
+      <li>I received many compliments.</li>
+      <li>Bought this for a masquerade and got so many compliments.</li>
+      <li>Stunning and comfortable.</li>
+      <li>Love love love My new mask!</li>
+      <li>it bends to fit your face.</li>
+      <li>Very cute sexy and mysterious.</li>
+      <li>but it was pretty cute.</li>
+      <li>Was hesitant it wouldn&#x27;t be what I wanted, but it&#x27;s perfect for my black swan costume!!</li>
+      <li>It&#x27;s very beautiful, but the only down fall is that you have to bend it to shape your face</li>
+      <li>Love this mask, but two of the decorative stones fell off right when I took it out of the package and a third was already fallen off inside the packaging.</li>
+      <li>It was like the mask was fitted exactly for my face.&lt;br</li>
+      <li>I have since hot glued them all back on, but you shouldn&#x27;t have to do that on something you just bought.</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> Best mask EVER!  </li>
+<li> A great find!</li>
+<li> Excellent find for the price.</li>
+<li> Beautiful!</li>
+<li> Just perfect!</li>
+<li> Perfect!</li>
+<li> Beautiful product!</li>
+<li> Great product thank you!</li>
+<li> absolutely beautiful!!!</li>
+<li> Beautiful mask and a great price!</li>
+<li> This was beautiful.</li>
+<li> it is beautiful.  </li>
+<li> Great quality, i changed the to elastic as suggested and it stayed on all night no problem.  </li>
+<li> item was packaged great and with care and all was intact.  </li>
+<li> Fabulous price for beautiful mask!</li>
+<li> Great fit, great price, quality made and look&lt;br /&gt;Cons</li>
+<li> Very beautiful and light fitting</li>
+<li> It fits perfectly and is exactly like it is described.  </li>
+<li> Received product in amazing time....</li>
+<li> Nice mask and</li>
+<li> I got it quickly and it is beautiful.</li>
+<li> Very nice and comfortable.</li>
+<li> I own lots of mask, this is the best so far.</li>
+<li> I had to use a hair clip as well to make sure it would stay on.</li>
+<li> I received many compliments.</li>
+<li> Bought this for a masquerade and got so many compliments.</li>
+<li> Stunning and comfortable.</li>
+<li> Love love love My new mask!</li>
+<li> it bends to fit your face.</li>
+<li> Very cute sexy and mysterious.</li>
+<li> but it was pretty cute.</li>
+<li> Was hesitant it wouldn&#x27;t be what I wanted, but it&#x27;s perfect for my black swan costume!!</li>
+<li> It&#x27;s very beautiful, but the only down fall is that you have to bend it to shape your face</li>
+<li> Love this mask, but two of the decorative stones fell off right when I took it out of the package and a third was already fallen off inside the packaging.</li>
+<li> It was like the mask was fitted exactly for my face.&lt;br</li>
+<li> I have since hot glued them all back on, but you shouldn&#x27;t have to do that on something you just bought.</li>
+<li> Wore it all night long.</li>
+<li> Really pretty, but with enough force it probably could be broken</li>
+<li> I also added extra gems to mask to make it gold and black.</li>
+<li> I would have given it 5 stars but it was missing a diamond on the nose.</li>
+<li> (do it slowly or it will break) but other then that.</li>
+<li> Men literally stopped while I was driving, not sure if it was the mask or me</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> it is beautiful.  It fits perfectly and is exactly like it is described.  A great find!</li>
+    <li> Great product thank you!</li>
+    <li> Really pretty, but with enough force it probably could be broken</li>
+    <li> Beautiful mask and a great price! Looks more expensive than it is.</li>
+    <li> Received product in amazing time....item was packaged great and with care and all was intact.  Beautiful product!</li>
+    <li> Best mask EVER!  I can&#x27;t wait to wear it!</li>
+    <li> Very nice and comfortable.</li>
+    <li> Bought this for a masquerade and got so many compliments. Men literally stopped while I was driving, not sure if it was the mask or me but it was pretty cute.</li>
+    <li> Love love love My new mask! The party is next weekend and I plan to be the bell of the ball!</li>
+    <li> Well made. Fabulous price for beautiful mask!</li>
+    <li> Very beautiful and light fitting I can&#x27;t wait to wear it at my friends wedding.</li>
+    <li> Beautiful! Perfect! Stunning and comfortable. Wore it all night long. It was a steal!</li>
+    <li> Was hesitant it wouldn&#x27;t be what I wanted, but it&#x27;s perfect for my black swan costume!! Big hit</li>
+    <li> Nice mask and it bends to fit your face.</li>
+    <li> Great quality, i changed the to elastic as suggested and it stayed on all night no problem.  I also added extra gems to mask to make it gold and black.</li>
+    <li> This was beautiful. I received many compliments. Well made, especially for the price.</li>
+    <li> Excellent find for the price. It was like the mask was fitted exactly for my face.&lt;br /&gt; Pros: Great fit, great price, quality made and look&lt;br /&gt;Cons: The ribbon to tie. I had to use a hair clip as well to make sure it would stay on.</li>
+    <li> This was what I wanted!</li>
+    <li> absolutely beautiful!!! Couldn&#x27;t be happier with it!</li>
+    <li> It&#x27;s very beautiful, but the only down fall is that you have to bend it to shape your face (do it slowly or it will break) but other then that. It&#x27;s just what I wanted.</li>
+    <li> Just perfect! I own lots of mask, this is the best so far.</li>
+    <li> Love this mask, but two of the decorative stones fell off right when I took it out of the package and a third was already fallen off inside the packaging. I have since hot glued them all back on, but you shouldn&#x27;t have to do that on something you just bought.</li>
+    <li> I got it quickly and it is beautiful. I would have given it 5 stars but it was missing a diamond on the nose.</li>
+    <li> Very cute sexy and mysterious. Metal and conforms to face shapes</li>
+</ol>
+
+
+
+

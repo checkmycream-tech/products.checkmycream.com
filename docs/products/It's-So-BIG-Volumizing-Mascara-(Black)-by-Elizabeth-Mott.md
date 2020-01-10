@@ -3,8 +3,8 @@ title: It&#x27;s So BIG Volumizing Mascara (Black) by Elizabeth Mott,
 description: It&#x27;s So BIG Volumizing Mascara (Black) by Elizabeth Mott,
 author: Suvojit Manna,
 tags: It&#x27;s So BIG Volumizing Mascara (Black) by Elizabeth Mott,
-publishedAt: Thu Jan 09 2020 19:08:40 GMT+0530 (India Standard Time),
-modifiedAt: Thu Jan 09 2020 19:08:40 GMT+0530 (India Standard Time),
+publishedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
 ---
 
 # [It&#x27;s So BIG Volumizing Mascara (Black) by Elizabeth Mott](https://products.checkmycream.com/products/It&#x27;s-So-BIG-Volumizing-Mascara-(Black)-by-Elizabeth-Mott.html)
@@ -12,211 +12,211 @@ modifiedAt: Thu Jan 09 2020 19:08:40 GMT+0530 (India Standard Time),
 ### Positive Reviews
 
 <ol>
+      <li>This stuff is the best.</li>
+      <li>This is the best mascara ever!</li>
+      <li>Awesome mascara!</li>
       <li>Its the best.</li>
+      <li>And is does not smudge on my face which is great!!!!</li>
+      <li>I swim in this mascara and it looks perfect afterwards!</li>
+      <li>Awesome mascara!!</li>
+      <li>Best mascara I have ever had</li>
       <li>That is not the case with this wonderful mascara.  </li>
+      <li>Excellent product and</li>
+      <li>Everything about its performance is superb.  </li>
+      <li>Very impressed with mascara !</li>
+      <li>Great product!!!!</li>
       <li>This is the best mascara I have ever used.</li>
       <li>My search is over for the best mascara.</li>
+      <li>Wonderful product!!</li>
+      <li>For years I have conducted the Search For the Perfect Mascara.</li>
+      <li>Best mascara I have ever used.</li>
       <li>this product didn&#x27;t over do it just made my lashes look perfect.</li>
+      <li>The best is no clumping!</li>
       <li>Best Mascara!</li>
+      <li>This mascara is perfect.</li>
       <li>It&#x27;s one of the best.</li>
+      <li>It is the best mascara I have used</li>
+      <li>Best mascara ever.  </li>
+      <li>I&#x27;m very happy with it.</li>
+      <li>Best one I&#x27;ve ever used</li>
+      <li>Sex mascara from Sephora was the best.</li>
+      <li>Best mascara I have ever owned.  </li>
+      <li>I&#x27;m so happy it did!</li>
+      <li>Best mascara I&#x27;ve used in some time.  </li>
+      <li>This mascara is awesome!</li>
+      <li>/&gt;After that, I realized that this is literally the best mascara ever.</li>
       <li>This is without a doubt the best mascara I&#x27;ve ever used!  </li>
+      <li>Excellent product, will buy again!</li>
       <li>Great product!  </li>
+      <li>Best mascara I have ever purchased!</li>
+      <li>It is the best!!!!!!!!!</li>
+      <li>it&#x27;s SOOO GOOD!!!</li>
       <li>So my search for the perfect mascara continues...</li>
+      <li>Best mascara I&#x27;ve ever used!  </li>
+      <li>Not a trace, except for my perfectly intact mascara.</li>
+      <li>At night I wash my face with an awesome cleanser that leaves not a trace of makeup.</li>
+      <li>Great!</li>
+      <li>The reviews are legit - this stuff is the best.</li>
+      <li>Great!!!!</li>
+      <li>Best mascara I ever used.</li>
+      <li>im so happy with it!</li>
+      <li>I&#x27;ve looked for awhile for the perfect mascara and have found it!</li>
+      <li>pulls eyelashes up and the best ever!</li>
+      <li>Great product!  </li>
+      <li>I found the perfect mascara in Elizabeth  Mott&#x27;s Volumizing Mascara.</li>
+      <li>Great product!</li>
       <li>Great mascara!  </li>
+      <li>Gotta say, this is a great product!</li>
       <li>Great mascara!</li>
+      <li>I would have to say this is one of the BEST mascaras I have used.</li>
+      <li>The mascara is really excellent.</li>
+      <li>Best mascara out there!   </li>
+      <li>The best I have tried.  </li>
+      <li>Awesome mascara!</li>
       <li>Best of luck if you decide to try it for yourself!</li>
       <li>It&#x27;s the best volumizing mascara I&#x27;ve ever used and</li>
       <li>the best part is that it&#x27;s cruelty-free.</li>
       <li>Great mascara!  </li>
-      <li>This Mascara is Amazing!!!</li>
-      <li>Best mascara I have ever used!</li>
-      <li>Best mascara.</li>
-      <li>Now we both use it and very happy with the purchase.</li>
-      <li>The best part about this mascara is that it does not smudge or flake.  </li>
-      <li>Perfect mascara!</li>
-      <li>Best mascara I have ever used!</li>
-      <li>and this is one of the best.</li>
-      <li>This truly is the best mascara I&#x27;ve ever used.</li>
-      <li>It&#x27;s the best mascara I&#x27;ve ever used.</li>
-      <li>This is the best mascara I&#x27;ve ever used.</li>
-      <li>This is the best mascara I&#x27;ve ever used!</li>
-      <li>Reall great mascara!</li>
-      <li>Great mascara!  </li>
-      <li>This product is the best I&#x27;ve ever used!</li>
-      <li>Best mascara I&#x27;ve ever tried.</li>
-      <li>Best mascara ever!</li>
-      <li>I got everything with this wonderful mascara!</li>
-      <li>Great product!</li>
-      <li>3 or so coats are perfect for me.</li>
-      <li>Awesome!</li>
-      <li>This is the best mascara I&#x27;ve used in years.  </li>
-      <li>It is the perfect balance lengthening and thickening.  </li>
-      <li>Especially love the &#x27;no smudge&#x27; aspect.  </li>
-      <li>Very happy with this purchase.</li>
-      <li>Best waterproof mascara Ive ever used….</li>
-      <li>so I feel I look my best when wearing it</li>
-      <li>and I&#x27;m so happy I did!  </li>
-      <li>The mascara wand is a perfect size, in my opinion, to evenly cover all my lashes.  </li>
-      <li>AWESOME MASCARE, A MUST HAVE!!</li>
-      <li>One of the best mascaras I&#x27;ve purchased in awhile.</li>
-      <li>The best mascara EVER!!!</li>
-      <li>Best mascara I have ever used.&lt;br /&gt;The lady who does my facials</li>
-      <li>Nothing impressive!!!</li>
-      <li>The BEST MASCARA on the market today.</li>
-      <li>This is a GREAT mascara!  </li>
-      <li>One of the best I&#x27;ve ever tried, coupled with a perfect brush (and I&#x27;m picky with my mascara brushes).  </li>
-      <li>Another awesome feature - it doesn&#x27;t smudge at all.</li>
-      <li>Perfect Mascara!  </li>
-      <li>This is the best mascara I have ever used!  </li>
-      <li>I have been very happy with it.</li>
-      <li>Best of all it stays on all day without flaking or running</li>
-      <li>Not at all impressed.</li>
-      <li>Not overly impressed.  </li>
-      <li>and I&#x27;m really impressed!</li>
-      <li>it&#x27;s perfect for creating volume without the spider look.</li>
-      <li>I am still very happy with my mascara and will probably continue to buy it over and over again.</li>
-      <li>I am very happy with the mascara.</li>
-      <li>This is the BEST MASCARA</li>
-      <li>Great product!!</li>
-      <li>Its the best mascara i ever had</li>
-      <li>Great product!  </li>
-      <li>I&#x27;ve tried dozens of brands and always wondered if there was a perfect product just for me.</li>
-      <li>Perfect!</li>
-      <li>This is a great mascara!!</li>
-      <li>Great mascara!</li>
-      <li>its still PERFECT!</li>
-      <li>Best mascara I have ever used!  </li>
-      <li>mascara after work and the gym was literally perfect.  </li>
-      <li>This product is awesome!!</li>
-      <li>This is THE best mascara.</li>
-      <li>I am very happy with my purchase.</li>
-      <li>Some of the best mascara I&#x27;ve ever used in 35 years!</li>
-      <li>I&#x27;m very happy with the purchase and would buy it again.</li>
-      <li>Great product!!!!</li>
-      <li>Here is my verdict: The formula is just superb!</li>
-      <li>Great alternative to waterproof!</li>
-      <li>GREAT MASCARA!  </li>
-      <li>I am really impressed.</li>
-      <li>Best Mascara I have ever used!  </li>
-      <li>and I will keep doing, it&#x27;s just great!! ! ! !</li>
-      <li>I don&#x27;t know how they came up with this formula,but it works perfectly.</li>
-      <li>This is a great mascara!  </li>
-      <li>Best of all, it performs almost like a waterproof mascara.  </li>
-      <li>This mascara is wonderful.</li>
-      <li>Excellent mascara!</li>
-      <li>This mascara is the best!</li>
+      <li>Lashes stay perfect all day!</li>
       <li>This is the best mascara I have ever used.</li>
-      <li>Great product!!!!</li>
-      <li>Excellent product and</li>
-      <li>Excellent product, will buy again!</li>
+      <li>Not the best</li>
+      <li>and I use it every day, but this isn&#x27;t the perfect mascara.</li>
+      <li>This Mascara is Amazing!!!</li>
+      <li>You will be very happy.</li>
+      <li>Very happy with this product.  </li>
+      <li>Thank you for a great product!!</li>
+      <li>It is the best mascara I&#x27;ve ever used ...</li>
+      <li>This mascara works amazing!!!</li>
+      <li>Excellent mascara!!!</li>
+      <li>Excellent.</li>
+      <li>Wasn&#x27;t impressed.  </li>
+      <li>Best I have even owned.</li>
+      <li>Best mascara I&#x27;ve ever used.  </li>
+      <li>If I go to bed with it on, I wake up and still have perfectly mascara&#x27;d lashes.</li>
+      <li>This mascara is perfect.</li>
+      <li>Best mascara I have ever used!</li>
+      <li>my make-up looks flawless even after 12 hours shift.&lt;br</li>
+      <li>The best.</li>
+      <li>Awesome product, awesome company.</li>
+      <li>Great vendor!</li>
+      <li>She had been going through hundreds of dollars in the department store trying to find her perfect mascara.  </li>
+      <li>Wonderful Product!  </li>
+      <li>Great mascara!  </li>
+      <li>Best mascara I have ever used!</li>
+      <li>One of the best mascaras I&#x27;ve ever used!</li>
+      <li>Best mascara I&#x27;ve ever used!</li>
       <li>This mascara DOES IT ALL PERFECTLY.</li>
-      <li>I didn&#x27;t give this product 5 stars because i think its in no way a perfect mascara for me.</li>
-      <li>Best mascara ever!!</li>
+      <li>Perfect perfect perfect.</li>
+      <li>Best mascara.</li>
+      <li>Great Product!</li>
+      <li>Now we both use it and very happy with the purchase.</li>
+      <li>and maybe I will like it more!!!!</li>
+      <li>it&#x27;s wonderful!!</li>
 </ol>
 
 
 <h2>Negative Reviews</h2>
 <ol>
+<li> This stuff is the best.</li>
+<li> This is the best mascara ever!</li>
+<li> Awesome mascara!</li>
 <li> Its the best.</li>
+<li> And is does not smudge on my face which is great!!!!</li>
+<li> I swim in this mascara and it looks perfect afterwards!</li>
+<li> Awesome mascara!!</li>
+<li> Best mascara I have ever had</li>
 <li> That is not the case with this wonderful mascara.  </li>
+<li> Excellent product and</li>
+<li> Everything about its performance is superb.  </li>
+<li> Very impressed with mascara !</li>
+<li> Great product!!!!</li>
 <li> This is the best mascara I have ever used.</li>
 <li> My search is over for the best mascara.</li>
+<li> Wonderful product!!</li>
+<li> For years I have conducted the Search For the Perfect Mascara.</li>
+<li> Best mascara I have ever used.</li>
 <li> this product didn&#x27;t over do it just made my lashes look perfect.</li>
+<li> The best is no clumping!</li>
 <li> Best Mascara!</li>
+<li> This mascara is perfect.</li>
 <li> It&#x27;s one of the best.</li>
+<li> It is the best mascara I have used</li>
+<li> Best mascara ever.  </li>
+<li> I&#x27;m very happy with it.</li>
+<li> Best one I&#x27;ve ever used</li>
+<li> Sex mascara from Sephora was the best.</li>
+<li> Best mascara I have ever owned.  </li>
+<li> I&#x27;m so happy it did!</li>
+<li> Best mascara I&#x27;ve used in some time.  </li>
+<li> This mascara is awesome!</li>
+<li> /&gt;After that, I realized that this is literally the best mascara ever.</li>
 <li> This is without a doubt the best mascara I&#x27;ve ever used!  </li>
+<li> Excellent product, will buy again!</li>
 <li> Great product!  </li>
+<li> Best mascara I have ever purchased!</li>
+<li> It is the best!!!!!!!!!</li>
+<li> it&#x27;s SOOO GOOD!!!</li>
 <li> So my search for the perfect mascara continues...</li>
+<li> Best mascara I&#x27;ve ever used!  </li>
+<li> Not a trace, except for my perfectly intact mascara.</li>
+<li> At night I wash my face with an awesome cleanser that leaves not a trace of makeup.</li>
+<li> Great!</li>
+<li> The reviews are legit - this stuff is the best.</li>
+<li> Great!!!!</li>
+<li> Best mascara I ever used.</li>
+<li> im so happy with it!</li>
+<li> I&#x27;ve looked for awhile for the perfect mascara and have found it!</li>
+<li> pulls eyelashes up and the best ever!</li>
+<li> Great product!  </li>
+<li> I found the perfect mascara in Elizabeth  Mott&#x27;s Volumizing Mascara.</li>
+<li> Great product!</li>
 <li> Great mascara!  </li>
+<li> Gotta say, this is a great product!</li>
 <li> Great mascara!</li>
+<li> I would have to say this is one of the BEST mascaras I have used.</li>
+<li> The mascara is really excellent.</li>
+<li> Best mascara out there!   </li>
+<li> The best I have tried.  </li>
+<li> Awesome mascara!</li>
 <li> Best of luck if you decide to try it for yourself!</li>
 <li> It&#x27;s the best volumizing mascara I&#x27;ve ever used and</li>
 <li> the best part is that it&#x27;s cruelty-free.</li>
 <li> Great mascara!  </li>
-<li> This Mascara is Amazing!!!</li>
-<li> Best mascara I have ever used!</li>
-<li> Best mascara.</li>
-<li> Now we both use it and very happy with the purchase.</li>
-<li> The best part about this mascara is that it does not smudge or flake.  </li>
-<li> Perfect mascara!</li>
-<li> Best mascara I have ever used!</li>
-<li> and this is one of the best.</li>
-<li> This truly is the best mascara I&#x27;ve ever used.</li>
-<li> It&#x27;s the best mascara I&#x27;ve ever used.</li>
-<li> This is the best mascara I&#x27;ve ever used.</li>
-<li> This is the best mascara I&#x27;ve ever used!</li>
-<li> Reall great mascara!</li>
-<li> Great mascara!  </li>
-<li> This product is the best I&#x27;ve ever used!</li>
-<li> Best mascara I&#x27;ve ever tried.</li>
-<li> Best mascara ever!</li>
-<li> I got everything with this wonderful mascara!</li>
-<li> Great product!</li>
-<li> 3 or so coats are perfect for me.</li>
-<li> Awesome!</li>
-<li> This is the best mascara I&#x27;ve used in years.  </li>
-<li> It is the perfect balance lengthening and thickening.  </li>
-<li> Especially love the &#x27;no smudge&#x27; aspect.  </li>
-<li> Very happy with this purchase.</li>
-<li> Best waterproof mascara Ive ever used….</li>
-<li> so I feel I look my best when wearing it</li>
-<li> and I&#x27;m so happy I did!  </li>
-<li> The mascara wand is a perfect size, in my opinion, to evenly cover all my lashes.  </li>
-<li> AWESOME MASCARE, A MUST HAVE!!</li>
-<li> One of the best mascaras I&#x27;ve purchased in awhile.</li>
-<li> The best mascara EVER!!!</li>
-<li> Best mascara I have ever used.&lt;br /&gt;The lady who does my facials</li>
-<li> Nothing impressive!!!</li>
-<li> The BEST MASCARA on the market today.</li>
-<li> This is a GREAT mascara!  </li>
-<li> One of the best I&#x27;ve ever tried, coupled with a perfect brush (and I&#x27;m picky with my mascara brushes).  </li>
-<li> Another awesome feature - it doesn&#x27;t smudge at all.</li>
-<li> Perfect Mascara!  </li>
-<li> This is the best mascara I have ever used!  </li>
-<li> I have been very happy with it.</li>
-<li> Best of all it stays on all day without flaking or running</li>
-<li> Not at all impressed.</li>
-<li> Not overly impressed.  </li>
-<li> and I&#x27;m really impressed!</li>
-<li> it&#x27;s perfect for creating volume without the spider look.</li>
-<li> I am still very happy with my mascara and will probably continue to buy it over and over again.</li>
-<li> I am very happy with the mascara.</li>
-<li> This is the BEST MASCARA</li>
-<li> Great product!!</li>
-<li> Its the best mascara i ever had</li>
-<li> Great product!  </li>
-<li> I&#x27;ve tried dozens of brands and always wondered if there was a perfect product just for me.</li>
-<li> Perfect!</li>
-<li> This is a great mascara!!</li>
-<li> Great mascara!</li>
-<li> its still PERFECT!</li>
-<li> Best mascara I have ever used!  </li>
-<li> mascara after work and the gym was literally perfect.  </li>
-<li> This product is awesome!!</li>
-<li> This is THE best mascara.</li>
-<li> I am very happy with my purchase.</li>
-<li> Some of the best mascara I&#x27;ve ever used in 35 years!</li>
-<li> I&#x27;m very happy with the purchase and would buy it again.</li>
-<li> Great product!!!!</li>
-<li> Here is my verdict: The formula is just superb!</li>
-<li> Great alternative to waterproof!</li>
-<li> GREAT MASCARA!  </li>
-<li> I am really impressed.</li>
-<li> Best Mascara I have ever used!  </li>
-<li> and I will keep doing, it&#x27;s just great!! ! ! !</li>
-<li> I don&#x27;t know how they came up with this formula,but it works perfectly.</li>
-<li> This is a great mascara!  </li>
-<li> Best of all, it performs almost like a waterproof mascara.  </li>
-<li> This mascara is wonderful.</li>
-<li> Excellent mascara!</li>
-<li> This mascara is the best!</li>
+<li> Lashes stay perfect all day!</li>
 <li> This is the best mascara I have ever used.</li>
-<li> Great product!!!!</li>
-<li> Excellent product and</li>
-<li> Excellent product, will buy again!</li>
+<li> Not the best</li>
+<li> and I use it every day, but this isn&#x27;t the perfect mascara.</li>
+<li> This Mascara is Amazing!!!</li>
+<li> You will be very happy.</li>
+<li> Very happy with this product.  </li>
+<li> Thank you for a great product!!</li>
+<li> It is the best mascara I&#x27;ve ever used ...</li>
+<li> This mascara works amazing!!!</li>
+<li> Excellent mascara!!!</li>
+<li> Excellent.</li>
+<li> Wasn&#x27;t impressed.  </li>
+<li> Best I have even owned.</li>
+<li> Best mascara I&#x27;ve ever used.  </li>
+<li> If I go to bed with it on, I wake up and still have perfectly mascara&#x27;d lashes.</li>
+<li> This mascara is perfect.</li>
+<li> Best mascara I have ever used!</li>
+<li> my make-up looks flawless even after 12 hours shift.&lt;br</li>
+<li> The best.</li>
+<li> Awesome product, awesome company.</li>
+<li> Great vendor!</li>
+<li> She had been going through hundreds of dollars in the department store trying to find her perfect mascara.  </li>
+<li> Wonderful Product!  </li>
+<li> Great mascara!  </li>
+<li> Best mascara I have ever used!</li>
+<li> One of the best mascaras I&#x27;ve ever used!</li>
+<li> Best mascara I&#x27;ve ever used!</li>
 <li> This mascara DOES IT ALL PERFECTLY.</li>
-<li> I didn&#x27;t give this product 5 stars because i think its in no way a perfect mascara for me.</li>
-<li> Best mascara ever!!</li>
+<li> Perfect perfect perfect.</li>
+<li> Best mascara.</li>
+<li> Great Product!</li>
+<li> Now we both use it and very happy with the purchase.</li>
+<li> and maybe I will like it more!!!!</li>
+<li> it&#x27;s wonderful!!</li>
 </ol>
 
 <h2>All Reviews</h2>
@@ -2258,6 +2258,7 @@ modifiedAt: Thu Jan 09 2020 19:08:40 GMT+0530 (India Standard Time),
     <li> Definitely not the best ever....but certainly very good.</li>
     <li> Easy to use. Looks great. No smudge under eyes. Last all day.</li>
 </ol>
+
 
 
 

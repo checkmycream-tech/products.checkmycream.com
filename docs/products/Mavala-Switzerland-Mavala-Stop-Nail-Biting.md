@@ -3,8 +3,8 @@ title: Mavala Switzerland Mavala Stop Nail Biting,
 description: Mavala Switzerland Mavala Stop Nail Biting,
 author: Suvojit Manna,
 tags: Mavala Switzerland Mavala Stop Nail Biting,
-publishedAt: Thu Jan 09 2020 19:08:20 GMT+0530 (India Standard Time),
-modifiedAt: Thu Jan 09 2020 19:08:20 GMT+0530 (India Standard Time),
+publishedAt: Fri Jan 10 2020 14:58:59 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:58:59 GMT+0530 (India Standard Time),
 ---
 
 # [Mavala Switzerland Mavala Stop Nail Biting](https://products.checkmycream.com/products/Mavala-Switzerland-Mavala-Stop-Nail-Biting.html)
@@ -12,211 +12,211 @@ modifiedAt: Thu Jan 09 2020 19:08:20 GMT+0530 (India Standard Time),
 ### Positive Reviews
 
 <ol>
+      <li>It works great!</li>
+      <li>I&#x27;m not all that impressed.</li>
+      <li>This product is perfect for ending thumbsucking.  </li>
+      <li>This product worked great!!</li>
+      <li>Good product to help us start the process!!</li>
+      <li>I know this product won&#x27;t work for every child, but it was the perfect solution for our child.</li>
       <li>Worked perfect in 1 week.</li>
-      <li>/&gt;That brings me to the greatest benefit of this product - self awareness.  </li>
-      <li>you deserve!/&gt;That brings me to the greatest benefit of this product - self awareness.  </li>
-      <li>, this product will serve well as a tool to help you get the beautiful nails you deserve!</li>
-      <li>Both of them are so proud of themselves for quitting!  </li>
-      <li>This product is amazing! !!!</li>
-      <li>This is the best product and it truly works.  </li>
-      <li>Great product!!!</li>
-      <li>This stuff is the best!  </li>
-      <li>The Mavala does stay on the thumb nail for about 2 to 3 days, which impressed me.</li>
-      <li>This has worked beautifully!</li>
-      <li>If you have a child who is a thumb-sucker or a nail-biter, this is the best deterrent out there.  </li>
-      <li>This formula is awesome!  </li>
-      <li>Amazing!!!</li>
-      <li>around GREAT product!</li>
-      <li>This worked great!</li>
-      <li>I wish I would have know about this 2 yrs ago because it is wonderful!</li>
-      <li>I am so glad we bought this product!!!!</li>
-      <li>This stuff is the Best</li>
-      <li>Great stuff!</li>
-      <li>just a word of caution that some people might develope an reaction to this otherwise wonderful product.</li>
-      <li>This product is great!</li>
-      <li>This is the best stuff that you can get to paint on your child&#x27;s fingernails to deter thumb-sucking or nail biting.  </li>
-      <li>This product is amazing!!!  </li>
-      <li>I am very impressed!</li>
-      <li>It has been one of the greatest products I have ever purchased.  </li>
-      <li>Best stuff in the world.  </li>
-      <li>Wonderful</li>
-      <li>This product is excellent.</li>
-      <li>This product is awesome!</li>
-      <li>This stuff works excellent!</li>
-      <li>The best part?</li>
-      <li>IT&#x27;S AWESOME and best of all IT WORKS!!!</li>
-      <li>I&#x27;m very happy with the product and it work on her.  </li>
-      <li>Wonderful, wonderful product.</li>
-      <li>He is now proud to show me how well his nails are growing!  </li>
-      <li>This is an awesome product.  </li>
-      <li>This has been the best thing ever to stop thumb sucking with my kids</li>
-      <li>AWESOME!!!</li>
-      <li>My kids are doing excellent</li>
-      <li>Great product !</li>
-      <li>Product works wonderfully!  </li>
-      <li>Good luck!!</li>
-      <li>Works perfectly, my son used it for one week, after that, he  doesn&#x27;t want to bite his nails again!</li>
-      <li>It is great stuff!  </li>
-      <li>It worked great!!</li>
-      <li>This product is wonderful!</li>
-      <li>Excellent for stop the bite nails and baby finger</li>
-      <li>absolutely wonderful!</li>
-      <li>and of course, the cheaper thing worked best!  </li>
-      <li>they look delicious...</li>
+      <li>Going on day 5 and its working perfect.</li>
       <li>best product to help kids stop sucking on their fingers!</li>
-      <li>we tried mavala and it worked perfectly.  </li>
-      <li>This is a wonderful product.  </li>
-      <li>Well the good news is that it did work!!!  </li>
-      <li>and it worked perfectly for him!!.  </li>
-      <li>It&#x27;s an excellent aid to the committed quitter.  </li>
-      <li>It has worked wonderfully!</li>
-      <li>Product is excellent.</li>
+      <li>This is a great product!  </li>
+      <li>This is the best stuff on the market to stop fingernail biting or thumb sucking.  </li>
+      <li>The product arrived timely and the packaging is wonderful.</li>
+      <li>an unforgettable experience!  </li>
       <li>Curiosity got the best of me, and so I dabbed my tongue on the applicator: UUUGGGGHH!!!</li>
-      <li>I am thoroughly impressed with this product and would recommend it to anybody.</li>
-      <li>it is working wonderfully.</li>
-      <li>Great product and THANK YOU!!!!!!</li>
-      <li>product, itself is a great one!</li>
-      <li>and we are really impressed by the product.  </li>
-      <li>we were very impressed.  </li>
-      <li>trust me this works real good.</li>
-      <li>What a great product!</li>
-      <li>It is wonderful!</li>
-      <li>We loved this product!!!</li>
-      <li>Great product!</li>
-      <li>This is awesome!</li>
-      <li>Both kids are nail biters and despite my best efforts to get them to stop, nothing worked.</li>
-      <li>Great product!</li>
-      <li>Excellent product!  </li>
-      <li>Her nails have grown in and she is so proud of the way they look she hasn&#x27;t started to bite them again!</li>
-      <li>IT IS AMAZING!!!</li>
-      <li>This product is awesome!</li>
-      <li>He was very proud to tell me that he thought that the polish &amp;#34;tastes like food&amp;#34; and he was sucking his thumb anyway.</li>
-      <li>This product works perfect!</li>
-      <li>This product is amazing!!!</li>
-      <li>Great (yucky!)</li>
-      <li>We&#x27;re very happy.</li>
-      <li>This stuff is an excellent deterrent.&lt;br /&gt;&lt;br</li>
-      <li>She was so proud of herself!  </li>
-      <li>I am very happy.</li>
-      <li>It worked PERFECTLY!!!  </li>
-      <li>Otherwise this is an excellent product.</li>
+      <li>It worked perfectly.</li>
+      <li>/&gt;That brings me to the greatest benefit of this product - self awareness.  </li>
+      <li>and I&#x27;m so happy with my purchase!</li>
+      <li>The cup will get the product on it, therby continuing the taste in their mouth.&lt;br /&gt;Finally, toothpaste was the best to get the taste out.&lt;br</li>
+      <li>Product is excellent.</li>
+      <li>It works real good</li>
+      <li>Great product!  </li>
+      <li>I thought perfect.</li>
+      <li>Well the good news is that it did work!!!  </li>
+      <li>wonderful product would buy again and refer it to anyone</li>
+      <li>you deserve!/&gt;That brings me to the greatest benefit of this product - self awareness.  </li>
+      <li>those who are curoius what this tastes like, the best way I can describe</li>
+      <li>/&gt;IT WAS GREAT!  </li>
+      <li>, this product will serve well as a tool to help you get the beautiful nails you deserve!</li>
+      <li>Great Stuff!!</li>
+      <li>I am so proud of her and THANKFUL for this miracle product!  </li>
+      <li>This stuff is awesome.</li>
+      <li>Best thumb sucking remedy!!!</li>
       <li>Awesome!!!</li>
-      <li>Wonderful product and worked great!  </li>
-      <li>Thank you for this wonderful product</li>
-      <li>So happy!</li>
-      <li>I am really happy with the product and will continue to use!!</li>
-      <li>but it works great!</li>
-      <li>wonderful product for adults.  </li>
-      <li>It is amazing!!!</li>
-      <li>What great results!  </li>
-      <li>but this product was so great that I have to recommend it!!  </li>
-      <li>, she didn&#x27;t realize she was doing it, hence why this was the best product to get her</li>
-      <li>It&#x27;s great!</li>
+      <li>WONDERFUL!</li>
+      <li>We apply it after bath (3 nights per week) and it works great!  </li>
+      <li>Works great!</li>
+      <li>Best product out there.</li>
+      <li>&#x3D;D</li>
+      <li>/&gt;I am so happy to report that it worked!  </li>
+      <li>I painted her fingers one night, which wasn&#x27;t the best, because she cried herself to sleep.</li>
+      <li>It worked perfect for my daughter of 7 yo.</li>
+      <li>this worked perfectly, dont hesitate, just buy it now.</li>
+      <li>Both of them are so proud of themselves for quitting!  </li>
+      <li>This product is awesome.</li>
+      <li>One of the best things</li>
+      <li>Best of luck in quitting your habit, be it nail biting or</li>
+      <li>This stuff works great !</li>
+      <li>This product is great!</li>
+      <li>Worked great!</li>
+      <li>I am so happy that I found this stuff!!!</li>
+      <li>I am thoroughly impressed with this product and would recommend it to anybody.</li>
+      <li>This product is amazing! !!!</li>
+      <li>This stuff is awesome!  </li>
+      <li>Best product out there in my opinion!</li>
+      <li>Works great!  </li>
+      <li>My kids are doing excellent</li>
+      <li>Very very happy!</li>
+      <li>This stuff is so great!</li>
+      <li>This is awesome!!!</li>
+      <li>This may be the best product on the market, but it doesn&#x27;t work for everyone.</li>
+      <li>Wonderful, wonderful product.</li>
+      <li>This product works perfect!</li>
+      <li>Awesome stuff!!!!</li>
+      <li>This worked PERFECT!!</li>
+      <li>She was so proud of herself!  </li>
+      <li>Very happy with the product!  </li>
+      <li>but this one worked great!!</li>
+      <li>This stuff is great!!</li>
+      <li>Works great!!!</li>
+      <li>This is the best product and it truly works.  </li>
+      <li>they look delicious...</li>
+      <li>Perfect item for purchase!  </li>
+      <li>Great product!</li>
+      <li>Excellent product!</li>
+      <li>Great product!  </li>
+      <li>I am so impressed</li>
+      <li>Any ideas would be great!</li>
+      <li>Wiped it off and started sucking the stuff off, LOL!</li>
+      <li>I am so happy!!!!!</li>
+      <li>Awesome product!</li>
+      <li>Greatest product ever.  </li>
+      <li>Superb.</li>
+      <li>Absolutely wonderful product!</li>
+      <li>Oh my is this stuff amazing!!!</li>
+      <li>This product is the best!</li>
+      <li>This stuff is GREAT!!!</li>
+      <li>I am very happy.</li>
+      <li>This product is great!  </li>
+      <li>The product is great!</li>
+      <li>Great!!!!!</li>
+      <li>Worked great!</li>
+      <li>and it worked perfectly for him!!.  </li>
+      <li>Great product!!!</li>
+      <li>and of course, the cheaper thing worked best!  </li>
+      <li>So happy, I would recommend it to anyone!</li>
+      <li>it was a awesome!</li>
+      <li>It worked PERFECTLY!!!  </li>
+      <li>; It&#x27;s awesome.</li>
+      <li>Great stuff...helped my daughter stop sucking her thumbs!  </li>
+      <li>and I am very very happy to say that it WORKS!!!</li>
 </ol>
 
 
 <h2>Negative Reviews</h2>
 <ol>
+<li> It works great!</li>
+<li> I&#x27;m not all that impressed.</li>
+<li> This product is perfect for ending thumbsucking.  </li>
+<li> This product worked great!!</li>
+<li> Good product to help us start the process!!</li>
+<li> I know this product won&#x27;t work for every child, but it was the perfect solution for our child.</li>
 <li> Worked perfect in 1 week.</li>
-<li> /&gt;That brings me to the greatest benefit of this product - self awareness.  </li>
-<li> you deserve!/&gt;That brings me to the greatest benefit of this product - self awareness.  </li>
-<li> , this product will serve well as a tool to help you get the beautiful nails you deserve!</li>
-<li> Both of them are so proud of themselves for quitting!  </li>
-<li> This product is amazing! !!!</li>
-<li> This is the best product and it truly works.  </li>
-<li> Great product!!!</li>
-<li> This stuff is the best!  </li>
-<li> The Mavala does stay on the thumb nail for about 2 to 3 days, which impressed me.</li>
-<li> This has worked beautifully!</li>
-<li> If you have a child who is a thumb-sucker or a nail-biter, this is the best deterrent out there.  </li>
-<li> This formula is awesome!  </li>
-<li> Amazing!!!</li>
-<li> around GREAT product!</li>
-<li> This worked great!</li>
-<li> I wish I would have know about this 2 yrs ago because it is wonderful!</li>
-<li> I am so glad we bought this product!!!!</li>
-<li> This stuff is the Best</li>
-<li> Great stuff!</li>
-<li> just a word of caution that some people might develope an reaction to this otherwise wonderful product.</li>
-<li> This product is great!</li>
-<li> This is the best stuff that you can get to paint on your child&#x27;s fingernails to deter thumb-sucking or nail biting.  </li>
-<li> This product is amazing!!!  </li>
-<li> I am very impressed!</li>
-<li> It has been one of the greatest products I have ever purchased.  </li>
-<li> Best stuff in the world.  </li>
-<li> Wonderful</li>
-<li> This product is excellent.</li>
-<li> This product is awesome!</li>
-<li> This stuff works excellent!</li>
-<li> The best part?</li>
-<li> IT&#x27;S AWESOME and best of all IT WORKS!!!</li>
-<li> I&#x27;m very happy with the product and it work on her.  </li>
-<li> Wonderful, wonderful product.</li>
-<li> He is now proud to show me how well his nails are growing!  </li>
-<li> This is an awesome product.  </li>
-<li> This has been the best thing ever to stop thumb sucking with my kids</li>
-<li> AWESOME!!!</li>
-<li> My kids are doing excellent</li>
-<li> Great product !</li>
-<li> Product works wonderfully!  </li>
-<li> Good luck!!</li>
-<li> Works perfectly, my son used it for one week, after that, he  doesn&#x27;t want to bite his nails again!</li>
-<li> It is great stuff!  </li>
-<li> It worked great!!</li>
-<li> This product is wonderful!</li>
-<li> Excellent for stop the bite nails and baby finger</li>
-<li> absolutely wonderful!</li>
-<li> and of course, the cheaper thing worked best!  </li>
-<li> they look delicious...</li>
+<li> Going on day 5 and its working perfect.</li>
 <li> best product to help kids stop sucking on their fingers!</li>
-<li> we tried mavala and it worked perfectly.  </li>
-<li> This is a wonderful product.  </li>
-<li> Well the good news is that it did work!!!  </li>
-<li> and it worked perfectly for him!!.  </li>
-<li> It&#x27;s an excellent aid to the committed quitter.  </li>
-<li> It has worked wonderfully!</li>
-<li> Product is excellent.</li>
+<li> This is a great product!  </li>
+<li> This is the best stuff on the market to stop fingernail biting or thumb sucking.  </li>
+<li> The product arrived timely and the packaging is wonderful.</li>
+<li> an unforgettable experience!  </li>
 <li> Curiosity got the best of me, and so I dabbed my tongue on the applicator: UUUGGGGHH!!!</li>
-<li> I am thoroughly impressed with this product and would recommend it to anybody.</li>
-<li> it is working wonderfully.</li>
-<li> Great product and THANK YOU!!!!!!</li>
-<li> product, itself is a great one!</li>
-<li> and we are really impressed by the product.  </li>
-<li> we were very impressed.  </li>
-<li> trust me this works real good.</li>
-<li> What a great product!</li>
-<li> It is wonderful!</li>
-<li> We loved this product!!!</li>
-<li> Great product!</li>
-<li> This is awesome!</li>
-<li> Both kids are nail biters and despite my best efforts to get them to stop, nothing worked.</li>
-<li> Great product!</li>
-<li> Excellent product!  </li>
-<li> Her nails have grown in and she is so proud of the way they look she hasn&#x27;t started to bite them again!</li>
-<li> IT IS AMAZING!!!</li>
-<li> This product is awesome!</li>
-<li> He was very proud to tell me that he thought that the polish &amp;#34;tastes like food&amp;#34; and he was sucking his thumb anyway.</li>
-<li> This product works perfect!</li>
-<li> This product is amazing!!!</li>
-<li> Great (yucky!)</li>
-<li> We&#x27;re very happy.</li>
-<li> This stuff is an excellent deterrent.&lt;br /&gt;&lt;br</li>
-<li> She was so proud of herself!  </li>
-<li> I am very happy.</li>
-<li> It worked PERFECTLY!!!  </li>
-<li> Otherwise this is an excellent product.</li>
+<li> It worked perfectly.</li>
+<li> /&gt;That brings me to the greatest benefit of this product - self awareness.  </li>
+<li> and I&#x27;m so happy with my purchase!</li>
+<li> The cup will get the product on it, therby continuing the taste in their mouth.&lt;br /&gt;Finally, toothpaste was the best to get the taste out.&lt;br</li>
+<li> Product is excellent.</li>
+<li> It works real good</li>
+<li> Great product!  </li>
+<li> I thought perfect.</li>
+<li> Well the good news is that it did work!!!  </li>
+<li> wonderful product would buy again and refer it to anyone</li>
+<li> you deserve!/&gt;That brings me to the greatest benefit of this product - self awareness.  </li>
+<li> those who are curoius what this tastes like, the best way I can describe</li>
+<li> /&gt;IT WAS GREAT!  </li>
+<li> , this product will serve well as a tool to help you get the beautiful nails you deserve!</li>
+<li> Great Stuff!!</li>
+<li> I am so proud of her and THANKFUL for this miracle product!  </li>
+<li> This stuff is awesome.</li>
+<li> Best thumb sucking remedy!!!</li>
 <li> Awesome!!!</li>
-<li> Wonderful product and worked great!  </li>
-<li> Thank you for this wonderful product</li>
-<li> So happy!</li>
-<li> I am really happy with the product and will continue to use!!</li>
-<li> but it works great!</li>
-<li> wonderful product for adults.  </li>
-<li> It is amazing!!!</li>
-<li> What great results!  </li>
-<li> but this product was so great that I have to recommend it!!  </li>
-<li> , she didn&#x27;t realize she was doing it, hence why this was the best product to get her</li>
-<li> It&#x27;s great!</li>
+<li> WONDERFUL!</li>
+<li> We apply it after bath (3 nights per week) and it works great!  </li>
+<li> Works great!</li>
+<li> Best product out there.</li>
+<li> &#x3D;D</li>
+<li> /&gt;I am so happy to report that it worked!  </li>
+<li> I painted her fingers one night, which wasn&#x27;t the best, because she cried herself to sleep.</li>
+<li> It worked perfect for my daughter of 7 yo.</li>
+<li> this worked perfectly, dont hesitate, just buy it now.</li>
+<li> Both of them are so proud of themselves for quitting!  </li>
+<li> This product is awesome.</li>
+<li> One of the best things</li>
+<li> Best of luck in quitting your habit, be it nail biting or</li>
+<li> This stuff works great !</li>
+<li> This product is great!</li>
+<li> Worked great!</li>
+<li> I am so happy that I found this stuff!!!</li>
+<li> I am thoroughly impressed with this product and would recommend it to anybody.</li>
+<li> This product is amazing! !!!</li>
+<li> This stuff is awesome!  </li>
+<li> Best product out there in my opinion!</li>
+<li> Works great!  </li>
+<li> My kids are doing excellent</li>
+<li> Very very happy!</li>
+<li> This stuff is so great!</li>
+<li> This is awesome!!!</li>
+<li> This may be the best product on the market, but it doesn&#x27;t work for everyone.</li>
+<li> Wonderful, wonderful product.</li>
+<li> This product works perfect!</li>
+<li> Awesome stuff!!!!</li>
+<li> This worked PERFECT!!</li>
+<li> She was so proud of herself!  </li>
+<li> Very happy with the product!  </li>
+<li> but this one worked great!!</li>
+<li> This stuff is great!!</li>
+<li> Works great!!!</li>
+<li> This is the best product and it truly works.  </li>
+<li> they look delicious...</li>
+<li> Perfect item for purchase!  </li>
+<li> Great product!</li>
+<li> Excellent product!</li>
+<li> Great product!  </li>
+<li> I am so impressed</li>
+<li> Any ideas would be great!</li>
+<li> Wiped it off and started sucking the stuff off, LOL!</li>
+<li> I am so happy!!!!!</li>
+<li> Awesome product!</li>
+<li> Greatest product ever.  </li>
+<li> Superb.</li>
+<li> Absolutely wonderful product!</li>
+<li> Oh my is this stuff amazing!!!</li>
+<li> This product is the best!</li>
+<li> This stuff is GREAT!!!</li>
+<li> I am very happy.</li>
+<li> This product is great!  </li>
+<li> The product is great!</li>
+<li> Great!!!!!</li>
+<li> Worked great!</li>
+<li> and it worked perfectly for him!!.  </li>
+<li> Great product!!!</li>
+<li> and of course, the cheaper thing worked best!  </li>
+<li> So happy, I would recommend it to anyone!</li>
+<li> it was a awesome!</li>
+<li> It worked PERFECTLY!!!  </li>
+<li> ; It&#x27;s awesome.</li>
+<li> Great stuff...helped my daughter stop sucking her thumbs!  </li>
+<li> and I am very very happy to say that it WORKS!!!</li>
 </ol>
 
 <h2>All Reviews</h2>
@@ -3328,6 +3328,7 @@ modifiedAt: Thu Jan 09 2020 19:08:20 GMT+0530 (India Standard Time),
     <li> this really really works i put this on my nails and hate my self if i get my mouth close to them some times i forget and lick my fingers if im eating messy food but thats the price you pay. after applying for a month i no longer need it. leaves nails a little shiny but not too bad.</li>
     <li> This stuff is disguising for sure.  But it works.  It&#x27;ll stick to your fingernails all day.&lt;br /&gt;&lt;br /&gt;Just be cautious about preparing food with it on or eating finger food like chips.</li>
 </ol>
+
 
 
 

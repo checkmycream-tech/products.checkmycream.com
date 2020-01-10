@@ -3,8 +3,8 @@ title: OZNaturals - Hyaluronic Acid Serum With Vitamin C (Packaging May Vary),
 description: OZNaturals - Hyaluronic Acid Serum With Vitamin C (Packaging May Vary),
 author: Suvojit Manna,
 tags: OZNaturals - Hyaluronic Acid Serum With Vitamin C (Packaging May Vary),
-publishedAt: Thu Jan 09 2020 19:08:39 GMT+0530 (India Standard Time),
-modifiedAt: Thu Jan 09 2020 19:08:39 GMT+0530 (India Standard Time),
+publishedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
 ---
 
 # [OZNaturals - Hyaluronic Acid Serum With Vitamin C (Packaging May Vary)](https://products.checkmycream.com/products/OZNaturals-Hyaluronic-Acid-Serum-With-Vitamin-C-(Packaging-May-Vary).html)
@@ -12,211 +12,211 @@ modifiedAt: Thu Jan 09 2020 19:08:39 GMT+0530 (India Standard Time),
 ### Positive Reviews
 
 <ol>
+      <li>Works Great !!</li>
+      <li>one of the best serums for skin</li>
+      <li>Great!  </li>
+      <li>but I truly think this is the best.</li>
+      <li>Excellent and affordable skin care serums.</li>
+      <li>Excellent product!</li>
       <li>A wonderful product and one of the best serums I&#x27;ve used.</li>
+      <li>This is the best i have used.</li>
+      <li>This serum is the best I have ever used.  </li>
+      <li>That makes me very happy.</li>
+      <li>All excellent products</li>
+      <li>This serum is wonderful.</li>
+      <li>Love this product!!!!.</li>
+      <li>this stuff worked great for me!</li>
+      <li>I have used this for 5 days along with the OZ Naturals Best Retinol Moisturizer and the OZ Naturals Best Naturals Eye Gel...</li>
+      <li>Excellent product.</li>
+      <li>The best anti wrinkle product I&#x27;ve ever used.</li>
+      <li>Great moisturizer!</li>
+      <li>This stuff is the best thing I have used - and I have tried almost everything out there.</li>
+      <li>The two combined are the best skin aging fighters out there.  </li>
+      <li>You have an excellent product.</li>
+      <li>I recommend this vendor and this product as promised your skin will look great!</li>
+      <li>This is wonderful stuff.</li>
+      <li>This product is great  for my skin !</li>
+      <li>Really great serum!</li>
+      <li>The Hyalauronic serum is wonderful!  </li>
+      <li>Best anti aging product &amp; thank u to all who reviewed before me</li>
+      <li>The best hyalronic serum folks!</li>
+      <li>OZ Naturals - THE BEST Vitamin C Serum</li>
       <li>Awesome stuff.</li>
+      <li>I gave this one 5+ cheers out of 5 because it&#x27;s the best product I&#x27;ve ever used.  </li>
       <li>It is is the best skin serum EVER</li>
       <li>Very happy with product.</li>
-      <li>I&#x27;ve been using the Vitamin C serum along with the Hyaluronic Acid serum and my skin feels the best it&#x27;s ever felt!!  </li>
-      <li>It makes your skin feel wonderful.  </li>
-      <li>This product is great!</li>
-      <li>the Best part is</li>
-      <li>Wonderful!  </li>
-      <li>Great selling point!  </li>
-      <li>I think I like this one the best.</li>
-      <li>I was not that impressed</li>
-      <li>I can see the difference in my skin, good stuff!!!</li>
-      <li>Works Great !!</li>
-      <li>/&gt;I&#x27;d say this is a very good product for the price!  </li>
-      <li>It truly gives my skin a wonderful glow!</li>
-      <li>/&gt;OZ Naturals products are considered to be the very best in the skin care</li>
-      <li>/&gt;OZ Naturals products are considered to be the very best in the skin care</li>
-      <li>Excellent product, I like the Dr. OZ vitamin C 20% serum.</li>
-      <li>Just the perfect amount of hydration, ease of application,  </li>
-      <li>Very happy with this product and the results I have recieved.</li>
-      <li>OZ Naturals the best Hyaluronic Acid Serum -</li>
-      <li>Wasn&#x27;t impressed nor did I find it beneficial.</li>
-      <li>best cure!!</li>
-      <li>It is best to use after washing face and before using moisturizer.</li>
-      <li>The ingredients are excellent too.</li>
-      <li>I have been using their line for about 3 weeks and the results are incredible!</li>
-      <li>I was very happy with my results</li>
-      <li>Really awesome product.</li>
-      <li>, I don&#x27;t know that it is THE BEST thought.  </li>
-      <li>THE BEST AVAILABLE!!!!!I</li>
-      <li>Awesome stuff.  </li>
-      <li>It makes my skin look great!!!!</li>
-      <li>The best hydrating serum on the market.</li>
-      <li>Best anti-wrinkle serum I have ever used.</li>
-      <li>This is THE BEST Hyaluronic Serum I&#x27;ve ever owned.  </li>
-      <li>If you want your skin to look its very best and its youngest this is the best product out there.</li>
-      <li>You have an excellent product.</li>
-      <li>The two combined are the best skin aging fighters out there.  </li>
-      <li>Great moisturizer!</li>
-      <li>I have used this for 5 days along with the OZ Naturals Best Retinol Moisturizer and the OZ Naturals Best Naturals Eye Gel...</li>
-      <li>All excellent products</li>
-      <li>The best anti wrinkle product I&#x27;ve ever used.</li>
-      <li>Great Product!!  </li>
-      <li>I used it for my neck and chest, but wasn&#x27;t really impressed.</li>
-      <li>LOVE IT!!!!</li>
-      <li>This stuff is wonderful!  </li>
-      <li>I&#x27;ve been using it in conjunction with Oz Naturals Best Vitamin C Serum</li>
-      <li>Excellent and affordable skin care serums.</li>
-      <li>This is a wonderful serum and is a must have of all the serums out there to use!  </li>
-      <li>Great Stuff!  </li>
-      <li>Love this product!!!!.</li>
-      <li>I would say this product at best is a toner as it does brighten the skin up.</li>
-      <li>Truly impressed.</li>
-      <li>This product is excellent.</li>
-      <li>Just the best ever.</li>
-      <li>I&#x27;ve even told my family &amp; friends about the Wonderful effects it has done for my skin !!!  </li>
-      <li>I wouldn&#x27;t say it&#x27;s the best</li>
-      <li>This product is great  for my skin !</li>
-      <li>So, while I&#x27;ve been applying for a bit over a month I&#x27;ve been impressed with the results since week one.</li>
-      <li>/&gt;The product is also awesome.  </li>
-      <li>im very impressed..</li>
-      <li>Was I impressed.</li>
-      <li>I keep offering this product and see a wonderful difference in my skin .</li>
-      <li>This seller is AWESOME!</li>
-      <li>Excellent product.</li>
-      <li>have never had an anti-age product like that, just a wonderful surprise.</li>
-      <li>I&#x27;m in my mid-fifties and am totally impressed with this serum!</li>
-      <li>OZ Naturals is awesome about explaining how to use this product.</li>
-      <li>Will be very happy if it keeps improving.</li>
-      <li>I will keep trying and hope for the best.</li>
-      <li>Awesome product!!</li>
-      <li>Great product!</li>
-      <li>Vitamin C seemed an excellent addition.</li>
-      <li>Really great serum!</li>
-      <li>This stuff is the best thing I have used - and I have tried almost everything out there.</li>
-      <li>Not too impressed did not notice changes,  </li>
-      <li>She said they were the very best to use on the face</li>
-      <li>The Hyalauronic serum is wonderful!  </li>
-      <li>Great product!!!</li>
-      <li>Great price!!</li>
-      <li>Anyway, I will not purchase another product except this one as this is the best on the market for anti-aging.  </li>
-      <li>I can&#x27;t complain amazon has the best products this thing is miracle</li>
-      <li>my skin is going to be in the best condition it has ever been in.</li>
-      <li>I&#x27;m very happy with this product and will be ordering again.</li>
-      <li>It&#x27;s based on my awesome experience with the company&#x27;s CEO, after my order was delayed.  </li>
-      <li>GREAT SERVICE CRAIG!  </li>
-      <li>It&#x27;s an excellent product with an affordable price</li>
-      <li>This serum has been awesome for me has seen a change since I have been using it.  </li>
-      <li>This is a great item!  </li>
-      <li>but it is not the best that I have used.</li>
-      <li>I have been very happy with the results from products from OZ Naturals.  </li>
-      <li>This stuff is amazing!!!</li>
       <li>great staff!!  </li>
-      <li>Probably the best results I&#x27;ve ever gotten from face creams.</li>
+      <li>I am very impressed with this serum.  </li>
+      <li>The customer service is some of the best I&#x27;ve yet to experience both on and offline.</li>
+      <li>but everything else is perfect.</li>
+      <li>Each one felt so wonderful on my skin and the results will astound  you.  </li>
+      <li>Works best that way!!!</li>
+      <li>Great Product!!  </li>
+      <li>NOT THE BEST.  </li>
+      <li>I have been using this in conjunction with the Best Vitamin C Serum</li>
+      <li>Might be best to list all ingredients inside and not just the hyaluronic acid.</li>
+      <li>It is the best, my face feels tighter,smoother,.</li>
+      <li>Superb product!  </li>
+      <li>Love it!!!!</li>
+      <li>If you want your skin to look its very best and its youngest this is the best product out there.</li>
+      <li>Awesome product!</li>
+      <li>Love my skin from using!!!!!</li>
+      <li>I&#x27;ve been using the Vitamin C serum along with the Hyaluronic Acid serum and my skin feels the best it&#x27;s ever felt!!  </li>
+      <li>OMG BEST PRODUCT I HAVE EVER</li>
+      <li>A great combination!</li>
+      <li>and I received it for review and let me say I am impressed!!</li>
+      <li>It makes your skin feel wonderful.  </li>
+      <li>This with the eye gel and moisturizer makes my skin feel so great!!!</li>
+      <li>Absolutely excellent product!</li>
+      <li>Its so awesome</li>
+      <li>I am very happy with this product.</li>
+      <li>and I love it!!!!</li>
+      <li>The best.  </li>
+      <li>I used it for my neck and chest, but wasn&#x27;t really impressed.</li>
+      <li>what A GREAT PRODUCT !  </li>
+      <li>This product is great!</li>
+      <li>It is proven to give the best results.</li>
+      <li>the Best part is</li>
+      <li>I would say this product at best is a toner as it does brighten the skin up.</li>
+      <li>I wasn&#x27;t impressed with the product.</li>
+      <li>Wonderful!  </li>
+      <li>I am definitely a happy customer!  </li>
+      <li>Vitamin C seemed an excellent addition.</li>
+      <li>It is the best ever in my experience.</li>
+      <li>This is THE BEST Hyaluronic Serum I&#x27;ve ever owned.  </li>
+      <li>Excellent product to use before bed.</li>
+      <li>, it&#x27;s a great product!!</li>
+      <li>AWESOME SERUM!</li>
+      <li>Wasn&#x27;t impressed nor did I find it beneficial.</li>
+      <li>The vitamin C is wonderful on my skin</li>
+      <li>Excellent product.  </li>
+      <li>So, while I&#x27;ve been applying for a bit over a month I&#x27;ve been impressed with the results since week one.</li>
+      <li>Great product!</li>
+      <li>It&#x27;s an excellent product with an affordable price</li>
+      <li>Awesome product!!</li>
+      <li>Truly impressed.</li>
+      <li>I&#x27;ve used this product for a week or 2 and they are wonderful.  </li>
+      <li>Great selling point!  </li>
+      <li>Best beauty find EVER!</li>
+      <li>Incredible!  </li>
+      <li>excellent.</li>
+      <li>Great product!!!</li>
       <li>It is excellent and almost immediately, I could tell the difference.  </li>
-      <li>Awesome!</li>
-      <li>but I truly think this is the best.</li>
-      <li>This is wonderful stuff.</li>
+      <li>I was given two Oz Naturals products to review, THE BEST Vitamin C Serum For Your Face and THE BEST Hyaluronic Acid Serum For Skin.</li>
+      <li>Great price!!</li>
+      <li>LOVE IT!!!!!</li>
+      <li>happy !</li>
       <li>I am very happy and impressed with this product.</li>
+      <li>Great product!</li>
+      <li>Feels great too!  </li>
+      <li>Probably the best results I&#x27;ve ever gotten from face creams.</li>
+      <li>Best anti-wrinkle serum I have ever used.</li>
+      <li>I am very impressed with this product and will continue doing business with the company I purchased it from.</li>
 </ol>
 
 
 <h2>Negative Reviews</h2>
 <ol>
+<li> Works Great !!</li>
+<li> one of the best serums for skin</li>
+<li> Great!  </li>
+<li> but I truly think this is the best.</li>
+<li> Excellent and affordable skin care serums.</li>
+<li> Excellent product!</li>
 <li> A wonderful product and one of the best serums I&#x27;ve used.</li>
+<li> This is the best i have used.</li>
+<li> This serum is the best I have ever used.  </li>
+<li> That makes me very happy.</li>
+<li> All excellent products</li>
+<li> This serum is wonderful.</li>
+<li> Love this product!!!!.</li>
+<li> this stuff worked great for me!</li>
+<li> I have used this for 5 days along with the OZ Naturals Best Retinol Moisturizer and the OZ Naturals Best Naturals Eye Gel...</li>
+<li> Excellent product.</li>
+<li> The best anti wrinkle product I&#x27;ve ever used.</li>
+<li> Great moisturizer!</li>
+<li> This stuff is the best thing I have used - and I have tried almost everything out there.</li>
+<li> The two combined are the best skin aging fighters out there.  </li>
+<li> You have an excellent product.</li>
+<li> I recommend this vendor and this product as promised your skin will look great!</li>
+<li> This is wonderful stuff.</li>
+<li> This product is great  for my skin !</li>
+<li> Really great serum!</li>
+<li> The Hyalauronic serum is wonderful!  </li>
+<li> Best anti aging product &amp; thank u to all who reviewed before me</li>
+<li> The best hyalronic serum folks!</li>
+<li> OZ Naturals - THE BEST Vitamin C Serum</li>
 <li> Awesome stuff.</li>
+<li> I gave this one 5+ cheers out of 5 because it&#x27;s the best product I&#x27;ve ever used.  </li>
 <li> It is is the best skin serum EVER</li>
 <li> Very happy with product.</li>
-<li> I&#x27;ve been using the Vitamin C serum along with the Hyaluronic Acid serum and my skin feels the best it&#x27;s ever felt!!  </li>
-<li> It makes your skin feel wonderful.  </li>
-<li> This product is great!</li>
-<li> the Best part is</li>
-<li> Wonderful!  </li>
-<li> Great selling point!  </li>
-<li> I think I like this one the best.</li>
-<li> I was not that impressed</li>
-<li> I can see the difference in my skin, good stuff!!!</li>
-<li> Works Great !!</li>
-<li> /&gt;I&#x27;d say this is a very good product for the price!  </li>
-<li> It truly gives my skin a wonderful glow!</li>
-<li> /&gt;OZ Naturals products are considered to be the very best in the skin care</li>
-<li> /&gt;OZ Naturals products are considered to be the very best in the skin care</li>
-<li> Excellent product, I like the Dr. OZ vitamin C 20% serum.</li>
-<li> Just the perfect amount of hydration, ease of application,  </li>
-<li> Very happy with this product and the results I have recieved.</li>
-<li> OZ Naturals the best Hyaluronic Acid Serum -</li>
-<li> Wasn&#x27;t impressed nor did I find it beneficial.</li>
-<li> best cure!!</li>
-<li> It is best to use after washing face and before using moisturizer.</li>
-<li> The ingredients are excellent too.</li>
-<li> I have been using their line for about 3 weeks and the results are incredible!</li>
-<li> I was very happy with my results</li>
-<li> Really awesome product.</li>
-<li> , I don&#x27;t know that it is THE BEST thought.  </li>
-<li> THE BEST AVAILABLE!!!!!I</li>
-<li> Awesome stuff.  </li>
-<li> It makes my skin look great!!!!</li>
-<li> The best hydrating serum on the market.</li>
-<li> Best anti-wrinkle serum I have ever used.</li>
-<li> This is THE BEST Hyaluronic Serum I&#x27;ve ever owned.  </li>
-<li> If you want your skin to look its very best and its youngest this is the best product out there.</li>
-<li> You have an excellent product.</li>
-<li> The two combined are the best skin aging fighters out there.  </li>
-<li> Great moisturizer!</li>
-<li> I have used this for 5 days along with the OZ Naturals Best Retinol Moisturizer and the OZ Naturals Best Naturals Eye Gel...</li>
-<li> All excellent products</li>
-<li> The best anti wrinkle product I&#x27;ve ever used.</li>
-<li> Great Product!!  </li>
-<li> I used it for my neck and chest, but wasn&#x27;t really impressed.</li>
-<li> LOVE IT!!!!</li>
-<li> This stuff is wonderful!  </li>
-<li> I&#x27;ve been using it in conjunction with Oz Naturals Best Vitamin C Serum</li>
-<li> Excellent and affordable skin care serums.</li>
-<li> This is a wonderful serum and is a must have of all the serums out there to use!  </li>
-<li> Great Stuff!  </li>
-<li> Love this product!!!!.</li>
-<li> I would say this product at best is a toner as it does brighten the skin up.</li>
-<li> Truly impressed.</li>
-<li> This product is excellent.</li>
-<li> Just the best ever.</li>
-<li> I&#x27;ve even told my family &amp; friends about the Wonderful effects it has done for my skin !!!  </li>
-<li> I wouldn&#x27;t say it&#x27;s the best</li>
-<li> This product is great  for my skin !</li>
-<li> So, while I&#x27;ve been applying for a bit over a month I&#x27;ve been impressed with the results since week one.</li>
-<li> /&gt;The product is also awesome.  </li>
-<li> im very impressed..</li>
-<li> Was I impressed.</li>
-<li> I keep offering this product and see a wonderful difference in my skin .</li>
-<li> This seller is AWESOME!</li>
-<li> Excellent product.</li>
-<li> have never had an anti-age product like that, just a wonderful surprise.</li>
-<li> I&#x27;m in my mid-fifties and am totally impressed with this serum!</li>
-<li> OZ Naturals is awesome about explaining how to use this product.</li>
-<li> Will be very happy if it keeps improving.</li>
-<li> I will keep trying and hope for the best.</li>
-<li> Awesome product!!</li>
-<li> Great product!</li>
-<li> Vitamin C seemed an excellent addition.</li>
-<li> Really great serum!</li>
-<li> This stuff is the best thing I have used - and I have tried almost everything out there.</li>
-<li> Not too impressed did not notice changes,  </li>
-<li> She said they were the very best to use on the face</li>
-<li> The Hyalauronic serum is wonderful!  </li>
-<li> Great product!!!</li>
-<li> Great price!!</li>
-<li> Anyway, I will not purchase another product except this one as this is the best on the market for anti-aging.  </li>
-<li> I can&#x27;t complain amazon has the best products this thing is miracle</li>
-<li> my skin is going to be in the best condition it has ever been in.</li>
-<li> I&#x27;m very happy with this product and will be ordering again.</li>
-<li> It&#x27;s based on my awesome experience with the company&#x27;s CEO, after my order was delayed.  </li>
-<li> GREAT SERVICE CRAIG!  </li>
-<li> It&#x27;s an excellent product with an affordable price</li>
-<li> This serum has been awesome for me has seen a change since I have been using it.  </li>
-<li> This is a great item!  </li>
-<li> but it is not the best that I have used.</li>
-<li> I have been very happy with the results from products from OZ Naturals.  </li>
-<li> This stuff is amazing!!!</li>
 <li> great staff!!  </li>
-<li> Probably the best results I&#x27;ve ever gotten from face creams.</li>
+<li> I am very impressed with this serum.  </li>
+<li> The customer service is some of the best I&#x27;ve yet to experience both on and offline.</li>
+<li> but everything else is perfect.</li>
+<li> Each one felt so wonderful on my skin and the results will astound  you.  </li>
+<li> Works best that way!!!</li>
+<li> Great Product!!  </li>
+<li> NOT THE BEST.  </li>
+<li> I have been using this in conjunction with the Best Vitamin C Serum</li>
+<li> Might be best to list all ingredients inside and not just the hyaluronic acid.</li>
+<li> It is the best, my face feels tighter,smoother,.</li>
+<li> Superb product!  </li>
+<li> Love it!!!!</li>
+<li> If you want your skin to look its very best and its youngest this is the best product out there.</li>
+<li> Awesome product!</li>
+<li> Love my skin from using!!!!!</li>
+<li> I&#x27;ve been using the Vitamin C serum along with the Hyaluronic Acid serum and my skin feels the best it&#x27;s ever felt!!  </li>
+<li> OMG BEST PRODUCT I HAVE EVER</li>
+<li> A great combination!</li>
+<li> and I received it for review and let me say I am impressed!!</li>
+<li> It makes your skin feel wonderful.  </li>
+<li> This with the eye gel and moisturizer makes my skin feel so great!!!</li>
+<li> Absolutely excellent product!</li>
+<li> Its so awesome</li>
+<li> I am very happy with this product.</li>
+<li> and I love it!!!!</li>
+<li> The best.  </li>
+<li> I used it for my neck and chest, but wasn&#x27;t really impressed.</li>
+<li> what A GREAT PRODUCT !  </li>
+<li> This product is great!</li>
+<li> It is proven to give the best results.</li>
+<li> the Best part is</li>
+<li> I would say this product at best is a toner as it does brighten the skin up.</li>
+<li> I wasn&#x27;t impressed with the product.</li>
+<li> Wonderful!  </li>
+<li> I am definitely a happy customer!  </li>
+<li> Vitamin C seemed an excellent addition.</li>
+<li> It is the best ever in my experience.</li>
+<li> This is THE BEST Hyaluronic Serum I&#x27;ve ever owned.  </li>
+<li> Excellent product to use before bed.</li>
+<li> , it&#x27;s a great product!!</li>
+<li> AWESOME SERUM!</li>
+<li> Wasn&#x27;t impressed nor did I find it beneficial.</li>
+<li> The vitamin C is wonderful on my skin</li>
+<li> Excellent product.  </li>
+<li> So, while I&#x27;ve been applying for a bit over a month I&#x27;ve been impressed with the results since week one.</li>
+<li> Great product!</li>
+<li> It&#x27;s an excellent product with an affordable price</li>
+<li> Awesome product!!</li>
+<li> Truly impressed.</li>
+<li> I&#x27;ve used this product for a week or 2 and they are wonderful.  </li>
+<li> Great selling point!  </li>
+<li> Best beauty find EVER!</li>
+<li> Incredible!  </li>
+<li> excellent.</li>
+<li> Great product!!!</li>
 <li> It is excellent and almost immediately, I could tell the difference.  </li>
-<li> Awesome!</li>
-<li> but I truly think this is the best.</li>
-<li> This is wonderful stuff.</li>
+<li> I was given two Oz Naturals products to review, THE BEST Vitamin C Serum For Your Face and THE BEST Hyaluronic Acid Serum For Skin.</li>
+<li> Great price!!</li>
+<li> LOVE IT!!!!!</li>
+<li> happy !</li>
 <li> I am very happy and impressed with this product.</li>
+<li> Great product!</li>
+<li> Feels great too!  </li>
+<li> Probably the best results I&#x27;ve ever gotten from face creams.</li>
+<li> Best anti-wrinkle serum I have ever used.</li>
+<li> I am very impressed with this product and will continue doing business with the company I purchased it from.</li>
 </ol>
 
 <h2>All Reviews</h2>
@@ -2221,6 +2221,7 @@ modifiedAt: Thu Jan 09 2020 19:08:39 GMT+0530 (India Standard Time),
     <li> I&#x27;ve been using this product for just a couple of weeks and can already see a difference in my skin...the fines lines on my face are fading. This product really delivers and I would highly recommend it to others. I&#x27;ve even ordered some for my Mom and sister,&lt;br /&gt;&lt;br /&gt;Nikki</li>
     <li> I have been using the Oz Naturals products now for about six months and am very pleased with the results. I have many allergies and sensitivities and have had a lot of difficulty finding a facial care regimen that didn&#x27;t cause me problems. Before discovering the Oz Naturals products, I was using a natural, olive oil based soap and moisturizer. I had not found any skin care supplements like retinol, alpha hydroxy or other acids I could safely use.  I had frequent breakouts and a couple of dry, rough patches that wouldn&#x27;t go away no matter what I tried.  My skin was always blotchy looking, so I constantly used foundation to help cover my uneven skin tones. I started using the Oz Ocean Minerals Facial Cleanser, then added the Hyaluronic Acid Serum, the Eye Gel and the Super Youth Moisturizer. Those rough dry patches I&#x27;d had for several months completely disappeared within the first week of use and in less than two weeks, my skin tone had improved significantly and my breakouts were gone. I was amazed!  Now I rarely have any breakouts, and I my skin tone is so even that I frequently go out without using foundation - something I wouldn&#x27;t have dreamed of doing before. A little of this product goes a long way.  I use only three drops for my face and neck combined.  After almost six months of use, I still have a third of the bottle left, making this an excellent value. I would certainly recommend this product.</li>
 </ol>
+
 
 
 

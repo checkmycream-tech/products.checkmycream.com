@@ -3,8 +3,8 @@ title: Baby Foot Exfoliant Foot Peel, Lavender Scented, 2.4 Fl. Oz.,
 description: Baby Foot Exfoliant Foot Peel, Lavender Scented, 2.4 Fl. Oz.,
 author: Suvojit Manna,
 tags: Baby Foot Exfoliant Foot Peel, Lavender Scented, 2.4 Fl. Oz.,
-publishedAt: Thu Jan 09 2020 19:08:31 GMT+0530 (India Standard Time),
-modifiedAt: Thu Jan 09 2020 19:08:31 GMT+0530 (India Standard Time),
+publishedAt: Fri Jan 10 2020 14:59:58 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:59:58 GMT+0530 (India Standard Time),
 ---
 
 # [Baby Foot Exfoliant Foot Peel, Lavender Scented, 2.4 Fl. Oz.](https://products.checkmycream.com/products/Baby-Foot-Exfoliant-Foot-Peel-Lavender-Scented-2.4-Fl.-Oz..html)
@@ -12,211 +12,211 @@ modifiedAt: Thu Jan 09 2020 19:08:31 GMT+0530 (India Standard Time),
 ### Positive Reviews
 
 <ol>
+      <li>This is the best!!!</li>
       <li>but my feet feel wonderful.</li>
-      <li>Worked great!  </li>
-      <li>Worked wonderfully.  </li>
-      <li>my feel look great!</li>
-      <li>Awesome product!</li>
-      <li>Follow the instructions to the T and it will work perfectly!</li>
-      <li>Love this product!!!!</li>
-      <li>and his feet look great, too!</li>
-      <li>They work the best</li>
-      <li>This is THE BEST STUFF EVER!  </li>
-      <li>This stuff is awesome!</li>
-      <li>I used two treatments over 6 months and was very happy with the results.</li>
-      <li>This foot peel is excellent!</li>
-      <li>I have used this 3 times and have been very happy with the results each time.</li>
-      <li>Also, they had the very best price on Baby Foot I&#x27;ve ever seen!</li>
-      <li>Great product!!</li>
-      <li>and she was so happy with the result!</li>
-      <li>This was the best!</li>
-      <li>My feet felt so great afterwards!</li>
-      <li>Worked as describe, excellent product.</li>
-      <li>This product is awesome, I will continue to use every two to three months.</li>
-      <li>This product is great!!</li>
-      <li>worked great!!</li>
-      <li>Thank you for a great product!!</li>
-      <li>Awesome product I have been looking for this for 20 years</li>
-      <li>but it is so wonderful</li>
-      <li>I got best results by wearing the socks for a bit longer than instructed, and by soaking my feet before using and every day after until they stopped peeling.</li>
-      <li>Awesome.</li>
-      <li>Works great!!!</li>
-      <li>works great!  </li>
-      <li>I followed the instructions of the Reviewer who suggested soaking and it worked perfectly!  </li>
+      <li>I am very happy.  </li>
       <li>This is the best product I have ever bought to give a pedi.</li>
+      <li>best peels come after you have bathed or showered.</li>
+      <li>It is just the greatest for your feet.</li>
+      <li>This is marvelous!  </li>
+      <li>This b product is great!</li>
+      <li>Worked great!  </li>
+      <li>This stuff is awesome, I saw baby foot on a video, so I wanted to try it</li>
+      <li>a great product all around!</li>
+      <li>Best product ever used for my feet...definitely will purchase again and again...</li>
+      <li>Worked wonderfully.....</li>
+      <li>Thank you for a great product!</li>
+      <li>This stuff was the best stuff everrr.</li>
+      <li>Worked wonderfully.  </li>
+      <li>Worked awesome!!!</li>
+      <li>my feel look great!</li>
+      <li>Awesome.</li>
+      <li>Wonderful product!!!</li>
+      <li>Another awesome thing about this is how refreshed my feet feel after the peeling process is done.</li>
+      <li>awesome product.  </li>
+      <li>Great product!</li>
+      <li>This is a great product!  </li>
+      <li>Awesome product!</li>
+      <li>Great product!!!!!</li>
+      <li>Follow the instructions to the T and it will work perfectly!</li>
+      <li>Loved this product!!!</li>
+      <li>This Stuff is Great!!</li>
+      <li>Soaking feet as directed  is imperative  for best results.  </li>
+      <li>It just.... was not as awesome as I thought it would be.</li>
+      <li>Love this product!!!!</li>
+      <li>This stuff is great!!</li>
       <li>Awesome product that never disappoints.  </li>
+      <li>(well, as perfect as my feet can get!).</li>
+      <li>It was wonderful.</li>
+      <li>This works AWESOME!</li>
+      <li>This product is amazing!!!!!!!!  </li>
+      <li>but if you follow just that you won&#x27;t be the best results.</li>
+      <li>however I had to research how to get the best results from this product.</li>
+      <li>Excellent product</li>
+      <li>I loved the results!!</li>
+      <li>Thought i was taking a risk purchasing Babyfoot, but to my surprise the best decision i have made.</li>
+      <li>but the end result is awesome.</li>
+      <li>baby foot was awesome.</li>
+      <li>It would be best to take it off before you use Baby Foot.</li>
+      <li>It works best if you soak your feet each day to loosen up the skin that is peeling off.  </li>
       <li>This is incredible and I&#x27;m telling everyone about it!  </li>
+      <li>Perfect peeled my feet within a week</li>
+      <li>I&#x27;m impressed.</li>
+      <li>and I blow 7 bucks, best case it works as well as</li>
+      <li>and his feet look great, too!</li>
+      <li>But bear with it -- they will look great in the end!  </li>
+      <li>Works wonderfully</li>
+      <li>in a world where things just don&#x27;t do what they say they will I am happy to report THIS WORKS!!!!</li>
+      <li>All in all very happy with the outcome.</li>
       <li>This stuff is awesome..</li>
       <li>This is just the best I&#x27;ve found.</li>
+      <li>It was awesome.  </li>
+      <li>This is perfect for pampering the feet.  </li>
+      <li>They work the best</li>
+      <li>Worked beautifully!</li>
+      <li>Great product!  </li>
+      <li>This is THE BEST STUFF EVER!  </li>
+      <li>This stuff is great!  </li>
+      <li>Its freaky, but awesome.</li>
+      <li>Awesome product</li>
       <li>, it&#x27;s the best out there!  </li>
+      <li>Soak your feet in a bath every day for the best results&lt;br /&gt;3</li>
       <li>Excellent product, worked as described.  </li>
+      <li>Follow the for best results tips people have posted</li>
+      <li>best ever put the nail saline to shame</li>
+      <li>Great product!  </li>
+      <li>I loved it!!</li>
+      <li>I followed the instructions of the Reviewer who suggested soaking and it worked perfectly!  </li>
+      <li>Best product to exfoliate your feet!</li>
+      <li>YOU&#x27;RE WELCOME!</li>
+      <li>but this is Amazon&#x27;s #1 BEST SELLER in its category</li>
+      <li>He didn&#x27;t seem impressed</li>
+      <li>My daughter said it was the best stuff she&#x27;s ever used.</li>
+      <li>PERFECT</li>
+      <li>I was certainly happy I did!</li>
+      <li>but so worth it!!!!!!!</li>
+      <li>GREAT PRODUCT!</li>
+      <li>Both my husband and I have used it and had wonderful results.</li>
+      <li>works great!  </li>
+      <li>I LOVE this product !!!!</li>
+      <li>The directions say that you may need to use it again in order to get the best results.</li>
+      <li>This product was awesome !!!</li>
+      <li>Great product for use in the winter!</li>
+      <li>Product worked great!</li>
       <li>GREATEST THING FOR FEEET!!!!!</li>
+      <li>Excellent did its job</li>
+      <li>Works great!</li>
+      <li>Great product!!</li>
+      <li>It&#x27;s wonderful.  </li>
       <li>Awesome product!</li>
+      <li>This product is great!  </li>
       <li>I was very impressed with how well it worked on my heels.</li>
-      <li>AWESOME product.</li>
-      <li>Very happy with the results</li>
-      <li>my feet haven&#x27;t felt or looked this good in years!!!  </li>
-      <li>The best pedicure around.</li>
-      <li>Great product!</li>
-      <li>Works like a charm and my daughter was sooo happy!</li>
-      <li>I will update after my feet start to come apart. :D</li>
-      <li>It was the best product that i have ever used on my feet.  </li>
-      <li>this product is awesome!</li>
-      <li>What a great product!</li>
-      <li>this is the best think since sliced bread.  </li>
-      <li>This stuff is awesome!</li>
-      <li>Baby foot is amazing!!!</li>
-      <li>Feels so great!</li>
-      <li>Great product!</li>
-      <li>My feet feel and look wonderful!!</li>
-      <li>Wonderful results</li>
-      <li>Awesome stuff!!</li>
-      <li>My feet felt awesome afterwards!</li>
-      <li>Product worked beautifully! !!</li>
-      <li>Best product ever.  </li>
-      <li>/&gt;However, it wasn&#x27;t the perfect cure all I had hoped for.  </li>
-      <li>Best thing I&#x27;ve ever bought!</li>
-      <li>Love this stuff!!!!!</li>
-      <li>It is always wonderful to find a product that does what it says it will do!</li>
-      <li>This is awesome!!  </li>
-      <li>Great product!</li>
-      <li>Best thing I have ever done for my feet!!</li>
-      <li>my feet were wonderful again!</li>
-      <li>Great product!</li>
-      <li>It seems to work best when you pre soak your feet</li>
-      <li>Works amazing!!!</li>
-      <li>It worked wonderfully!</li>
-      <li>Nothing seems to help but the callous trimmers - all the cremes are just temporary at best</li>
-      <li>Best product ever!</li>
-      <li>Great product!</li>
-      <li>This product is incredible!  </li>
-      <li>it&#x27;s great!</li>
-      <li>Excellent product!!!</li>
-      <li>I am impressive with this product and have ordered another one for a friend.</li>
-      <li>Works awesomely!</li>
-      <li>lol!</li>
-      <li>I am so happy with the results!</li>
-      <li>Worked great!</li>
-      <li>This was AWESOME</li>
-      <li>It works great!</li>
-      <li>It&#x27;s absolutely amazing!!!</li>
-      <li>Great product!</li>
-      <li>Im happy to say this product WORKS!  </li>
-      <li>Wonderful product!</li>
-      <li>my feet are wonderful looking.  </li>
-      <li>It worked awesome!  </li>
-      <li>Excellent product!</li>
-      <li>Best callus product ever...</li>
-      <li>Great!</li>
-      <li>Prob best to use during the winter months.</li>
-      <li>This is the best product.  </li>
-      <li>It&#x27;s great!  </li>
-      <li>and now they are in great shape!  </li>
+      <li>It does work GREAT!</li>
 </ol>
 
 
 <h2>Negative Reviews</h2>
 <ol>
+<li> This is the best!!!</li>
 <li> but my feet feel wonderful.</li>
-<li> Worked great!  </li>
-<li> Worked wonderfully.  </li>
-<li> my feel look great!</li>
-<li> Awesome product!</li>
-<li> Follow the instructions to the T and it will work perfectly!</li>
-<li> Love this product!!!!</li>
-<li> and his feet look great, too!</li>
-<li> They work the best</li>
-<li> This is THE BEST STUFF EVER!  </li>
-<li> This stuff is awesome!</li>
-<li> I used two treatments over 6 months and was very happy with the results.</li>
-<li> This foot peel is excellent!</li>
-<li> I have used this 3 times and have been very happy with the results each time.</li>
-<li> Also, they had the very best price on Baby Foot I&#x27;ve ever seen!</li>
-<li> Great product!!</li>
-<li> and she was so happy with the result!</li>
-<li> This was the best!</li>
-<li> My feet felt so great afterwards!</li>
-<li> Worked as describe, excellent product.</li>
-<li> This product is awesome, I will continue to use every two to three months.</li>
-<li> This product is great!!</li>
-<li> worked great!!</li>
-<li> Thank you for a great product!!</li>
-<li> Awesome product I have been looking for this for 20 years</li>
-<li> but it is so wonderful</li>
-<li> I got best results by wearing the socks for a bit longer than instructed, and by soaking my feet before using and every day after until they stopped peeling.</li>
-<li> Awesome.</li>
-<li> Works great!!!</li>
-<li> works great!  </li>
-<li> I followed the instructions of the Reviewer who suggested soaking and it worked perfectly!  </li>
+<li> I am very happy.  </li>
 <li> This is the best product I have ever bought to give a pedi.</li>
+<li> best peels come after you have bathed or showered.</li>
+<li> It is just the greatest for your feet.</li>
+<li> This is marvelous!  </li>
+<li> This b product is great!</li>
+<li> Worked great!  </li>
+<li> This stuff is awesome, I saw baby foot on a video, so I wanted to try it</li>
+<li> a great product all around!</li>
+<li> Best product ever used for my feet...definitely will purchase again and again...</li>
+<li> Worked wonderfully.....</li>
+<li> Thank you for a great product!</li>
+<li> This stuff was the best stuff everrr.</li>
+<li> Worked wonderfully.  </li>
+<li> Worked awesome!!!</li>
+<li> my feel look great!</li>
+<li> Awesome.</li>
+<li> Wonderful product!!!</li>
+<li> Another awesome thing about this is how refreshed my feet feel after the peeling process is done.</li>
+<li> awesome product.  </li>
+<li> Great product!</li>
+<li> This is a great product!  </li>
+<li> Awesome product!</li>
+<li> Great product!!!!!</li>
+<li> Follow the instructions to the T and it will work perfectly!</li>
+<li> Loved this product!!!</li>
+<li> This Stuff is Great!!</li>
+<li> Soaking feet as directed  is imperative  for best results.  </li>
+<li> It just.... was not as awesome as I thought it would be.</li>
+<li> Love this product!!!!</li>
+<li> This stuff is great!!</li>
 <li> Awesome product that never disappoints.  </li>
+<li> (well, as perfect as my feet can get!).</li>
+<li> It was wonderful.</li>
+<li> This works AWESOME!</li>
+<li> This product is amazing!!!!!!!!  </li>
+<li> but if you follow just that you won&#x27;t be the best results.</li>
+<li> however I had to research how to get the best results from this product.</li>
+<li> Excellent product</li>
+<li> I loved the results!!</li>
+<li> Thought i was taking a risk purchasing Babyfoot, but to my surprise the best decision i have made.</li>
+<li> but the end result is awesome.</li>
+<li> baby foot was awesome.</li>
+<li> It would be best to take it off before you use Baby Foot.</li>
+<li> It works best if you soak your feet each day to loosen up the skin that is peeling off.  </li>
 <li> This is incredible and I&#x27;m telling everyone about it!  </li>
+<li> Perfect peeled my feet within a week</li>
+<li> I&#x27;m impressed.</li>
+<li> and I blow 7 bucks, best case it works as well as</li>
+<li> and his feet look great, too!</li>
+<li> But bear with it -- they will look great in the end!  </li>
+<li> Works wonderfully</li>
+<li> in a world where things just don&#x27;t do what they say they will I am happy to report THIS WORKS!!!!</li>
+<li> All in all very happy with the outcome.</li>
 <li> This stuff is awesome..</li>
 <li> This is just the best I&#x27;ve found.</li>
+<li> It was awesome.  </li>
+<li> This is perfect for pampering the feet.  </li>
+<li> They work the best</li>
+<li> Worked beautifully!</li>
+<li> Great product!  </li>
+<li> This is THE BEST STUFF EVER!  </li>
+<li> This stuff is great!  </li>
+<li> Its freaky, but awesome.</li>
+<li> Awesome product</li>
 <li> , it&#x27;s the best out there!  </li>
+<li> Soak your feet in a bath every day for the best results&lt;br /&gt;3</li>
 <li> Excellent product, worked as described.  </li>
+<li> Follow the for best results tips people have posted</li>
+<li> best ever put the nail saline to shame</li>
+<li> Great product!  </li>
+<li> I loved it!!</li>
+<li> I followed the instructions of the Reviewer who suggested soaking and it worked perfectly!  </li>
+<li> Best product to exfoliate your feet!</li>
+<li> YOU&#x27;RE WELCOME!</li>
+<li> but this is Amazon&#x27;s #1 BEST SELLER in its category</li>
+<li> He didn&#x27;t seem impressed</li>
+<li> My daughter said it was the best stuff she&#x27;s ever used.</li>
+<li> PERFECT</li>
+<li> I was certainly happy I did!</li>
+<li> but so worth it!!!!!!!</li>
+<li> GREAT PRODUCT!</li>
+<li> Both my husband and I have used it and had wonderful results.</li>
+<li> works great!  </li>
+<li> I LOVE this product !!!!</li>
+<li> The directions say that you may need to use it again in order to get the best results.</li>
+<li> This product was awesome !!!</li>
+<li> Great product for use in the winter!</li>
+<li> Product worked great!</li>
 <li> GREATEST THING FOR FEEET!!!!!</li>
+<li> Excellent did its job</li>
+<li> Works great!</li>
+<li> Great product!!</li>
+<li> It&#x27;s wonderful.  </li>
 <li> Awesome product!</li>
+<li> This product is great!  </li>
 <li> I was very impressed with how well it worked on my heels.</li>
-<li> AWESOME product.</li>
-<li> Very happy with the results</li>
-<li> my feet haven&#x27;t felt or looked this good in years!!!  </li>
-<li> The best pedicure around.</li>
-<li> Great product!</li>
-<li> Works like a charm and my daughter was sooo happy!</li>
-<li> I will update after my feet start to come apart. :D</li>
-<li> It was the best product that i have ever used on my feet.  </li>
-<li> this product is awesome!</li>
-<li> What a great product!</li>
-<li> this is the best think since sliced bread.  </li>
-<li> This stuff is awesome!</li>
-<li> Baby foot is amazing!!!</li>
-<li> Feels so great!</li>
-<li> Great product!</li>
-<li> My feet feel and look wonderful!!</li>
-<li> Wonderful results</li>
-<li> Awesome stuff!!</li>
-<li> My feet felt awesome afterwards!</li>
-<li> Product worked beautifully! !!</li>
-<li> Best product ever.  </li>
-<li> /&gt;However, it wasn&#x27;t the perfect cure all I had hoped for.  </li>
-<li> Best thing I&#x27;ve ever bought!</li>
-<li> Love this stuff!!!!!</li>
-<li> It is always wonderful to find a product that does what it says it will do!</li>
-<li> This is awesome!!  </li>
-<li> Great product!</li>
-<li> Best thing I have ever done for my feet!!</li>
-<li> my feet were wonderful again!</li>
-<li> Great product!</li>
-<li> It seems to work best when you pre soak your feet</li>
-<li> Works amazing!!!</li>
-<li> It worked wonderfully!</li>
-<li> Nothing seems to help but the callous trimmers - all the cremes are just temporary at best</li>
-<li> Best product ever!</li>
-<li> Great product!</li>
-<li> This product is incredible!  </li>
-<li> it&#x27;s great!</li>
-<li> Excellent product!!!</li>
-<li> I am impressive with this product and have ordered another one for a friend.</li>
-<li> Works awesomely!</li>
-<li> lol!</li>
-<li> I am so happy with the results!</li>
-<li> Worked great!</li>
-<li> This was AWESOME</li>
-<li> It works great!</li>
-<li> It&#x27;s absolutely amazing!!!</li>
-<li> Great product!</li>
-<li> Im happy to say this product WORKS!  </li>
-<li> Wonderful product!</li>
-<li> my feet are wonderful looking.  </li>
-<li> It worked awesome!  </li>
-<li> Excellent product!</li>
-<li> Best callus product ever...</li>
-<li> Great!</li>
-<li> Prob best to use during the winter months.</li>
-<li> This is the best product.  </li>
-<li> It&#x27;s great!  </li>
-<li> and now they are in great shape!  </li>
+<li> It does work GREAT!</li>
 </ol>
 
 <h2>All Reviews</h2>
@@ -2252,6 +2252,7 @@ modifiedAt: Thu Jan 09 2020 19:08:31 GMT+0530 (India Standard Time),
     <li> Initially it removes all your dry dead skin. Your feet will truly feel smooth like a babies foot. But after a week or so the dry skin returns.</li>
     <li> Did exactly what it said, peeled skin off feet. Feet look and feel great. No side effects</li>
 </ol>
+
 
 
 

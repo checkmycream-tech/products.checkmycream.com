@@ -3,8 +3,8 @@ title: DragonPad 32 Pcs Black Rod Makeup Brush Cosmetic Set Kit with Case,
 description: DragonPad 32 Pcs Black Rod Makeup Brush Cosmetic Set Kit with Case,
 author: Suvojit Manna,
 tags: DragonPad 32 Pcs Black Rod Makeup Brush Cosmetic Set Kit with Case,
-publishedAt: Thu Jan 09 2020 19:08:35 GMT+0530 (India Standard Time),
-modifiedAt: Thu Jan 09 2020 19:08:35 GMT+0530 (India Standard Time),
+publishedAt: Fri Jan 10 2020 15:00:16 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:16 GMT+0530 (India Standard Time),
 ---
 
 # [DragonPad 32 Pcs Black Rod Makeup Brush Cosmetic Set Kit with Case](https://products.checkmycream.com/products/DragonPad-32-Pcs-Black-Rod-Makeup-Brush-Cosmetic-Set-Kit-with-Case.html)
@@ -12,211 +12,211 @@ modifiedAt: Thu Jan 09 2020 19:08:35 GMT+0530 (India Standard Time),
 ### Positive Reviews
 
 <ol>
-      <li>They are great!</li>
+      <li>These are great!</li>
+      <li>These are so wonderful!  </li>
+      <li>and I was actually impressed with the quality considering the price.</li>
+      <li>Shipping was excellent</li>
+      <li>These brushes are excellent for the price.</li>
       <li>The brushes came and I have to say I was impressed by the fan brush.</li>
+      <li>W O N D E R F U L &lt;3 .</li>
+      <li>Regardless , I still purchased this set , and it was a GREAT IDEA .!!!  </li>
+      <li>/&gt;This said, I had a wonderful experience because as a person who doesn&#x27;t use face makeup except eyes and lips, that didn&#x27;t matter at all to me.  </li>
+      <li>I am very happy with my purchase!</li>
+      <li>Great product!</li>
+      <li>got a lot of learning but the product is awesome</li>
+      <li>great set !</li>
+      <li>but this one is one of the best sets that she has.&lt;br</li>
+      <li>great brushes!</li>
+      <li>Awesome Steal!</li>
+      <li>feet perfectly for a gift!&lt;br /&gt;I</li>
+      <li>Its not the best set of brushes but it gets the job done</li>
+      <li>They are great!</li>
+      <li>Not what I thought, but hey for the price...practice makes perfect.</li>
+      <li>The brushes are wonderful.</li>
+      <li>Good product but some brushes are not sturdy!!</li>
+      <li>but they are great!!</li>
+      <li>so this works perfectly for me, and there are a TON of them too.  </li>
+      <li>(The blush brushes aren&#x27;t the best but the range of eye-shadow brushes make up for it.</li>
+      <li>The brushes should have been labeled and that would have made the set perfect.</li>
+      <li>Great quality!</li>
+      <li>They do not shed at all witch is great!</li>
+      <li>Came on time and my daughters are happy with the product!</li>
+      <li>/&gt;However, these are perfect perfect perfect (Yes, I meant to say that three times!)</li>
+      <li>this is the perfect kit to have in your collection of you</li>
+      <li>Awesome starter set.</li>
+      <li>THEY WERE VERY GOOD!!!</li>
+      <li>These seem to be of the best quality of all the brushes.</li>
       <li>great!</li>
       <li>Wonderful quality-</li>
       <li>Also, there is a perfect variation of brush shapes and sizes, i&#x27;m set with all these brushes.</li>
-      <li>Great buy!!</li>
-      <li>Over all I was very happy with this order</li>
-      <li>Looks great!</li>
-      <li>I was very happy with my purchase .I</li>
-      <li>Not overly impressed, but not upset with purchase.</li>
-      <li>Not the best quality, but there are a lot of brushes in the package.</li>
-      <li>Very impressed.</li>
-      <li>best price ever !!</li>
-      <li>They are absolutely awesome.</li>
-      <li>I&#x27;m very happy with my purchase!</li>
-      <li>totally awesome.</li>
-      <li>great price!</li>
-      <li>Excellent product!!!!</li>
-      <li>Not the greatest brushes in the world.</li>
-      <li>Very happy with product and all the brushes are awesome!</li>
-      <li>but over all awesome brushes!</li>
-      <li>great for the price!</li>
-      <li>The rest of the brushes are great!</li>
-      <li>Loving them!!!!!</li>
-      <li>Best brushes I&#x27;ve ever had, beats the name brands.</li>
-      <li>Great product!</li>
-      <li>But the brushes are great quality!!!</li>
-      <li>but they are not the best and there is a lot of multiples.</li>
-      <li>Great quality brushes!</li>
-      <li>Everything is great!</li>
-      <li>It&#x27;s surely a great buy!</li>
-      <li>But an excellent price.  </li>
-      <li>Not the best brushes i have ever purchased!</li>
-      <li>My best friend had ordered from this vendor &amp; recommend it</li>
-      <li>I have had them for over six months now and they are holding up perfectly.</li>
-      <li>but if this kit included that it would be absolutely perfect!</li>
-      <li>Very good for the price!</li>
-      <li>all brushes work perfect</li>
-      <li>They&#x27;re wonderful!</li>
-      <li>Great brushes for the price!</li>
-      <li>I&#x27;m very happy I bought this!</li>
-      <li>great for MUA newbes wannabes and vets!</li>
-      <li>great brushes!</li>
-      <li>great set !</li>
-      <li>These brushes are excellent for the price.</li>
-      <li>and I was actually impressed with the quality considering the price.</li>
-      <li>I am very happy with my purchase!</li>
-      <li>got a lot of learning but the product is awesome</li>
-      <li>feet perfectly for a gift!&lt;br /&gt;I</li>
-      <li>Incredible brushes for this price!!!</li>
-      <li>Wonderful case as well.</li>
-      <li>Very impressed with this brush set.  </li>
-      <li>I&#x27;m actually very impressed</li>
-      <li>These are great!  </li>
-      <li>and this is close to perfect.</li>
-      <li>What a great kit to have!</li>
-      <li>This is an awesome brush collection!!!  </li>
-      <li>Great set!!</li>
-      <li>awesome!</li>
-      <li>Ive had no problems with them at all they&#x27;ve been wonderful!</li>
-      <li>wonderful quality!</li>
-      <li>They Are Perfect</li>
-      <li>but the quality isn&#x27;t the greatest.</li>
-      <li>She&#x27;s a beautician and make up artist and the brushes are awesome!  </li>
-      <li>The eye shadow brushes are perfect.</li>
-      <li>The rest are great!</li>
-      <li>This brush set is perfect for beginners to begin experimenting with foundation, blush, concealer, powder brushes.  </li>
-      <li>the price makes them even better!!!!!</li>
-      <li>This was perfect for me.</li>
-      <li>The angle brushes ARE THE PERFECT.</li>
-      <li>Very happy!!</li>
-      <li>They do not shed at all witch is great!</li>
-      <li>but they are great!!</li>
-      <li>but this one is one of the best sets that she has.&lt;br</li>
-      <li>Awesome Steal!</li>
-      <li>These are so wonderful!  </li>
-      <li>Good product but some brushes are not sturdy!!</li>
-      <li>Great quality!</li>
-      <li>this is the perfect kit to have in your collection of you</li>
-      <li>Awesome starter set.</li>
+      <li>I especially love the case for them</li>
       <li>Awesome!</li>
+      <li>great for MUA newbes wannabes and vets!</li>
       <li>Great!</li>
       <li>And the price is excellent against quality..</li>
+      <li>Very happy....</li>
+      <li>Incredible brushes for this price!!!</li>
       <li>and my daughter said the variety of brushes was perfect for applying her make-up.</li>
+      <li>Great buy!!</li>
+      <li>That work wonderfully</li>
+      <li>greate price, awesome product</li>
+      <li>but besides the smell I&#x27;m very happy</li>
+      <li>I was so happy when I opened it!</li>
+      <li>Loved them!!</li>
+      <li>These brushes are awesome!</li>
+      <li>I&#x27;m very happy I bought this!</li>
+      <li>Very happy!!</li>
+      <li>The angle brushes ARE THE PERFECT.</li>
+      <li>Great brushes for the price!</li>
+      <li>Otherwise these brushes are great for their price!</li>
+      <li>Im happy with my purchased!!</li>
+      <li>IT&#x27;S AMAZING!!!!!</li>
+      <li>the price is awesome btw.</li>
+      <li>The brushes are wonderful.</li>
+      <li>They&#x27;re wonderful!</li>
+      <li>These brushes are awesome!</li>
+      <li>Which are perfect!</li>
+      <li>Over all I was very happy with this order</li>
+      <li>you&#x27;er getting a great deal!</li>
+      <li>Looks great!</li>
+      <li>The quality is great!</li>
+      <li>but these brushes are the best.</li>
+      <li>GREAT USE!</li>
+      <li>Wonderful case as well.</li>
       <li>, I am very happy for what I paid!</li>
+      <li>They come in many sizes.... !!!!!</li>
+      <li>Basically Great Buy!</li>
+      <li>foundation brushes are usually best bought alone</li>
+      <li>Very impressed with this brush set.  </li>
+      <li>The rest I am very happy with!</li>
+      <li>all brushes work perfect</li>
+      <li>but the resare awesome!!!</li>
+      <li>My wife purchased this for herself and said it was one of the best investments she ever made!  </li>
+      <li>they are the best brushes I have ever owned , People can also see the difference in my make up I recommend</li>
+      <li>But after just taking them out of the package &amp; washing they seem like one of the BEST MAKEUP PURCHASES</li>
+      <li>Great addition to my starter kit!</li>
+      <li>Very good for the price!</li>
+      <li>This was a great buy!</li>
+      <li>I just love them!!!!</li>
+      <li>over than that PERFECT !!!!!</li>
+      <li>Perfect gift for my granddaughter</li>
+      <li>awesome product!</li>
+      <li>With these u can create the perfect eye each time.</li>
+      <li>These are not the best brushes I&#x27;ve used, but if you are just getting into makeup then they will work for you.</li>
+      <li>I&#x27;m actually very impressed</li>
+      <li>It is just awesome.</li>
+      <li>What awesome brushes!</li>
       <li>These brushes are great!</li>
+      <li>but they are perfect!</li>
+      <li>This was perfect for me.</li>
+      <li>These are some of the BEST brushes I&#x27;ve used.</li>
+      <li>Theres an awesome range of sizes</li>
       <li>Some are perfect for contouring!</li>
-      <li>The eye and brow brushes are awesome!</li>
-      <li>It was a great buy!  </li>
-      <li>One of the best purchases I have ever made!</li>
-      <li>Everything was so awesome!!!</li>
-      <li>Its awesome.</li>
-      <li>The shipping was incredible!</li>
-      <li>These are a great deal!</li>
-      <li>If you are begining in makeup and don&#x27;t want to spend a ton of money on brushes, these are perfect.</li>
-      <li>/&gt;Buyers beware just because it looks like a deal, and a great item means nothing when it&#x27;s being used.&lt;br /&gt;&lt;br /&gt;Eeeeewwww!</li>
-      <li>they look very good!</li>
-      <li>It arrived in the time frame it was suppose too and works perfectly.</li>
-      <li>I just got the brush set in today and the eye makeup brushes are perfect!</li>
-      <li>Great products!  </li>
 </ol>
 
 
 <h2>Negative Reviews</h2>
 <ol>
-<li> They are great!</li>
+<li> These are great!</li>
+<li> These are so wonderful!  </li>
+<li> and I was actually impressed with the quality considering the price.</li>
+<li> Shipping was excellent</li>
+<li> These brushes are excellent for the price.</li>
 <li> The brushes came and I have to say I was impressed by the fan brush.</li>
+<li> W O N D E R F U L &lt;3 .</li>
+<li> Regardless , I still purchased this set , and it was a GREAT IDEA .!!!  </li>
+<li> /&gt;This said, I had a wonderful experience because as a person who doesn&#x27;t use face makeup except eyes and lips, that didn&#x27;t matter at all to me.  </li>
+<li> I am very happy with my purchase!</li>
+<li> Great product!</li>
+<li> got a lot of learning but the product is awesome</li>
+<li> great set !</li>
+<li> but this one is one of the best sets that she has.&lt;br</li>
+<li> great brushes!</li>
+<li> Awesome Steal!</li>
+<li> feet perfectly for a gift!&lt;br /&gt;I</li>
+<li> Its not the best set of brushes but it gets the job done</li>
+<li> They are great!</li>
+<li> Not what I thought, but hey for the price...practice makes perfect.</li>
+<li> The brushes are wonderful.</li>
+<li> Good product but some brushes are not sturdy!!</li>
+<li> but they are great!!</li>
+<li> so this works perfectly for me, and there are a TON of them too.  </li>
+<li> (The blush brushes aren&#x27;t the best but the range of eye-shadow brushes make up for it.</li>
+<li> The brushes should have been labeled and that would have made the set perfect.</li>
+<li> Great quality!</li>
+<li> They do not shed at all witch is great!</li>
+<li> Came on time and my daughters are happy with the product!</li>
+<li> /&gt;However, these are perfect perfect perfect (Yes, I meant to say that three times!)</li>
+<li> this is the perfect kit to have in your collection of you</li>
+<li> Awesome starter set.</li>
+<li> THEY WERE VERY GOOD!!!</li>
+<li> These seem to be of the best quality of all the brushes.</li>
 <li> great!</li>
 <li> Wonderful quality-</li>
 <li> Also, there is a perfect variation of brush shapes and sizes, i&#x27;m set with all these brushes.</li>
-<li> Great buy!!</li>
-<li> Over all I was very happy with this order</li>
-<li> Looks great!</li>
-<li> I was very happy with my purchase .I</li>
-<li> Not overly impressed, but not upset with purchase.</li>
-<li> Not the best quality, but there are a lot of brushes in the package.</li>
-<li> Very impressed.</li>
-<li> best price ever !!</li>
-<li> They are absolutely awesome.</li>
-<li> I&#x27;m very happy with my purchase!</li>
-<li> totally awesome.</li>
-<li> great price!</li>
-<li> Excellent product!!!!</li>
-<li> Not the greatest brushes in the world.</li>
-<li> Very happy with product and all the brushes are awesome!</li>
-<li> but over all awesome brushes!</li>
-<li> great for the price!</li>
-<li> The rest of the brushes are great!</li>
-<li> Loving them!!!!!</li>
-<li> Best brushes I&#x27;ve ever had, beats the name brands.</li>
-<li> Great product!</li>
-<li> But the brushes are great quality!!!</li>
-<li> but they are not the best and there is a lot of multiples.</li>
-<li> Great quality brushes!</li>
-<li> Everything is great!</li>
-<li> It&#x27;s surely a great buy!</li>
-<li> But an excellent price.  </li>
-<li> Not the best brushes i have ever purchased!</li>
-<li> My best friend had ordered from this vendor &amp; recommend it</li>
-<li> I have had them for over six months now and they are holding up perfectly.</li>
-<li> but if this kit included that it would be absolutely perfect!</li>
-<li> Very good for the price!</li>
-<li> all brushes work perfect</li>
-<li> They&#x27;re wonderful!</li>
-<li> Great brushes for the price!</li>
-<li> I&#x27;m very happy I bought this!</li>
-<li> great for MUA newbes wannabes and vets!</li>
-<li> great brushes!</li>
-<li> great set !</li>
-<li> These brushes are excellent for the price.</li>
-<li> and I was actually impressed with the quality considering the price.</li>
-<li> I am very happy with my purchase!</li>
-<li> got a lot of learning but the product is awesome</li>
-<li> feet perfectly for a gift!&lt;br /&gt;I</li>
-<li> Incredible brushes for this price!!!</li>
-<li> Wonderful case as well.</li>
-<li> Very impressed with this brush set.  </li>
-<li> I&#x27;m actually very impressed</li>
-<li> These are great!  </li>
-<li> and this is close to perfect.</li>
-<li> What a great kit to have!</li>
-<li> This is an awesome brush collection!!!  </li>
-<li> Great set!!</li>
-<li> awesome!</li>
-<li> Ive had no problems with them at all they&#x27;ve been wonderful!</li>
-<li> wonderful quality!</li>
-<li> They Are Perfect</li>
-<li> but the quality isn&#x27;t the greatest.</li>
-<li> She&#x27;s a beautician and make up artist and the brushes are awesome!  </li>
-<li> The eye shadow brushes are perfect.</li>
-<li> The rest are great!</li>
-<li> This brush set is perfect for beginners to begin experimenting with foundation, blush, concealer, powder brushes.  </li>
-<li> the price makes them even better!!!!!</li>
-<li> This was perfect for me.</li>
-<li> The angle brushes ARE THE PERFECT.</li>
-<li> Very happy!!</li>
-<li> They do not shed at all witch is great!</li>
-<li> but they are great!!</li>
-<li> but this one is one of the best sets that she has.&lt;br</li>
-<li> Awesome Steal!</li>
-<li> These are so wonderful!  </li>
-<li> Good product but some brushes are not sturdy!!</li>
-<li> Great quality!</li>
-<li> this is the perfect kit to have in your collection of you</li>
-<li> Awesome starter set.</li>
+<li> I especially love the case for them</li>
 <li> Awesome!</li>
+<li> great for MUA newbes wannabes and vets!</li>
 <li> Great!</li>
 <li> And the price is excellent against quality..</li>
+<li> Very happy....</li>
+<li> Incredible brushes for this price!!!</li>
 <li> and my daughter said the variety of brushes was perfect for applying her make-up.</li>
+<li> Great buy!!</li>
+<li> That work wonderfully</li>
+<li> greate price, awesome product</li>
+<li> but besides the smell I&#x27;m very happy</li>
+<li> I was so happy when I opened it!</li>
+<li> Loved them!!</li>
+<li> These brushes are awesome!</li>
+<li> I&#x27;m very happy I bought this!</li>
+<li> Very happy!!</li>
+<li> The angle brushes ARE THE PERFECT.</li>
+<li> Great brushes for the price!</li>
+<li> Otherwise these brushes are great for their price!</li>
+<li> Im happy with my purchased!!</li>
+<li> IT&#x27;S AMAZING!!!!!</li>
+<li> the price is awesome btw.</li>
+<li> The brushes are wonderful.</li>
+<li> They&#x27;re wonderful!</li>
+<li> These brushes are awesome!</li>
+<li> Which are perfect!</li>
+<li> Over all I was very happy with this order</li>
+<li> you&#x27;er getting a great deal!</li>
+<li> Looks great!</li>
+<li> The quality is great!</li>
+<li> but these brushes are the best.</li>
+<li> GREAT USE!</li>
+<li> Wonderful case as well.</li>
 <li> , I am very happy for what I paid!</li>
+<li> They come in many sizes.... !!!!!</li>
+<li> Basically Great Buy!</li>
+<li> foundation brushes are usually best bought alone</li>
+<li> Very impressed with this brush set.  </li>
+<li> The rest I am very happy with!</li>
+<li> all brushes work perfect</li>
+<li> but the resare awesome!!!</li>
+<li> My wife purchased this for herself and said it was one of the best investments she ever made!  </li>
+<li> they are the best brushes I have ever owned , People can also see the difference in my make up I recommend</li>
+<li> But after just taking them out of the package &amp; washing they seem like one of the BEST MAKEUP PURCHASES</li>
+<li> Great addition to my starter kit!</li>
+<li> Very good for the price!</li>
+<li> This was a great buy!</li>
+<li> I just love them!!!!</li>
+<li> over than that PERFECT !!!!!</li>
+<li> Perfect gift for my granddaughter</li>
+<li> awesome product!</li>
+<li> With these u can create the perfect eye each time.</li>
+<li> These are not the best brushes I&#x27;ve used, but if you are just getting into makeup then they will work for you.</li>
+<li> I&#x27;m actually very impressed</li>
+<li> It is just awesome.</li>
+<li> What awesome brushes!</li>
 <li> These brushes are great!</li>
+<li> but they are perfect!</li>
+<li> This was perfect for me.</li>
+<li> These are some of the BEST brushes I&#x27;ve used.</li>
+<li> Theres an awesome range of sizes</li>
 <li> Some are perfect for contouring!</li>
-<li> The eye and brow brushes are awesome!</li>
-<li> It was a great buy!  </li>
-<li> One of the best purchases I have ever made!</li>
-<li> Everything was so awesome!!!</li>
-<li> Its awesome.</li>
-<li> The shipping was incredible!</li>
-<li> These are a great deal!</li>
-<li> If you are begining in makeup and don&#x27;t want to spend a ton of money on brushes, these are perfect.</li>
-<li> /&gt;Buyers beware just because it looks like a deal, and a great item means nothing when it&#x27;s being used.&lt;br /&gt;&lt;br /&gt;Eeeeewwww!</li>
-<li> they look very good!</li>
-<li> It arrived in the time frame it was suppose too and works perfectly.</li>
-<li> I just got the brush set in today and the eye makeup brushes are perfect!</li>
-<li> Great products!  </li>
 </ol>
 
 <h2>All Reviews</h2>
@@ -1730,6 +1730,7 @@ modifiedAt: Thu Jan 09 2020 19:08:35 GMT+0530 (India Standard Time),
     <li> I love this set! It is a great deal for the amount of brushes you get. The only thing I don&#x27;t like too much about it is the quality. Some brushes shed a little but the majority of them were awesome and applied makeup smoothly. It&#x27;s definitely very good quality for the money!</li>
     <li> the bigger brushes are very rough a nice beginner set... its cheap.. and the smaller brushes arent too bad. the carrier is decent as well overall was satisfied with the purchase as some of these brushes can cost twice the price of the whole kit! you end up getting more than what you pay for fortunately.</li>
 </ol>
+
 
 
 

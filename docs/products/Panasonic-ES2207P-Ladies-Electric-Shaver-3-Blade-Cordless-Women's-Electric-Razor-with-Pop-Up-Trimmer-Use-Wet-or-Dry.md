@@ -3,8 +3,8 @@ title: Panasonic ES2207P Ladies Electric Shaver, 3-Blade Cordless Women’s Elec
 description: Panasonic ES2207P Ladies Electric Shaver, 3-Blade Cordless Women’s Electric Razor with Pop-Up Trimmer, Use Wet or Dry,
 author: Suvojit Manna,
 tags: Panasonic ES2207P Ladies Electric Shaver, 3-Blade Cordless Women’s Electric Razor with Pop-Up Trimmer, Use Wet or Dry,
-publishedAt: Thu Jan 09 2020 19:08:24 GMT+0530 (India Standard Time),
-modifiedAt: Thu Jan 09 2020 19:08:24 GMT+0530 (India Standard Time),
+publishedAt: Fri Jan 10 2020 14:59:24 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:59:24 GMT+0530 (India Standard Time),
 ---
 
 # [Panasonic ES2207P Ladies Electric Shaver, 3-Blade Cordless Women’s Electric Razor with Pop-Up Trimmer, Use Wet or Dry](https://products.checkmycream.com/products/Panasonic-ES2207P-Ladies-Electric-Shaver-3-Blade-Cordless-Women&#x27;s-Electric-Razor-with-Pop-Up-Trimmer-Use-Wet-or-Dry.html)
@@ -12,211 +12,211 @@ modifiedAt: Thu Jan 09 2020 19:08:24 GMT+0530 (India Standard Time),
 ### Positive Reviews
 
 <ol>
+      <li>My wife loves this thing, she said that its the best electric razor she has ever used &amp;#34;anywhere&amp;#34;.</li>
+      <li>This razor gives me the best shave I&#x27;ve had in all those years</li>
       <li>Best electric shaver I&#x27;ve had.</li>
       <li>Excellent product.  </li>
+      <li>Great shaver!</li>
+      <li>The best electric razor I found.</li>
       <li>I have had mine for over a year now and it still works wonderfully!</li>
+      <li>This is perfect for charging it in the bathroom.&lt;br /&gt;&lt;br</li>
+      <li>I am very happy with this razor.</li>
+      <li>Perfect for shaving my legs or my lady parts when I&amp;#34;m in a hurry and don&#x27;t want to lather everything up and do it in the shower.  </li>
+      <li>Best purchase of my life!</li>
+      <li>She was very happy with it.</li>
+      <li>If you have any questions, please comment below and I will try to answer them to the best of my knowledge.</li>
+      <li>So Great!</li>
+      <li>this is the best electric razor I have ever owned..</li>
+      <li>While it was still working it worked great though!</li>
+      <li>Works great!</li>
+      <li>I&#x27;ve tried a couple of electric shavers, but this is the best.</li>
+      <li>I am very happy.</li>
+      <li>It works wonderfully.</li>
       <li>My razor is wonderful and I don&#x27;t need to charge it that often.</li>
+      <li>works wonderful for once no irritation</li>
       <li>This is the best electric razor I have ever got myself.</li>
+      <li>Panasonic is AWESOME!!!</li>
+      <li>, she never gets hurt with this shaver and her skin looks wonderful.</li>
       <li>I wasnt all that impressed.</li>
+      <li>Works best when fully charged.</li>
+      <li>I&#x27;m very happy that it doesn&#x27;t require batteries and that the charger is a cordless 1.5&amp;#34;</li>
+      <li>Sooo impressed!</li>
+      <li>If you have any questions, please comment below and I will try to answer them to the best of my knowledge.</li>
+      <li>and it works great!  </li>
+      <li>Great shaver !</li>
+      <li>gave this to wife, she said it&#x27;s one of the best shavers she ahs used.</li>
+      <li>This shaver is the best I have used.  </li>
+      <li>Best razor on the market.</li>
+      <li>A great shave too!</li>
+      <li>The leading clippers make this the best electric razor I&#x27;ve ever used.</li>
+      <li>It worked great!  </li>
+      <li>Great razor!</li>
+      <li>, the shaver itself is great!</li>
+      <li>I started doubting if this panasonic razor had ever been as awesome as I had thought it was.</li>
+      <li>but this is the best I&#x27;ve owned.</li>
+      <li>My legs feel perfect!</li>
+      <li>Excellent working, without battery exchange and using the charging instead</li>
+      <li>and I still get excellent results.  </li>
+      <li>Excellent item!</li>
+      <li>Perhaps one of the best things I&#x27;ve ever ordered from Amazon.</li>
+      <li>Excellent!</li>
+      <li>and I&#x27;m very happy with it.</li>
       <li>Best electric razor I have found for under $100.</li>
       <li>I was really impressed.</li>
+      <li>I have been very happy with this purchase.</li>
       <li>I also remember them not giving the best shave.&lt;br /&gt;&lt;br</li>
+      <li>It works perfectly.</li>
+      <li>A great product!</li>
+      <li>it was worked perfectly.</li>
+      <li>Great job, Panasonic!</li>
+      <li>I feel wonderful!</li>
+      <li>but it is great in a pinch when you are running out of time!  </li>
       <li>/&gt;I&#x27;m very happy with this purchase.</li>
-      <li>Well, it&#x27;s not the best shave</li>
-      <li>I will be very happy with this Panasonic shaver.</li>
-      <li>BEST decision ever.</li>
-      <li>It is excellent for shaving legs at any length and it does an awesome job.  </li>
-      <li>I was very happy for 4 months.  </li>
-      <li>this is an excellent razor.  </li>
-      <li>This is an excellent shaver.</li>
-      <li>Wonderful product.</li>
-      <li>This one is the best one I have had, cuts close and keeps</li>
-      <li>and I&#x27;m very happy I did.</li>
-      <li>and she says it works great!</li>
-      <li>She is very happy with it</li>
-      <li>The best electric shaver I&#x27;ve ever tried.</li>
-      <li>This works great!</li>
-      <li>Great product for the price!</li>
-      <li>2013--&lt;br /&gt;I&#x27;ve had this for a couple of months now and I am very happy with it.</li>
-      <li>Overnight does a real good job of recharging.</li>
-      <li>GREAT!!!</li>
-      <li>Not the best  ...</li>
-      <li>Now that I have this Panasonic I think that it is the best yet.</li>
-      <li>What a beautiful razor!</li>
-      <li>Excellent for my daughter (12) who wanted to start shaving her legs....</li>
-      <li>Otherwise, once you get the hang of it, it is awesome!</li>
-      <li>Excellent shaver.</li>
-      <li>The PANASONIC ES2207P CLOSE CURVES rechargeable shaver is perfect for what I need it for.</li>
-      <li>Anyway, it works perfectly.</li>
-      <li>I paid $27 at Amazon for this replacement and am now very happy that I did....</li>
-      <li>Great product!!!</li>
-      <li>Ordered for my wife &amp; she says it does the best of any razor she has had.</li>
-      <li>it is perfect for my legs</li>
-      <li>This is a great product!</li>
-      <li>Once I realized I wasn&#x27;t holding it at a 90 degree angle, it was awesome</li>
-      <li>and I am very very happy with it!  </li>
-      <li>I AM VERY IMPRESSED!</li>
-      <li>It&#x27;s great!</li>
-      <li>and it also works wonderfully.</li>
-      <li>It was great while it lasted!!</li>
-      <li>Works excellent!</li>
-      <li>It does a wonderful job.  </li>
-      <li>wonderful is all I can say.</li>
-      <li>Best one I&#x27;ve ever had.</li>
-      <li>The perfect first-time shaving tool!</li>
-      <li>This is perfect.</li>
-      <li>the shaver part is great!</li>
-      <li>It&#x27;s AWESOME and doesn&#x27;t leave me with blemishes or any type of redness.  </li>
-      <li>This is an excellent shaver.  </li>
-      <li>the best one i&#x27;ve ever owned.</li>
-      <li>This is the perfect solution.  </li>
-      <li>She had this brand before but this model is perfect for her.</li>
-      <li>THE SHAVER WORKS GREAT!</li>
-      <li>Very happy.</li>
-      <li>Excellent shaver, great price!  </li>
-      <li>Very happy with purchase!  </li>
-      <li>Excellent shaver.  </li>
-      <li>Excellent close shaving for legs and underarms.  </li>
-      <li>This suited my needs perfectly.</li>
-      <li>Wonderful razor.</li>
-      <li>Best electric shaver I ever used</li>
-      <li>Perfect for my wife, sinch to setup and use.</li>
-      <li>Awesome.</li>
-      <li>Best electric razor I&#x27;ve found.</li>
-      <li>My daughter says this is the best razor ever.</li>
-      <li>Works great and made well!</li>
-      <li>Best for price!</li>
+      <li>Excellent product,</li>
+      <li>Comes with a convenient charging station that is compact so that it doesn&#x27;t take up two  electrical outlets. :D</li>
+      <li>What a great find!</li>
+      <li>I read the reviews of all the shavers and thought this one sounded the best.  </li>
+      <li>I looked and felt great!</li>
+      <li>Great razor!  </li>
+      <li>give this electro shaver 5 star comment excellent</li>
       <li>and it works great!</li>
+      <li>Well, it&#x27;s not the best shave</li>
+      <li>Wonderful--Simply wonderful!</li>
+      <li>She is very happy with the results and she isn&#x27;t using up all the bandaids.</li>
+      <li>i researched a bunch of ladies razors and this got the best reviews...</li>
+      <li>I will be very happy with this Panasonic shaver.</li>
+      <li>This is the perfect shaver for me.</li>
+      <li>but it works great!!</li>
+      <li>I was very happy with this razor when I bought it.</li>
+      <li>Very impressed with this purchase.</li>
+      <li>It is a great buy for the price and quality of the shaver!</li>
+      <li>I do think it works best for the bikini area -</li>
+      <li>/&gt;Amazon is the best place to shop.</li>
+      <li>Awesome price.</li>
       <li>As some one with cancer the convience of this product is awesome.</li>
-      <li>soap seems to offer the best shave.</li>
-      <li>the best I can get without waxing and without risking the Nair.&lt;br /&gt;&lt;br</li>
-      <li>so this is perfect.</li>
-      <li>Everything is perfect!</li>
-      <li>We r very happy !</li>
-      <li>I&#x27;m very happy with this shaver.  </li>
-      <li>This is the best electric razor I&#x27;ve ever owned.  </li>
-      <li>best women&#x27;s electric razor I have tried!</li>
-      <li>I&#x27;ve often traveled with this excellent shaver-</li>
-      <li>You&#x27;ll be VERY GLAD you did!!!!</li>
-      <li>This one shaves perfectly, fits well in the hand while your using it</li>
-      <li>Might be the perfect bush mower.</li>
-      <li>It&#x27;s perfect all around!</li>
-      <li>I am so happy that I ordered this!</li>
-      <li>I was very happy with how close it shaved and how it preformed in the shower.</li>
-      <li>I&#x27;ve purchased razors like this before and have never been impressed by how close they can shave, so I used it as an emergency, \\&quot;yikes!</li>
-      <li>It is awesome to be out of water.</li>
-      <li>Very happy with my purchase.</li>
-      <li>Perfect electric razor!</li>
-      <li>Very impressed with the closeness of the shave.</li>
-      <li>Can I just say how amazing this product is!!!!</li>
-      <li>So excited!!!!!</li>
-      <li>I am very happy with this product and am ordering another one for my vacation</li>
-      <li>I think, however, that the Panasonic is the best of the two....</li>
+      <li>Perfect for travel in US.</li>
+      <li>trying to look their best.</li>
+      <li>BEST decision ever.</li>
+      <li>I am very happy with it.</li>
+      <li>Happy!</li>
+      <li>Am very happy with it.</li>
+      <li>Excellent shaver.</li>
+      <li>I am very happy with my purchase and would recommend it to any one considering buying a ladies razor.</li>
+      <li>I was very impressed with the performance of this shaver,  however  </li>
+      <li>Wonderful shaver.</li>
+      <li>price is perfect too!&lt;br /&gt;&lt;br /&gt;I</li>
+      <li>Having health issues and not always feeling up to standing in the shower, this is wonderful.  </li>
+      <li>The best part is the battery life.</li>
+      <li>This is perfect because I don&#x27;t like shavers that lift and cut off the hair below the skin.</li>
+      <li>To me that is wonderful because I use it on my face</li>
+      <li>Awesome!!!</li>
+      <li>Excellent shaver.  </li>
+      <li>This is probably the best I&#x27;ve ever used.</li>
 </ol>
 
 
 <h2>Negative Reviews</h2>
 <ol>
+<li> My wife loves this thing, she said that its the best electric razor she has ever used &amp;#34;anywhere&amp;#34;.</li>
+<li> This razor gives me the best shave I&#x27;ve had in all those years</li>
 <li> Best electric shaver I&#x27;ve had.</li>
 <li> Excellent product.  </li>
+<li> Great shaver!</li>
+<li> The best electric razor I found.</li>
 <li> I have had mine for over a year now and it still works wonderfully!</li>
+<li> This is perfect for charging it in the bathroom.&lt;br /&gt;&lt;br</li>
+<li> I am very happy with this razor.</li>
+<li> Perfect for shaving my legs or my lady parts when I&amp;#34;m in a hurry and don&#x27;t want to lather everything up and do it in the shower.  </li>
+<li> Best purchase of my life!</li>
+<li> She was very happy with it.</li>
+<li> If you have any questions, please comment below and I will try to answer them to the best of my knowledge.</li>
+<li> So Great!</li>
+<li> this is the best electric razor I have ever owned..</li>
+<li> While it was still working it worked great though!</li>
+<li> Works great!</li>
+<li> I&#x27;ve tried a couple of electric shavers, but this is the best.</li>
+<li> I am very happy.</li>
+<li> It works wonderfully.</li>
 <li> My razor is wonderful and I don&#x27;t need to charge it that often.</li>
+<li> works wonderful for once no irritation</li>
 <li> This is the best electric razor I have ever got myself.</li>
+<li> Panasonic is AWESOME!!!</li>
+<li> , she never gets hurt with this shaver and her skin looks wonderful.</li>
 <li> I wasnt all that impressed.</li>
+<li> Works best when fully charged.</li>
+<li> I&#x27;m very happy that it doesn&#x27;t require batteries and that the charger is a cordless 1.5&amp;#34;</li>
+<li> Sooo impressed!</li>
+<li> If you have any questions, please comment below and I will try to answer them to the best of my knowledge.</li>
+<li> and it works great!  </li>
+<li> Great shaver !</li>
+<li> gave this to wife, she said it&#x27;s one of the best shavers she ahs used.</li>
+<li> This shaver is the best I have used.  </li>
+<li> Best razor on the market.</li>
+<li> A great shave too!</li>
+<li> The leading clippers make this the best electric razor I&#x27;ve ever used.</li>
+<li> It worked great!  </li>
+<li> Great razor!</li>
+<li> , the shaver itself is great!</li>
+<li> I started doubting if this panasonic razor had ever been as awesome as I had thought it was.</li>
+<li> but this is the best I&#x27;ve owned.</li>
+<li> My legs feel perfect!</li>
+<li> Excellent working, without battery exchange and using the charging instead</li>
+<li> and I still get excellent results.  </li>
+<li> Excellent item!</li>
+<li> Perhaps one of the best things I&#x27;ve ever ordered from Amazon.</li>
+<li> Excellent!</li>
+<li> and I&#x27;m very happy with it.</li>
 <li> Best electric razor I have found for under $100.</li>
 <li> I was really impressed.</li>
+<li> I have been very happy with this purchase.</li>
 <li> I also remember them not giving the best shave.&lt;br /&gt;&lt;br</li>
+<li> It works perfectly.</li>
+<li> A great product!</li>
+<li> it was worked perfectly.</li>
+<li> Great job, Panasonic!</li>
+<li> I feel wonderful!</li>
+<li> but it is great in a pinch when you are running out of time!  </li>
 <li> /&gt;I&#x27;m very happy with this purchase.</li>
-<li> Well, it&#x27;s not the best shave</li>
-<li> I will be very happy with this Panasonic shaver.</li>
-<li> BEST decision ever.</li>
-<li> It is excellent for shaving legs at any length and it does an awesome job.  </li>
-<li> I was very happy for 4 months.  </li>
-<li> this is an excellent razor.  </li>
-<li> This is an excellent shaver.</li>
-<li> Wonderful product.</li>
-<li> This one is the best one I have had, cuts close and keeps</li>
-<li> and I&#x27;m very happy I did.</li>
-<li> and she says it works great!</li>
-<li> She is very happy with it</li>
-<li> The best electric shaver I&#x27;ve ever tried.</li>
-<li> This works great!</li>
-<li> Great product for the price!</li>
-<li> 2013--&lt;br /&gt;I&#x27;ve had this for a couple of months now and I am very happy with it.</li>
-<li> Overnight does a real good job of recharging.</li>
-<li> GREAT!!!</li>
-<li> Not the best  ...</li>
-<li> Now that I have this Panasonic I think that it is the best yet.</li>
-<li> What a beautiful razor!</li>
-<li> Excellent for my daughter (12) who wanted to start shaving her legs....</li>
-<li> Otherwise, once you get the hang of it, it is awesome!</li>
-<li> Excellent shaver.</li>
-<li> The PANASONIC ES2207P CLOSE CURVES rechargeable shaver is perfect for what I need it for.</li>
-<li> Anyway, it works perfectly.</li>
-<li> I paid $27 at Amazon for this replacement and am now very happy that I did....</li>
-<li> Great product!!!</li>
-<li> Ordered for my wife &amp; she says it does the best of any razor she has had.</li>
-<li> it is perfect for my legs</li>
-<li> This is a great product!</li>
-<li> Once I realized I wasn&#x27;t holding it at a 90 degree angle, it was awesome</li>
-<li> and I am very very happy with it!  </li>
-<li> I AM VERY IMPRESSED!</li>
-<li> It&#x27;s great!</li>
-<li> and it also works wonderfully.</li>
-<li> It was great while it lasted!!</li>
-<li> Works excellent!</li>
-<li> It does a wonderful job.  </li>
-<li> wonderful is all I can say.</li>
-<li> Best one I&#x27;ve ever had.</li>
-<li> The perfect first-time shaving tool!</li>
-<li> This is perfect.</li>
-<li> the shaver part is great!</li>
-<li> It&#x27;s AWESOME and doesn&#x27;t leave me with blemishes or any type of redness.  </li>
-<li> This is an excellent shaver.  </li>
-<li> the best one i&#x27;ve ever owned.</li>
-<li> This is the perfect solution.  </li>
-<li> She had this brand before but this model is perfect for her.</li>
-<li> THE SHAVER WORKS GREAT!</li>
-<li> Very happy.</li>
-<li> Excellent shaver, great price!  </li>
-<li> Very happy with purchase!  </li>
-<li> Excellent shaver.  </li>
-<li> Excellent close shaving for legs and underarms.  </li>
-<li> This suited my needs perfectly.</li>
-<li> Wonderful razor.</li>
-<li> Best electric shaver I ever used</li>
-<li> Perfect for my wife, sinch to setup and use.</li>
-<li> Awesome.</li>
-<li> Best electric razor I&#x27;ve found.</li>
-<li> My daughter says this is the best razor ever.</li>
-<li> Works great and made well!</li>
-<li> Best for price!</li>
+<li> Excellent product,</li>
+<li> Comes with a convenient charging station that is compact so that it doesn&#x27;t take up two  electrical outlets. :D</li>
+<li> What a great find!</li>
+<li> I read the reviews of all the shavers and thought this one sounded the best.  </li>
+<li> I looked and felt great!</li>
+<li> Great razor!  </li>
+<li> give this electro shaver 5 star comment excellent</li>
 <li> and it works great!</li>
+<li> Well, it&#x27;s not the best shave</li>
+<li> Wonderful--Simply wonderful!</li>
+<li> She is very happy with the results and she isn&#x27;t using up all the bandaids.</li>
+<li> i researched a bunch of ladies razors and this got the best reviews...</li>
+<li> I will be very happy with this Panasonic shaver.</li>
+<li> This is the perfect shaver for me.</li>
+<li> but it works great!!</li>
+<li> I was very happy with this razor when I bought it.</li>
+<li> Very impressed with this purchase.</li>
+<li> It is a great buy for the price and quality of the shaver!</li>
+<li> I do think it works best for the bikini area -</li>
+<li> /&gt;Amazon is the best place to shop.</li>
+<li> Awesome price.</li>
 <li> As some one with cancer the convience of this product is awesome.</li>
-<li> soap seems to offer the best shave.</li>
-<li> the best I can get without waxing and without risking the Nair.&lt;br /&gt;&lt;br</li>
-<li> so this is perfect.</li>
-<li> Everything is perfect!</li>
-<li> We r very happy !</li>
-<li> I&#x27;m very happy with this shaver.  </li>
-<li> This is the best electric razor I&#x27;ve ever owned.  </li>
-<li> best women&#x27;s electric razor I have tried!</li>
-<li> I&#x27;ve often traveled with this excellent shaver-</li>
-<li> You&#x27;ll be VERY GLAD you did!!!!</li>
-<li> This one shaves perfectly, fits well in the hand while your using it</li>
-<li> Might be the perfect bush mower.</li>
-<li> It&#x27;s perfect all around!</li>
-<li> I am so happy that I ordered this!</li>
-<li> I was very happy with how close it shaved and how it preformed in the shower.</li>
-<li> I&#x27;ve purchased razors like this before and have never been impressed by how close they can shave, so I used it as an emergency, \\&quot;yikes!</li>
-<li> It is awesome to be out of water.</li>
-<li> Very happy with my purchase.</li>
-<li> Perfect electric razor!</li>
-<li> Very impressed with the closeness of the shave.</li>
-<li> Can I just say how amazing this product is!!!!</li>
-<li> So excited!!!!!</li>
-<li> I am very happy with this product and am ordering another one for my vacation</li>
-<li> I think, however, that the Panasonic is the best of the two....</li>
+<li> Perfect for travel in US.</li>
+<li> trying to look their best.</li>
+<li> BEST decision ever.</li>
+<li> I am very happy with it.</li>
+<li> Happy!</li>
+<li> Am very happy with it.</li>
+<li> Excellent shaver.</li>
+<li> I am very happy with my purchase and would recommend it to any one considering buying a ladies razor.</li>
+<li> I was very impressed with the performance of this shaver,  however  </li>
+<li> Wonderful shaver.</li>
+<li> price is perfect too!&lt;br /&gt;&lt;br /&gt;I</li>
+<li> Having health issues and not always feeling up to standing in the shower, this is wonderful.  </li>
+<li> The best part is the battery life.</li>
+<li> This is perfect because I don&#x27;t like shavers that lift and cut off the hair below the skin.</li>
+<li> To me that is wonderful because I use it on my face</li>
+<li> Awesome!!!</li>
+<li> Excellent shaver.  </li>
+<li> This is probably the best I&#x27;ve ever used.</li>
 </ol>
 
 <h2>All Reviews</h2>
@@ -2835,6 +2835,7 @@ modifiedAt: Thu Jan 09 2020 19:08:24 GMT+0530 (India Standard Time),
     <li> Works well. No problems. Would buy again.  Fast shipping.</li>
     <li> When it was working, it worked about as well as I expected a product of this type to work. Not a super close shave, but enough to get by. I really wanted something I could use on the front of my shins and down by my Achilles tendon where I&#x27;m starting to have problems with nicks since my skin is getting thinner as I&#x27;m getting older. I used it about half a dozen times without any issues and then it just stopped working. The light on the charger is on so I have no idea what the problem is.</li>
 </ol>
+
 
 
 

@@ -1,0 +1,243 @@
+---
+title: Fancy Love For Women By Jessica Simpson Body Spray,
+description: Fancy Love For Women By Jessica Simpson Body Spray,
+author: Suvojit Manna,
+tags: Fancy Love For Women By Jessica Simpson Body Spray,
+publishedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
+---
+
+# [Fancy Love For Women By Jessica Simpson Body Spray](https://products.checkmycream.com/products/Fancy-Love-For-Women-By-Jessica-Simpson-Body-Spray.html)
+
+### Positive Reviews
+
+<ol>
+      <li>Perfect!</li>
+      <li>Wonderful!  </li>
+      <li>Thank you, very happy with this order, will be ordering again.</li>
+      <li>It&#x27;s the best I get compliments every day</li>
+      <li>Great deal!!</li>
+      <li>spray.&lt;br /&gt;Planning on ordering more soon!!!!</li>
+      <li>LOVE!!!</li>
+      <li>LOVE!!!</li>
+      <li>LOVE!!!</li>
+      <li>Good size bottle!</li>
+      <li>Love it!!  </li>
+      <li>Smells amazing!</li>
+      <li>I must say the service is amazing!</li>
+      <li>It&#x27;s not too strong and it leaves you smelling wonderful.</li>
+      <li>I always receive  compliments on how good I smell.  </li>
+      <li>It smells so good.</li>
+      <li>In the perfume version, this is my very favorite scent.</li>
+      <li>My favorite perfume!</li>
+      <li>I love this!</li>
+      <li>I love this scent!</li>
+      <li>Body spray works nicely to spray on outer clothing.</li>
+      <li>it is I am wearing because it smells so nice.</li>
+      <li>Nice light smell, refreshing, good price!</li>
+      <li>Super fast shipping, great price, smells great!</li>
+      <li>is my new best body spray.  </li>
+      <li>Love fancy love!</li>
+      <li>light scented, but good for touch ups.</li>
+      <li>love Minajesty, Purr and Very Sexy- if you like those fragrances, you will love this.&lt;br</li>
+      <li>This one is good going on and mellows to a lovely clean smell that I get compliments on.</li>
+      <li>Very light.  </li>
+      <li>I&#x27;m wearing it right now &amp; it smells so amazing!</li>
+      <li>Love love love this fragrance</li>
+      <li>Love it  </li>
+      <li>I so love this body mist...</li>
+      <li>Smells great fast shipping</li>
+      <li>LOVE IT.</li>
+      <li>I am getting more and the arfume spray.</li>
+      <li>For the price, I am pleased with the product.  </li>
+      <li>I love this smell</li>
+      <li>I absolutely love this fragrance!!!!&lt;br /&gt;I</li>
+      <li>The parfum is better</li>
+      <li>I just love it.</li>
+      <li>Love it</li>
+      <li>But the scent is not one I&#x27;d like to smell for more than 10minutes.</li>
+      <li>Love this fragrance,powdery and clean!</li>
+      <li>I love finding a great new scent, and this has been my summer</li>
+      <li>It has a sweet sophisticated smell.&lt;br /&gt;I</li>
+      <li>It&#x27;s fine for what it is, but I wouldn&#x27;t buy it again.  </li>
+      <li>Quick shipping and free samples!</li>
+      <li>Scents change on me and usually not for the good.</li>
+      <li>So with he exception of having to reapply a few times, this body mist is great!!</li>
+      <li>/&gt;The scent is light and airy, but it lasts for hours.</li>
+      <li>Very nice overall body spray.</li>
+      <li>Great smell &amp; lasts long.</li>
+      <li>/&gt;It has that clean smell, also like Ralph...</li>
+      <li>Clean smelling.</li>
+      <li>It smells really good but,but do not last no time</li>
+      <li>I had never smelled this fragrance, I took a chance on getting the body spray, due to great reviews...</li>
+      <li>it is good everyday or going out for a special dinner!</li>
+      <li>i feel that the splash is better than the actual perfume because the perfume is too strong and the splash is lighter .</li>
+      <li>Good smells like britney spears curious.</li>
+      <li>I love smelling this fragrance, it&#x27;s really a soft smell</li>
+      <li>Wonderful for everyday!!!!</li>
+      <li>feel like it is me in a bottle.&lt;br /&gt;So light and soft.</li>
+      <li>it&#x27;s last a long to great for out on a date</li>
+      <li>Love how big this spray is.  </li>
+      <li>This body mist smells great, but does not last long at all.</li>
+      <li>I have never seen the Fancy Love body spray in local stores.  </li>
+      <li>it smells exactly as the perfume if is now my go to spray</li>
+      <li>Doesn&#x27;t have much of a smell even when you first spray it....</li>
+      <li>love my perfume long lasting and it smells fresh and clean.</li>
+      <li>Body spray fragrance isn&#x27;t as strong or lasting as the body lotion.  </li>
+      <li>I prefer the strong &amp; lasting scent.  </li>
+      <li>Very dissapointing.</li>
+      <li>I don&#x27;t really like the scent .</li>
+      <li>I was expecting a light soft smell; well, its so soft that I cant even smell the fragrance.</li>
+      <li>its actually better than the other body mist.....will be ordering again</li>
+      <li>It is one of the most uplifting, soft not over powering scents I have come across in a long time.&lt;br /&gt;This</li>
+      <li>I really like the scent of this perfume, however it doesn&#x27;t last all day.</li>
+      <li>I have had trouble finding the Fancy Love body lotion, so the body spray is an alternate option.  </li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> Perfect!</li>
+<li> Wonderful!  </li>
+<li> Thank you, very happy with this order, will be ordering again.</li>
+<li> It&#x27;s the best I get compliments every day</li>
+<li> Great deal!!</li>
+<li> spray.&lt;br /&gt;Planning on ordering more soon!!!!</li>
+<li> LOVE!!!</li>
+<li> LOVE!!!</li>
+<li> LOVE!!!</li>
+<li> Good size bottle!</li>
+<li> Love it!!  </li>
+<li> Smells amazing!</li>
+<li> I must say the service is amazing!</li>
+<li> It&#x27;s not too strong and it leaves you smelling wonderful.</li>
+<li> I always receive  compliments on how good I smell.  </li>
+<li> It smells so good.</li>
+<li> In the perfume version, this is my very favorite scent.</li>
+<li> My favorite perfume!</li>
+<li> I love this!</li>
+<li> I love this scent!</li>
+<li> Body spray works nicely to spray on outer clothing.</li>
+<li> it is I am wearing because it smells so nice.</li>
+<li> Nice light smell, refreshing, good price!</li>
+<li> Super fast shipping, great price, smells great!</li>
+<li> is my new best body spray.  </li>
+<li> Love fancy love!</li>
+<li> light scented, but good for touch ups.</li>
+<li> love Minajesty, Purr and Very Sexy- if you like those fragrances, you will love this.&lt;br</li>
+<li> This one is good going on and mellows to a lovely clean smell that I get compliments on.</li>
+<li> Very light.  </li>
+<li> I&#x27;m wearing it right now &amp; it smells so amazing!</li>
+<li> Love love love this fragrance</li>
+<li> Love it  </li>
+<li> I so love this body mist...</li>
+<li> Smells great fast shipping</li>
+<li> LOVE IT.</li>
+<li> I am getting more and the arfume spray.</li>
+<li> For the price, I am pleased with the product.  </li>
+<li> I love this smell</li>
+<li> I absolutely love this fragrance!!!!&lt;br /&gt;I</li>
+<li> The parfum is better</li>
+<li> I just love it.</li>
+<li> Love it</li>
+<li> But the scent is not one I&#x27;d like to smell for more than 10minutes.</li>
+<li> Love this fragrance,powdery and clean!</li>
+<li> I love finding a great new scent, and this has been my summer</li>
+<li> It has a sweet sophisticated smell.&lt;br /&gt;I</li>
+<li> It&#x27;s fine for what it is, but I wouldn&#x27;t buy it again.  </li>
+<li> Quick shipping and free samples!</li>
+<li> Scents change on me and usually not for the good.</li>
+<li> So with he exception of having to reapply a few times, this body mist is great!!</li>
+<li> /&gt;The scent is light and airy, but it lasts for hours.</li>
+<li> Very nice overall body spray.</li>
+<li> Great smell &amp; lasts long.</li>
+<li> /&gt;It has that clean smell, also like Ralph...</li>
+<li> Clean smelling.</li>
+<li> It smells really good but,but do not last no time</li>
+<li> I had never smelled this fragrance, I took a chance on getting the body spray, due to great reviews...</li>
+<li> it is good everyday or going out for a special dinner!</li>
+<li> i feel that the splash is better than the actual perfume because the perfume is too strong and the splash is lighter .</li>
+<li> Good smells like britney spears curious.</li>
+<li> I love smelling this fragrance, it&#x27;s really a soft smell</li>
+<li> Wonderful for everyday!!!!</li>
+<li> feel like it is me in a bottle.&lt;br /&gt;So light and soft.</li>
+<li> it&#x27;s last a long to great for out on a date</li>
+<li> Love how big this spray is.  </li>
+<li> This body mist smells great, but does not last long at all.</li>
+<li> I have never seen the Fancy Love body spray in local stores.  </li>
+<li> it smells exactly as the perfume if is now my go to spray</li>
+<li> Doesn&#x27;t have much of a smell even when you first spray it....</li>
+<li> love my perfume long lasting and it smells fresh and clean.</li>
+<li> Body spray fragrance isn&#x27;t as strong or lasting as the body lotion.  </li>
+<li> I prefer the strong &amp; lasting scent.  </li>
+<li> Very dissapointing.</li>
+<li> I don&#x27;t really like the scent .</li>
+<li> I was expecting a light soft smell; well, its so soft that I cant even smell the fragrance.</li>
+<li> its actually better than the other body mist.....will be ordering again</li>
+<li> It is one of the most uplifting, soft not over powering scents I have come across in a long time.&lt;br /&gt;This</li>
+<li> I really like the scent of this perfume, however it doesn&#x27;t last all day.</li>
+<li> I have had trouble finding the Fancy Love body lotion, so the body spray is an alternate option.  </li>
+<li> Smell doesn&#x27;t last long enough</li>
+<li> Doesn&#x27;t last long at all.</li>
+<li> The perfume is a soft scent anyway, and this is, of course, a watered down version.  </li>
+<li> It will last me very long.</li>
+<li> I will be using this for a long time to come.  </li>
+<li> Not what I expected.</li>
+<li> The scent is not strong enough in this spray.  </li>
+<li> I received the product in less than 48hours.</li>
+<li> I put it on everyday</li>
+<li> Hate the smell.</li>
+<li> Totally disappointed !!!</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> My favorite perfume! Love it</li>
+    <li> Love it!!  Smells just like the perfume.</li>
+    <li> Received order in four days...awesomeness</li>
+    <li> It&#x27;s the best I get compliments every day I wear it all the time</li>
+    <li> love my perfume long lasting and it smells fresh and clean. i feel that the splash is better than the actual perfume because the perfume is too strong and the splash is lighter .</li>
+    <li> I don&#x27;t really like the scent . I must say the service is amazing! I received the product in less than 48hours. But the scent is not one I&#x27;d like to smell for more than 10minutes.</li>
+    <li> It&#x27;s fine for what it is, but I wouldn&#x27;t buy it again.  The scent is not strong enough in this spray.  The perfume is a soft scent anyway, and this is, of course, a watered down version.  In the perfume version, this is my very favorite scent.</li>
+    <li> Smells amazing! It&#x27;s not too strong and it leaves you smelling wonderful.</li>
+    <li> I had never smelled this fragrance, I took a chance on getting the body spray, due to great reviews...&lt;br /&gt;OMG!!! It smells so good. I love finding a great new scent, and this has been my summer fragrance.&lt;br /&gt;The scent is light and airy, but it lasts for hours. It has a sweet sophisticated smell.&lt;br /&gt;I love Minajesty, Purr and Very Sexy- if you like those fragrances, you will love this.&lt;br /&gt;It has that clean smell, also like Ralph...</li>
+    <li> Totally disappointed !!! The smell can&#x27;t even stay one hour !!! I will never recommend this to anyone !</li>
+    <li> Nice light smell, refreshing, good price!</li>
+    <li> LOVE IT. Scents change on me and usually not for the good. This one is good going on and mellows to a lovely clean smell that I get compliments on.</li>
+    <li> Very nice overall body spray. I just love it. Clean smelling.</li>
+    <li> Super fast shipping, great price, smells great! Thank you, very happy with this order, will be ordering again.</li>
+    <li> Love it  it smells exactly as the perfume if is now my go to spray I keep it in me at all times</li>
+    <li> Smells great fast shipping</li>
+    <li> Love this fragrance,powdery and clean! I am getting more and the arfume spray.</li>
+    <li> Perfect! Great deal!!</li>
+    <li> I absolutely love this fragrance!!!!&lt;br /&gt;I feel like it is me in a bottle.&lt;br /&gt;So light and soft. it is good everyday or going out for a special dinner!</li>
+    <li> Love love love this fragrance spray.&lt;br /&gt;Planning on ordering more soon!!!!</li>
+    <li> It smells really good but,but do not last no time</li>
+    <li> I love smelling this fragrance, it&#x27;s really a soft smell</li>
+    <li> light scented, but good for touch ups.</li>
+    <li> Love how big this spray is.  It will last me very long.</li>
+    <li> Not what I expected. Doesn&#x27;t have much of a smell even when you first spray it.... I feel like im just spraying water out of a bottle. I was expecting a light soft smell; well, its so soft that I cant even smell the fragrance. I will not buy this again. Very dissapointing.</li>
+    <li> Hate the smell. The parfum is better</li>
+    <li> Wonderful!  Good size bottle!</li>
+    <li> This is my 3rd order I lot this scent I get lots of compliment whenever I wear this</li>
+    <li> Quick shipping and free samples!</li>
+    <li> I love this! It is one of the most uplifting, soft not over powering scents I have come across in a long time.&lt;br /&gt;This is my new best body spray.  I will be using this for a long time to come.  Also, people actually ask me&lt;br /&gt;what it is I am wearing because it smells so nice.</li>
+    <li> Wonderful for everyday!!!!</li>
+    <li> Doesn&#x27;t last long at all. Nothing like the perfume.</li>
+    <li> I love this smell it&#x27;s last a long to great for out on a date 👍🏼👍🏼</li>
+    <li> I love this scent! The perfume is to die for! This body mist smells great, but does not last long at all. So with he exception of having to reapply a few times, this body mist is great!!</li>
+    <li> Great smell &amp; lasts long.</li>
+    <li> LOVE!!! LOVE!!! LOVE!!! MY SPRAYS......</li>
+    <li> I so love this body mist...its actually better than the other body mist.....will be ordering again</li>
+    <li> I have never seen the Fancy Love body spray in local stores.  For the price, I am pleased with the product.  I have had trouble finding the Fancy Love body lotion, so the body spray is an alternate option.  Body spray fragrance isn&#x27;t as strong or lasting as the body lotion.  I prefer the strong &amp; lasting scent.  Body spray works nicely to spray on outer clothing.</li>
+    <li> Very light.  I always receive  compliments on how good I smell.  Love fancy love!</li>
+    <li> Good smells like britney spears curious.</li>
+    <li> I really like the scent of this perfume, however it doesn&#x27;t last all day. Would purchase again from this company but I will stick with the actual perfume which seems to last all day.</li>
+    <li> Smell doesn&#x27;t last long enough</li>
+    <li> I&#x27;m wearing it right now &amp; it smells so amazing! I put it on everyday &amp; I always get compliments on it!</li>
+</ol>
+
+
+
+

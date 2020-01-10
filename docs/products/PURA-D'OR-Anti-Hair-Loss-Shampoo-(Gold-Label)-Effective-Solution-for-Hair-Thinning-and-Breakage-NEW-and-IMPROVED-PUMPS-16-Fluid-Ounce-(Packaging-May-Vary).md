@@ -3,8 +3,8 @@ title: PURA D&#x27;OR Anti-Hair Loss Shampoo (Gold Label), Effective Solution fo
 description: PURA D&#x27;OR Anti-Hair Loss Shampoo (Gold Label), Effective Solution for Hair Thinning &amp; Breakage, NEW &amp; IMPROVED PUMPS, 16 Fluid Ounce (Packaging May Vary),
 author: Suvojit Manna,
 tags: PURA D&#x27;OR Anti-Hair Loss Shampoo (Gold Label), Effective Solution for Hair Thinning &amp; Breakage, NEW &amp; IMPROVED PUMPS, 16 Fluid Ounce (Packaging May Vary),
-publishedAt: Thu Jan 09 2020 19:08:40 GMT+0530 (India Standard Time),
-modifiedAt: Thu Jan 09 2020 19:08:40 GMT+0530 (India Standard Time),
+publishedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
 ---
 
 # [PURA D&#x27;OR Anti-Hair Loss Shampoo (Gold Label), Effective Solution for Hair Thinning &amp; Breakage, NEW &amp; IMPROVED PUMPS, 16 Fluid Ounce (Packaging May Vary)](https://products.checkmycream.com/products/PURA-D&#x27;OR-Anti-Hair-Loss-Shampoo-(Gold-Label)-Effective-Solution-for-Hair-Thinning-and-Breakage-NEW-and-IMPROVED-PUMPS-16-Fluid-Ounce-(Packaging-May-Vary).html)
@@ -12,211 +12,211 @@ modifiedAt: Thu Jan 09 2020 19:08:40 GMT+0530 (India Standard Time),
 ### Positive Reviews
 
 <ol>
-      <li>excellent Product.</li>
-      <li>use the argan oil from purad&#x27;or and its just the best one.</li>
-      <li>I purchased the product and tried this one, which is perfect for my hair!!</li>
-      <li>Great Product!!!</li>
-      <li>I will by again and have already referred to my friends.&lt;br /&gt;Thanks for the great product!</li>
-      <li>Best part</li>
-      <li>I am very impressed with this product.</li>
-      <li>This thing is the best thing ever.</li>
-      <li>Wondeful product, wonderful seller, promptly service.</li>
-      <li>Great product!</li>
-      <li>Great product!</li>
-      <li>This is the best shampoo I have used ever.</li>
-      <li>My scalp feels wonderful.  </li>
-      <li>Awesome product!</li>
-      <li>Will keep using this wonderful product!</li>
-      <li>She was very happy about it.</li>
-      <li>I saw this shampoo was basically rated the best DHT blocker within reason.  </li>
-      <li>Using in conjunction with the Pura d&#x27;or Conditioner and the results have been great!  </li>
-      <li>It smells awesome.</li>
-      <li>That stuff is great too!</li>
-      <li>Very happy.</li>
-      <li>I&#x27;m very happy.</li>
-      <li>, I would  use this product again to keep my skin looking its best.</li>
-      <li>Argan oil is the best choice for that.</li>
-      <li>The smell is great!</li>
-      <li>This shampoo is just perfect!</li>
-      <li>Awesome shampoo.</li>
-      <li>the best part is that it is all in one bottle!!</li>
-      <li>Wonderful Shampoo for anti-hair loss.</li>
-      <li>Best in the market.</li>
-      <li>This stuff is great!</li>
-      <li>It is wonderful!</li>
-      <li>Great shampoo!</li>
-      <li>Excellent shampoo.  </li>
-      <li>This is an awesome product.</li>
-      <li>It is a great shampoo!</li>
-      <li>What a great shampoo this is!</li>
-      <li>great for when youre going bald!</li>
-      <li>so I decided to try this shampoo because it had the best reviews but its been a month</li>
-      <li>Pura d&#x27;or is the best shampoo i&#x27;ve used i&#x27;ll continue to use it.</li>
-      <li>I am soooo happy!  </li>
-      <li>Thank you for an awesome product!</li>
-      <li>My hair and scalp turn out looking the best compared with the others.</li>
-      <li>awesome...</li>
-      <li>Works great!!!</li>
-      <li>Best hairloss shampoo on the market.</li>
-      <li>Excellent product.  </li>
-      <li>Great Product!!</li>
-      <li>Very happy.</li>
-      <li>I&#x27;m very happy about that!</li>
-      <li>Excellent shampoo.</li>
-      <li>Excellent shampoo just need the pump to be updated e get stuck on the bottom</li>
-      <li>Impressed with the ingredients list.</li>
-      <li>I am duly very impressed with this product.</li>
-      <li>I am so happy with this purchase!</li>
-      <li>Have tried it on my &amp;#34;aging&amp;#34; hair and am very happy.</li>
-      <li>I have been using it for about three months now and very very happy with the results.  </li>
-      <li>Got this for my husband (instead of Nioxin) --- he wasn&#x27;t impressed, nor was I.</li>
-      <li>I am very happy with this shampoo.</li>
-      <li>Both excellent products, but I give the edge to the Skingenixx shampoo.</li>
-      <li>But with conditioner it&#x27;s an amazing product!!!</li>
-      <li>I was very impressed with the amount of lather this shampoo provides as it does not contain harmful sulfates.  </li>
-      <li>Best hair shampoo i have ever used.</li>
-      <li>I am very impressed with all of these products.</li>
-      <li>I am very happy with this hair product.  </li>
-      <li>Pura D&#x27;or is the best shampoo ever!!!</li>
-      <li>It does add body and smells wonderful.</li>
-      <li>Makes my hair look and feel great!</li>
-      <li>Excellent shampoo!!!</li>
-      <li>The best hair product that I have ever used, and I have used a lot.</li>
-      <li>Will continue to use for best result.</li>
-      <li>Wonderful, soothing, I am hooked and just ordered the conditioner!</li>
-      <li>Great quality!</li>
-      <li>great for you hair, skin, and nails!!</li>
-      <li>so wonderful knowing what youre putting on your body.</li>
-      <li>This shampoo is great!!!</li>
-      <li>This shampoo is the best.</li>
-      <li>Then, I found this wonderful product.</li>
-      <li>Great shampoo!</li>
-      <li>The best I&#x27;ve ever used.</li>
-      <li>This is the best product for the hair</li>
-      <li>it is excellent product for the hair</li>
-      <li>One of the best shampoos I&#x27;ve tried.&lt;br /&gt;Really works well, and has one of the best ingredient profiles I&#x27;ve seen.</li>
-      <li>is the best shampoo i ever use</li>
-      <li>and im still very happy with the results.</li>
+      <li>This is the best!</li>
+      <li>Great product, seems to be doing the trick!</li>
+      <li>This shampoo is great!</li>
       <li>Best shampoo I ever used</li>
+      <li>Great buy!</li>
+      <li>excellent Product.</li>
+      <li>I am really impressed with the way this makes my hair look and feel.</li>
       <li>Maybe it&#x27;s the perfect storm.</li>
+      <li>very happy with this product!</li>
+      <li>It is a great shampoo!</li>
       <li>Excellent product</li>
       <li>(If it were perfect, it would be a cure for pattern baldness.)</li>
+      <li>This shampoo is wonderful.</li>
+      <li>Been working great!</li>
       <li>Great smell!</li>
+      <li>and im still very happy with the results.</li>
+      <li>Great Product!</li>
       <li>Best shampoo I have ever used</li>
+      <li>is the best shampoo i ever use</li>
+      <li>use the argan oil from purad&#x27;or and its just the best one.</li>
+      <li>Great product!</li>
       <li>Quality organic product that makes your hair feel amazing!!!</li>
+      <li>The results were impressive.</li>
       <li>The best organic shampoo in the market.</li>
+      <li>and I am so very glad I did!!!  </li>
+      <li>This is an awesome product.</li>
+      <li>Great product!</li>
+      <li>Great product!  </li>
+      <li>Very good product!</li>
+      <li>Great product!</li>
+      <li>Great when you use both the shampoo and conditioner!!!</li>
       <li>It is definitely a wonderful product for hair fall solution.</li>
+      <li>worked the best.  </li>
+      <li>I purchased the product and tried this one, which is perfect for my hair!!</li>
+      <li>I&#x27;m so happy I found this shampoo!  </li>
+      <li>The beautician was impressed; was amazed the condition of the hair that had not been cut or trimmed in over 6 months.</li>
+      <li>It is the best shampoo I ever used!!</li>
+      <li>Great Product!!!</li>
+      <li>Very happy with results.</li>
+      <li>I will by again and have already referred to my friends.&lt;br /&gt;Thanks for the great product!</li>
+      <li>Then I googled best anti-loss hair shampoo and this is what I found.</li>
+      <li>Best part</li>
+      <li>Just a great product!</li>
+      <li>This is a great shampoo to help with hair loss!</li>
+      <li>The product is great!</li>
+      <li>One of the best shampoos I&#x27;ve tried.&lt;br /&gt;Really works well, and has one of the best ingredient profiles I&#x27;ve seen.</li>
       <li>This product is really great!</li>
+      <li>I am very impressed with this product.</li>
+      <li>I have tried others that claim to be the best...</li>
+      <li>This is the best shampoo I&#x27;ve ever had.</li>
+      <li>it is excellent product for the hair</li>
+      <li>This is the best product for the hair</li>
       <li>Great shampoo!  </li>
+      <li>This thing is the best thing ever.</li>
       <li>Still hoping for the best.</li>
+      <li>We are using it along with Biotin and it works great!!</li>
+      <li>Best Product for any hair!</li>
+      <li>this is one of the best shampoo ever!!!!&lt;br /&gt;I</li>
       <li>This is the greatest shampoo I ever had.</li>
+      <li>and I think it&#x27;d be awesome</li>
+      <li>it is a great shampoo!</li>
+      <li>Excellent product.</li>
+      <li>Wondeful product, wonderful seller, promptly service.</li>
       <li>This is a wonderful shampoo.</li>
       <li>I have been using it for a week now and am very happy with the results.</li>
+      <li>Great product!</li>
+      <li>The best I&#x27;ve ever used.</li>
+      <li>Great shampoo!</li>
+      <li>, I am very happy and I will continue using it!!!!</li>
+      <li>The aroma and ease of use makes this one of the best, for the price.</li>
+      <li>Excellent shampoo.  </li>
+      <li>This means it will be very good for your health!</li>
+      <li>Best shampoo ever.</li>
+      <li>Not the best smelling shampoo on the market.</li>
+      <li>I have psoriasis and my skin is wonderful after I purchased this product, impressive!!</li>
+      <li>Otherwise I&#x27;m still very happy.</li>
+      <li>I have had incredible results!  </li>
+      <li>The product is excellent.</li>
+      <li>/&gt;Thank you Pura D&#x27;or, this is the best shampoo I have ever used!</li>
+      <li>It&#x27;s an awesome shampoo either way, and I prefer organic over overly chemical products.</li>
+      <li>so I&#x27;m really happy about that!</li>
+      <li>Then, I found this wonderful product.</li>
+      <li>so I&#x27;m really happy about that!</li>
+      <li>What a great shampoo this is!</li>
+      <li>Just grab a bottle of this awesome sauce and you&#x27;ll start to notice result in just weeks.&lt;br /&gt;&lt;br</li>
+      <li>The Shampoo is really great!</li>
+      <li>This shampoo is the best.</li>
+      <li>This shampoo is great!!!</li>
+      <li>This is the best choice.</li>
+      <li>I have used this product for years and its the best product on the market.  </li>
+      <li>so wonderful knowing what youre putting on your body.</li>
+      <li>I am extremely happy with this product!!!!  </li>
+      <li>that has nothing to do with the shampoo itself which is indeed wonderful.</li>
+      <li>great for you hair, skin, and nails!!</li>
+      <li>Great quality!</li>
+      <li>It doesn&#x27;t smell the greatest but who cares?</li>
+      <li>Wonderful, soothing, I am hooked and just ordered the conditioner!</li>
+      <li>Great product!</li>
+      <li>Great product!</li>
+      <li>It has shine and the highhights were superb.  </li>
 </ol>
 
 
 <h2>Negative Reviews</h2>
 <ol>
-<li> excellent Product.</li>
-<li> use the argan oil from purad&#x27;or and its just the best one.</li>
-<li> I purchased the product and tried this one, which is perfect for my hair!!</li>
-<li> Great Product!!!</li>
-<li> I will by again and have already referred to my friends.&lt;br /&gt;Thanks for the great product!</li>
-<li> Best part</li>
-<li> I am very impressed with this product.</li>
-<li> This thing is the best thing ever.</li>
-<li> Wondeful product, wonderful seller, promptly service.</li>
-<li> Great product!</li>
-<li> Great product!</li>
-<li> This is the best shampoo I have used ever.</li>
-<li> My scalp feels wonderful.  </li>
-<li> Awesome product!</li>
-<li> Will keep using this wonderful product!</li>
-<li> She was very happy about it.</li>
-<li> I saw this shampoo was basically rated the best DHT blocker within reason.  </li>
-<li> Using in conjunction with the Pura d&#x27;or Conditioner and the results have been great!  </li>
-<li> It smells awesome.</li>
-<li> That stuff is great too!</li>
-<li> Very happy.</li>
-<li> I&#x27;m very happy.</li>
-<li> , I would  use this product again to keep my skin looking its best.</li>
-<li> Argan oil is the best choice for that.</li>
-<li> The smell is great!</li>
-<li> This shampoo is just perfect!</li>
-<li> Awesome shampoo.</li>
-<li> the best part is that it is all in one bottle!!</li>
-<li> Wonderful Shampoo for anti-hair loss.</li>
-<li> Best in the market.</li>
-<li> This stuff is great!</li>
-<li> It is wonderful!</li>
-<li> Great shampoo!</li>
-<li> Excellent shampoo.  </li>
-<li> This is an awesome product.</li>
-<li> It is a great shampoo!</li>
-<li> What a great shampoo this is!</li>
-<li> great for when youre going bald!</li>
-<li> so I decided to try this shampoo because it had the best reviews but its been a month</li>
-<li> Pura d&#x27;or is the best shampoo i&#x27;ve used i&#x27;ll continue to use it.</li>
-<li> I am soooo happy!  </li>
-<li> Thank you for an awesome product!</li>
-<li> My hair and scalp turn out looking the best compared with the others.</li>
-<li> awesome...</li>
-<li> Works great!!!</li>
-<li> Best hairloss shampoo on the market.</li>
-<li> Excellent product.  </li>
-<li> Great Product!!</li>
-<li> Very happy.</li>
-<li> I&#x27;m very happy about that!</li>
-<li> Excellent shampoo.</li>
-<li> Excellent shampoo just need the pump to be updated e get stuck on the bottom</li>
-<li> Impressed with the ingredients list.</li>
-<li> I am duly very impressed with this product.</li>
-<li> I am so happy with this purchase!</li>
-<li> Have tried it on my &amp;#34;aging&amp;#34; hair and am very happy.</li>
-<li> I have been using it for about three months now and very very happy with the results.  </li>
-<li> Got this for my husband (instead of Nioxin) --- he wasn&#x27;t impressed, nor was I.</li>
-<li> I am very happy with this shampoo.</li>
-<li> Both excellent products, but I give the edge to the Skingenixx shampoo.</li>
-<li> But with conditioner it&#x27;s an amazing product!!!</li>
-<li> I was very impressed with the amount of lather this shampoo provides as it does not contain harmful sulfates.  </li>
-<li> Best hair shampoo i have ever used.</li>
-<li> I am very impressed with all of these products.</li>
-<li> I am very happy with this hair product.  </li>
-<li> Pura D&#x27;or is the best shampoo ever!!!</li>
-<li> It does add body and smells wonderful.</li>
-<li> Makes my hair look and feel great!</li>
-<li> Excellent shampoo!!!</li>
-<li> The best hair product that I have ever used, and I have used a lot.</li>
-<li> Will continue to use for best result.</li>
-<li> Wonderful, soothing, I am hooked and just ordered the conditioner!</li>
-<li> Great quality!</li>
-<li> great for you hair, skin, and nails!!</li>
-<li> so wonderful knowing what youre putting on your body.</li>
-<li> This shampoo is great!!!</li>
-<li> This shampoo is the best.</li>
-<li> Then, I found this wonderful product.</li>
-<li> Great shampoo!</li>
-<li> The best I&#x27;ve ever used.</li>
-<li> This is the best product for the hair</li>
-<li> it is excellent product for the hair</li>
-<li> One of the best shampoos I&#x27;ve tried.&lt;br /&gt;Really works well, and has one of the best ingredient profiles I&#x27;ve seen.</li>
-<li> is the best shampoo i ever use</li>
-<li> and im still very happy with the results.</li>
+<li> This is the best!</li>
+<li> Great product, seems to be doing the trick!</li>
+<li> This shampoo is great!</li>
 <li> Best shampoo I ever used</li>
+<li> Great buy!</li>
+<li> excellent Product.</li>
+<li> I am really impressed with the way this makes my hair look and feel.</li>
 <li> Maybe it&#x27;s the perfect storm.</li>
+<li> very happy with this product!</li>
+<li> It is a great shampoo!</li>
 <li> Excellent product</li>
 <li> (If it were perfect, it would be a cure for pattern baldness.)</li>
+<li> This shampoo is wonderful.</li>
+<li> Been working great!</li>
 <li> Great smell!</li>
+<li> and im still very happy with the results.</li>
+<li> Great Product!</li>
 <li> Best shampoo I have ever used</li>
+<li> is the best shampoo i ever use</li>
+<li> use the argan oil from purad&#x27;or and its just the best one.</li>
+<li> Great product!</li>
 <li> Quality organic product that makes your hair feel amazing!!!</li>
+<li> The results were impressive.</li>
 <li> The best organic shampoo in the market.</li>
+<li> and I am so very glad I did!!!  </li>
+<li> This is an awesome product.</li>
+<li> Great product!</li>
+<li> Great product!  </li>
+<li> Very good product!</li>
+<li> Great product!</li>
+<li> Great when you use both the shampoo and conditioner!!!</li>
 <li> It is definitely a wonderful product for hair fall solution.</li>
+<li> worked the best.  </li>
+<li> I purchased the product and tried this one, which is perfect for my hair!!</li>
+<li> I&#x27;m so happy I found this shampoo!  </li>
+<li> The beautician was impressed; was amazed the condition of the hair that had not been cut or trimmed in over 6 months.</li>
+<li> It is the best shampoo I ever used!!</li>
+<li> Great Product!!!</li>
+<li> Very happy with results.</li>
+<li> I will by again and have already referred to my friends.&lt;br /&gt;Thanks for the great product!</li>
+<li> Then I googled best anti-loss hair shampoo and this is what I found.</li>
+<li> Best part</li>
+<li> Just a great product!</li>
+<li> This is a great shampoo to help with hair loss!</li>
+<li> The product is great!</li>
+<li> One of the best shampoos I&#x27;ve tried.&lt;br /&gt;Really works well, and has one of the best ingredient profiles I&#x27;ve seen.</li>
 <li> This product is really great!</li>
+<li> I am very impressed with this product.</li>
+<li> I have tried others that claim to be the best...</li>
+<li> This is the best shampoo I&#x27;ve ever had.</li>
+<li> it is excellent product for the hair</li>
+<li> This is the best product for the hair</li>
 <li> Great shampoo!  </li>
+<li> This thing is the best thing ever.</li>
 <li> Still hoping for the best.</li>
+<li> We are using it along with Biotin and it works great!!</li>
+<li> Best Product for any hair!</li>
+<li> this is one of the best shampoo ever!!!!&lt;br /&gt;I</li>
 <li> This is the greatest shampoo I ever had.</li>
+<li> and I think it&#x27;d be awesome</li>
+<li> it is a great shampoo!</li>
+<li> Excellent product.</li>
+<li> Wondeful product, wonderful seller, promptly service.</li>
 <li> This is a wonderful shampoo.</li>
 <li> I have been using it for a week now and am very happy with the results.</li>
+<li> Great product!</li>
+<li> The best I&#x27;ve ever used.</li>
+<li> Great shampoo!</li>
+<li> , I am very happy and I will continue using it!!!!</li>
+<li> The aroma and ease of use makes this one of the best, for the price.</li>
+<li> Excellent shampoo.  </li>
+<li> This means it will be very good for your health!</li>
+<li> Best shampoo ever.</li>
+<li> Not the best smelling shampoo on the market.</li>
+<li> I have psoriasis and my skin is wonderful after I purchased this product, impressive!!</li>
+<li> Otherwise I&#x27;m still very happy.</li>
+<li> I have had incredible results!  </li>
+<li> The product is excellent.</li>
+<li> /&gt;Thank you Pura D&#x27;or, this is the best shampoo I have ever used!</li>
+<li> It&#x27;s an awesome shampoo either way, and I prefer organic over overly chemical products.</li>
+<li> so I&#x27;m really happy about that!</li>
+<li> Then, I found this wonderful product.</li>
+<li> so I&#x27;m really happy about that!</li>
+<li> What a great shampoo this is!</li>
+<li> Just grab a bottle of this awesome sauce and you&#x27;ll start to notice result in just weeks.&lt;br /&gt;&lt;br</li>
+<li> The Shampoo is really great!</li>
+<li> This shampoo is the best.</li>
+<li> This shampoo is great!!!</li>
+<li> This is the best choice.</li>
+<li> I have used this product for years and its the best product on the market.  </li>
+<li> so wonderful knowing what youre putting on your body.</li>
+<li> I am extremely happy with this product!!!!  </li>
+<li> that has nothing to do with the shampoo itself which is indeed wonderful.</li>
+<li> great for you hair, skin, and nails!!</li>
+<li> Great quality!</li>
+<li> It doesn&#x27;t smell the greatest but who cares?</li>
+<li> Wonderful, soothing, I am hooked and just ordered the conditioner!</li>
+<li> Great product!</li>
+<li> Great product!</li>
+<li> It has shine and the highhights were superb.  </li>
 </ol>
 
 <h2>All Reviews</h2>
@@ -2523,6 +2523,7 @@ modifiedAt: Thu Jan 09 2020 19:08:40 GMT+0530 (India Standard Time),
     <li> Seems to work ok - will dry your hair though so be prepared to use a conditioner along with it</li>
     <li> Great product, seems to be doing the trick!</li>
 </ol>
+
 
 
 

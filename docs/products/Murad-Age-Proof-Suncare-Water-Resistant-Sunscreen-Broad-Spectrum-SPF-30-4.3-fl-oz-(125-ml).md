@@ -1,0 +1,96 @@
+---
+title: Murad Age Proof Suncare, Water Resistant Sunscreen Broad Spectrum SPF 30, 4.3 fl oz (125 ml),
+description: Murad Age Proof Suncare, Water Resistant Sunscreen Broad Spectrum SPF 30, 4.3 fl oz (125 ml),
+author: Suvojit Manna,
+tags: Murad Age Proof Suncare, Water Resistant Sunscreen Broad Spectrum SPF 30, 4.3 fl oz (125 ml),
+publishedAt: Fri Jan 10 2020 14:59:08 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:59:08 GMT+0530 (India Standard Time),
+---
+
+# [Murad Age Proof Suncare, Water Resistant Sunscreen Broad Spectrum SPF 30, 4.3 fl oz (125 ml)](https://products.checkmycream.com/products/Murad-Age-Proof-Suncare-Water-Resistant-Sunscreen-Broad-Spectrum-SPF-30-4.3-fl-oz-(125-ml).html)
+
+### Positive Reviews
+
+<ol>
+      <li>Best sunscreen I ever tried</li>
+      <li>Best sunscreen ever.</li>
+      <li>Perfect for face, protects, non-greasy</li>
+      <li>very good product</li>
+      <li>it smells great and doesn&#x27;t feel oily.</li>
+      <li>My favorite sunscreen!</li>
+      <li>I love this sunblock!  </li>
+      <li>It rubs in nicely.</li>
+      <li>and it&#x27;s a good product to be sure</li>
+      <li>This particular sunscreen is one of the best I have ever used.  </li>
+      <li>I was first attracted to this product because pomegranate is known to have great antioxidant properties.</li>
+      <li>Nice light scent.  </li>
+      <li>Love this stuff-</li>
+      <li>Great sunscreen for those with sensitive skin or suffer from skin disorders like Eczema.</li>
+      <li>Never breaks out of skin and feels light</li>
+      <li>It has has a sweet smell to it.</li>
+      <li>Murad has another product similar to this one that has a nice, beige tint to it, so it was like a light foundation with SPF...</li>
+      <li>I would give it one more start if at least it would protect me from the sun, but it is not even good for that.</li>
+      <li>This was my first time to try this product</li>
+      <li>and I really like it.  </li>
+      <li>It was recommended to me by my dermatologist, I can see why she likes it so much.</li>
+      <li>I have tried other facial SPF products and this one seems to be really good.  </li>
+      <li>So far this is working well,, and not breaking my face out</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> Best sunscreen I ever tried</li>
+<li> Best sunscreen ever.</li>
+<li> Perfect for face, protects, non-greasy</li>
+<li> very good product</li>
+<li> it smells great and doesn&#x27;t feel oily.</li>
+<li> My favorite sunscreen!</li>
+<li> I love this sunblock!  </li>
+<li> It rubs in nicely.</li>
+<li> and it&#x27;s a good product to be sure</li>
+<li> This particular sunscreen is one of the best I have ever used.  </li>
+<li> I was first attracted to this product because pomegranate is known to have great antioxidant properties.</li>
+<li> Nice light scent.  </li>
+<li> Love this stuff-</li>
+<li> Great sunscreen for those with sensitive skin or suffer from skin disorders like Eczema.</li>
+<li> Never breaks out of skin and feels light</li>
+<li> It has has a sweet smell to it.</li>
+<li> Murad has another product similar to this one that has a nice, beige tint to it, so it was like a light foundation with SPF...</li>
+<li> I would give it one more start if at least it would protect me from the sun, but it is not even good for that.</li>
+<li> This was my first time to try this product</li>
+<li> and I really like it.  </li>
+<li> It was recommended to me by my dermatologist, I can see why she likes it so much.</li>
+<li> I have tried other facial SPF products and this one seems to be really good.  </li>
+<li> So far this is working well,, and not breaking my face out</li>
+<li> The regular price is a bit expensive side, but you are getting money&#x27;s worth.</li>
+<li> I would not think of using any other brand.</li>
+<li> so was a little disappointed.</li>
+<li> bad finish</li>
+<li> bad sunblock, bad smell,</li>
+<li> the worst thing about it is it does not protect you from the sun using it</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> Great sunscreen for those with sensitive skin or suffer from skin disorders like Eczema. its the only Sunscreen I use. its on the pricey side and you have to re-apply often but it works well. It has has a sweet smell to it.</li>
+    <li> This is not  a mate finish sunscreen at all, it is oily and smells like the the cheapest sunblock in the market, the worst thing about it is it does not protect you from the sun using it you get burn and red.  So if you are locking for a mate finish sunscreen for your face this is not  for you. I would give it one more start if at least it would protect me from the sun, but it is not even good for that. bad sunblock, bad smell, bad finish</li>
+    <li> I love this sunblock!  I put it on and can trust that my skin is going to be protected.  I like the way it feels on my skin - sometimes I just use it as my facial moisturizer.  Nice light scent.  Non-greasy.</li>
+    <li> This particular sunscreen is one of the best I have ever used.  I would not think of using any other brand. It was recommended to me by my dermatologist, I can see why she likes it so much.</li>
+    <li> I use this sunblock instead of daily moisturizer and have been for the last 5+ years.  Never breaks out of skin and feels light</li>
+    <li> Perfect for face, protects, non-greasy</li>
+    <li> I have been using this product for a few years and I can say that this really works. The regular price is a bit expensive side, but you are getting money&#x27;s worth. And Amazon IS helping you out in terms of the price.</li>
+    <li> I was first attracted to this product because pomegranate is known to have great antioxidant properties. Murad has another product similar to this one that has a nice, beige tint to it, so it was like a light foundation with SPF...Two in one sort of thing. I ordered this one and it&#x27;s a good product to be sure but it&#x27;s a white lotion...I thought I was getting the tinted version so was a little disappointed.</li>
+    <li> So far this is working well,, and not breaking my face out</li>
+    <li> This was my first time to try this product and I really like it.  I have tried other facial SPF products and this one seems to be really good.  It does not leave a whitish tint or an oily feel like some products.  And, it has anti aging properties.</li>
+    <li> Love this stuff- it smells great and doesn&#x27;t feel oily.</li>
+    <li> Best sunscreen ever. Creamy, not oily. It rubs in nicely. This is the only product that I put on my face. And when I go for hikes and start to sweat, it does not sting my eyes.</li>
+    <li> I have used this product for years. It hydrates my skin while protecting it from the sun. very good product</li>
+    <li> Best sunscreen I ever tried</li>
+    <li> My favorite sunscreen!</li>
+</ol>
+
+
+
+

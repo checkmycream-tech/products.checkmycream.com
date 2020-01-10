@@ -1,0 +1,267 @@
+---
+title: ALTERNA BAMBOO Smooth Shampoo &amp; Conditioner Set (8.5 Oz Each),
+description: ALTERNA BAMBOO Smooth Shampoo &amp; Conditioner Set (8.5 Oz Each),
+author: Suvojit Manna,
+tags: ALTERNA BAMBOO Smooth Shampoo &amp; Conditioner Set (8.5 Oz Each),
+publishedAt: Fri Jan 10 2020 15:00:22 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:22 GMT+0530 (India Standard Time),
+---
+
+# [ALTERNA BAMBOO Smooth Shampoo &amp; Conditioner Set (8.5 Oz Each)](https://products.checkmycream.com/products/ALTERNA-BAMBOO-Smooth-Shampoo-and-Conditioner-Set-(8.5-Oz-Each).html)
+
+### Positive Reviews
+
+<ol>
+      <li>also doesn&#x27;t have that wonderful smell like some of the alterna products</li>
+      <li>and I got the best look ever!</li>
+      <li>but now it looks great!  </li>
+      <li>Awesome for my hair...</li>
+      <li>Alterna is a wonderful brand and does what it claims it does....</li>
+      <li>If it wasn&#x27;t for the awesome scent I would give it a 2 star review.</li>
+      <li>Alterna shampoos and conditioners give my hair great texture and did not leave buildup on my scalp!</li>
+      <li>I must say that this shampoo/conditioner duo is probably the best I&#x27;ve ever used.</li>
+      <li>Excellent shampoo.  </li>
+      <li>Love Alterna!!!</li>
+      <li>I&#x27;ve been really happy with this shampoo and conditioner.</li>
+      <li>Great price; speedy delivery</li>
+      <li>Great for curly hair.</li>
+      <li>A friend had noticeably great hair after she started using this.</li>
+      <li>Great product at a great price.</li>
+      <li>great packaging...</li>
+      <li>This set is a great price.</li>
+      <li>My hair is happy &amp; smooth!!!</li>
+      <li>I will purchase again for sure!!</li>
+      <li>Loved the smell of the shampoo</li>
+      <li>You can get a good price purchasing on Amazon.  </li>
+      <li>I purchased it because I love the curling spray, but this isn&#x27;t that great.  </li>
+      <li>Love it!</li>
+      <li>Smells nice.</li>
+      <li>and I liked it,</li>
+      <li>So happy with the result at first use.</li>
+      <li>I was hoping this would be more like the Alterna Caviar products.  </li>
+      <li>Love this shampoo &amp; conditioner</li>
+      <li>Love the shampoo and conditioner...</li>
+      <li>I just love it.</li>
+      <li>I&#x27;m in love with Alterna Bamboo products.</li>
+      <li>not sting my face and make it itch all day like so many products on market,&lt;br</li>
+      <li>Nothing works better than this on my hair.</li>
+      <li>I love both the shampoo &amp; conditioner.</li>
+      <li>But if I had to pick a favorite, the shampoo seems to be the magic part.</li>
+      <li>I love this shampoo.</li>
+      <li>Otherwise, I love it.</li>
+      <li>It&#x27;s smooth, manageable, and is shinier than it&#x27;s ever been!</li>
+      <li>I like that it is a more &amp;#34;natural&amp;#34;</li>
+      <li>Love this product but they NEED to change these bottles.  </li>
+      <li>I love this product, in addition to using the bamboo oil and mist.</li>
+      <li>This shampoo and conditioner are quite possibly the best smelling hair products I have used.</li>
+      <li>so I find myself using more to get the lather.  </li>
+      <li>They also have a very clean, pleasing scent.</li>
+      <li>In 27 years of having very long hair (waist length or longer), this is the best I have ever used.</li>
+      <li>and it keeps my hair easy to manage.</li>
+      <li>Container broke easily.</li>
+      <li>Did nothing for my frizzy hair, I have fine hair, not</li>
+      <li>pleasant smell for sensitive people with allergies,&lt;br /&gt;not</li>
+      <li>I use it along with the Smooth Oil.  </li>
+      <li>Expeditious, smooth shipping was no problem.  </li>
+      <li>fantastic product- save about 8.00 as a set versus pricing at ULTA.</li>
+      <li>It flattened the volume all around my head, and created an even smooth texture all over (I use a flatiron to get this effect).</li>
+      <li>She has pretty thick hair that tends to frizz, and these products have been amazing, keeping it under perfect control.</li>
+      <li>Thank you very much!</li>
+      <li>Exactly what I needed!</li>
+      <li>and it really does help to smooth.  </li>
+      <li>I&#x27;ve been using Alterna Bamboo Smooth Shampoo and Conditioner for months now, and I really like the product.</li>
+      <li>It leaves fine hair clean soft and manageable.</li>
+      <li>First, it smells amazing and far better than the protein s &amp; c I regularly use on my hair now.</li>
+      <li>Love the product, however,  even though they were shrink wrapped, both caps were not closed, and they leaked all over the place!</li>
+      <li>Shipping was very fast.</li>
+      <li>I highly recommend this product line for ladies who have full frizzy hair.</li>
+      <li>My wife raved about this shampoo and conditioner, after first trying the Bamboo Shine Brilliance Cream</li>
+      <li>I have purchesed drugstore products that do better and for a third of the price.</li>
+      <li>and it&#x27;s pretty frizzy.  </li>
+      <li>but overall it is just ok.  </li>
+      <li>I actually get better results with store bought brands.  </li>
+      <li>I&#x27;ve only used this product twice, but I love it.</li>
+      <li>Love the shampoo/conditioner-my daughter and I have long, curly hair.  </li>
+      <li>Sulfate free, gentle on color treated hair and leaves a shine and softness that is second to none.  </li>
+      <li>This shampoo and conditioner worked very well.  </li>
+      <li>It&#x27;s very thick.&lt;br</li>
+      <li>Shampoo has an unusual consistency.</li>
+      <li>I really don&#x27;t like this because I like hair with volume.</li>
+      <li>Very gentile on my hair.</li>
+      <li>Before, I was having issues with itchy scalp, and getting rid of the chemicals in my hair products has really helped address that.  </li>
+      <li>I love the scent and it really conditions my hair and makes it shiny with less frizz.  </li>
+      <li>Highly recommend for volume and shine.</li>
+      <li>worth spending the extra money if it doesn&#x27;t work.</li>
+      <li>The oil in the product might build up over time and that&#x27;s normal.</li>
+      <li>, however they don&#x27;t reduce my hair frizz, actually I feel my hair fot dry and more frizzy</li>
+      <li>I have thin, frizzy, easy to damage hair and this shampoo/conditioner makes it ridiculously smooth and shiny.</li>
+      <li>The other drawback is the price, but the protein s &amp; c I normally use isn&#x27;t cheap either.</li>
+      <li>The only thing I don&#x27;t like is that the shampoo does not lather very much</li>
+      <li>duo made my hair very soft and helped with the craziness.&lt;br /&gt;&lt;br</li>
+      <li>I have naturally curly hair</li>
+      <li>My 75 year old mom even uses it and LOVES it.</li>
+      <li>The scent, which I love, was so weak.</li>
+      <li>The squeeze design and fairly rigid bottle makes it hard to get product out after it gets below a certain point in the bottle, and it is very hard to take the cap off to pour it out another way.  </li>
+      <li>Barely tried it, so far with ONLY two shampoos</li>
+      <li>but mainly I just feel like it makes my hair dryer and more likely to be tangled and difficult to comb through after washing.</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> also doesn&#x27;t have that wonderful smell like some of the alterna products</li>
+<li> and I got the best look ever!</li>
+<li> but now it looks great!  </li>
+<li> Awesome for my hair...</li>
+<li> Alterna is a wonderful brand and does what it claims it does....</li>
+<li> If it wasn&#x27;t for the awesome scent I would give it a 2 star review.</li>
+<li> Alterna shampoos and conditioners give my hair great texture and did not leave buildup on my scalp!</li>
+<li> I must say that this shampoo/conditioner duo is probably the best I&#x27;ve ever used.</li>
+<li> Excellent shampoo.  </li>
+<li> Love Alterna!!!</li>
+<li> I&#x27;ve been really happy with this shampoo and conditioner.</li>
+<li> Great price; speedy delivery</li>
+<li> Great for curly hair.</li>
+<li> A friend had noticeably great hair after she started using this.</li>
+<li> Great product at a great price.</li>
+<li> great packaging...</li>
+<li> This set is a great price.</li>
+<li> My hair is happy &amp; smooth!!!</li>
+<li> I will purchase again for sure!!</li>
+<li> Loved the smell of the shampoo</li>
+<li> You can get a good price purchasing on Amazon.  </li>
+<li> I purchased it because I love the curling spray, but this isn&#x27;t that great.  </li>
+<li> Love it!</li>
+<li> Smells nice.</li>
+<li> and I liked it,</li>
+<li> So happy with the result at first use.</li>
+<li> I was hoping this would be more like the Alterna Caviar products.  </li>
+<li> Love this shampoo &amp; conditioner</li>
+<li> Love the shampoo and conditioner...</li>
+<li> I just love it.</li>
+<li> I&#x27;m in love with Alterna Bamboo products.</li>
+<li> not sting my face and make it itch all day like so many products on market,&lt;br</li>
+<li> Nothing works better than this on my hair.</li>
+<li> I love both the shampoo &amp; conditioner.</li>
+<li> But if I had to pick a favorite, the shampoo seems to be the magic part.</li>
+<li> I love this shampoo.</li>
+<li> Otherwise, I love it.</li>
+<li> It&#x27;s smooth, manageable, and is shinier than it&#x27;s ever been!</li>
+<li> I like that it is a more &amp;#34;natural&amp;#34;</li>
+<li> Love this product but they NEED to change these bottles.  </li>
+<li> I love this product, in addition to using the bamboo oil and mist.</li>
+<li> This shampoo and conditioner are quite possibly the best smelling hair products I have used.</li>
+<li> so I find myself using more to get the lather.  </li>
+<li> They also have a very clean, pleasing scent.</li>
+<li> In 27 years of having very long hair (waist length or longer), this is the best I have ever used.</li>
+<li> and it keeps my hair easy to manage.</li>
+<li> Container broke easily.</li>
+<li> Did nothing for my frizzy hair, I have fine hair, not</li>
+<li> pleasant smell for sensitive people with allergies,&lt;br /&gt;not</li>
+<li> I use it along with the Smooth Oil.  </li>
+<li> Expeditious, smooth shipping was no problem.  </li>
+<li> fantastic product- save about 8.00 as a set versus pricing at ULTA.</li>
+<li> It flattened the volume all around my head, and created an even smooth texture all over (I use a flatiron to get this effect).</li>
+<li> She has pretty thick hair that tends to frizz, and these products have been amazing, keeping it under perfect control.</li>
+<li> Thank you very much!</li>
+<li> Exactly what I needed!</li>
+<li> and it really does help to smooth.  </li>
+<li> I&#x27;ve been using Alterna Bamboo Smooth Shampoo and Conditioner for months now, and I really like the product.</li>
+<li> It leaves fine hair clean soft and manageable.</li>
+<li> First, it smells amazing and far better than the protein s &amp; c I regularly use on my hair now.</li>
+<li> Love the product, however,  even though they were shrink wrapped, both caps were not closed, and they leaked all over the place!</li>
+<li> Shipping was very fast.</li>
+<li> I highly recommend this product line for ladies who have full frizzy hair.</li>
+<li> My wife raved about this shampoo and conditioner, after first trying the Bamboo Shine Brilliance Cream</li>
+<li> I have purchesed drugstore products that do better and for a third of the price.</li>
+<li> and it&#x27;s pretty frizzy.  </li>
+<li> but overall it is just ok.  </li>
+<li> I actually get better results with store bought brands.  </li>
+<li> I&#x27;ve only used this product twice, but I love it.</li>
+<li> Love the shampoo/conditioner-my daughter and I have long, curly hair.  </li>
+<li> Sulfate free, gentle on color treated hair and leaves a shine and softness that is second to none.  </li>
+<li> This shampoo and conditioner worked very well.  </li>
+<li> It&#x27;s very thick.&lt;br</li>
+<li> Shampoo has an unusual consistency.</li>
+<li> I really don&#x27;t like this because I like hair with volume.</li>
+<li> Very gentile on my hair.</li>
+<li> Before, I was having issues with itchy scalp, and getting rid of the chemicals in my hair products has really helped address that.  </li>
+<li> I love the scent and it really conditions my hair and makes it shiny with less frizz.  </li>
+<li> Highly recommend for volume and shine.</li>
+<li> worth spending the extra money if it doesn&#x27;t work.</li>
+<li> The oil in the product might build up over time and that&#x27;s normal.</li>
+<li> , however they don&#x27;t reduce my hair frizz, actually I feel my hair fot dry and more frizzy</li>
+<li> I have thin, frizzy, easy to damage hair and this shampoo/conditioner makes it ridiculously smooth and shiny.</li>
+<li> The other drawback is the price, but the protein s &amp; c I normally use isn&#x27;t cheap either.</li>
+<li> The only thing I don&#x27;t like is that the shampoo does not lather very much</li>
+<li> duo made my hair very soft and helped with the craziness.&lt;br /&gt;&lt;br</li>
+<li> I have naturally curly hair</li>
+<li> My 75 year old mom even uses it and LOVES it.</li>
+<li> The scent, which I love, was so weak.</li>
+<li> The squeeze design and fairly rigid bottle makes it hard to get product out after it gets below a certain point in the bottle, and it is very hard to take the cap off to pour it out another way.  </li>
+<li> Barely tried it, so far with ONLY two shampoos</li>
+<li> but mainly I just feel like it makes my hair dryer and more likely to be tangled and difficult to comb through after washing.</li>
+<li> The two drawbacks for me are that it seems to weigh down my fine hair a little , which weighs down my waves a bit and it zaps the volume.</li>
+<li> shampoo or conditioner will do what a flat iron can.</li>
+<li> Its really helped my thick, coarse hair.  </li>
+<li> I see next to no difference between this and any other anti frizz shampoo/ conditioner.  </li>
+<li> My hair was looking very dry</li>
+<li> Only shampoo to tame my firzz and give me sleek shiny hair.  </li>
+<li> I was having trouble controlling the frizz despite flat ironing.</li>
+<li> The Bamboo shampoo was so thick I could barely get it to lather.  </li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> So happy with the result at first use. After shampooing and conditioning with these products I sprayed all over with Moroccanoil Frizz Control and I got the best look ever!</li>
+    <li> I have very sensitive skin and very dry curly hair, not a good combination!  Alterna shampoos and conditioners give my hair great texture and did not leave buildup on my scalp!</li>
+    <li> Loved the smell of the shampoo but overall it is just ok.  It didn&#x27;t make my hair any softer or less frizzy.  I actually get better results with store bought brands.  If it wasn&#x27;t for the awesome scent I would give it a 2 star review.</li>
+    <li> Great price; speedy delivery</li>
+    <li> I&#x27;ve been really happy with this shampoo and conditioner. I would buy it again.</li>
+    <li> I have naturally curly hair and it keeps my hair easy to manage.</li>
+    <li> I love this shampoo. It leaves fine hair clean soft and manageable.</li>
+    <li> My hair is happy &amp; smooth!!! Love Alterna!!!</li>
+    <li> Barely tried it, so far with ONLY two shampoos SO I&#x27;m still FRIZZY</li>
+    <li> I was hoping this would be more like the Alterna Caviar products.  It&#x27;s not at all like them. It&#x27;s supposed to be smoothing but mainly I just feel like it makes my hair dryer and more likely to be tangled and difficult to comb through after washing. I won&#x27;t buy it again.</li>
+    <li> In 27 years of having very long hair (waist length or longer), this is the best I have ever used. It is the only thing I&#x27;ve ever used that left NO buildup in my hair. At all. Ever. I only wash my hair once a week with this and you&#x27;d never know.</li>
+    <li> Great product at a great price. Shipping was very fast. I will purchase again for sure!!</li>
+    <li> Love the shampoo/conditioner-my daughter and I have long, curly hair.  Expeditious, smooth shipping was no problem.  Thank you very much!</li>
+    <li> I love this product, in addition to using the bamboo oil and mist. I&#x27;ve got coarse Asian hair, and my hair stylist friend bought this for me for my birthday. After using the products for a couple of days, it did wonders to my texture. Nothing works better than this on my hair. It flattened the volume all around my head, and created an even smooth texture all over (I use a flatiron to get this effect). I highly recommend this product line for ladies who have full frizzy hair. I do recommend also, a clarifying shampoo every now and then. The oil in the product might build up over time and that&#x27;s normal.</li>
+    <li> This stuff is ok but so expensive that i won&#x27;t get it again.  I have purchesed drugstore products that do better and for a third of the price.</li>
+    <li> In Florida humidity my hair is not as frizzy. Love it!</li>
+    <li> A friend had noticeably great hair after she started using this. When I asked what she was using, she said this. I ordered it and immediately felt an improvement in my hair softness too.  I love both the shampoo &amp; conditioner. But if I had to pick a favorite, the shampoo seems to be the magic part.</li>
+    <li> Makes your hair feel dull.</li>
+    <li> I must say that this shampoo/conditioner duo is probably the best I&#x27;ve ever used. My hair has literally transformed. It&#x27;s smooth, manageable, and is shinier than it&#x27;s ever been!</li>
+    <li> I have really thick curly  frizzy hair.  Hard to find anything that works.  This shampoo and conditioner worked very well.  Reduced frizzies and big hair.</li>
+    <li> This shampoo and conditioner are quite possibly the best smelling hair products I have used. Sulfate free, gentle on color treated hair and leaves a shine and softness that is second to none.  I went to Dollhouse salon in Vegas and this is what they use for their blowout&#x27;s.  Highly recommend for volume and shine. My 75 year old mom even uses it and LOVES it.</li>
+    <li> fantastic product- save about 8.00 as a set versus pricing at ULTA.</li>
+    <li> Like product. Container broke easily.</li>
+    <li> Shampoo has an unusual consistency. It&#x27;s very thick.&lt;br /&gt;&lt;br /&gt;The duo made my hair very soft and helped with the craziness.&lt;br /&gt;&lt;br /&gt;No shampoo or conditioner will do what a flat iron can. Hated to buy one, but had no choice.</li>
+    <li> Love the shampoo and conditioner...I have really thick, course hair and it really does help to smooth.  The only thing I don&#x27;t like is that the shampoo does not lather very much so I find myself using more to get the lather.  also doesn&#x27;t have that wonderful smell like some of the alterna products so you might prefer if you like the non fragrance!  great packaging...both taped to help prevent leakage!</li>
+    <li> pleasant smell for sensitive people with allergies,&lt;br /&gt;not heavy&lt;br /&gt;not greasy&lt;br /&gt;does not sting my face and make it itch all day like so many products on market,&lt;br /&gt;if you have allergies i recommend this product line</li>
+    <li> My wife raved about this shampoo and conditioner, after first trying the Bamboo Shine Brilliance Cream her stylist recommended. She has pretty thick hair that tends to frizz, and these products have been amazing, keeping it under perfect control. They also have a very clean, pleasing scent. Five stars all around!</li>
+    <li> I used both shampoo and conditioner.  They left my hair WORSE (drier and frizzier) than when using my plain old Suave products. The Bamboo shampoo was so thick I could barely get it to lather.  When I finally did, it still didn&#x27;t feel like it was cleaning my hair at all.&lt;br /&gt;&lt;br /&gt;I&#x27;ve got one word for these products: YUK.&lt;br /&gt;&lt;br /&gt;don&#x27;t waste your money.  I&#x27;ll keep searching for something that works.</li>
+    <li> I&#x27;ve tried a lot of different shampoos, ranging from Paul Mitchell to Alterna&#x27;s Caviar shampoos, and this is the one I&#x27;m sticking with! I have thin, frizzy, easy to damage hair and this shampoo/conditioner makes it ridiculously smooth and shiny. Without this shampoo I always wore my hair in a braid because it was so hard to manage, but now I wear it down without it getting all over the place! I also recommend Alterna&#x27;s Caviar Repair Re-texturizing Protein Cream a few times a week if your hair is as difficult as mine.</li>
+    <li> I have wavy, 3c hair. I was having trouble controlling the frizz despite flat ironing. My hair stylist suggested I switch to protein shampoo, but this is what she used on my hair. First, it smells amazing and far better than the protein s &amp; c I regularly use on my hair now. Second, it definitely eliminates frizz and even adds shine. The two drawbacks for me are that it seems to weigh down my fine hair a little , which weighs down my waves a bit and it zaps the volume. I really don&#x27;t like this because I like hair with volume. The other drawback is the price, but the protein s &amp; c I normally use isn&#x27;t cheap either. I have decided to try a different, cheaper protein s &amp; c and if I don&#x27;t like the results, I will use this.</li>
+    <li> Awesome for my hair...Alterna is a wonderful brand and does what it claims it does....last one I ordered lasted me over a year (short hair)</li>
+    <li> I&#x27;ve been using Alterna Bamboo Smooth Shampoo and Conditioner for months now, and I really like the product. Before, I was having issues with itchy scalp, and getting rid of the chemicals in my hair products has really helped address that.  I like that it is a more &amp;#34;natural&amp;#34; product but still what I consider salon quality. My only complaint is about the design of the bottles. The squeeze design and fairly rigid bottle makes it hard to get product out after it gets below a certain point in the bottle, and it is very hard to take the cap off to pour it out another way.  Otherwise, I love it.</li>
+    <li> Great for curly hair.</li>
+    <li> Exactly what I needed! Half the cost of Ulta!!</li>
+    <li> I had alterna bamboo oil and I liked it, so I ordered the shampoo and conditioner , however they don&#x27;t reduce my hair frizz, actually I feel my hair fot dry and more frizzy</li>
+    <li> Did nothing for my frizzy hair, I have fine hair, not worth spending the extra money if it doesn&#x27;t work.</li>
+    <li> Very gentile on my hair.</li>
+    <li> I&#x27;m in love with Alterna Bamboo products. I buy almost everything from their line.  I love the scent and it really conditions my hair and makes it shiny with less frizz.  Its really helped my thick, coarse hair.  I just love it. This set is a great price.</li>
+    <li> Love this shampoo &amp; conditioner</li>
+    <li> Excellent shampoo.  Actually helps with the frizzy look my hair gets in humid conditions.</li>
+    <li> Only shampoo to tame my firzz and give me sleek shiny hair.  you won&#x27;t regret buying this one!</li>
+    <li> The scent, which I love, was so weak. It&#x27;s not the same as I would purchase at a salon</li>
+    <li> I see next to no difference between this and any other anti frizz shampoo/ conditioner.  Smells nice. I purchased it because I love the curling spray, but this isn&#x27;t that great.  I&#x27;m partial to Redken All Soft.</li>
+    <li> Love this product but they NEED to change these bottles.  These are a little thinner than the other products in the purple bottles.  Those are so hard to squeeze because they are so thick.  Try getting the product out, it&#x27;s near impossible.  I have extremely dry and thin hair and it&#x27;s pretty frizzy.  This tames it, but it&#x27;s no miracle and not worth the money.</li>
+    <li> Love the product, however,  even though they were shrink wrapped, both caps were not closed, and they leaked all over the place!</li>
+    <li> I&#x27;ve only used this product twice, but I love it. I use it along with the Smooth Oil.  My hair was looking very dry but now it looks great!  You can get a good price purchasing on Amazon.  You wont be sorry with this produce.</li>
+</ol>
+
+
+
+

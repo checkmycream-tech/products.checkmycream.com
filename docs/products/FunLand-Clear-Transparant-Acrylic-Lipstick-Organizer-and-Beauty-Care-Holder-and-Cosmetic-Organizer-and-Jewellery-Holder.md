@@ -1,0 +1,93 @@
+---
+title: FunLand Clear Transparant Acrylic Lipstick Organizer &amp; Beauty Care Holder &amp; Cosmetic Organizer &amp; Jewellery Holder,
+description: FunLand Clear Transparant Acrylic Lipstick Organizer &amp; Beauty Care Holder &amp; Cosmetic Organizer &amp; Jewellery Holder,
+author: Suvojit Manna,
+tags: FunLand Clear Transparant Acrylic Lipstick Organizer &amp; Beauty Care Holder &amp; Cosmetic Organizer &amp; Jewellery Holder,
+publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
+---
+
+# [FunLand Clear Transparant Acrylic Lipstick Organizer &amp; Beauty Care Holder &amp; Cosmetic Organizer &amp; Jewellery Holder](https://products.checkmycream.com/products/FunLand-Clear-Transparant-Acrylic-Lipstick-Organizer-and-Beauty-Care-Holder-and-Cosmetic-Organizer-and-Jewellery-Holder.html)
+
+### Positive Reviews
+
+<ol>
+      <li>Perfect for lipstick!</li>
+      <li>Perfect for all my lip products and great quality!</li>
+      <li>Awesome fits all my lipsticks thank u !!!!:)</li>
+      <li>Love it!</li>
+      <li>so I would just recommends this for people who own man LIPSTICKS.</li>
+      <li>It&#x27;s ok.</li>
+      <li>Better tan putting in a case you can see every color, no problem.</li>
+      <li>Great idea but my lip glosses and some lipsticks fall over because the space is larger than the product.</li>
+      <li>Amazing item fast delivery AAAAA+++++</li>
+      <li>And it&#x27;s a nice large pretty display!</li>
+      <li>Exactly what I needed.  </li>
+      <li>This is a very food lipstick organizer but not for lip glosses.</li>
+      <li>Very well made.  </li>
+      <li>The slots are a bit large for most of my lippies wish they ran the slots a smidge smaller but overall 36 slots for $17 is a deal!!!!</li>
+      <li>I am definitely planning on buying more in the near future.</li>
+      <li>Not even short lipsticks stand up straight.</li>
+      <li>If this thing gets bumped when full with lipsticks they all fall out or fall over SUPER IRRITATING having to constantly stand everything back up, especially if its full like mine.</li>
+      <li>I wish the holes were a little deeper so the lipsticks would stand straight</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> Perfect for lipstick!</li>
+<li> Perfect for all my lip products and great quality!</li>
+<li> Awesome fits all my lipsticks thank u !!!!:)</li>
+<li> Love it!</li>
+<li> so I would just recommends this for people who own man LIPSTICKS.</li>
+<li> It&#x27;s ok.</li>
+<li> Better tan putting in a case you can see every color, no problem.</li>
+<li> Great idea but my lip glosses and some lipsticks fall over because the space is larger than the product.</li>
+<li> Amazing item fast delivery AAAAA+++++</li>
+<li> And it&#x27;s a nice large pretty display!</li>
+<li> Exactly what I needed.  </li>
+<li> This is a very food lipstick organizer but not for lip glosses.</li>
+<li> Very well made.  </li>
+<li> The slots are a bit large for most of my lippies wish they ran the slots a smidge smaller but overall 36 slots for $17 is a deal!!!!</li>
+<li> I am definitely planning on buying more in the near future.</li>
+<li> Not even short lipsticks stand up straight.</li>
+<li> If this thing gets bumped when full with lipsticks they all fall out or fall over SUPER IRRITATING having to constantly stand everything back up, especially if its full like mine.</li>
+<li> I wish the holes were a little deeper so the lipsticks would stand straight</li>
+<li> and for the my regular size mac, nars, and other lipsticks, it wasn&#x27;t deep enough either.</li>
+<li> No more buying the same lipstick twice.</li>
+<li> They fall down</li>
+<li> I ordered this for my MAC lipsticks and possibly a few lip glosses.</li>
+<li> sturdy and heavy</li>
+<li> Don&#x27;t waste your money!</li>
+<li> The thing that I didn&#x27;t like about this is that the slots are to shallow.</li>
+<li> but wells are  shallow and some lipstick tubes tip.</li>
+<li> Looks expensive and decorative.</li>
+<li> So shallow!!!</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> This is a very food lipstick organizer but not for lip glosses. They fall down so I would just recommends this for people who own man LIPSTICKS.</li>
+    <li> sturdy and heavy but wells are  shallow and some lipstick tubes tip.</li>
+    <li> Perfect for lipstick!</li>
+    <li> Don&#x27;t waste your money!</li>
+    <li> Great idea but my lip glosses and some lipsticks fall over because the space is larger than the product.</li>
+    <li> The slots are a bit large for most of my lippies wish they ran the slots a smidge smaller but overall 36 slots for $17 is a deal!!!! And it&#x27;s a nice large pretty display!</li>
+    <li> Just what I needed .  Better tan putting in a case you can see every color, no problem.</li>
+    <li> It didn&#x27;t work out as it wasn&#x27;t deep enough for my lip glosses. and for the my regular size mac, nars, and other lipsticks, it wasn&#x27;t deep enough either.</li>
+    <li> Awesome fits all my lipsticks thank u !!!!:)</li>
+    <li> Not xtremely hapy w it..!</li>
+    <li> It&#x27;s ok. I wish the holes were a little deeper so the lipsticks would stand straight</li>
+    <li> Now my wife&#x27;s lipstick is organized! Well done.</li>
+    <li> Amazing item fast delivery AAAAA+++++</li>
+    <li> Love it! I am definitely planning on buying more in the near future. Perfect for all my lip products and great quality!</li>
+    <li> Very well made.  Looks expensive and decorative.</li>
+    <li> So shallow!!! Not even short lipsticks stand up straight.</li>
+    <li> I ordered this for my MAC lipsticks and possibly a few lip glosses. The thing that I didn&#x27;t like about this is that the slots are to shallow. If this thing gets bumped when full with lipsticks they all fall out or fall over SUPER IRRITATING having to constantly stand everything back up, especially if its full like mine.</li>
+    <li> Exactly what I needed.  No more buying the same lipstick twice.</li>
+</ol>
+
+
+
+

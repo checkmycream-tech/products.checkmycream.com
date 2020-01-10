@@ -1,0 +1,307 @@
+---
+title: Salux Nylon Japanese Beauty Skin Bath Wash Cloth/Towel - Peach Pink,
+description: Salux Nylon Japanese Beauty Skin Bath Wash Cloth/Towel - Peach Pink,
+author: Suvojit Manna,
+tags: Salux Nylon Japanese Beauty Skin Bath Wash Cloth/Towel - Peach Pink,
+publishedAt: Fri Jan 10 2020 14:59:07 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:59:07 GMT+0530 (India Standard Time),
+---
+
+# [Salux Nylon Japanese Beauty Skin Bath Wash Cloth/Towel - Peach Pink](https://products.checkmycream.com/products/Salux-Nylon-Japanese-Beauty-Skin-Bath-Wash-ClothTowel-Peach-Pink.html)
+
+### Positive Reviews
+
+<ol>
+      <li>This thing is great!  </li>
+      <li>This is a wonderful towel.  </li>
+      <li>This is WONDERFUL!  </li>
+      <li>the size of it is just perfect!</li>
+      <li>This &#x27;towel&#x27; works great!</li>
+      <li>The size is perfect and it generates a ton of lather.  </li>
+      <li>This is great!  </li>
+      <li>IT&#x27;S GREAT!!</li>
+      <li>It works wonderfully -</li>
+      <li>Great investment!!</li>
+      <li>And that&#x27;s why it&#x27;s the best!!!</li>
+      <li>LOVE IT!!!!</li>
+      <li>This is one is PERFECT!!!!</li>
+      <li>BEST EXFOLIATOR!</li>
+      <li>Excellent product for the price point.  </li>
+      <li>Amazing!!</li>
+      <li>Great exfoliator.</li>
+      <li>plan was to use it a couple of times a week, but I&#x27;m using it every night with my moisturizing liquid soap because it feels so great</li>
+      <li>Talk about great exfoliation.</li>
+      <li>Great exfoliator and can feel how it would help circulation when using this.</li>
+      <li>I have to wash twice a day to eradicate the skin mite population, which reduces them greatly.</li>
+      <li>Great product, beware of knock offs.</li>
+      <li>Great for exfoliation without irritation.</li>
+      <li>I received this wash cloth about a month ago, and I love it!!</li>
+      <li>Love It !!</li>
+      <li>Im touching myself rite now!!</li>
+      <li>I too got an authentic Salux, and it&#x27;s awesome.  </li>
+      <li>Yes this is rougher than a pouf but in a good exfoliating way.</li>
+      <li>Just as good as microdermabrasion.</li>
+      <li>and it feels good.  </li>
+      <li>Definitely a good buy though.</li>
+      <li>Good for prevention of ingrown hairs.</li>
+      <li>You can easily wash any part of your body with this!!</li>
+      <li>This really is a wonderful product for such a great price!!</li>
+      <li>Better than any luffa I&#x27;ve ever came across, and make great stocking stuffers.</li>
+      <li>I&#x27;m so happy I bought more than one at the time.</li>
+      <li>After using this you will have really smooth skin!!</li>
+      <li>I bought and purchased this wash cloth as a gift to a friend since I knew she would love it!</li>
+      <li>Love them!</li>
+      <li>Love it!</li>
+      <li>I bought this towel after reading the reviews and was 100% satisfied!  </li>
+      <li>I absolutely love them!  </li>
+      <li>They combine the best parts of a loofa and a large washcloth into one product.  </li>
+      <li>These washcloths are amazing.</li>
+      <li>I&#x27;m now \\&quot; polishing\\&quot; as I shower, and the results feel nice.</li>
+      <li>The length makes it versatile and the material creates nice lather for any type of soap I have used with it.  </li>
+      <li>This is absolutely the best skin care product I have ever purchased.</li>
+      <li>These r the kind I wanted #300.</li>
+      <li>it&#x27;s quite nice.</li>
+      <li>and it doesn&#x27;t move on the skin in an effective way to exfoliate.</li>
+      <li>It&#x27;s an amazing product, and I&#x27;ve bought one for most everyone I know.</li>
+      <li>it lathers up much more nicely than a loofah</li>
+      <li>/&gt;(a bit more abrasive) and  #3 (rougher than I liked) and when ordering it is something to pay attention to.  </li>
+      <li>I love, love, love, the Salux nylon wash cloth!</li>
+      <li>She loves it, ok.</li>
+      <li>This is so much better.  </li>
+      <li>It lathers up and gets very soapy, but the cloth itself does a great job exfoliating my skin.  </li>
+      <li>The length is perfect for reaching my back, which feels like some massage.</li>
+      <li>smooth skin....MUAH!</li>
+      <li>I will order again.  :))&lt;</li>
+      <li>and I love it, love it, love it.&lt;br /&gt;&lt;br</li>
+      <li>Therfore maybe with two months ot more find something</li>
+      <li>These nylon cloths are a thousand times better than both those things.</li>
+      <li>I love this thing.  </li>
+      <li>it is 2-3 times thicker and slightly more abrasive.  </li>
+      <li>Found these while living in Hawaii, have been using them for decades, just love them.</li>
+      <li>I love this cloth.  </li>
+      <li>I haven&#x27;t needed to buy more body wash in awhile.</li>
+      <li>The length of this cloth is perfect for reaching your back!</li>
+      <li>and seems to scrub off residue better.  </li>
+      <li>I&#x27;m so glad that I bought it</li>
+      <li>and I will definitely recommend it others! :D</li>
+      <li>I just ordered more for my daughters.  </li>
+      <li>You said I would love this</li>
+      <li>Love these.  </li>
+      <li>I will be purchasing two more to have for reserves.</li>
+      <li>I need order some more for all of my daughters, and sisters.</li>
+      <li>I love this wash cloth...  </li>
+      <li>I love this cloth.</li>
+      <li>I&#x27;m completely satisfied, and I recommend it for everyone.</li>
+      <li>and I love them.</li>
+      <li>Better than any wash cloth, loofah, sponge on the market.</li>
+      <li>Best part is that they dry immediately thus reducing the risk of growing bacteria.</li>
+      <li>It is very easy to rinse clean, I hold it for a couple seconds under the shower stream and it is rinsed of soap.</li>
+      <li>They work great leaving your skin baby soft.</li>
+      <li>Best $3 I ever spent!</li>
+      <li>But it is easy to rinse out in the shower as well.</li>
+      <li>EASILY rinses from nylon then</li>
+      <li>If you want to enjoy your showers much more and actually clean your body</li>
+      <li>My friend called me the following morning telling me how great the wash cloth is and that her boyfriend uses it as well.</li>
+      <li>smooth</li>
+      <li>I ordered from Sky Outlet Mall and received a genuine Salux cloth, in roughness</li>
+      <li>Overall it&#x27;s a great product and does what its suppose too.</li>
+      <li>I ordered this item, but the seller SCS Collectibles, Inc switched the product and sent me some cheap rag from China.  </li>
+      <li>in multiples if available.</li>
+      <li>It&#x27;s fantastic.</li>
+      <li>Great for the hard-to-reach areas like your back.</li>
+      <li>The original arrived within a day with Prime.</li>
+      <li>I wanted to let people know without disparaging the reputation of the original product.    </li>
+      <li>I didnt know that you could feel this clean after a shower.</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> This thing is great!  </li>
+<li> This is a wonderful towel.  </li>
+<li> This is WONDERFUL!  </li>
+<li> the size of it is just perfect!</li>
+<li> This &#x27;towel&#x27; works great!</li>
+<li> The size is perfect and it generates a ton of lather.  </li>
+<li> This is great!  </li>
+<li> IT&#x27;S GREAT!!</li>
+<li> It works wonderfully -</li>
+<li> Great investment!!</li>
+<li> And that&#x27;s why it&#x27;s the best!!!</li>
+<li> LOVE IT!!!!</li>
+<li> This is one is PERFECT!!!!</li>
+<li> BEST EXFOLIATOR!</li>
+<li> Excellent product for the price point.  </li>
+<li> Amazing!!</li>
+<li> Great exfoliator.</li>
+<li> plan was to use it a couple of times a week, but I&#x27;m using it every night with my moisturizing liquid soap because it feels so great</li>
+<li> Talk about great exfoliation.</li>
+<li> Great exfoliator and can feel how it would help circulation when using this.</li>
+<li> I have to wash twice a day to eradicate the skin mite population, which reduces them greatly.</li>
+<li> Great product, beware of knock offs.</li>
+<li> Great for exfoliation without irritation.</li>
+<li> I received this wash cloth about a month ago, and I love it!!</li>
+<li> Love It !!</li>
+<li> Im touching myself rite now!!</li>
+<li> I too got an authentic Salux, and it&#x27;s awesome.  </li>
+<li> Yes this is rougher than a pouf but in a good exfoliating way.</li>
+<li> Just as good as microdermabrasion.</li>
+<li> and it feels good.  </li>
+<li> Definitely a good buy though.</li>
+<li> Good for prevention of ingrown hairs.</li>
+<li> You can easily wash any part of your body with this!!</li>
+<li> This really is a wonderful product for such a great price!!</li>
+<li> Better than any luffa I&#x27;ve ever came across, and make great stocking stuffers.</li>
+<li> I&#x27;m so happy I bought more than one at the time.</li>
+<li> After using this you will have really smooth skin!!</li>
+<li> I bought and purchased this wash cloth as a gift to a friend since I knew she would love it!</li>
+<li> Love them!</li>
+<li> Love it!</li>
+<li> I bought this towel after reading the reviews and was 100% satisfied!  </li>
+<li> I absolutely love them!  </li>
+<li> They combine the best parts of a loofa and a large washcloth into one product.  </li>
+<li> These washcloths are amazing.</li>
+<li> I&#x27;m now \\&quot; polishing\\&quot; as I shower, and the results feel nice.</li>
+<li> The length makes it versatile and the material creates nice lather for any type of soap I have used with it.  </li>
+<li> This is absolutely the best skin care product I have ever purchased.</li>
+<li> These r the kind I wanted #300.</li>
+<li> it&#x27;s quite nice.</li>
+<li> and it doesn&#x27;t move on the skin in an effective way to exfoliate.</li>
+<li> It&#x27;s an amazing product, and I&#x27;ve bought one for most everyone I know.</li>
+<li> it lathers up much more nicely than a loofah</li>
+<li> /&gt;(a bit more abrasive) and  #3 (rougher than I liked) and when ordering it is something to pay attention to.  </li>
+<li> I love, love, love, the Salux nylon wash cloth!</li>
+<li> She loves it, ok.</li>
+<li> This is so much better.  </li>
+<li> It lathers up and gets very soapy, but the cloth itself does a great job exfoliating my skin.  </li>
+<li> The length is perfect for reaching my back, which feels like some massage.</li>
+<li> smooth skin....MUAH!</li>
+<li> I will order again.  :))&lt;</li>
+<li> and I love it, love it, love it.&lt;br /&gt;&lt;br</li>
+<li> Therfore maybe with two months ot more find something</li>
+<li> These nylon cloths are a thousand times better than both those things.</li>
+<li> I love this thing.  </li>
+<li> it is 2-3 times thicker and slightly more abrasive.  </li>
+<li> Found these while living in Hawaii, have been using them for decades, just love them.</li>
+<li> I love this cloth.  </li>
+<li> I haven&#x27;t needed to buy more body wash in awhile.</li>
+<li> The length of this cloth is perfect for reaching your back!</li>
+<li> and seems to scrub off residue better.  </li>
+<li> I&#x27;m so glad that I bought it</li>
+<li> and I will definitely recommend it others! :D</li>
+<li> I just ordered more for my daughters.  </li>
+<li> You said I would love this</li>
+<li> Love these.  </li>
+<li> I will be purchasing two more to have for reserves.</li>
+<li> I need order some more for all of my daughters, and sisters.</li>
+<li> I love this wash cloth...  </li>
+<li> I love this cloth.</li>
+<li> I&#x27;m completely satisfied, and I recommend it for everyone.</li>
+<li> and I love them.</li>
+<li> Better than any wash cloth, loofah, sponge on the market.</li>
+<li> Best part is that they dry immediately thus reducing the risk of growing bacteria.</li>
+<li> It is very easy to rinse clean, I hold it for a couple seconds under the shower stream and it is rinsed of soap.</li>
+<li> They work great leaving your skin baby soft.</li>
+<li> Best $3 I ever spent!</li>
+<li> But it is easy to rinse out in the shower as well.</li>
+<li> EASILY rinses from nylon then</li>
+<li> If you want to enjoy your showers much more and actually clean your body</li>
+<li> My friend called me the following morning telling me how great the wash cloth is and that her boyfriend uses it as well.</li>
+<li> smooth</li>
+<li> I ordered from Sky Outlet Mall and received a genuine Salux cloth, in roughness</li>
+<li> Overall it&#x27;s a great product and does what its suppose too.</li>
+<li> I ordered this item, but the seller SCS Collectibles, Inc switched the product and sent me some cheap rag from China.  </li>
+<li> in multiples if available.</li>
+<li> It&#x27;s fantastic.</li>
+<li> Great for the hard-to-reach areas like your back.</li>
+<li> The original arrived within a day with Prime.</li>
+<li> I wanted to let people know without disparaging the reputation of the original product.    </li>
+<li> I didnt know that you could feel this clean after a shower.</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> This is truly Japanese bath sponge. I&#x27;m completely satisfied, and I recommend it for everyone.</li>
+    <li> It makes your skin soft *after* you use it, but for me, its a bit rough. Hey, maybe I will get use to it.. Definitely a good buy though. Bought 1 for my sister.</li>
+    <li> I received the real deal, not a knockoff - I checked the packaging very carefully after reading all of the reviews about the Chinese version of this washcloth masquerading as the Japanese-made one.    It works wonderfully - it lathers up much more nicely than a loofah and it really exfoliates your skin.  The only downside is that you&#x27;ll probably need to use lotion after using this washcloth since it can really dry your skin out if you&#x27;re not used to it.</li>
+    <li> I cut the wash cloth into 2 pieces and hemmed the ends.  For some reason, the pink is a lot stronger and seems better than the same product in blue. and seems to scrub off residue better.  The blue is a milder abrasive when scrubbing.  It is great to scrub the skin with a natural body wash, adding about a dime or more, then working up until no more suds form, then scrubbing dry skin twice-allover to reduce the skin mite population on my body.  It has also helped my skin diminish the psoriasis build-up, along with my using a pumice stone.  I have to wash twice a day to eradicate the skin mite population, which reduces them greatly.</li>
+    <li> Great for exfoliation without irritation. Can be used everyday. Makes my body wash more effective and longer lasting. A small amount of body wash is enough to cover the whole body. Good for prevention of ingrown hairs. Regular use has improved the appearance of my skin.</li>
+    <li> I ordered one of these after reading about it on a beauty forum.  It takes a little getting used to, but it does a good job of removing dead skin. It leaves my skin soft and I seem to need less lotion than I used to. It dries quickly too.</li>
+    <li> This &#x27;towel&#x27; works great! As mentioned in at least one other review, liquid (not bar soap) soap should be used with it. It&#x27;s long enough to reach all areas, cleans/exfoliates very well without damaging skin, works up a good lather with just a bit of soap, and rinses out very easily.    I&#x27;ve used the Vic&#x27;s face cloth for at least 20 years and it was the best product I had found for my face. Now, I only use it when I&#x27;m in a hurry (it works well with bar soap and can readily be tossed in the wash); my first choice is this towel, which I use on my face and pretty much everywhere else.    At Amazon, several different sellers market this same towel, just in different colors. All with the same packaging are the same towel - only the color is different. My suggestion is to go with the lowest price plus s&amp;h so long as the packaging is the same - unless you just MUST have a particular color.</li>
+    <li> I&#x27;ve been using this for about a week and my skin has never been softer! Best $3 I ever spent!</li>
+    <li> I love these Japanese scrub towels. They work great leaving your skin baby soft. Best part is that they dry immediately thus reducing the risk of growing bacteria. Love them!</li>
+    <li> For the first time (without hard handled brushes), I feel I can really get my total back clean and it feels good.  The exfoliation with this cloth is milder than a loofah sponge (in my opinion), yet has more umph, than a regular wash cloth.  Will be using this cloth from now on.</li>
+    <li> I was looking to replace my Bath and Body exfoliating body glove since they stopped producing it.  This is so much better.  It&#x27;s a lot rougher, and I feel all the dead skin cells leaving my body.  I use it with Bath and Body Works shower foam, and it&#x27;s absolutely glorious.  Thanks for making showers fun again!    Definitely recommend if you&#x27;re looking for an exfoliating cloth!</li>
+    <li> I received this wash cloth about a month ago, and I love it!! I do not recommend it to anyone with hyper sensitive skin because the texture of the cloth is pretty scratchy, even after it has been saturated with suds. It does not feel like a traditional washcloth, it feels like a tiny, porous, plastic/nylon mesh grid. But scrubbing with it feels totally invigorating and exfoliating, I can definitely feel it helping to shed dead skin cells and improving circulation.&lt;br /&gt;&lt;br /&gt;I put a dime sized amount of body wash on the cloth, and scrunch it together with a little water to create lather - and you get a LOT of lather this way. I haven&#x27;t needed to buy more body wash in awhile. The length of this cloth is perfect for reaching your back! Also, if you have a problem with shaving bumps on your legs as I sometimes do, using this cloth repeatedly over time will remove them! Just don&#x27;t moisturize right after, or the pores may clog.&lt;br /&gt;&lt;br /&gt;You feel totally clean after using it, compared to a loofah, washcloth, or poof. With repeated use, your skin will be softer. A+!</li>
+    <li> Bought this item and was surprised how \\&quot; fun\\&quot; it is to use. I&#x27;m now \\&quot; polishing\\&quot; as I shower, and the results feel nice. Bought mainly to help control ingrown hairs and bumpy skin. Ofcourse it&#x27;s not magic and I still need other products but this towel for me is working alittle magic that I couldn&#x27;t get from scrubby washes or loofahs.</li>
+    <li> This product has made my 55 year old skin softer than is has been in years.  Once you have lathered up and scrubbed using this cloth, You will never feel quite as clean using anything else. For under 5.00 - you will have a product that can produce tangible results (softer skin) in less that a week.</li>
+    <li> They have this product at big lots, its not the same brand but its the same thing and it only a dollar. Overall it&#x27;s a great product and does what its suppose too. Great exfoliator and can feel how it would help circulation when using this.</li>
+    <li> I hate loofahs... Nasty lil bacteria balls. Use these instead and still get exfoliated! I&#x27;ve been using these for 15 years. Great product, beware of knock offs. Must be Salux Japanese.</li>
+    <li> I ordered this item, but the seller SCS Collectibles, Inc switched the product and sent me some cheap rag from China.  I wanted to let people know without disparaging the reputation of the original product.    Update: I received the real deal from another source and the Japanese made Salux Scrub Towel is vastly superior to the Chinese made towel.  it is 2-3 times thicker and slightly more abrasive.  It will last 10 times longer and do a better job.</li>
+    <li> I bought this towel after reading the reviews and was 100% satisfied!  While I was worried that I might receive the fake chinese brand, I did not! The original arrived within a day with Prime. Thank you Amazon!  And thank you reviewers! Two days of use and my skin already feels baby soft and refreshingly clean!   I&#x27;m so glad that I bought it and I will definitely recommend it others! :D</li>
+    <li> I too got an authentic Salux, and it&#x27;s awesome.  I can notice a difference in the smoothness of my skin after I use it.  I highly recommend and I will be buying these from now on!</li>
+    <li> Its affordable, and really does a great job at removing dead skin. I use it once a week, all over my body. It leaves my skin super soft. I have KP on my upper arms and this has really done a great job at helping lessen the appearance.</li>
+    <li> I love this wash cloth...  I didnt know that you could feel this clean after a shower. My skin is super soft now. I could see how it could dry out your skin but just adding a light moisturizer after getting out of the shower makes my skin even softer then the cloth alone.</li>
+    <li> I love, love, love, the Salux nylon wash cloth! This really is a wonderful product for such a great price!! Talk about great exfoliation. I cannot say enough about this little jewel. I&#x27;m so happy I bought more than one at the time. I need order some more for all of my daughters, and sisters. This is a keeper. Order one and try it. I will be ordering more in the future.</li>
+    <li> This is absolutely the best skin care product I have ever purchased. I don&#x27;t know how it works but it does. Everytime, without fail. My skin is soft and much younger looking from the first use. I&#x27;ve ordered several more so I don&#x27;t run out. Also use it in the bath. cut mine in half &#x3D;half face, half bath. Will NEVER be without this one. I&#x27;ve used expensive creams, treatments in the past and nothing compares to this. Umbelievable.</li>
+    <li> Second Salux purchased for my sister for a trip to Italy.  Love these.  I have had one for about 6 months and use it daily in the shower to exfoliate my skin.  It is like a synthetic round loofa poof only very long.  This is great for cleaning your back especially.  I put bar soap and body wash on it.  We brought it with us for our European trip and it were glad we did as it dries quickly and is very lightweight.  In a nutshell it&#x27;s like a washcloth.</li>
+    <li> If you are used to the roughness of exfoliating products, you will appreciate this gem!  It gets the job done and allows for use of any type of cleanser during the process.  Great for the hard-to-reach areas like your back.</li>
+    <li> A friend recommended these to me and so I ordered two to try them out.  I absolutely love them!  They combine the best parts of a loofa and a large washcloth into one product.  The size is perfect and it generates a ton of lather.  I read a few reviews of people receiving knock-offs, but the ones from my seller were definitely genuine.</li>
+    <li> I&#x27;ve tried a million skin things to get the dry dead skin off my body.  I have Hashimoto&#x27;s thyroiditis which can cause dry skin and flaking, and other things.  So I&#x27;ve tried Loofah&#x27;s and poofs and other things.  This is great!  The original Japanese product is what I&#x27;m reviewing.  I bought one at the Japanese grocer.  This thing is great!  It uses very little soap, its very VERY scrubby, but it feels good, and by the end of the shower I could feel my skin soft and smoother then ever!  After just one use.  It dried out within a few minutes.  I love this thing.  It&#x27;s fantastic.</li>
+    <li> LOVE IT!!!! I too have been misled by others. One brand I brought often changed there material and I did not get the texture needed to exfoliate as I wanted. This is one is PERFECT!!!! Please don&#x27;t change the material. I will order again.  :))&lt;br /&gt;&lt;br /&gt;HAPPY, smooth skin....MUAH!</li>
+    <li> Too bad this only comes in a mildly-exfoliating version.  The color peach is lovely but is hardly, if at all, different from the shade &amp;#34;pink&amp;#34; also offered by &amp;#34;Salux&amp;#34;.  I much prefer the &amp;#34;SUPER HARD WEAVE&amp;#34; sold by &amp;#34;Cure&amp;#34; in cobalt blue, also on the Amazon site.  If you want exfoliation, the towel by &amp;#34;Cure&amp;#34; is the one for you!</li>
+    <li> This is a pouf scrubby in towel form. I personally would prefer individual wash cloth size&lt;br /&gt;packaged in multiples if available. Shipping was quick.</li>
+    <li> Again, it is a bit baffling that so many of us feel the need to write a review to say that we received the correct item, but as many other people have written, there are a lot of companies selling the \\&quot;Salux\\&quot; cloths that are really Leyjie knockoffs. There is a definite difference in quality between the two, not to mention the fact that the Salux cloths are manufactured in Japan, where labor and environmental issues are more controlled than they are in China, where the Leyjie cloths are made.  Thank you KASHAYA INC, for delivering the real deal.  That said, if you DO receive the Leyjie knockoffs, Live chat with Amazon, and they will refund you.  The cloth itself is a nylon exfoliating cloth, short enough so that you can grip it easily, but wide enough so that you can clean your back easily. I would not recommend this for the face, but it is excellent at removing dry rough skin everywhere else. They also help lather soaps and body washes. I think they make great hostess gifts, stocking suffers, inexpensive pick me up gifts, and highly recommend them to everyone.</li>
+    <li> Scrubbed me so clean I felt like a newborn&#x27;s butt. I don&#x27;t think there&#x27;s an ounce of dead skin left on me and if there is it&#x27;s cowering in fear somewhere just WAITING to be buffed away. This is clearly made from woven unicorn mane and tail hair, because only those mythical items could create this.</li>
+    <li> Great exfoliating towel very scrubby almost like those metal scrubbers used for dishes but not made of any such material. feels great better than a sugar or salt scrub on skin and its so thin no need to ring it out the water has nothing to stay inside really. also scrubbing my back for the first time ever feels so therapeutically good. this is not a knock off like the other comments say this is the salux straight from Japan as advertised. I just wish this was more of a hot pink &#x3D;) would recommend to anyone who likes scrubbing daily without using a pumice stone or cant afford sugar scrubs or other exfoliants this does the job.</li>
+    <li> Where have these been all my life!  I am done with any kind of body brush, back scrubbing brush or other awkard  thing you have to try to wrestle and wrangle to wash your back side.  This is WONDERFUL!  I cannot imagine someone thinking that this is too rough.  I even use it on my face.  The length makes it versatile and the material creates nice lather for any type of soap I have used with it.  It rinses absolutely clean and dries quickly.  I just can&#x27;t say enough about this product.  Can&#x27;t believe it has taken me 50 years to figure this out!</li>
+    <li> I bought this to use on my face. I do not recommend this as a use, it is way to abrasive for that. It probably works well for use on the body though.</li>
+    <li> This is a wonderful towel.  My family has been using these for years and years.  Really helps with scrubbing my back and feet.</li>
+    <li> I&#x27;ve tried many gloves, sponges, and other types of things for exfoliation. I epilate my legs so I find exfoliation an integral part of my bathing routine to keep ingrown hairs at bay. What I enjoy most about this cloth is that you can ball it up and use as a sponge, or you can stretch it out and use as a back exfoliating cloth. It is very easy to rinse clean, I hold it for a couple seconds under the shower stream and it is rinsed of soap. It dries very quickly too, and I do recommend hanging it up to dry to prolong its life. It is rough enough to keep skin smooth and since I&#x27;ve been using this, I haven&#x27;t had an issue with ingrown hairs. I do use it with soap and suds it up quite a bit bc it rubs easier on the skin that way. Using it without soap seems a little rough and it doesn&#x27;t move on the skin in an effective way to exfoliate. I will definitely repurchase this again when the current one has given me its full lifespan of exfoliation!</li>
+    <li> I believe that I received the original, but my skin might be too sensitive. It felt like sandpaper and much coarser than cheap loofahs I bought from the Dollar Tree or the Body Shop. I tried it on my body and it was actually painful so I gave it away. :(</li>
+    <li> I have been using this type of wash cloth for about 10 years and I love them. I decided to try these cloths because of the reviews and I found them even better and longer lasting than the ones I had purchased before. I will continue to order them and use them for a long time to come. The size is big and they are sturdy and they exfoliate my skin nicely. (I also have given these as gifts to my family and friends, that is just how much I like them!)</li>
+    <li> My skin has never been so soft</li>
+    <li> I&#x27;ve been using salux wash clothes for almost 20 years now.I bought and purchased this wash cloth as a gift to a friend since I knew she would love it! My friend called me the following morning telling me how great the wash cloth is and that her boyfriend uses it as well.If you want to enjoy your showers much more and actually clean your body well this is the product for you! It rinses clean and you can reach all your hard to reach spots due to the wash cloth design.Give this wash cloth a try and you&#x27;ll throw out whatever you were using before.I&#x27;ll never go without this wash ever!!! And that&#x27;s why it&#x27;s the best!!!</li>
+    <li> A shower must-have! It sloughs off the dead cells making for an invigorating experience; highly recommended, especially for the back (which can be so difficult to reach).</li>
+    <li> Excellent product for the price point.  This thing lasts a long time and leaves the skin fresh without being too abrasive.</li>
+    <li> I like this sponge.  Warning:  it scrubs a lot harder than the one from the body shop but I like it.</li>
+    <li> I am turning fifty this year and starting to try different things to maintain my \\&quot;youthful appearance!\\&quot;  I had been using a loofah scrubber but it just didn&#x27;t seem like it had enough \\&quot;oomph\\&quot; in terms of really exfoliating my skin.  Found this Salux cloth while searching Amazon.  Saw all the comments to make sure to get the Japanese original and not a Chinese knockoff.  This one seems to be the original as far as I can tell.      It is amazing to use, my skin has never felt as smooth and soft.  I just ordered more for my daughters.  They both get tiny bumps on their upper arms and nothing has ever helped smooth their skin in this area but this cloth took care of it in a couple days.    Such a simple little piece of material, makes you think there must be something comparable you can just make on your own but for the price, there really is no point in not getting this one.</li>
+    <li> I ordered from Sky Outlet Mall and received a genuine Salux cloth, in roughness no. 100. I&#x27;ve been using one for about three years now, and I can&#x27;t go back to normal washclothes.&lt;br /&gt;&lt;br /&gt;It exfoliates well, lasts for years, and definitely makes the soap go farther. Not only that, it&#x27;s easier to really wash everywhere, especially your back.&lt;br /&gt;&lt;br /&gt;It was a bit rough on my skin at first, but with more gentle scrubbing, I personally got over that in about a week. I hang mine up in the shower and it dries quickly.</li>
+    <li> Suds quickly with just a little soap, gentle on skin, and dries super fast. Love it!</li>
+    <li> I hate those big pouf balls that just eat up shower gel and do nothing but move it around on my skin.  I have no idea what makes this humble looking thing work so well, but the first time I used it and saw how effectively it exfoliates, I was seriously standing there in the shower with my jaw hanging open.  My skin felt fantastic, glowing and squeaky clean, and now I cannot shower without this little gem.</li>
+    <li> I feel so much cleaner and fresh with this than a luffa sponge. Plus this doesn&#x27;t fall apart with use. I throw it in the washing machine every now and then to clean it. But it is easy to rinse out in the shower as well. Great exfoliator.</li>
+    <li> This product came as a #100 instead of a #300, so I didn&#x27;t get the less-abrasive cloth I was looking for. However, a friend of mine ordered and received a #300 from a different seller and assured me there was virtually no difference in the feel of the #300 from the #100. I do use it on my face (GENTLY) and everywhere on my body. It&#x27;s an amazing product, and I&#x27;ve bought one for most everyone I know.</li>
+    <li> I&#x27;ve used washcloths which don&#x27;t dry quickly enough so have to frequently wash and dry.  Then used a bath pouf which were very hard to rinse all the lather out.  These nylon cloths are a thousand times better than both those things. I cut mine into thirds so it&#x27;s about the size of a washcloth. I put a quarter size amount of body wash then work it into lather. Yes this is rougher than a pouf but in a good exfoliating way. Leaves skin softer. Lather  EASILY rinses from nylon then just hang to dry and it&#x27;s  ready for next shower. Feels so hygienic.</li>
+    <li> Firstly, this product shipped SO quickly. Received it within a few days!&lt;br /&gt;And then, the performance... I received the genuine Made in Japan Salux towel in the correct color (pink). I was a bit worried it would feel too harsh, and I thought that when I touched it as well. But when I actually used it in the shower, it felt AMAZING. Not too harsh but definitely feels like extreme exfoliation! I&#x27;ve used a dozen different exfoliating methods and this feels like something entirely new. The length is perfect for reaching my back, which feels like some massage. And my skin afterward was so extremely soft. If you have body acne or ever deal with ingrown hairs, I&#x27;m sure this&#x27;ll answer a few prayers.&lt;br /&gt;HIGHLY RECOMMENDED! BEST EXFOLIATOR!</li>
+    <li> I received my Japanese wash cloth exactly as described within just a few days of ordering. A buddy of mine introduced me to Salux wash cloths a few years ago and now it&#x27;s all I use!</li>
+    <li> My daughter loves this! It lasts a long time and is easy to use and wash. She loves it, ok.</li>
+    <li> Definitely exfoliates.Feels funny at first but works.cut it in half because it is quite large.not a good idea,it shreds.would buy again.</li>
+    <li> This washcloth is amazing, exfoliates well but doesn&#x27;t feel harsh on skin. It lathers with just a little bit of soap, the material keeps it dry/hygienic, and the length helps to scrub in all those hard to reach places. It has definitely helped the skin on my back clear up and all the exfoliation has given me a more even tone on my body. Won&#x27;t go back to cotton washcloths!</li>
+    <li> It looks like it&#x27;s going to be painful and too scratchy to use, but once it&#x27;s all sudsed up with body wash it&#x27;s quite nice. It&#x27;s a good daily exfoliator and in combination with moisturizing regularly has really improved my skin.</li>
+    <li> Love It !! Great investment!! will purchase for friends and family!!...Im touching myself rite now!!.. smooth ..soft...ahhh...bye bye petroleum jelly!!</li>
+    <li> I love this cloth.  My skin has always suffered with dryness issues but no more!  I moisturize right out of the shower and my skin stays smooth all day long!  I would definitely recommend to anyone looking to exfoliate regularly or just get their skin to a new level of soft and smooth!</li>
+    <li> Found these while living in Hawaii, have been using them for decades, just love them.</li>
+    <li> Love it, very scratchy just what I wanted to clear up my back</li>
+    <li> These r the kind I wanted #300. Scrubs really well.</li>
+    <li> I&#x27;m not sure why there is so much hype about a cheap piece of rough nylon cloth.  Yes, I&#x27;m talking about the authentic Salux nylon, made in Japan, not some imitation some here have complained about.  I bought this based on all the rave reviews only to find out it&#x27;s no more than a piece of cheaply made nylon that gave me dermatitis, especially on my hands.  No matter how gentle and careful I was when using it, it always made palms of my hands red, raw, dry and incredibly itchy like nothing else.&lt;br /&gt;&lt;br /&gt;Perhaps a imitation product would have worked better. I suspect a lot of positive reviews are fake.  Do no buy this product, especially if you have sensitive skin.</li>
+    <li> Amazing!! Very durable!! You can easily wash any part of your body with this!! I use to have a hard time washing my back really well with other back sponges etc and would have a few break out but since using this product I have no more break out because I can get to every part of my back with no problem!! It cleans without losing color  and the material doesnt lose its texture! It dries really quick also. After using this you will have really smooth skin!! I bought two and will continue to buy for a lifetime!!</li>
+    <li> I love this cloth. It lathers beautifully and makes whatever body wash or soap you are using last much longer, because only a little bit of product is needed. Also, I have noticed improved skin tone and smoothness to my skin. I am African American and have medium dark brown skin. I use this instead of bath poufs or even exfoliating gloves. I will be purchasing two more to have for reserves. I have used mine either once or twice a day for about one month and the material has held up very well. I throw mine in the washing machine once a week when washing bath towels and let it hang dry. Highly recommend this cloth!</li>
+    <li> I lovvvve it! the size of it is just perfect! The only thing made me giving it 4 stars instead of 5 stars because my skin itches a little bit after using it. However, after applying some lotion, the problem got solved.</li>
+    <li> it&#x27;s very thin and tall , I use many times but I didn&#x27;t observed any differance of other. Therfore maybe with two months ot more find something</li>
+    <li> This product definitely smooths your entire ski ! Repurchase ? Definitely. It removes the dead skin...</li>
+    <li> These are so handy if reach and mobility is limited in any way.  They were purchased before a surgery because of needing to thoroughly wash with antibiotic soap for 3 days all over the body.  While the description does not clearly state it, they come in #100 (mildly abrasive), #2&lt;br /&gt;(a bit more abrasive) and  #3 (rougher than I liked) and when ordering it is something to pay attention to.  If I could have gotten all three I bought in #1 I would have .</li>
+    <li> This product is great for everyday exfoliation.  It lathers up and gets very soapy, but the cloth itself does a great job exfoliating my skin.  My skin feels super clean every time I use it.  My only complaint is that it can be a little uncomfortable - i.e. very, very scratchy - but if that&#x27;s the price you gotta pay to get my skin so soft and smooth, I&#x27;ll take it!</li>
+    <li> First:  Thanks to all the other reviewers.  You said I would love this and I do.  You said to watch for knock-offs and I did.  I have the Real Salux Japanese Cloth and I love it, love it, love it.&lt;br /&gt;&lt;br /&gt;My plan was to use it a couple of times a week, but I&#x27;m using it every night with my moisturizing liquid soap because it feels so great and I love (!) the way my skin feels after the shower.  Washing my  back has never been so easy.  My skin has ALWAYS been dry.  This seems to have solved the problem.  It&#x27;s not the soap because it&#x27;s the same product as before; it&#x27;s the Salux Cloth.  I&#x27;ll update later about the cellulite thing when I see what happens long-run.&lt;br /&gt;&lt;br /&gt;I rinse the cloth under the brisk shower head and it dries overnight.  I don&#x27;t care for the way it looks hanging in the clear-door, frameless shower so I put it into a drawer for the day.  As recommended by other reviewers, I&#x27;ll put it in the washer at the end of the week for the extra cleaning.</li>
+    <li> These washcloths are amazing. Liquid soap goes twice as far and my skin has never felt better.&lt;br /&gt;These cloths are quite large which makes it very easy to scrub your back.</li>
+    <li> The only wash cloth I use. It removes all the dead cells on your body. I even use it to wash my face. After showering your whole body feels like you have had a relaxing massage.  We discovered these wash towels while living in Japan.</li>
+    <li> I&#x27;ve tried many brands of the wash clothes and they all pretty much turn soft after a month or so.&lt;br /&gt;These stay firm and continue to exfoliate for longer period of time</li>
+    <li> Better than any wash cloth, loofah, sponge on the market.</li>
+    <li> I first ran into these amazing wash towels while stationed in Hawaii, the first couple of times using them you tend to think they are gonna be a little harsh on the skin but after a few showers I fell in love with them. They make you feel like you just left the spa and you just had a body scrub. (never had a body scrub but just imagine that&#x27;s what it feels like) They lather up extremely well with only a minimal amount of soap. They air dry in no time and can be tossed in the wash. They also last for months, I keep one at work and home. Better than any luffa I&#x27;ve ever came across, and make great stocking stuffers.</li>
+    <li> (JUST BE SURE THAT YOURS-RECEIVED IS A GENUINE &amp;#34;SALUX&amp;#34; PRODUCT, MANUFACTURED IN JAPAN  [NOT in China],  or its quality WILL NO-WHERE NEARLY MATCH THIS REVIEW)! If you DO receive a look-alike from an unscrupulous merchant and the package says &amp;#34;Made In China,&amp;#34; !SEND IT BACK IMMEDIATELY, UNOPENED, FOR A REFUND!!!  REVIEW OF THE ORIGINAL, &amp;#34;SALUX&amp;#34; JAPANESE-MADE CLOTH: ........  WATCH OUT DIRT AND BODY-GREASE...HERE IT COMES! It&#x27;s an almost-all synthetic, long washcloth with a REAL &amp;#34;scrubbing&amp;#34; propensity to &amp;#34;sloth&amp;#34; away dead skin, dirt and body oils that leave you feeling &amp;#34;invigorated&amp;#34; after every shower or bath.  They produce copious amounts of foam from small amounts of almost any body-wash liquid or bar soaps and the cloths, themselves, last me at least a couple of years before they must be replaced (always, because a couple of inches of their ends begin to tear off after that amount of time/usage, during the type of back-scrub motions as exhibited on the package&#x27;s front side)...I THEN continue to use the now-shorter, &amp;#34;spent&amp;#34; cloth for house-hold scrubbing of bath-stalls, stoves, ovens, soiled pots/pans, etc. This &amp;#34;recycling&amp;#34; act extends their VERY useful life-span ANOTHER few years.  It usually fully-dries in less then a couple of hours when hung from its end or draped in its middle.  IT&#x27;S GREAT!! (especially if you&#x27;re really dirty and don&#x27;t have sensitive skin!!)</li>
+    <li> Holy exfoliator!  Leaves skin super soft and products absorb better after.  Just as good as microdermabrasion.</li>
+</ol>
+
+
+
+

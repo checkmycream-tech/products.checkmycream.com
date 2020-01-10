@@ -1,0 +1,266 @@
+---
+title: Formula 10-0-6 SO Totally Clean Deep Pore Cleanser -- 6.75 fl oz,
+description: Formula 10-0-6 SO Totally Clean Deep Pore Cleanser -- 6.75 fl oz,
+author: Suvojit Manna,
+tags: Formula 10-0-6 SO Totally Clean Deep Pore Cleanser -- 6.75 fl oz,
+publishedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
+---
+
+# [Formula 10-0-6 SO Totally Clean Deep Pore Cleanser -- 6.75 fl oz](https://products.checkmycream.com/products/Formula-10-0-6-SO-Totally-Clean-Deep-Pore-Cleanser-6.75-fl-oz.html)
+
+### Positive Reviews
+
+<ol>
+      <li>It&#x27;s the best for cleansing your skin.&lt;br /&gt;I</li>
+      <li>I used it as a teenager and had flawless skin.  </li>
+      <li>I think it is the best all around cleaner on the market.  </li>
+      <li>It&#x27;s incredible!!</li>
+      <li>This is the best astringent around--has been for years.</li>
+      <li>I could&#x27;ve wept for joy!!</li>
+      <li>Best there is been using since I was a teenager.</li>
+      <li>This is the best.  </li>
+      <li>This formula can&#x27;t be improved as it is GREAT!</li>
+      <li>and the price was great</li>
+      <li>been using it since I was a kid, and I am in my 60&#x27;s with great skin....</li>
+      <li>Love this product, forever !!</li>
+      <li>This is a really good product for the price, so I would recommend it to anyone searching for something like this.</li>
+      <li>I loved Formula 10.0.6.</li>
+      <li>I loved Bonne Bell&#x27;s Ten-O-Six and was upset when they quit making it.  </li>
+      <li>Its a great product, smells medicinal, but you will love it, if you give it a chance.  </li>
+      <li>So glad I found this product online!</li>
+      <li>I am so glad I found this!</li>
+      <li>Love this product!</li>
+      <li>I will be ordering more!</li>
+      <li>packaged nicely, came on time.</li>
+      <li>The way the skin feels after cleansing is so nice.  </li>
+      <li>they quit making the original, and came out with this version, still good</li>
+      <li>Sincerely, Diana M.</li>
+      <li>I could not find the product for years where I lived, but my mother was able to get it for me in my hometown.</li>
+      <li>Then I lock it in the safe.</li>
+      <li>I love it and wouldn&#x27;t be without it.</li>
+      <li>This is the greatest facial cleanser/makeup remover that has ever been created.&lt;br /&gt;The</li>
+      <li>No that I have rediscovered the product after years of not being able to find it...</li>
+      <li>I still love it.</li>
+      <li>Keeps my skin looking youthful and love the smell of the lotion.</li>
+      <li>Bought this thinking it was a cleanser, but it&#x27;s more an astringent.</li>
+      <li>This is the best deep pore cleanser to ever exist on planet Earth !!!</li>
+      <li>My mother used it most of her life and got me in the habit.  </li>
+      <li>but the original was better.....</li>
+      <li>have been looking for something that I could apply after my wash to swipe on my face to make sure my pores are really clean.</li>
+      <li>does not seem to be as strong</li>
+      <li>It will work fine thou/</li>
+      <li>I love this product because while it is a great toner and cleanser, it does not over dry your skin.  </li>
+      <li>But I sorely miss the way the bottle used to look, and that you could buy a huge bottle.</li>
+      <li>face has been really smooth</li>
+      <li>Everything else will be smooth sailing from there.</li>
+      <li>Even after washing your face, its amazing how much it still pulls out from your pores.</li>
+      <li>Her complexion is quite smooth.  </li>
+      <li>pretty good astringent but sure wish they would bring back the original!</li>
+      <li>It kept my oily skin clean , smooth &amp; moist &amp; I used to get compliments &amp; folks would ask me what I used.</li>
+      <li>I have a bottle of the original formula.  </li>
+      <li>the price of some of the original ingredients is prohibitive.&lt;br /</li>
+      <li>I do NOT feel that my face is clean until I have used 10-0-6.</li>
+      <li>I don&#x27;t like how it is called So Totally Clean now with the &#x27;10-0-6&#x27; in practically invisible letters.</li>
+      <li>so totally clean.</li>
+      <li>Provides the same feel and cleaning as the original....but does not have the original smell or tingly feeling that we loved.</li>
+      <li>Really works and hasn&#x27;t changed in these many years.</li>
+      <li>It&#x27;s a super product.</li>
+      <li>I purchased a bottle for my granddaughter who has mild acne and within two days her face was clearing up.</li>
+      <li>this new product is okay</li>
+      <li>, I realize that Aspire Brands probably absorbed the Bonne Bell Co.</li>
+      <li>It does not smell the way the old recipe did and it does not feel as good as the old recipe did.  </li>
+      <li>10-0-6 by Bonne Bell was always my favorite when I was young.</li>
+      <li>This is almost exactly like it.  </li>
+      <li>My favorite toner--I wander sometimes, but I always come back to it.</li>
+      <li>I have used this product (used to be called Ten - 0 - Six - same formula) for many years, and there is nothing better out there that comes close to cleaning the face.  </li>
+      <li>The only reason I can think of,  that they changed the winning formula is</li>
+      <li>So glad it is back!!</li>
+      <li>This is NOT the real deal!  </li>
+      <li>totally cleanses your skin without leaving it taught and dry so happy to have found it</li>
+      <li>My mom is 88 years old, has been using the same product for probably 60 years, and her skin is amazing.  </li>
+      <li>I found this product and have been using it for the past 4 weeks, and I have to say that it does do a really good job at getting it all out of your pores.&lt;br /&gt;&lt;br</li>
+      <li>It&#x27;s really too bad, because the original was an excellent product.</li>
+      <li>I certainly would, and do, recommend this product.  </li>
+      <li>It is not harsh, your skin will be soft and smooth.....</li>
+      <li>It really helps reduce the amount of oil on my face.  </li>
+      <li>so I really wanted to try it.</li>
+      <li>It has really helped control my acne.</li>
+      <li>I find it gentle but thorough for getting any make-up</li>
+      <li>just use it straight out of the bottle on a cotton ball or pad, you will be amazed.</li>
+      <li>It refreshes, totally cleans and makes your skin feel so smooth.  </li>
+      <li>but I don&#x27;t use it as much.  </li>
+      <li>My skin get really oily sometimes and this dries it out perffectly.</li>
+      <li>The scent is pleasant and it does not dry my face out and give it an overly tight feeling.</li>
+      <li>This cleaner is not too stringent on my skin, yet cleans considerably better than any other face cleaner I&#x27;ve used.  </li>
+      <li>it worked very well; it didn&#x27;t dry my skin, i felt clean.  </li>
+      <li>Here I am newly retired &amp; reunited with an old BFF !!</li>
+      <li>Just make sure to ease up on it if you notice your face is feeling really tight and dryness starts!</li>
+      <li>I am in my middle seventy&#x27;s and have used 1006 when it was only available with a prescription&lt;</li>
+      <li>She looks very young for her age.  </li>
+      <li>I even used it in the sixties for  clear skin!</li>
+      <li>If any of the Bonnie Bell powers that be are listening I want it on record that I would pay EXTRA to have the original formula back!!!</li>
+      <li>my skin type, I had to cut back the first week on using it.</li>
+      <li>It would cause more dryness and tightness than usual, so instead of using it 2-3 times a day, I went with 1</li>
+      <li>Same smell, same results- clean, clear skin.</li>
+      <li>there&#x27;s one near me.</li>
+      <li>not like the old 10-0-6</li>
+      <li>So far, everything has been good.&lt;br /&gt;&lt;br</li>
+      <li>When I was younger it prevented breakouts and as I have aged, it has keep my complexion smooth and soft.  </li>
+      <li>Not exactly like the original but similar smell-</li>
+      <li>but i don&#x27;t feel as &#x27;deep down&#x27; clean.</li>
+      <li>I looked for it everywhere &amp; finally found out that it has a new name &amp; is sold  by ULTA stores &amp;</li>
+      <li>I have been looking for it, and finally located it in its new form.  </li>
+      <li>net is full of people looking for it and there is so little to be found; I do not understand Bonne Bell&#x27;s reluctance to keeping it on the market; I buy it by the case when I can find it.</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> It&#x27;s the best for cleansing your skin.&lt;br /&gt;I</li>
+<li> I used it as a teenager and had flawless skin.  </li>
+<li> I think it is the best all around cleaner on the market.  </li>
+<li> It&#x27;s incredible!!</li>
+<li> This is the best astringent around--has been for years.</li>
+<li> I could&#x27;ve wept for joy!!</li>
+<li> Best there is been using since I was a teenager.</li>
+<li> This is the best.  </li>
+<li> This formula can&#x27;t be improved as it is GREAT!</li>
+<li> and the price was great</li>
+<li> been using it since I was a kid, and I am in my 60&#x27;s with great skin....</li>
+<li> Love this product, forever !!</li>
+<li> This is a really good product for the price, so I would recommend it to anyone searching for something like this.</li>
+<li> I loved Formula 10.0.6.</li>
+<li> I loved Bonne Bell&#x27;s Ten-O-Six and was upset when they quit making it.  </li>
+<li> Its a great product, smells medicinal, but you will love it, if you give it a chance.  </li>
+<li> So glad I found this product online!</li>
+<li> I am so glad I found this!</li>
+<li> Love this product!</li>
+<li> I will be ordering more!</li>
+<li> packaged nicely, came on time.</li>
+<li> The way the skin feels after cleansing is so nice.  </li>
+<li> they quit making the original, and came out with this version, still good</li>
+<li> Sincerely, Diana M.</li>
+<li> I could not find the product for years where I lived, but my mother was able to get it for me in my hometown.</li>
+<li> Then I lock it in the safe.</li>
+<li> I love it and wouldn&#x27;t be without it.</li>
+<li> This is the greatest facial cleanser/makeup remover that has ever been created.&lt;br /&gt;The</li>
+<li> No that I have rediscovered the product after years of not being able to find it...</li>
+<li> I still love it.</li>
+<li> Keeps my skin looking youthful and love the smell of the lotion.</li>
+<li> Bought this thinking it was a cleanser, but it&#x27;s more an astringent.</li>
+<li> This is the best deep pore cleanser to ever exist on planet Earth !!!</li>
+<li> My mother used it most of her life and got me in the habit.  </li>
+<li> but the original was better.....</li>
+<li> have been looking for something that I could apply after my wash to swipe on my face to make sure my pores are really clean.</li>
+<li> does not seem to be as strong</li>
+<li> It will work fine thou/</li>
+<li> I love this product because while it is a great toner and cleanser, it does not over dry your skin.  </li>
+<li> But I sorely miss the way the bottle used to look, and that you could buy a huge bottle.</li>
+<li> face has been really smooth</li>
+<li> Everything else will be smooth sailing from there.</li>
+<li> Even after washing your face, its amazing how much it still pulls out from your pores.</li>
+<li> Her complexion is quite smooth.  </li>
+<li> pretty good astringent but sure wish they would bring back the original!</li>
+<li> It kept my oily skin clean , smooth &amp; moist &amp; I used to get compliments &amp; folks would ask me what I used.</li>
+<li> I have a bottle of the original formula.  </li>
+<li> the price of some of the original ingredients is prohibitive.&lt;br /</li>
+<li> I do NOT feel that my face is clean until I have used 10-0-6.</li>
+<li> I don&#x27;t like how it is called So Totally Clean now with the &#x27;10-0-6&#x27; in practically invisible letters.</li>
+<li> so totally clean.</li>
+<li> Provides the same feel and cleaning as the original....but does not have the original smell or tingly feeling that we loved.</li>
+<li> Really works and hasn&#x27;t changed in these many years.</li>
+<li> It&#x27;s a super product.</li>
+<li> I purchased a bottle for my granddaughter who has mild acne and within two days her face was clearing up.</li>
+<li> this new product is okay</li>
+<li> , I realize that Aspire Brands probably absorbed the Bonne Bell Co.</li>
+<li> It does not smell the way the old recipe did and it does not feel as good as the old recipe did.  </li>
+<li> 10-0-6 by Bonne Bell was always my favorite when I was young.</li>
+<li> This is almost exactly like it.  </li>
+<li> My favorite toner--I wander sometimes, but I always come back to it.</li>
+<li> I have used this product (used to be called Ten - 0 - Six - same formula) for many years, and there is nothing better out there that comes close to cleaning the face.  </li>
+<li> The only reason I can think of,  that they changed the winning formula is</li>
+<li> So glad it is back!!</li>
+<li> This is NOT the real deal!  </li>
+<li> totally cleanses your skin without leaving it taught and dry so happy to have found it</li>
+<li> My mom is 88 years old, has been using the same product for probably 60 years, and her skin is amazing.  </li>
+<li> I found this product and have been using it for the past 4 weeks, and I have to say that it does do a really good job at getting it all out of your pores.&lt;br /&gt;&lt;br</li>
+<li> It&#x27;s really too bad, because the original was an excellent product.</li>
+<li> I certainly would, and do, recommend this product.  </li>
+<li> It is not harsh, your skin will be soft and smooth.....</li>
+<li> It really helps reduce the amount of oil on my face.  </li>
+<li> so I really wanted to try it.</li>
+<li> It has really helped control my acne.</li>
+<li> I find it gentle but thorough for getting any make-up</li>
+<li> just use it straight out of the bottle on a cotton ball or pad, you will be amazed.</li>
+<li> It refreshes, totally cleans and makes your skin feel so smooth.  </li>
+<li> but I don&#x27;t use it as much.  </li>
+<li> My skin get really oily sometimes and this dries it out perffectly.</li>
+<li> The scent is pleasant and it does not dry my face out and give it an overly tight feeling.</li>
+<li> This cleaner is not too stringent on my skin, yet cleans considerably better than any other face cleaner I&#x27;ve used.  </li>
+<li> it worked very well; it didn&#x27;t dry my skin, i felt clean.  </li>
+<li> Here I am newly retired &amp; reunited with an old BFF !!</li>
+<li> Just make sure to ease up on it if you notice your face is feeling really tight and dryness starts!</li>
+<li> I am in my middle seventy&#x27;s and have used 1006 when it was only available with a prescription&lt;</li>
+<li> She looks very young for her age.  </li>
+<li> I even used it in the sixties for  clear skin!</li>
+<li> If any of the Bonnie Bell powers that be are listening I want it on record that I would pay EXTRA to have the original formula back!!!</li>
+<li> my skin type, I had to cut back the first week on using it.</li>
+<li> It would cause more dryness and tightness than usual, so instead of using it 2-3 times a day, I went with 1</li>
+<li> Same smell, same results- clean, clear skin.</li>
+<li> there&#x27;s one near me.</li>
+<li> not like the old 10-0-6</li>
+<li> So far, everything has been good.&lt;br /&gt;&lt;br</li>
+<li> When I was younger it prevented breakouts and as I have aged, it has keep my complexion smooth and soft.  </li>
+<li> Not exactly like the original but similar smell-</li>
+<li> but i don&#x27;t feel as &#x27;deep down&#x27; clean.</li>
+<li> I looked for it everywhere &amp; finally found out that it has a new name &amp; is sold  by ULTA stores &amp;</li>
+<li> I have been looking for it, and finally located it in its new form.  </li>
+<li> net is full of people looking for it and there is so little to be found; I do not understand Bonne Bell&#x27;s reluctance to keeping it on the market; I buy it by the case when I can find it.</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> So glad I found this product online! My husband has been using 10-0-6 for years. He uses it as an aftershave to prevent bumps and as a facial cleanser. This formula can&#x27;t be improved as it is GREAT! I even used it in the sixties for  clear skin!</li>
+    <li> This is the greatest facial cleanser/makeup remover that has ever been created.&lt;br /&gt;The net is full of people looking for it and there is so little to be found; I do not understand Bonne Bell&#x27;s reluctance to keeping it on the market; I buy it by the case when I can find it. Then I lock it in the safe.</li>
+    <li> It really helps reduce the amount of oil on my face.  It can dry my skin a bit but I don&#x27;t use it as much.  Instead of 2 times daily I would just use it at night for a few days then go back to using it in the am and pm.</li>
+    <li> This is the best deep pore cleanser to ever exist on planet Earth !!! I started using it in the 60s as a youngster &amp; used it for about 40 years til it vanished a few years ago. It kept my oily skin clean , smooth &amp; moist &amp; I used to get compliments &amp; folks would ask me what I used. I looked for it everywhere &amp; finally found out that it has a new name &amp; is sold  by ULTA stores &amp; there&#x27;s one near me. I could&#x27;ve wept for joy!! Here I am newly retired &amp; reunited with an old BFF !! I just wish they&#x27;d sell it in bigger bottles. Back in the day Bonnet Bell would have an annual spring pint sale &amp; I used to stock up. You could even get it by the HALF GALLON. I even kept my old half gallon bottle for years &amp; used the pints to refill it.</li>
+    <li> I have combination skin that is either too dry or too oily (especially around my nose, cheeks, and T-zone).&lt;br /&gt;&lt;br /&gt;I have been looking for something that I could apply after my wash to swipe on my face to make sure my pores are really clean. I found this product and have been using it for the past 4 weeks, and I have to say that it does do a really good job at getting it all out of your pores.&lt;br /&gt;&lt;br /&gt;With my skin type, I had to cut back the first week on using it. It would cause more dryness and tightness than usual, so instead of using it 2-3 times a day, I went with 1 (I would use it at night before bed). After about 1 1/2 weeks of that, I noticed my skin was starting to look brighter and healthier. I started using it 2 times a day (after morning and evening wash), and have ever since. So far, everything has been good.&lt;br /&gt;&lt;br /&gt;My face has been really smooth and I haven&#x27;t noticed any breakouts (even small). This is a really good product for the price, so I would recommend it to anyone searching for something like this. Just make sure to ease up on it if you notice your face is feeling really tight and dryness starts! Everything else will be smooth sailing from there.</li>
+    <li> 10-0-6 by Bonne Bell was always my favorite when I was young. I had probably used it since I was 13. No that I have rediscovered the product after years of not being able to find it...I still love it. It&#x27;s the same as it always ever was. And now I can switch off between the amber colored one and the blue sensitive skin one. I do NOT feel that my face is clean until I have used 10-0-6. If there is anything left on your face....the 10-0-6 will get it. I will say this, I realize that Aspire Brands probably absorbed the Bonne Bell Co. But I sorely miss the way the bottle used to look, and that you could buy a huge bottle. I don&#x27;t like how it is called So Totally Clean now with the &#x27;10-0-6&#x27; in practically invisible letters. If it ain&#x27;t broken....don&#x27;t &#x27;fix&#x27; it.</li>
+    <li> I used this product when I was a teenager and it was the only product that cleared my severe acne. I purchased a bottle for my granddaughter who has mild acne and within two days her face was clearing up. I would  recommend this product to anyone who has acne!</li>
+    <li> I have used Formula 10-0-6 since I was a teenager.  My mother used it most of her life and got me in the habit.  I think it is the best all around cleaner on the market.  It refreshes, totally cleans and makes your skin feel so smooth.  I would recommend it to all women (and some men too).</li>
+    <li> Have been using this product since I was 16 - over 40 years.  It works for me -  I find it gentle but thorough for getting any make-up I&#x27;ve missed with my face soap.</li>
+    <li> I have used this product (used to be called Ten - 0 - Six - same formula) for many years, and there is nothing better out there that comes close to cleaning the face.  The way the skin feels after cleansing is so nice.  There is no feeling of dryness or that &amp;#34;pulled feeling&amp;#34; as you get from other cleansers.  My mom is 88 years old, has been using the same product for probably 60 years, and her skin is amazing.  She looks very young for her age.  Her complexion is quite smooth.  I certainly would, and do, recommend this product.  Sincerely, Diana M.</li>
+    <li> Provides the same feel and cleaning as the original....but does not have the original smell or tingly feeling that we loved.</li>
+    <li> i have used ten.o.six since i was a teen. it worked very well; it didn&#x27;t dry my skin, i felt clean.  remember the phrase \\&quot;if it ain&#x27;t broke, don&#x27;t fix it\\&quot;?  it wasn&#x27;t broke.  this new product is okay but i don&#x27;t feel as &#x27;deep down&#x27; clean. i wish they gave their consumers a choice</li>
+    <li> My favorite toner--I wander sometimes, but I always come back to it. The smell takes getting used to (but I like it now), however, it is soothing on the skin and it works. Even after washing your face, its amazing how much it still pulls out from your pores.</li>
+    <li> This is product that used to be distributed by Bonne Bell,who has disappeared. I could not find the product for years where I lived, but my mother was able to get it for me in my hometown. Suddenly it wasn&#x27;t there anymore either. So Google came to my rescue and I found this product. Same smell, same results- clean, clear skin. I have used it since I was 13 and hope to continue until I die!!</li>
+    <li> I am in my middle seventy&#x27;s and have used 1006 when it was only available with a prescription&lt;br /&gt;It does not clean off the eye makeup like the old recipe did.  It does not smell the way the old recipe did and it does not feel as good as the old recipe did.  The only reason I can think of,  that they changed the winning formula is&lt;br /&gt;A: because some of the original ingredients are now illegal or&lt;br /&gt;B: the price of some of the original ingredients is prohibitive.&lt;br /&gt; If any of the Bonnie Bell powers that be are listening I want it on record that I would pay EXTRA to have the original formula back!!! I will not be re-ordering this product.&lt;br /&gt; Big disappointment!</li>
+    <li> Bought this thinking it was a cleanser, but it&#x27;s more an astringent. It&#x27;s incredible!! I&#x27;ve never had anything that clears up my face so well as this in my 33 years of living. Adult acne is almost as bad as teenage acne, and this 10-0-6 is really a missing link!!</li>
+    <li> It works  well in cleaning my face the only drawback was it  was too drying.  I will only use it once a week.</li>
+    <li> I used Bonne Bell Ten O Six all through my teen and early adult years.  I have been looking for it, and finally located it in its new form.  Smells and works just like it did then.  I love this product because while it is a great toner and cleanser, it does not over dry your skin.  So glad it is back!!</li>
+    <li> Only clicked 1 star to get past the field.  This is NOT the real deal!  I have a bottle of the original formula.  The ingredients are not the same.  I could tell by the smell prior to opening it.  It smells almost &amp;#34;oily&amp;#34;.  I don&#x27;t believe Bonne Bell makes this product any more.&lt;br /&gt;Their site only lists eye and face make-up and lip products.  It&#x27;s really too bad, because the original was an excellent product.</li>
+    <li> This cleaner is not too stringent on my skin, yet cleans considerably better than any other face cleaner I&#x27;ve used.  The scent is pleasant and it does not dry my face out and give it an overly tight feeling.</li>
+    <li> Best there is been using since I was a teenager. Keeps my skin looking youthful and love the smell of the lotion.</li>
+    <li> I loved Formula 10.0.6. My skin get really oily sometimes and this dries it out perffectly. It removes the oil but isn&#x27;t harsh on my skin or leave it too dry. It has really helped control my acne.</li>
+    <li> I have been using this product for over 40 years.  When I was younger it prevented breakouts and as I have aged, it has keep my complexion smooth and soft.  My granddaughter&#x27;s face had several pimples and I gave her a bottle to use - cleared it up in a week.  My only problem is that the product is becoming increasingly difficult to find to purchase.</li>
+    <li> I have used 10 0 6 for years because it works. It truly cleans and fixes any skin problem.  I was using it back in the 70&#x27;s when it was still made by Bonnebell.</li>
+    <li> EXCELLANT PRIDUCT HAVE USED IT FOR 30 YEARS.  WISH I COULD FIND IT IN STORES STILL. I AM THANKFUL&lt;br /&gt;I CAN STILL ORDER IT.  THANK YOU</li>
+    <li> I have used 1006 for  my face cleaning for about fifty years except for the period of time&lt;br /&gt;when it was  not available. It&#x27;s a super product.</li>
+    <li> This is the best.  I used it as a teenager and had flawless skin.  I have now split the bottle among my granddaughters and recommended daily use!  I will be ordering more!</li>
+    <li> I am in my 70&#x27;s and have been using this since I was a teen.  Can&#x27;t always find it, but when I do I buy up all I can get.  Really works and hasn&#x27;t changed in these many years.</li>
+    <li> not like the old 10-0-6 but I knew that. It will work fine thou/so totally clean. does not seem to be as strong</li>
+    <li> I have been using this product for years.  It&#x27;s the best for cleansing your skin.&lt;br /&gt;I used to buy it at  the drug store, but over the years, I can only find it on line.</li>
+    <li> Love this product, forever !! This cleans off every bit of dirt, grime, and sweat from pores. Love this product!</li>
+    <li> Not exactly like the original but similar smell- pretty good astringent but sure wish they would bring back the original!</li>
+    <li> I saw the rave reviews for this all over the net so I really wanted to try it. I use an alcohol based toner already and it doesn&#x27;t irritate my skin at all. I tried this (and changed nothing else in makeup, skincare, or diet) and after one week my skin was broken out HORRIBLY. Angry cysts all over my chin and giant whiteheads around my nose and forehead. It was awful. I went from no zits to 15 in a week. As soon I stopped using this the breakout stopped. I wanted this to work really badly, but it is one of the worst reactions I&#x27;ve ever had.</li>
+    <li> This is the best astringent around--has been for years. Try washing your face and THEN cleaning it with 10-0-6. You will be amazed at what deep cleaning can do. It&#x27;s not cheap, but it&#x27;s worth every penny. A bottle lasts about a month. I love it and wouldn&#x27;t be without it.</li>
+    <li> been using it since I was a kid, and I am in my 60&#x27;s with great skin....they quit making the original, and came out with this version, still good but the original was better.....packaged nicely, came on time. Its a great product, smells medicinal, but you will love it, if you give it a chance.  It is not harsh, your skin will be soft and smooth.....just use it straight out of the bottle on a cotton ball or pad, you will be amazed.</li>
+    <li> totally cleanses your skin without leaving it taught and dry so happy to have found it and the price was great</li>
+    <li> I loved Bonne Bell&#x27;s Ten-O-Six and was upset when they quit making it.  This is almost exactly like it.  It feels the same, smells almost the same and works just as well.  I am so glad I found this!</li>
+</ol>
+
+
+
+

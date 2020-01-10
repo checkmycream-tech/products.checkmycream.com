@@ -1,0 +1,266 @@
+---
+title: Must de Cartier Perfume by Cartier for women Personal Fragrances,
+description: Must de Cartier Perfume by Cartier for women Personal Fragrances,
+author: Suvojit Manna,
+tags: Must de Cartier Perfume by Cartier for women Personal Fragrances,
+publishedAt: Fri Jan 10 2020 14:59:12 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:59:12 GMT+0530 (India Standard Time),
+---
+
+# [Must de Cartier Perfume by Cartier for women Personal Fragrances](https://products.checkmycream.com/products/Must-de-Cartier-Perfume-by-Cartier-for-women-Personal-Fragrances.html)
+
+### Positive Reviews
+
+<ol>
+      <li>---THE PRODUCT CAME IN AS INDICATED ON TIME AND PACKAGED PERFECTLY.</li>
+      <li>Perfect.</li>
+      <li>It smells absolutely wonderful, nothing else comes close to the richness of the aroma.</li>
+      <li>Best price around</li>
+      <li>Its intensity and flavor are delicious.</li>
+      <li>I am very happy.  </li>
+      <li>Its the best.</li>
+      <li>The fragrance is flawless.</li>
+      <li>This the best fragrance to sell yourself anywhere.</li>
+      <li>Excellent.</li>
+      <li>A friend turned me on to this product and I&#x27;m very happy with it.</li>
+      <li>I bought this for my wife, she loves it, and I love the price !!!</li>
+      <li>A great buy at a great price</li>
+      <li>It is great.</li>
+      <li>Great fragrance.</li>
+      <li>I am so happy that Amazon sells Must De Cartier.  </li>
+      <li>have worn Cartier for many years and very happy that I can buy it thru Amazon.&lt;br /&gt;I</li>
+      <li>I have always had good service and my items have always been shipped&lt;br /&gt;on</li>
+      <li>but she loved it anyway.</li>
+      <li>I was delighted to read that Amazon was selling Must De cartier, but when i received the toilette spray the pump on the sprayer did not work.</li>
+      <li>Loved it.</li>
+      <li>The item arrived in good condition and was as advertised.  </li>
+      <li>The smell is really good</li>
+      <li>good price .</li>
+      <li>She was very pleased.</li>
+      <li>Love this fragrance!  </li>
+      <li>My favorite!  </li>
+      <li>Men love the vanilla smell!</li>
+      <li>Driver pleasant and competent.</li>
+      <li>Great scent and fantastic prince compared to department stores.</li>
+      <li>Every career woman should feel lovely and amazing.</li>
+      <li>It was not as strong as I would have liked should have ordered eau du parfume</li>
+      <li>she love it</li>
+      <li>I absolutely love it.</li>
+      <li>MY CONCERNS WERE FULLY SATISFIED</li>
+      <li>have been a devotee of this elegant evocative and magical fragrance ever since.  </li>
+      <li>Delivered safely to my door.</li>
+      <li>and I am always asked by many I come in contact</li>
+      <li>I chose this product to be able to stand out and that is what happens whenever I wear it.</li>
+      <li>have told many of my friends and will continue to do my shopping this way.&lt;br /&gt;&lt;br /&gt;Marlena Santy</li>
+      <li>Do I have to say more?  </li>
+      <li>Thanks for the great service.</li>
+      <li>My favorite scent.</li>
+      <li>I love this perfume and always get compliments on it.</li>
+      <li>Love this fragrance.</li>
+      <li>In 1990 I was having diner with a friend at the George Cinq restaurant in Paris, France when I first sensed the delicious, unique and rich fragance.</li>
+      <li>So glad I found it on Amazon.</li>
+      <li>I am pleased.</li>
+      <li>I love it.  </li>
+      <li>BUYING THIS PRODUCT AT THE COSMETIC COUNTER WOULD HAVE BEEN MORE COSTLY AND TIME CONSUMING.</li>
+      <li>This is my number one for many years.  </li>
+      <li>You will love it.</li>
+      <li>This is a light exotic heady cashmere warm scent, undertones with vanilla.</li>
+      <li>I love this scent.  </li>
+      <li>Love this perfume and so easy to get.</li>
+      <li>Smells very clean and not too strong.  </li>
+      <li>this is a hard to find designer fragrance that is a good product at a very good price</li>
+      <li>a good product as expected and very good would that offered a gift for each product purchasing and so motivate more users 100% recommend this particular product</li>
+      <li>I strongly suggest, before buying any Must de Cartier EdT to check discussions on Basenotes.com to see which formulation you will prefer.  </li>
+      <li>I love it, get many compliments when I wear it, and can&#x27;t say enough good things about Cartier frangrances.</li>
+      <li>Original Parfum  3.  </li>
+      <li>Smells original -</li>
+      <li>MUST DE CARTIER is a contender because it is clean, has staying power, a bit woodsy yet feminine.  </li>
+      <li>I received it well packaged, which is important to me, as I know this brand very well, and on time.  </li>
+      <li>Worth the money.</li>
+      <li>Price was right.</li>
+      <li>I have not tried their content but their appearance can be said is right.</li>
+      <li>SURE THIS PRODUCT WOULD COME IN THE SAME MANNER AS BUYING AT THE COSMETIC</li>
+      <li>Didn&#x27;t realize there are so many scents with the same name.</li>
+      <li>Pretty bottle and lasts on my skin for hours.  </li>
+      <li>Wasn&#x27;t the exact scent</li>
+      <li>Better yet, if you can find samples of the different formulations, testing each can aid in your decision as well.</li>
+      <li>I&#x27;ve been using this perfume for over 15 years and it is the only perfume that has given me the most compliments.  </li>
+      <li>it makes a positive statement for the woman that wears it?</li>
+      <li>I knew when i gave it to her that i would be ordering one for myself very soon.</li>
+      <li>Very befitting for occasion wear.    </li>
+      <li>It blends very well with my chemestry</li>
+      <li>Goes very well with the lotion and do not have to use much.  </li>
+      <li>My absolute #1 goto fragrance and</li>
+      <li>Thanks again.</li>
+      <li>Exciting and profound fragrance.</li>
+      <li>It was much better than I found other places.</li>
+      <li>A classic yet contemporary.  </li>
+      <li>The product arrived on time, the packaging looks new.</li>
+      <li>The picture depicted above may not always be exactly what you&#x27;re purchasing.  </li>
+      <li>This 3.4 oz bottle will last me more than a year and at Amazon it is half the price that sells for retail in the department stores.</li>
+      <li>This smelled old to me</li>
+      <li>I have purchased this item before, directly from Cartier.  </li>
+      <li>For some reason, this new bottle doesn&#x27;t quite smell the same.  </li>
+      <li>Original EdT (usually came in a leather case)  2.  </li>
+      <li>This is the only fragrance I have used for nearly 4 years.  </li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> ---THE PRODUCT CAME IN AS INDICATED ON TIME AND PACKAGED PERFECTLY.</li>
+<li> Perfect.</li>
+<li> It smells absolutely wonderful, nothing else comes close to the richness of the aroma.</li>
+<li> Best price around</li>
+<li> Its intensity and flavor are delicious.</li>
+<li> I am very happy.  </li>
+<li> Its the best.</li>
+<li> The fragrance is flawless.</li>
+<li> This the best fragrance to sell yourself anywhere.</li>
+<li> Excellent.</li>
+<li> A friend turned me on to this product and I&#x27;m very happy with it.</li>
+<li> I bought this for my wife, she loves it, and I love the price !!!</li>
+<li> A great buy at a great price</li>
+<li> It is great.</li>
+<li> Great fragrance.</li>
+<li> I am so happy that Amazon sells Must De Cartier.  </li>
+<li> have worn Cartier for many years and very happy that I can buy it thru Amazon.&lt;br /&gt;I</li>
+<li> I have always had good service and my items have always been shipped&lt;br /&gt;on</li>
+<li> but she loved it anyway.</li>
+<li> I was delighted to read that Amazon was selling Must De cartier, but when i received the toilette spray the pump on the sprayer did not work.</li>
+<li> Loved it.</li>
+<li> The item arrived in good condition and was as advertised.  </li>
+<li> The smell is really good</li>
+<li> good price .</li>
+<li> She was very pleased.</li>
+<li> Love this fragrance!  </li>
+<li> My favorite!  </li>
+<li> Men love the vanilla smell!</li>
+<li> Driver pleasant and competent.</li>
+<li> Great scent and fantastic prince compared to department stores.</li>
+<li> Every career woman should feel lovely and amazing.</li>
+<li> It was not as strong as I would have liked should have ordered eau du parfume</li>
+<li> she love it</li>
+<li> I absolutely love it.</li>
+<li> MY CONCERNS WERE FULLY SATISFIED</li>
+<li> have been a devotee of this elegant evocative and magical fragrance ever since.  </li>
+<li> Delivered safely to my door.</li>
+<li> and I am always asked by many I come in contact</li>
+<li> I chose this product to be able to stand out and that is what happens whenever I wear it.</li>
+<li> have told many of my friends and will continue to do my shopping this way.&lt;br /&gt;&lt;br /&gt;Marlena Santy</li>
+<li> Do I have to say more?  </li>
+<li> Thanks for the great service.</li>
+<li> My favorite scent.</li>
+<li> I love this perfume and always get compliments on it.</li>
+<li> Love this fragrance.</li>
+<li> In 1990 I was having diner with a friend at the George Cinq restaurant in Paris, France when I first sensed the delicious, unique and rich fragance.</li>
+<li> So glad I found it on Amazon.</li>
+<li> I am pleased.</li>
+<li> I love it.  </li>
+<li> BUYING THIS PRODUCT AT THE COSMETIC COUNTER WOULD HAVE BEEN MORE COSTLY AND TIME CONSUMING.</li>
+<li> This is my number one for many years.  </li>
+<li> You will love it.</li>
+<li> This is a light exotic heady cashmere warm scent, undertones with vanilla.</li>
+<li> I love this scent.  </li>
+<li> Love this perfume and so easy to get.</li>
+<li> Smells very clean and not too strong.  </li>
+<li> this is a hard to find designer fragrance that is a good product at a very good price</li>
+<li> a good product as expected and very good would that offered a gift for each product purchasing and so motivate more users 100% recommend this particular product</li>
+<li> I strongly suggest, before buying any Must de Cartier EdT to check discussions on Basenotes.com to see which formulation you will prefer.  </li>
+<li> I love it, get many compliments when I wear it, and can&#x27;t say enough good things about Cartier frangrances.</li>
+<li> Original Parfum  3.  </li>
+<li> Smells original -</li>
+<li> MUST DE CARTIER is a contender because it is clean, has staying power, a bit woodsy yet feminine.  </li>
+<li> I received it well packaged, which is important to me, as I know this brand very well, and on time.  </li>
+<li> Worth the money.</li>
+<li> Price was right.</li>
+<li> I have not tried their content but their appearance can be said is right.</li>
+<li> SURE THIS PRODUCT WOULD COME IN THE SAME MANNER AS BUYING AT THE COSMETIC</li>
+<li> Didn&#x27;t realize there are so many scents with the same name.</li>
+<li> Pretty bottle and lasts on my skin for hours.  </li>
+<li> Wasn&#x27;t the exact scent</li>
+<li> Better yet, if you can find samples of the different formulations, testing each can aid in your decision as well.</li>
+<li> I&#x27;ve been using this perfume for over 15 years and it is the only perfume that has given me the most compliments.  </li>
+<li> it makes a positive statement for the woman that wears it?</li>
+<li> I knew when i gave it to her that i would be ordering one for myself very soon.</li>
+<li> Very befitting for occasion wear.    </li>
+<li> It blends very well with my chemestry</li>
+<li> Goes very well with the lotion and do not have to use much.  </li>
+<li> My absolute #1 goto fragrance and</li>
+<li> Thanks again.</li>
+<li> Exciting and profound fragrance.</li>
+<li> It was much better than I found other places.</li>
+<li> A classic yet contemporary.  </li>
+<li> The product arrived on time, the packaging looks new.</li>
+<li> The picture depicted above may not always be exactly what you&#x27;re purchasing.  </li>
+<li> This 3.4 oz bottle will last me more than a year and at Amazon it is half the price that sells for retail in the department stores.</li>
+<li> This smelled old to me</li>
+<li> I have purchased this item before, directly from Cartier.  </li>
+<li> For some reason, this new bottle doesn&#x27;t quite smell the same.  </li>
+<li> Original EdT (usually came in a leather case)  2.  </li>
+<li> This is the only fragrance I have used for nearly 4 years.  </li>
+<li> Should  last a long time.</li>
+<li> I&#x27;ve sampled the 2005 EdT and the Parfum, and I found them to be different, but both powdery/amber vanilla takes on musk, with maybe a little manly galbanum bite.  </li>
+<li> It&#x27;s always tough to buy perfume online, because you cannot really see the bottle.  </li>
+<li> the perfume is old and fake it does not smell like the cartier and it stays for a few minutes and disappears very disapppointed and shall never get this perfume again from amazon</li>
+<li> A little goes a long way.</li>
+<li> You will never use any other.</li>
+<li> I abruptly had to ask my friend \\&quot;what is the fragrance you are wearing?\\</li>
+<li> Just as I Expected!</li>
+<li> No sweet floral which I prefer.</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> I&#x27;ve been looking for a &amp;#34;signature fragrance&amp;#34; for some time.  MUST DE CARTIER is a contender because it is clean, has staying power, a bit woodsy yet feminine.  I&#x27;m a redhead and find that fragrances do not &amp;#34;STAY&amp;#34; on me.  This one does.  A. J. Marcus</li>
+    <li> It is the worst perfume for women. I didn&#x27;t like the smell.</li>
+    <li> My favorite...need to buy the perfume when I finish saving my pennies...This is a light exotic heady cashmere warm scent, undertones with vanilla.</li>
+    <li> this is a hard to find designer fragrance that is a good product at a very good price</li>
+    <li> What can I say about this Eau De Toilette by Cartier.  I absolutely love it. There&#x27;s no perfume that can compare to this one. One squirt per day and it lasts all day.  This 3.4 oz bottle will last me more than a year and at Amazon it is half the price that sells for retail in the department stores.</li>
+    <li> It was not as strong as I would have liked should have ordered eau du parfume</li>
+    <li> It&#x27;s always tough to buy perfume online, because you cannot really see the bottle.  The picture depicted above may not always be exactly what you&#x27;re purchasing.  With Must de Cartier, it makes a difference.  According to Basenotes.com, there are about 4 different formulations of Must de Cartier, and they all smell different:    1.  1981 Original EdT (usually came in a leather case)  2.  1981 Original Parfum  3.  1996 reformulated EdT (frosted glass bottle with metal cap)  4.  2005 reformulated EdT (red box with white lettering, red cap)    I&#x27;ve sampled the 2005 EdT and the Parfum, and I found them to be different, but both powdery/amber vanilla takes on musk, with maybe a little manly galbanum bite.  I strongly suggest, before buying any Must de Cartier EdT to check discussions on Basenotes.com to see which formulation you will prefer.  Better yet, if you can find samples of the different formulations, testing each can aid in your decision as well.</li>
+    <li> I was delighted to read that Amazon was selling Must De cartier, but when i received the toilette spray the pump on the sprayer did not work.</li>
+    <li> Excellent. Just as I Expected!</li>
+    <li> The smell is really good and it stays as well.   Very befitting for occasion wear.    Worth the money.</li>
+    <li> Its intensity and flavor are delicious. It keeps all the time and even after washing the garments retain the nuances of perfume.</li>
+    <li> Great fragrance.Delivered safely to my door.Driver pleasant and competent.</li>
+    <li> it for my wife she love it</li>
+    <li> received on time . good price .</li>
+    <li> Perfect.Arrived on time.Best price around</li>
+    <li> This perfume reacts so well with my chemistry it is the only one I use. I get compliments on it all the time.</li>
+    <li> I love this perfume and always get compliments on it. Everyone asks what it is I am wearing. I was so sad to hear it was being discontinued. So glad I found it on Amazon. Should  last a long time. A little goes a long way.</li>
+    <li> Love this fragrance!  Smells very clean and not too strong.  Goes very well with the lotion and do not have to use much.  Get a lot of compliments.  I would recommend to a friend.</li>
+    <li> I bought this for my wife, she loves it, and I love the price !!! It was much better than I found other places.</li>
+    <li> The product arrived on time, the packaging looks new. I have not tried their content but their appearance can be said is right.</li>
+    <li> Just received my shipment this afternoon. Exciting and profound fragrance. A friend turned me on to this product and I&#x27;m very happy with it.Thanks for the great service.</li>
+    <li> the perfume is old and fake it does not smell like the cartier and it stays for a few minutes and disappears very disapppointed and shall never get this perfume again from amazon</li>
+    <li> My absolute #1 goto fragrance and it makes a positive statement for the woman that wears it? A great buy at a great price</li>
+    <li> I have purchased this item before, directly from Cartier.  For some reason, this new bottle doesn&#x27;t quite smell the same.  Not sure why .</li>
+    <li> I am so happy that Amazon sells Must De Cartier.  It is very difficult to find in the stores.  I&#x27;ve been using this perfume for over 15 years and it is the only perfume that has given me the most compliments.  It smells absolutely wonderful, nothing else comes close to the richness of the aroma.</li>
+    <li> Great scent and fantastic prince compared to department stores.</li>
+    <li> My favorite!  Smells original - so I don&#x27;t think its a fake.  I&#x27;d buy again</li>
+    <li> I chose this product to be able to stand out and that is what happens whenever I wear it. Every career woman should feel lovely and amazing. This the best fragrance to sell yourself anywhere.</li>
+    <li> Didn&#x27;t realize there are so many scents with the same name. Bought this for my mom for mothers day. It was the same name but a different lid. Wasn&#x27;t the exact scent but she loved it anyway.</li>
+    <li> Loved it. My favorite scent. Price was right. Try it. You will love it. You will never use any other.</li>
+    <li> did not meet my expectatioms.</li>
+    <li> This is my number one for many years.  I love it.  I received it well packaged, which is important to me, as I know this brand very well, and on time.  It is great. I am very happy.  The fragrance is flawless.</li>
+    <li> I have always had good service and my items have always been shipped&lt;br /&gt;on time&lt;br /&gt;I have worn Cartier for many years and very happy that I can buy it thru Amazon.&lt;br /&gt;I have told many of my friends and will continue to do my shopping this way.&lt;br /&gt;&lt;br /&gt;Marlena Santy</li>
+    <li> a good product as expected and very good would that offered a gift for each product purchasing and so motivate more users 100% recommend this particular product</li>
+    <li> Its the best. Thanks again.</li>
+    <li> I&#x27;ve used this perfume for years and always get compliments. Pretty bottle and lasts on my skin for hours.  Will continue to buy it.</li>
+    <li> This is the only fragrance I have used for nearly 4 years.  I love it, get many compliments when I wear it, and can&#x27;t say enough good things about Cartier frangrances.</li>
+    <li> I WASN&#x27;T SURE THIS PRODUCT WOULD COME IN THE SAME MANNER AS BUYING AT THE COSMETIC DEP&#x27;T. MY CONCERNS WERE FULLY SATISFIED ---THE PRODUCT CAME IN AS INDICATED ON TIME AND PACKAGED PERFECTLY. BUYING THIS PRODUCT AT THE COSMETIC COUNTER WOULD HAVE BEEN MORE COSTLY AND TIME CONSUMING. THIS EXPERIENCE WAS GREAT.&lt;br /&gt;&lt;br /&gt;AB</li>
+    <li> In 1990 I was having diner with a friend at the George Cinq restaurant in Paris, France when I first sensed the delicious, unique and rich fragance. I abruptly had to ask my friend \\&quot;what is the fragrance you are wearing?\\&quot;  The answer was simply, Must de Cartier.&lt;br /&gt;&lt;br /&gt;I have been a devotee of this elegant evocative and magical fragrance ever since.  It blends very well with my chemestry and I am always asked by many I come in contact the same \\&quot;what are you wearing?\\&quot;  Do I have to say more?  Merci, Cartier!</li>
+    <li> This smelled old to me</li>
+    <li> A classic yet contemporary.  Has vanilla undertones. No sweet floral which I prefer.</li>
+    <li> Love this perfume and so easy to get.</li>
+    <li> Love this fragrance. Men love the vanilla smell!</li>
+    <li> The item arrived in good condition and was as advertised.  I am pleased.</li>
+    <li> Bought this one as a gift for my mother in law. She was very pleased. At 3.4 oz. it should last her for awhile. I knew when i gave it to her that i would be ordering one for myself very soon. I did- in August- but I chose the smaller size.</li>
+    <li> I love this scent.  I wear it all the time if I can afford to buy it.  Makes me smell gooooooooood.</li>
+</ol>
+
+
+
+

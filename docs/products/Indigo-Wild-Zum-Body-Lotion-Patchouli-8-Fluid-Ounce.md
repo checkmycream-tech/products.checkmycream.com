@@ -1,0 +1,158 @@
+---
+title: Indigo Wild Zum Body Lotion, Patchouli, 8 Fluid Ounce,
+description: Indigo Wild Zum Body Lotion, Patchouli, 8 Fluid Ounce,
+author: Suvojit Manna,
+tags: Indigo Wild Zum Body Lotion, Patchouli, 8 Fluid Ounce,
+publishedAt: Fri Jan 10 2020 14:59:46 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:59:46 GMT+0530 (India Standard Time),
+---
+
+# [Indigo Wild Zum Body Lotion, Patchouli, 8 Fluid Ounce](https://products.checkmycream.com/products/Indigo-Wild-Zum-Body-Lotion-Patchouli-8-Fluid-Ounce.html)
+
+### Positive Reviews
+
+<ol>
+      <li>Great moisturizer!</li>
+      <li>Kinda oily and not the best patchouli I have smelled.</li>
+      <li>Smells wonderful, fairly moisturizing without being too oily!</li>
+      <li>This lotion is a very good product.</li>
+      <li>Besides it smelling great it is the best moisturizer I have ever used - and it&#x27;s vegan!</li>
+      <li>The scent stays with you throughout the day which I think is great.  </li>
+      <li>Zum Body is a great lotion.  </li>
+      <li>Great scent and lathers well.</li>
+      <li>This is a great lotion, w/ a not-too-strong fragrance.</li>
+      <li>And feels great on my skin.</li>
+      <li>The lotion, itself, feels really good.</li>
+      <li>Good customer service.</li>
+      <li>and I really love this product!</li>
+      <li>Lotion is nice but way overpriced for what it is.</li>
+      <li>I love this lotion.</li>
+      <li>I think this is mostly shea butter.</li>
+      <li>It would be better in a jar.</li>
+      <li>Love the smell of this lotion.</li>
+      <li>Use this daily after shower, very pleasant fragrance.</li>
+      <li>Great smell, and made my hands so soft.</li>
+      <li>The good side is that the fragrance does not last but maybe an hour at the very most.</li>
+      <li>It has a strong patchouli smell</li>
+      <li>Wonderful light smell, just a little pricey.</li>
+      <li>Great on hands or entire body except your face.</li>
+      <li>Smells amazing and my skin is soft after using it.  </li>
+      <li>I&#x27;ve always liked patchouli so my wife surprised me with a bottle of this lotion in my Christmas stocking.  </li>
+      <li>I only wear this lotion - never any perfumes because it just smells so good.</li>
+      <li>excellent lotion with a subtle patchouli fragrance</li>
+      <li>arrived quickly</li>
+      <li>The patchouli scent isn&#x27;t overpowering but is pretty strong which I think is great as lots of other patchouli scented products are pretty weak at best.  </li>
+      <li>the scents are wonderful and last a long time!!!</li>
+      <li>It&#x27;s a great lotion that doesn&#x27;t leave your hands feeling greasy for a long time but does keep them soft.  </li>
+      <li>Pretty greasy.</li>
+      <li>I absolutely love this body lotion, it&#x27;s my second buy.</li>
+      <li>The Patchouli is a little strong, but I love it.  </li>
+      <li>So I&#x27;ll keep using it (not out in public, ever) knowing the lotion feels good, and I won&#x27;t have to smell it for long. ...</li>
+      <li>What I can say all natural ingredients,  it has some amazing ingredients and great consistency pretty bummed that it does not smell like patchouli AT ALL! :(</li>
+      <li>My skin gets dry and this feels really nice and soft.</li>
+      <li>Smells as expected, when using lightly it&#x27;s okay.</li>
+      <li>Thanks</li>
+      <li>I wish it was available in a larger bottle!</li>
+      <li>This has a very light, plain smell.  </li>
+      <li>You can&#x27;t beat Indigo Wild&#x27;s products.</li>
+      <li>Leaves your skin hydrated and soft.</li>
+      <li>I love this suff, it&#x27;s expensive but worth it.</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> Great moisturizer!</li>
+<li> Kinda oily and not the best patchouli I have smelled.</li>
+<li> Smells wonderful, fairly moisturizing without being too oily!</li>
+<li> This lotion is a very good product.</li>
+<li> Besides it smelling great it is the best moisturizer I have ever used - and it&#x27;s vegan!</li>
+<li> The scent stays with you throughout the day which I think is great.  </li>
+<li> Zum Body is a great lotion.  </li>
+<li> Great scent and lathers well.</li>
+<li> This is a great lotion, w/ a not-too-strong fragrance.</li>
+<li> And feels great on my skin.</li>
+<li> The lotion, itself, feels really good.</li>
+<li> Good customer service.</li>
+<li> and I really love this product!</li>
+<li> Lotion is nice but way overpriced for what it is.</li>
+<li> I love this lotion.</li>
+<li> I think this is mostly shea butter.</li>
+<li> It would be better in a jar.</li>
+<li> Love the smell of this lotion.</li>
+<li> Use this daily after shower, very pleasant fragrance.</li>
+<li> Great smell, and made my hands so soft.</li>
+<li> The good side is that the fragrance does not last but maybe an hour at the very most.</li>
+<li> It has a strong patchouli smell</li>
+<li> Wonderful light smell, just a little pricey.</li>
+<li> Great on hands or entire body except your face.</li>
+<li> Smells amazing and my skin is soft after using it.  </li>
+<li> I&#x27;ve always liked patchouli so my wife surprised me with a bottle of this lotion in my Christmas stocking.  </li>
+<li> I only wear this lotion - never any perfumes because it just smells so good.</li>
+<li> excellent lotion with a subtle patchouli fragrance</li>
+<li> arrived quickly</li>
+<li> The patchouli scent isn&#x27;t overpowering but is pretty strong which I think is great as lots of other patchouli scented products are pretty weak at best.  </li>
+<li> the scents are wonderful and last a long time!!!</li>
+<li> It&#x27;s a great lotion that doesn&#x27;t leave your hands feeling greasy for a long time but does keep them soft.  </li>
+<li> Pretty greasy.</li>
+<li> I absolutely love this body lotion, it&#x27;s my second buy.</li>
+<li> The Patchouli is a little strong, but I love it.  </li>
+<li> So I&#x27;ll keep using it (not out in public, ever) knowing the lotion feels good, and I won&#x27;t have to smell it for long. ...</li>
+<li> What I can say all natural ingredients,  it has some amazing ingredients and great consistency pretty bummed that it does not smell like patchouli AT ALL! :(</li>
+<li> My skin gets dry and this feels really nice and soft.</li>
+<li> Smells as expected, when using lightly it&#x27;s okay.</li>
+<li> Thanks</li>
+<li> I wish it was available in a larger bottle!</li>
+<li> This has a very light, plain smell.  </li>
+<li> You can&#x27;t beat Indigo Wild&#x27;s products.</li>
+<li> Leaves your skin hydrated and soft.</li>
+<li> I love this suff, it&#x27;s expensive but worth it.</li>
+<li> Fragrance doesn&#x27;t last long at all.</li>
+<li> It came later than expected (two days later).</li>
+<li> Put on your arms just after a shower and the scent is there for a  long time!</li>
+<li> can not fully empty the bottle because of packaging.</li>
+<li> A little goes a long way.</li>
+<li> No need for any other fragrance</li>
+<li> I have other Zum Body fragranced lotions...</li>
+<li> Small bottle.</li>
+<li> In fact, it downright stinks to me.</li>
+<li> it smells really BAD to me.</li>
+<li> My daughter said that it smelled like patchoulli that had gone bad.</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> can not fully empty the bottle because of packaging. It would be better in a jar.</li>
+    <li> I have been using this patchouli lotion for years and CONSTANTLY get stopped and asked what I&#x27;m wearing and where I got it. I only wear this lotion - never any perfumes because it just smells so good. It is my &amp;#34;signature scent&amp;#34;. Besides it smelling great it is the best moisturizer I have ever used - and it&#x27;s vegan!</li>
+    <li> Love the smell of this lotion. And feels great on my skin.</li>
+    <li> I absolutely love this body lotion, it&#x27;s my second buy. I put it on and that&#x27;s it. No need for any other fragrance</li>
+    <li> You can&#x27;t beat Indigo Wild&#x27;s products. This is a great lotion, w/ a not-too-strong fragrance.</li>
+    <li> I think this is mostly shea butter. The lotion, itself, feels really good. Especially now, in pool weather. My skin gets dry and this feels really nice and soft. But I&#x27;m not going to kid ya - it smells really BAD to me.In fact, it downright stinks to me. My daughter said that it smelled like patchoulli that had gone bad. The good side is that the fragrance does not last but maybe an hour at the very most. So I&#x27;ll keep using it (not out in public, ever) knowing the lotion feels good, and I won&#x27;t have to smell it for long. ...</li>
+    <li> Zum Body is a great lotion.  The Patchouli is a little strong, but I love it.  I have other Zum Body fragranced lotions...the scents are wonderful and last a long time!!!</li>
+    <li> This lotion is a very good product. Leaves your skin hydrated and soft. Great on hands or entire body except your face. I don&#x27;t like perfume lotions on my face.</li>
+    <li> I&#x27;ve always liked patchouli so my wife surprised me with a bottle of this lotion in my Christmas stocking.  It&#x27;s a great lotion that doesn&#x27;t leave your hands feeling greasy for a long time but does keep them soft.  The patchouli scent isn&#x27;t overpowering but is pretty strong which I think is great as lots of other patchouli scented products are pretty weak at best.  The scent stays with you throughout the day which I think is great.  I would recommend this product to anyone who likes patchouli.</li>
+    <li> A little goes a long way. Put on your arms just after a shower and the scent is there for a  long time!</li>
+    <li> Goes with my Zum body spray. Great scent and lathers well. Good customer service. Would use product and customer again. Thanks</li>
+    <li> excellent lotion with a subtle patchouli fragrance</li>
+    <li> Sold Patchouli fragrance and not too oily.  I like this product, use it every morning.</li>
+    <li> I love this lotion. Will be ordering again</li>
+    <li> Fragrance doesn&#x27;t last long at all. Small bottle. Lotion is nice but way overpriced for what it is.</li>
+    <li> arrived quickly and I really love this product! I wish it was available in a larger bottle!</li>
+    <li> This has a very light, plain smell.  Not patchouli-esque at all.</li>
+    <li> I gave it three stars because it does not smell like patchouli, and read the ingredients and no patchouli either. It came later than expected (two days later). What I can say all natural ingredients,  it has some amazing ingredients and great consistency pretty bummed that it does not smell like patchouli AT ALL! :(</li>
+    <li> Smells wonderful, fairly moisturizing without being too oily!</li>
+    <li> Kinda oily and not the best patchouli I have smelled.</li>
+    <li> Great smell, and made my hands so soft.</li>
+    <li> Great moisturizer! Use this daily after shower, very pleasant fragrance.</li>
+    <li> Pretty greasy. Smells as expected, when using lightly it&#x27;s okay. But I come back feeling a oily rather than hydrated.</li>
+    <li> Absorbs well. Wonderful light smell, just a little pricey.</li>
+    <li> Not greasy not watery. Fragrance is so so.</li>
+    <li> I love this suff, it&#x27;s expensive but worth it.</li>
+    <li> No... This one was not for me.  The smell was not correct and out just didn&#x27;t work the way I&#x27;d hoped.</li>
+    <li> Smells amazing and my skin is soft after using it.  It has a strong patchouli smell but I like that.</li>
+</ol>
+
+
+
+

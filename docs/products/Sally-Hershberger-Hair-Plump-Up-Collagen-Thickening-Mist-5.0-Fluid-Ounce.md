@@ -1,0 +1,120 @@
+---
+title: Sally Hershberger Hair Plump Up Collagen Thickening Mist, 5.0 Fluid Ounce,
+description: Sally Hershberger Hair Plump Up Collagen Thickening Mist, 5.0 Fluid Ounce,
+author: Suvojit Manna,
+tags: Sally Hershberger Hair Plump Up Collagen Thickening Mist, 5.0 Fluid Ounce,
+publishedAt: Fri Jan 10 2020 15:00:02 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:02 GMT+0530 (India Standard Time),
+---
+
+# [Sally Hershberger Hair Plump Up Collagen Thickening Mist, 5.0 Fluid Ounce](https://products.checkmycream.com/products/Sally-Hershberger-Hair-Plump-Up-Collagen-Thickening-Mist-5.0-Fluid-Ounce.html)
+
+### Positive Reviews
+
+<ol>
+      <li>It isn&#x27;t stcky or greasy and leaves hair perfect all day.</li>
+      <li>This is the best volumizing product I&#x27;ve ever purchased.</li>
+      <li>I am very impressed.</li>
+      <li>This is the perfect volumizer without any stickieness.</li>
+      <li>LOVE IT!!!!!</li>
+      <li>This is great-</li>
+      <li>great product.</li>
+      <li>Very pleased, great results.</li>
+      <li>Great product, it does work, smells great, I would buy again for sure.</li>
+      <li>good priced.</li>
+      <li>Love this stuff!</li>
+      <li>Love this product!</li>
+      <li>Well, it sure smells nice.</li>
+      <li>I have thinning and very fine hair.</li>
+      <li>I also think it provides a bit more sheen to my hair.</li>
+      <li>I use curler former (Magic Leverag) and this product can keep my curls around the day, it is perfect for me !!!!</li>
+      <li>My hair looked thicker &amp; like there was more of it.</li>
+      <li>Leaves my hair very soft, which isn&#x27;t good for me as I need something that will give my hair more of a sturdy texture.  </li>
+      <li>I really like this adds great volume without too much work as well as my hair does not look like it is slathered in product.</li>
+      <li>I do, however, find the entire line a good one for my hair.</li>
+      <li>It absolutely provides more thickness and volume to my hair.</li>
+      <li>Does a great job of adding volume at half the price of the designer brands.</li>
+      <li>This is a super great product for anyone with fine or thin hair.  </li>
+      <li>I bought this product &amp; it did exactly what was promised.</li>
+      <li>I didn&#x27;t see a significant difference from so many of the other products from Sally Hershberger that I have.  </li>
+      <li>This really works</li>
+      <li>really well</li>
+      <li>This product is great for my thin hair.</li>
+      <li>I have very fine, limp hair that has no inherent body to it.</li>
+      <li>This is one of my new favorites.</li>
+      <li>This gives me a little bit of body, it&#x27;s certainly better than nothing, but I have found that I have to use a ton of it, and it makes my hair feel a little rough (not as nice to the touch).</li>
+      <li>Maybe I got an old bottle.</li>
+      <li>Works pretty well without being overly sticky and stiff.</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> It isn&#x27;t stcky or greasy and leaves hair perfect all day.</li>
+<li> This is the best volumizing product I&#x27;ve ever purchased.</li>
+<li> I am very impressed.</li>
+<li> This is the perfect volumizer without any stickieness.</li>
+<li> LOVE IT!!!!!</li>
+<li> This is great-</li>
+<li> great product.</li>
+<li> Very pleased, great results.</li>
+<li> Great product, it does work, smells great, I would buy again for sure.</li>
+<li> good priced.</li>
+<li> Love this stuff!</li>
+<li> Love this product!</li>
+<li> Well, it sure smells nice.</li>
+<li> I have thinning and very fine hair.</li>
+<li> I also think it provides a bit more sheen to my hair.</li>
+<li> I use curler former (Magic Leverag) and this product can keep my curls around the day, it is perfect for me !!!!</li>
+<li> My hair looked thicker &amp; like there was more of it.</li>
+<li> Leaves my hair very soft, which isn&#x27;t good for me as I need something that will give my hair more of a sturdy texture.  </li>
+<li> I really like this adds great volume without too much work as well as my hair does not look like it is slathered in product.</li>
+<li> I do, however, find the entire line a good one for my hair.</li>
+<li> It absolutely provides more thickness and volume to my hair.</li>
+<li> Does a great job of adding volume at half the price of the designer brands.</li>
+<li> This is a super great product for anyone with fine or thin hair.  </li>
+<li> I bought this product &amp; it did exactly what was promised.</li>
+<li> I didn&#x27;t see a significant difference from so many of the other products from Sally Hershberger that I have.  </li>
+<li> This really works</li>
+<li> really well</li>
+<li> This product is great for my thin hair.</li>
+<li> I have very fine, limp hair that has no inherent body to it.</li>
+<li> This is one of my new favorites.</li>
+<li> This gives me a little bit of body, it&#x27;s certainly better than nothing, but I have found that I have to use a ton of it, and it makes my hair feel a little rough (not as nice to the touch).</li>
+<li> Maybe I got an old bottle.</li>
+<li> Works pretty well without being overly sticky and stiff.</li>
+<li> I have very flat hair and constantly buy products to give my hair fullness and volume without being sticky.  </li>
+<li> It allows me to style it without it falling flat just a few hours later.</li>
+<li> Not to heavy, but heavy enough to hold.</li>
+<li> Wont be using this as my hair is now just a limp mess.</li>
+<li> Pump Up is a hard to find product in ordinary stores.</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> I have very fine, limp hair that has no inherent body to it. This gives me a little bit of body, it&#x27;s certainly better than nothing, but I have found that I have to use a ton of it, and it makes my hair feel a little rough (not as nice to the touch). I guess life is all about tradeoffs....</li>
+    <li> This is the perfect volumizer without any stickieness.</li>
+    <li> This is great- it would be just as beneficial to your hair to use any shampoo or conditioner, and use this after!</li>
+    <li> This is one of my new favorites. It absolutely provides more thickness and volume to my hair. I also think it provides a bit more sheen to my hair. LOVE IT!!!!!</li>
+    <li> Doesn&#x27;t work as well as the Lift Root Boost &amp; Heat Protect product from the same line. Maybe I got an old bottle.</li>
+    <li> I have very flat hair and constantly buy products to give my hair fullness and volume without being sticky.  This really works</li>
+    <li> Love this stuff! Gives body without stiffness.</li>
+    <li> This product is great for my thin hair. It allows me to style it without it falling flat just a few hours later.</li>
+    <li> Great product, it does work, smells great, I would buy again for sure. Very pleased, great results. good priced. 5 stars.</li>
+    <li> Love this product! Works just like I want it to. Not to heavy, but heavy enough to hold.</li>
+    <li> This is a super great product for anyone with fine or thin hair.  Pump Up is a hard to find product in ordinary stores.</li>
+    <li> This is the best volumizing product I&#x27;ve ever purchased. It isn&#x27;t stcky or greasy and leaves hair perfect all day. I am very impressed.</li>
+    <li> I didn&#x27;t see a significant difference from so many of the other products from Sally Hershberger that I have.  I do, however, find the entire line a good one for my hair.</li>
+    <li> Works pretty well without being overly sticky and stiff.</li>
+    <li> I use curler former (Magic Leverag) and this product can keep my curls around the day, it is perfect for me !!!!</li>
+    <li> Doesn&#x27;t make the hair brittle or sticky. Does a great job of adding volume at half the price of the designer brands.</li>
+    <li> Well, it sure smells nice. Leaves my hair very soft, which isn&#x27;t good for me as I need something that will give my hair more of a sturdy texture.  I could see this working really well if you have course hair, which I don&#x27;t.  Wont be using this as my hair is now just a limp mess. Boo hoo for me.</li>
+    <li> great product. Wont use anything alse</li>
+    <li> I have thinning and very fine hair. I bought this product &amp; it did exactly what was promised. My hair looked thicker &amp; like there was more of it.</li>
+    <li> I really like this adds great volume without too much work as well as my hair does not look like it is slathered in product.</li>
+</ol>
+
+
+
+

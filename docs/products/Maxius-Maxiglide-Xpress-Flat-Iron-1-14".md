@@ -1,0 +1,274 @@
+---
+title: Maxius Maxiglide Xpress Flat Iron, 1 1/4&quot;,
+description: Maxius Maxiglide Xpress Flat Iron, 1 1/4&quot;,
+author: Suvojit Manna,
+tags: Maxius Maxiglide Xpress Flat Iron, 1 1/4&quot;,
+publishedAt: Fri Jan 10 2020 14:59:59 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:59:59 GMT+0530 (India Standard Time),
+---
+
+# [Maxius Maxiglide Xpress Flat Iron, 1 1/4&quot;](https://products.checkmycream.com/products/Maxius-Maxiglide-Xpress-Flat-Iron-1-14&quot;.html)
+
+### Positive Reviews
+
+<ol>
+      <li>I think it is the best straightening comb on the market.  </li>
+      <li>So I have access to some of the best products out.</li>
+      <li>But it works great: that part is no dispute!</li>
+      <li>Best hair straightener ever!</li>
+      <li>This is one of the best ones on the market...and they keep improving it !!</li>
+      <li>It&#x27;s a great product for course hair!!</li>
+      <li>It straights the hair really really good!!</li>
+      <li>and it&#x27;s perfect.</li>
+      <li>It does not burn, it straightens my hair beautifully.  </li>
+      <li>I am so happy with this product I might just buy the rest of them</li>
+      <li>This is a great product.</li>
+      <li>Great customer service.  </li>
+      <li>I couldnt get the steam to come out, but the maxiglide worked great anyway.  </li>
+      <li>This product is amazing!  </li>
+      <li>so it&#x27;s wise to register your product</li>
+      <li>I loved that one.  </li>
+      <li>Bought this based on reviews and this was good buy.  </li>
+      <li>and it does do a good job on my hair.</li>
+      <li>I thought this one had good qualities.  </li>
+      <li>It is the best flat iron, and all my friends come to my house for me to do their hair because their flatiron is not as best as this one.</li>
+      <li>and I owned this product for four years and was very satisfied.</li>
+      <li>I purchased this product and was very pleased with how well it straightened my hair.  </li>
+      <li>Love it!</li>
+      <li>I love my Maxiglide!</li>
+      <li>I LOVE it!</li>
+      <li>but when I flatten my hair it reaches my cheeks:).</li>
+      <li>I&#x27;m telling you, you will love this product.</li>
+      <li>I love it.</li>
+      <li>My guess was many complaints from Unskilled users, Make no mistake</li>
+      <li>This is absolutely better den</li>
+      <li>I have this size and the mini which is great for getting hairline straight.</li>
+      <li>I have the original 2 inch one, and it still works, and I love it!</li>
+      <li>I have been using the Maxiglide for many years.  </li>
+      <li>My finger tips are safe.  </li>
+      <li>I definately reccommend this product and I am pleased with my purchase.  </li>
+      <li>I don&#x27;t think I will ever find a better product.</li>
+      <li>It is also definitely better then the Instyler.  </li>
+      <li>, I guess I dropped one to many times over a six year period of time.</li>
+      <li>Sometimes it feels good when a Mom gets things right (even if it&#x27;s by chance).</li>
+      <li>The iron, itself, is pretty good.</li>
+      <li>I first bought a Maxiglide from TV and absolutely loved it.  </li>
+      <li>I being using this product since 2007.somehow you could use this iron and no need to feel scare, you will not get burn.still working best tool in the market buying an extra one for protection in case something happen to my original Love this tool</li>
+      <li>/&gt;Overall, I am extremely happy with this purchase and would highly recommend it to anyone looking for a way to straighten their hair easily.</li>
+      <li>I used it for the first time, and my hair felt wonderful and soft, after I used it.</li>
+      <li>Love the fact this version is lighter weight then original MAXIglide</li>
+      <li>Is that you are using and it says Easy to use  And saves time.</li>
+      <li>The combination of the teeth, heat and steam also makes it straighten very quickly.  </li>
+      <li>it&#x27;s really easy.</li>
+      <li>I only did my hair on special occasions, but now my hair is gonna look good every day!</li>
+      <li>but it definitely work great</li>
+      <li>I think you will enjoy using this product...</li>
+      <li>It leaves my hair nice and straight, but it gives it volume and shine too.</li>
+      <li>No relaxer, no cremes ,no conditioners ,just Heat, detangling pins and a light burst of steam&#x3D;perfect hair.</li>
+      <li>My mother first bought me the first Maxiglide, and I loved it.</li>
+      <li>It works just as good as the old model.</li>
+      <li>I have many flat irons, but this one is by far the best.</li>
+      <li>It&#x27;s worth the money you pay for it!</li>
+      <li>but I find that this new one I bought does not straighten my hair as good as the first one I bought.</li>
+      <li>I love the fact it a steamer(adds moisture) and not just burning my hair straight.</li>
+      <li>Never thought I would be able to get my hair straight.</li>
+      <li>I just don&#x27;t think this is a good flat iron...</li>
+      <li>I&#x27;ve recommended this straightener to many family members and friends especially after they commented on how healthy my hair looks and feels.</li>
+      <li>but I love the product and result so much I had to let my fellow Amazon shoppers know that this product is very much worth every penny</li>
+      <li>And gets very hot.</li>
+      <li>I owned one of the very first Maxiglides.</li>
+      <li>This new maxi glide fits perfectly in my carry on and is half the size.</li>
+      <li>Her hair is really curly and this flat iron gives her a wonderful soft sleek look.  </li>
+      <li>the most so I have ordered a new one can&#x27;t wait for it to arrive.</li>
+      <li>and I fell back in love!  </li>
+      <li>In 10 minutes I would have been satisfied with a less than perfect straight look, but my hair actually looks better than it did after hours with the old one.  </li>
+      <li>You are able to control the steam and light enough</li>
+      <li>Its worth every penny.</li>
+      <li>This is the perfect straightener and i will never go back to any other brand.</li>
+      <li>but once you find the right amount of hair to section off</li>
+      <li>right</li>
+      <li>I have shoulder length combination wavy hair, and I like to style it very straight.  </li>
+      <li>I didn&#x27;t even have to use the steam, and level 5 was more than enough</li>
+      <li>I purchased this item when it first came out.  </li>
+      <li>and this is the first flat iron i was able to use all by myself and boy</li>
+      <li>This product has a great concept; however, someone should think about how pulling kinky hair thru tiny sharp spokes won&#x27;t rip the hair right out your scalp.</li>
+      <li>This is my favorite flat iron.  </li>
+      <li>and I am able to style my hair in 30 minutes compared to 2 hours with a flat iron.</li>
+      <li>It&#x27;s an okay product, but if I straighten I&#x27;d prefer ceramic flat iron w/ temp gauge.</li>
+      <li>I LOVE this flat iron.</li>
+      <li>It&#x27;s somewhat smaller that I expected, but works great.</li>
+      <li>My hair was smooth soft and really looked like I came from a salon.  </li>
+      <li>Instructions were simple, and the Maxi Glide was pretty easy to use.</li>
+      <li>Thanks to the Maxi Glide flat iron, my hair is in better condition</li>
+      <li>However, if you want straight healthy hair use a heat protectant, heat resistant comb, and chase the hair with a titanium plated flat iron.</li>
+      <li>It leaves my hair super straight, soft and shiny.  </li>
+      <li>It has paid for itself,cutting  my visits to the salon in half because I can get my own hair just as straight as they do (and shiny too).</li>
+      <li>and I had to wear gloves because my hair would hold so much heat.  </li>
+      <li>It was okay...tore some of my hair out, even when I was trying to be gentle.</li>
+      <li>(I&#x27;ve taken it on vacation and had it tossed around in my luggage) and it makes my hair look straight and shiny.</li>
+      <li>It works really well</li>
+      <li>It straightens very well.  </li>
+      <li>It did not get my hair straight</li>
+      <li>I really like this item</li>
+      <li>it does really straightin your hair.i</li>
+      <li>Don&#x27;t buy a cheap flat iron because those will harm your hair</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> I think it is the best straightening comb on the market.  </li>
+<li> So I have access to some of the best products out.</li>
+<li> But it works great: that part is no dispute!</li>
+<li> Best hair straightener ever!</li>
+<li> This is one of the best ones on the market...and they keep improving it !!</li>
+<li> It&#x27;s a great product for course hair!!</li>
+<li> It straights the hair really really good!!</li>
+<li> and it&#x27;s perfect.</li>
+<li> It does not burn, it straightens my hair beautifully.  </li>
+<li> I am so happy with this product I might just buy the rest of them</li>
+<li> This is a great product.</li>
+<li> Great customer service.  </li>
+<li> I couldnt get the steam to come out, but the maxiglide worked great anyway.  </li>
+<li> This product is amazing!  </li>
+<li> so it&#x27;s wise to register your product</li>
+<li> I loved that one.  </li>
+<li> Bought this based on reviews and this was good buy.  </li>
+<li> and it does do a good job on my hair.</li>
+<li> I thought this one had good qualities.  </li>
+<li> It is the best flat iron, and all my friends come to my house for me to do their hair because their flatiron is not as best as this one.</li>
+<li> and I owned this product for four years and was very satisfied.</li>
+<li> I purchased this product and was very pleased with how well it straightened my hair.  </li>
+<li> Love it!</li>
+<li> I love my Maxiglide!</li>
+<li> I LOVE it!</li>
+<li> but when I flatten my hair it reaches my cheeks:).</li>
+<li> I&#x27;m telling you, you will love this product.</li>
+<li> I love it.</li>
+<li> My guess was many complaints from Unskilled users, Make no mistake</li>
+<li> This is absolutely better den</li>
+<li> I have this size and the mini which is great for getting hairline straight.</li>
+<li> I have the original 2 inch one, and it still works, and I love it!</li>
+<li> I have been using the Maxiglide for many years.  </li>
+<li> My finger tips are safe.  </li>
+<li> I definately reccommend this product and I am pleased with my purchase.  </li>
+<li> I don&#x27;t think I will ever find a better product.</li>
+<li> It is also definitely better then the Instyler.  </li>
+<li> , I guess I dropped one to many times over a six year period of time.</li>
+<li> Sometimes it feels good when a Mom gets things right (even if it&#x27;s by chance).</li>
+<li> The iron, itself, is pretty good.</li>
+<li> I first bought a Maxiglide from TV and absolutely loved it.  </li>
+<li> I being using this product since 2007.somehow you could use this iron and no need to feel scare, you will not get burn.still working best tool in the market buying an extra one for protection in case something happen to my original Love this tool</li>
+<li> /&gt;Overall, I am extremely happy with this purchase and would highly recommend it to anyone looking for a way to straighten their hair easily.</li>
+<li> I used it for the first time, and my hair felt wonderful and soft, after I used it.</li>
+<li> Love the fact this version is lighter weight then original MAXIglide</li>
+<li> Is that you are using and it says Easy to use  And saves time.</li>
+<li> The combination of the teeth, heat and steam also makes it straighten very quickly.  </li>
+<li> it&#x27;s really easy.</li>
+<li> I only did my hair on special occasions, but now my hair is gonna look good every day!</li>
+<li> but it definitely work great</li>
+<li> I think you will enjoy using this product...</li>
+<li> It leaves my hair nice and straight, but it gives it volume and shine too.</li>
+<li> No relaxer, no cremes ,no conditioners ,just Heat, detangling pins and a light burst of steam&#x3D;perfect hair.</li>
+<li> My mother first bought me the first Maxiglide, and I loved it.</li>
+<li> It works just as good as the old model.</li>
+<li> I have many flat irons, but this one is by far the best.</li>
+<li> It&#x27;s worth the money you pay for it!</li>
+<li> but I find that this new one I bought does not straighten my hair as good as the first one I bought.</li>
+<li> I love the fact it a steamer(adds moisture) and not just burning my hair straight.</li>
+<li> Never thought I would be able to get my hair straight.</li>
+<li> I just don&#x27;t think this is a good flat iron...</li>
+<li> I&#x27;ve recommended this straightener to many family members and friends especially after they commented on how healthy my hair looks and feels.</li>
+<li> but I love the product and result so much I had to let my fellow Amazon shoppers know that this product is very much worth every penny</li>
+<li> And gets very hot.</li>
+<li> I owned one of the very first Maxiglides.</li>
+<li> This new maxi glide fits perfectly in my carry on and is half the size.</li>
+<li> Her hair is really curly and this flat iron gives her a wonderful soft sleek look.  </li>
+<li> the most so I have ordered a new one can&#x27;t wait for it to arrive.</li>
+<li> and I fell back in love!  </li>
+<li> In 10 minutes I would have been satisfied with a less than perfect straight look, but my hair actually looks better than it did after hours with the old one.  </li>
+<li> You are able to control the steam and light enough</li>
+<li> Its worth every penny.</li>
+<li> This is the perfect straightener and i will never go back to any other brand.</li>
+<li> but once you find the right amount of hair to section off</li>
+<li> right</li>
+<li> I have shoulder length combination wavy hair, and I like to style it very straight.  </li>
+<li> I didn&#x27;t even have to use the steam, and level 5 was more than enough</li>
+<li> I purchased this item when it first came out.  </li>
+<li> and this is the first flat iron i was able to use all by myself and boy</li>
+<li> This product has a great concept; however, someone should think about how pulling kinky hair thru tiny sharp spokes won&#x27;t rip the hair right out your scalp.</li>
+<li> This is my favorite flat iron.  </li>
+<li> and I am able to style my hair in 30 minutes compared to 2 hours with a flat iron.</li>
+<li> It&#x27;s an okay product, but if I straighten I&#x27;d prefer ceramic flat iron w/ temp gauge.</li>
+<li> I LOVE this flat iron.</li>
+<li> It&#x27;s somewhat smaller that I expected, but works great.</li>
+<li> My hair was smooth soft and really looked like I came from a salon.  </li>
+<li> Instructions were simple, and the Maxi Glide was pretty easy to use.</li>
+<li> Thanks to the Maxi Glide flat iron, my hair is in better condition</li>
+<li> However, if you want straight healthy hair use a heat protectant, heat resistant comb, and chase the hair with a titanium plated flat iron.</li>
+<li> It leaves my hair super straight, soft and shiny.  </li>
+<li> It has paid for itself,cutting  my visits to the salon in half because I can get my own hair just as straight as they do (and shiny too).</li>
+<li> and I had to wear gloves because my hair would hold so much heat.  </li>
+<li> It was okay...tore some of my hair out, even when I was trying to be gentle.</li>
+<li> (I&#x27;ve taken it on vacation and had it tossed around in my luggage) and it makes my hair look straight and shiny.</li>
+<li> It works really well</li>
+<li> It straightens very well.  </li>
+<li> It did not get my hair straight</li>
+<li> I really like this item</li>
+<li> it does really straightin your hair.i</li>
+<li> Don&#x27;t buy a cheap flat iron because those will harm your hair</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> I really like this item and it does do a good job on my hair. My only issue is the ease of use: it is bulky and hard to manuever around head with it without burning self if not carefull. But it works great: that part is no dispute! It straights the hair really really good!! And gets very hot.</li>
+    <li> This product has a great concept; however, someone should think about how pulling kinky hair thru tiny sharp spokes won&#x27;t rip the hair right out your scalp. I tried several times to try to like this contraption. I tried using different products to get my hair to glide thru the plates without any luck. If you want your ends of your hair to look like it has been thru a weed eater purchase and use the Maxiglide on a daily bases. However, if you want straight healthy hair use a heat protectant, heat resistant comb, and chase the hair with a titanium plated flat iron. (Babyliss)</li>
+    <li> For years I had seen this advertised on one of those home shopping shows but never got it because of the price (almost $200).  I also read some reviews and people complained of their hair being pulled out when using it.  When I saw it for $70.00, I decided to go for it.&lt;br /&gt;&lt;br /&gt;I have curly, medium coarse, shoulder blade length hair and would ordinarily have to do a blow out and then use a flat iron to get my hair decently straight.  With the Maxiglide, I allowed my hair to air dry, applied heat protectant spray, and then with one or two passes on each section, my hair was STRAIGHT.  I didn&#x27;t even have to use the steam, and level 5 was more than enough heat.&lt;br /&gt;&lt;br /&gt;It took about 25 minutes to do my entire head of hair.  The hair that I did notice coming out was no more than what comes out when I brush it.  It didn&#x27;t \\&quot;pull\\&quot; it out of my head at all.  Then again, I read the instructions that said to comb out each section before using the Maxiglide.&lt;br /&gt;&lt;br /&gt;Overall, I am extremely happy with this purchase and would highly recommend it to anyone looking for a way to straighten their hair easily.</li>
+    <li> I have super thick and curly coarse hair. Probably enough for three people. I&#x27;ve tried so many different flat irons and this is the only one that gets my hair super straight, shiny and so soft. The teeth are what do the trick. I only have to go over each section of hair once or twice and it&#x27;s perfect. If you use the iron correctly it won&#x27;t pull or break or pull out any hair. You don&#x27;t have to squeeze it that hard.</li>
+    <li> I owned one of the very first Maxiglides. I was very disappointed when it broke, I guess I dropped one to many times over a six year period of time. I have tried 5 different straighteners since and miss my Maxiglide the most so I have ordered a new one can&#x27;t wait for it to arrive.</li>
+    <li> I have many flat irons, but this one is by far the best. It straightens the kinkest of curls and the nappest of naps without burning the hair. And it&#x27;s gets close to the roots without burning the scalp. The little teeth help to ensure that the hair gets straightened without any tangles. Plus results last for weeks depending on how you take care of your hair. Every person with thick course hair should try this product it will change the way they take cate if their hair.</li>
+    <li> I&#x27;ve had the Maxiglide now since 2007. I have the original 2 inch one, and it still works, and I love it! It leaves my hair nice and straight, but it gives it volume and shine too. I used to have the regular ceramic irons, and those left my hair flat. This one doesn&#x27;t. I LOVE it! Truly recommend it to anyone!</li>
+    <li> I know this isnt the cutest looking straightener but it definitely work great ive been using it for 2 1/2 years and it still is going strong the little combs seperate each starnd and help to distbute heat. Although this is not the most expensive straightener ever nor is it the cheapest one you can find but the quality is good and the steam really help with not damaging your hair i really recommed it for ethnic women or girls with really thick hair. This is the perfect straightener and i will never go back to any other brand.</li>
+    <li> I used to use a basic ceramic flat iron.  I would spend so long trying to get my hair straight and it was always a battle.  This product is amazing!  You just fill it with water and do the same as you would do with a flat iron-except that you push the steam button--especially on the ends.  There is no battle with this product.  It straightens very well.  If it&#x27;s going to be a humid day, I use Matrix Biolage hydrating conditioner (not the ultrahydrating) after shampooing my hair and I don&#x27;t have frizz issues.  It&#x27;s worth the money you pay for it!</li>
+    <li> I have had this for 6years and I couldnt be happier. My hair is very thick, curly and frizzy.  Everytime I tried to straighten my hair it would take me hours and it would end up frizzy and crappy looking.  The day I got this I ran to my bathroom plugged it in sectioned off my hair and started straightening. I was finished within 30 minutes. My hair was soft and shiny.  I was disappointed when the dial broke about 9months after I purchased it. I didnt know what tempature setting it was on so I called the company and explained to them what happened and they said it was still under warranty and sent me a new one. The only problem I have with the replacement is the steam burst is plugged and I cant unplug it. I was told to use distilled water but didnt listen and used tap water and now it is plugged. I know if this one ever dies out I will definately buy another one. I would recommend this product to my friends and family who were looking for a new flat iron.</li>
+    <li> I have very thick, coarse, African American hair that i&#x27;ve been chemically altering for 30 yrs. Thanks to the Maxi Glide flat iron, my hair is in better condition and I haven&#x27;t used a chemical relaxer in 8 months! My only wish is that they would come out with replacement plates since i&#x27;ve worn my out.</li>
+    <li> I have shoulder length combination wavy hair, and I like to style it very straight.  It used to take me about 2 hours with my old flat iron to do this, but by the end I&#x27;d be sweating and my hands would hurt from clamping the iron so long.  I used this straightener for the first time tonight and got my entire head done in 10 minutes, no joke.  It was easier to use than my old iron, didn&#x27;t hurt my hand, and I wasn&#x27;t sweaty when I finished either.  In 10 minutes I would have been satisfied with a less than perfect straight look, but my hair actually looks better than it did after hours with the old one.  I am so happy with this product I might just buy the rest of them so I&#x27;ll have a lifetime supply.  With the old iron I only did my hair on special occasions, but now my hair is gonna look good every day!</li>
+    <li> The iron, itself, is pretty good. I like that the combination of steam &amp; a built in brush straightens my hair at a lower heat setting vs. my current flat iron.&lt;br /&gt;&lt;br /&gt;That said the company&#x27;s customer service totally sucks. I tried registering my latest one, only to get a bunch of garbled text &amp; service code errors on their \\&quot;product registration\\&quot; page.&lt;br /&gt;(see for yourself: [..])&lt;br /&gt;&lt;br /&gt;I e-mailed the company &amp; haven&#x27;t heard back. I called the company &amp; all I got was some lame voice mail recording of some guy saying to &#x27;please leave a message after the beep&#x27;. What a joke!&lt;br /&gt;i&#x27;m ready to return my product, simply because if I can&#x27;t register it, i&#x27;m afraid my warranty won&#x27;t be valid. I&#x27;ve owned 2 of these in previous years &amp; the longest they&#x27;ve lasted is about 1.5 years - give or take.&lt;br /&gt;the 1st one just simply went out &amp; stopped getting hot after about 18 months. the second one started having problems with the actual power chord itself - so that it wouldn&#x27;t \\&quot;reset\\&quot; &amp; it never went back on. this happened after about 18 months, as well. The company boasts a 2 year warranty. so it&#x27;s wise to register your product - other wise, you end up having to buy a new one every 2 years (which gets expensive). I&#x27;ve had other flat irons last for years - so, clearly, this company isn&#x27;t putting out quality products.</li>
+    <li> I recieved this in the mail for my birthday. I have VERY thick wavy hair so if your hair is like this too then I don&#x27;t recommend this product. First of all, you have to comb through your hair a million times just to get the flat iron through your hair (it has teeth), second it leaves your hair so frizzy it&#x27;s ridiculous! Maybe it&#x27;s different if you have thin hair, I wouldn&#x27;t know. I just don&#x27;t think this is a good flat iron...at all! Oh, and it also takes forever to heat up.</li>
+    <li> I purchased this item when it first came out.  I loved that one.  I used it so much that I finally burned it out.  I purchased this one to replace it but I&#x27;ve found that it does not work the same.  I find that my hair does not glide through the iron as smoothly as the other one did. Did they change the coating?? Not sure.  I use the recommended Beyond Straight product on my hair prior to blow drying so I don&#x27;t know what the problem could be.  I like the iron because it has a lot of service area and the teeth on it separate the hair as it passes through but I find that this new one I bought does not straighten my hair as good as the first one I bought.</li>
+    <li> Not as steamy as original, but also less likely to burn hand as original unit, It seems they made the sprayer less powerful , My guess was many complaints from Unskilled users, Make no mistake,Maxi Glide is a serious tool, and really works unlike any flat iron ,But can also hurt people if they use it without care. Just like a Curling Iron can burn can burn a user, proper attention should be used at all times. Now on the Plus....The Maxi Glide will straighten any hair,without chemicals, to soft straight hair,and last for days...period. No relaxer, no cremes ,no conditioners ,just Heat, detangling pins and a light burst of steam&#x3D;perfect hair. There is not another product to compare it to, and that is because of Patent Protection ,so don&#x27;t look for a substitute, none exist.</li>
+    <li> I have gotten to the point that I am fed-up with chemicals that damage my hair. I saw a commercial for this product and figured that I had nothing to lose. Worst case, it would just be added to the graveyard of haircare products that were under my sink. I used it for the first time, and my hair felt wonderful and soft, after I used it. Instructions were simple, and the Maxi Glide was pretty easy to use. It was cheaper than one trip to the salon, plus tip. The key is to not get overzealous with the amount of heat or the size of the sections being straightened. Hopefully, I won&#x27;t have to write a review in 6 months saying that my hair fell out.</li>
+    <li> This is my favorite flat iron.  I have thick course hair and I do not perm my hair, so finding a flat iron that will soften my hair, and not create frizz was hard.  My mother first bought me the first Maxiglide, and I loved it. I got the this one after I lost my first one, and it worked the same way.  My hair was smooth soft and really looked like I came from a salon.  It had volume if I made it that way and it was not stiff at all.  Girls who have thick course hair try this or any girl for that matter.  It is the best flat iron, and all my friends come to my house for me to do their hair because their flatiron is not as best as this one. This is absolutely better den the Chi (in my opinion), plus it takes more hair so you can do your hair faster unlike the Chi where you have to take little sections of your hair.  It is also definitely better then the Instyler.  I got that for Christmas and it was not what I thought, so I&#x27;m back to my Maxiglide.  I&#x27;m telling you, you will love this product.</li>
+    <li> I bought this iron for my daughter for Christmas.  Her previous flat iron had broken and I thought this one had good qualities.  Well....I hit the jackpot.  She LOVES it!!  Her hair is really curly and this flat iron gives her a wonderful soft sleek look.  Sometimes it feels good when a Mom gets things right (even if it&#x27;s by chance).</li>
+    <li> I ordered this one when the one I purchased five years ago finally gave out. This new one is slimmer, lighter, and has a larger \\&quot;water tank\\&quot; for steam. My 49 year old hair is wirey and the steam is really needed to smooth it down. The way the sides of the iron itself are shaped, you can actually curl your hair under a bit! I would recommend the Maxius Maxiglide to everyone.</li>
+    <li> Product works well and arrived in time for gift giving at Christmas, which was sooner than expected!  Great customer service.  Thank you</li>
+    <li> This product doesn&#x27;t fry my hair, but does the opposite. Unfortunately, I lost the extra flat plate and the combs are not my favorite. Aside from that, this product definitely works. I also recommend buying a heat protection spray just to prevent the damage that comes with any flat iron. Don&#x27;t buy a cheap flat iron because those will harm your hair the most!&lt;br /&gt;&lt;br /&gt;I&#x27;ve had this flat iron for about 5 years. I stopped using it because I got the Instyler, but than that one broke. It seems like the Maxiglide is a lot harder to break.</li>
+    <li> I have very thick hair and I owned this product for four years and was very satisfied. It broke after I dropped it and I am going to purchase a new one. Its worth every penny. Never thought I would be able to get my hair straight.</li>
+    <li> This is the second maxius flat iron I have owned. The first lasting 2 years.. I have bought others to compare..and there is no comparison..This is one of the best ones on the market...and they keep improving it !! You are able to control the steam and light enough so it&#x27;s not heavy in your hand....I think you will enjoy using this product...</li>
+    <li> Yes, I&#x27;m addicted to this flat iron. But why did they discontinue it? Now what am I supposed to do? None of the other irons have pins, which make all the difference in the world. I hope Maxius reconsiders and brings this product back.</li>
+    <li> i have curly thick hair and this is the first flat iron i was able to use all by myself and boy it does really straightin your hair.i would buy this again if mine broke.</li>
+    <li> I had a wider maxi glide and it was damaged in my luggage while traveling. This new maxi glide fits perfectly in my carry on and is half the size. It works just as good as the old model. I do not like the other flat irons as they burn my hair. This straightener combs as it straightens and I am able to style my hair in 30 minutes compared to 2 hours with a flat iron. Love it!</li>
+    <li> I am African American with 4a/4b natural hair.  I purchased this product and was very pleased with how well it straightened my hair.  I didn&#x27;t even have to blow dry my hair first.  I was wearing my hair in a puff and I just took small sections like the directions stated and straightened my hair.  I couldnt get the steam to come out, but the maxiglide worked great anyway.  I definately reccommend this product and I am pleased with my purchase.  The hair clamps that come with it hold the hair in place good, but there are small openings on the side that can cause the hair to get tangled in them, so be careful.</li>
+    <li> i order this item to my waif.  Is that you are using and it says Easy to use  And saves time.</li>
+    <li> I was ill when my original finally stopping working and had to live with the puffy hair for 3 days till new MAXIglide arrived. I love the fact it a steamer(adds moisture) and not just burning my hair straight. It has paid for itself,cutting  my visits to the salon in half because I can get my own hair just as straight as they do (and shiny too). Love the fact this version is lighter weight then original MAXIglide so it&#x27;s easier to travel with. Since I purchased the first one, I&#x27;ve NEVER worried again of my hair getting wet cause I knew I had a straightener that could \\&quot;un-kink\\&quot; me before the next day. And to a Black Female: THAT IS IMPORTANT! My hair never looks fried and/or damaged either and it&#x27;s easy to manage(I have thick hair). I&#x27;ve recommended this straightener to many family members and friends especially after they commented on how healthy my hair looks and feels. It&#x27;s a great product for course hair!!</li>
+    <li> Bought this based on reviews and this was good buy.  I have not used this, my sister has so we got one for my sister in law.</li>
+    <li> This is a great product. I love it. It works really well, it is durable (I&#x27;ve taken it on vacation and had it tossed around in my luggage) and it makes my hair look straight and shiny. Even my mom likes it and she is opposed to straighteners because of damage they do to your hair. I especially like that it heats up right away so if I am running late I can just put it on and use it and don&#x27;t have to wait.</li>
+    <li> It was okay...tore some of my hair out, even when I was trying to be gentle. Never could figure out how to pop the plates out. Now it just sits in my drawer...</li>
+    <li> This flat iron sucks majorly!!! It did not get my hair straight and It pulled my hair out. It caused major breakage. I went back to my regular flat iron.</li>
+    <li> Great for straightening difficult hair, but Maxiglide products seems to have mechanical issues.  I have used Maxiglide straighteners for years and each one I purchased had to be sent back to the manufacturer for repair, which they did with no question.  But it should last more than a few months without issues.  The one I just purchased from Amazon started having issues after a month (blue light constantly blinks)-can&#x27;t return to Amazon, but will have to return to manufacturer.</li>
+    <li> I prefer curly hair. It&#x27;s an okay product, but if I straighten I&#x27;d prefer ceramic flat iron w/ temp gauge. This doesn&#x27;t have it. It also will break your hair b/c of the little teeth on the flat iron. No bueno!!</li>
+    <li> Looked all over the Internet for this and finally found a vendor who actually had a Max-Glide on hand.  Kept getting \\&quot;Out of Stock\\&quot; or \\&quot;Item Not Available\\&quot; messages on other sites.  I LOVE this Flat Iron (I&#x27;m 65 and have been dealing with thick, curly hair since I can remember).  It doesn&#x27;t damage your hair like other flat irons (the steam helps).  It&#x27;s TERRIFIC (and I always have a \\&quot;back-up\\&quot;).  I am hoping that this product hasn&#x27;t been discontinued for some reason or another.  It&#x27;s a veritable godsend for those with curly hair.</li>
+    <li> I am an half Korean and African American female with long thick curly  hair. My parents are the owners of 4 ethnic beauty supply stores. So I have access to some of the best products out. But nothing compares to the Maxiglide. I get plenty of compliments on my natural hair but when I flatten my hair it reaches my cheeks:). My best friend who is Caucasian with long curly blonde hair comes by at least twice a month for a shampoo, flatten and style. I would recommend the Maxiglide to anyone who wants long lasting straight hair. Best hair straightener ever!</li>
+    <li> I being using this product since 2007.somehow you could use this iron and no need to feel scare, you will not get burn.still working best tool in the market buying an extra one for protection in case something happen to my original Love this tool</li>
+    <li> I LOVE this flat iron. I have had one since 2006. I have this size and the mini which is great for getting hairline straight. This flat iron has &amp;#34;teeth&amp;#34; that basically pull hair straight allowing the heat the penetrate the elongated strand. I find that with other flat irons, my coily hair is not elongated to stretch straight. It takes a lot of work. My latest maxi glide broke and I am online to find a new one, but it looks like amazon shows its as not available. That&#x27;s too bad!!</li>
+    <li> It&#x27;s somewhat smaller that I expected, but works great. By daughter has the larger one, I guess I&#x27;m use to that size.</li>
+    <li> I really like this iron, this is my third iron.  However, after using it for a little more than I believe four months from the beginning I noticed that it keeps turning on and off, something that I never experienced with the two previous ones I purchased.  It still does the job though, I recommend it.</li>
+    <li> I ordered my Maxiglide &amp; Mini in a set from the manufacturers website but I love the product and result so much I had to let my fellow Amazon shoppers know that this product is very much worth every penny spent.&lt;br /&gt;It straightens and style without leaving a burnt smell like most others, left my hair soft and manageable, and took less time than using a regular flat iron. They say close gently not tightly which is a little tricky at first to get the pressure right but once you find the right amount of hair to section off it&#x27;s really easy. My hair is in a recovery stage from being bleached, colored blue, and chemically relaxed which left my hair dry and brittle... Maxiglide has my hair feeling soft and luxurious after less than an hour! I don&#x27;t think I will ever find a better product. Check out their other products too like The End and Beyond Straight, they worked wonders for me!</li>
+    <li> I first bought a Maxiglide from TV and absolutely loved it.  After about 6 years, it finally died.  It was out of stock for a while so I impatiently bought an InStyler.  What a horrible product!  I should have known it was a bad idea when I got 2 for the price of 1!  I recently bought a new Maxiglide (now back in stock, thank god!) and I fell back in love!  It leaves my hair super straight, soft and shiny.  The combination of the teeth, heat and steam also makes it straighten very quickly.  Just be careful not to release the steam too close to your scalp.  I recommend this product to anyone with any hair type!</li>
+    <li> I have been using the Maxiglide for many years.  I think it is the best straightening comb on the market.  I have very thick and soft hair combination.  It does not burn, it straightens my hair beautifully.  My finger tips are safe.  I used to straighten my hair with the old fashioned electric straightening combs and I had to wear gloves because my hair would hold so much heat.  With the Maxiglide, the gloves are no longer necessary.  I love my Maxiglide!</li>
+</ol>
+
+
+
+

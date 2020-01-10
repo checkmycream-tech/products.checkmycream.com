@@ -1,0 +1,169 @@
+---
+title: Sannysis 5 X 2 Way Marbleizing Dotting Pen Set +10 Color Rolls Nail Art Decoration Striping Tape,
+description: Sannysis 5 X 2 Way Marbleizing Dotting Pen Set +10 Color Rolls Nail Art Decoration Striping Tape,
+author: Suvojit Manna,
+tags: Sannysis 5 X 2 Way Marbleizing Dotting Pen Set +10 Color Rolls Nail Art Decoration Striping Tape,
+publishedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
+---
+
+# [Sannysis 5 X 2 Way Marbleizing Dotting Pen Set +10 Color Rolls Nail Art Decoration Striping Tape](https://products.checkmycream.com/products/Sannysis-5-X-2-Way-Marbleizing-Dotting-Pen-Set-+10-Color-Rolls-Nail-Art-Decoration-Striping-Tape.html)
+
+### Positive Reviews
+
+<ol>
+      <li>Great kit ~ niece loves it!</li>
+      <li>Great deal!</li>
+      <li>happy with what I bought!</li>
+      <li>great If your a nurse and cant wear acrylic nails!!!</li>
+      <li>Perfect!</li>
+      <li>Great product!!</li>
+      <li>Both are perfect.</li>
+      <li>Very happy customer</li>
+      <li>But the dotting tools are great.</li>
+      <li>The dotting pens are great</li>
+      <li>The tapes that came with them are nice, and it&#x27;s a great value.  </li>
+      <li>The tape is great for taping over a painted nail to add another color on top.</li>
+      <li>Absolutely love it!</li>
+      <li>Love these!</li>
+      <li>I had to eyeball it and apply my own labels.</li>
+      <li>and so far have made awesome nail art.</li>
+      <li>More for beginners like me.  </li>
+      <li>I love the dotting tools.</li>
+      <li>even better than what I was hoping for.</li>
+      <li>But i love it.</li>
+      <li>Nice product even the tools are ok specially for my daughter who&#x27;s trying to learn how to use them</li>
+      <li>The dotting tools are awesome, the strips come off easily, they do not last even after top coat.</li>
+      <li>Got it very fast and the quality is good for the money I paid.</li>
+      <li>The dotters are good and the tape is very helpful.</li>
+      <li>Really cool design!</li>
+      <li>Easy to use</li>
+      <li>Great price nice little set love it</li>
+      <li>Only received the dotting pens, which are great.</li>
+      <li>But with the nail tape is a bit cheap.</li>
+      <li>But for the price im not disappointed.</li>
+      <li>They&#x27;re pretty versatile tools!</li>
+      <li>Took awhile to get to me but completely worth the wait</li>
+      <li>Also using clear polish on top of them made them fade and change color.</li>
+      <li>The dotting tools are exactly as shown.</li>
+      <li>My teenager loves painting nails and this kit allows many different designs.  </li>
+      <li>Exactly what I ordered, and even came in faster than what the description said.</li>
+      <li>Overall I&#x27;m pretty satisfied.</li>
+      <li>Exactly what I needed.</li>
+      <li>The main reason I purchased this was for the dotting tools, they are fine but just to let you know you might have to get some super glue to glue the metal part back in.  </li>
+      <li>It came pretty fast</li>
+      <li>Thanks.</li>
+      <li>But for the price that really isn&#x27;t an issue to me.&lt;br /&gt;&lt;br</li>
+      <li>The shipping was on time which I appreciated</li>
+      <li>The nail dotters are very nice they have different size tips for bigger or smaller dots.</li>
+      <li>So far they seem pretty sturdy (will update if that changes)</li>
+      <li>Some fell off within hours of applying them even with 2coats of clear polish .</li>
+      <li>I do wish they were numbered or marked in some way the sizes.  </li>
+      <li>I did have a few tapes that weren&#x27;t rolled quite right, but really, for the price, I&#x27;m not all that upset about it.</li>
+      <li>It gets very narrow at one point on the roll and breaks easily.</li>
+      <li>Used a few times one broke (snapped right off) can&#x27;t complain for the price though!</li>
+      <li>The dotting tools work great and are sturdy but i was disappointed in not getting what i was promised</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> Great kit ~ niece loves it!</li>
+<li> Great deal!</li>
+<li> happy with what I bought!</li>
+<li> great If your a nurse and cant wear acrylic nails!!!</li>
+<li> Perfect!</li>
+<li> Great product!!</li>
+<li> Both are perfect.</li>
+<li> Very happy customer</li>
+<li> But the dotting tools are great.</li>
+<li> The dotting pens are great</li>
+<li> The tapes that came with them are nice, and it&#x27;s a great value.  </li>
+<li> The tape is great for taping over a painted nail to add another color on top.</li>
+<li> Absolutely love it!</li>
+<li> Love these!</li>
+<li> I had to eyeball it and apply my own labels.</li>
+<li> and so far have made awesome nail art.</li>
+<li> More for beginners like me.  </li>
+<li> I love the dotting tools.</li>
+<li> even better than what I was hoping for.</li>
+<li> But i love it.</li>
+<li> Nice product even the tools are ok specially for my daughter who&#x27;s trying to learn how to use them</li>
+<li> The dotting tools are awesome, the strips come off easily, they do not last even after top coat.</li>
+<li> Got it very fast and the quality is good for the money I paid.</li>
+<li> The dotters are good and the tape is very helpful.</li>
+<li> Really cool design!</li>
+<li> Easy to use</li>
+<li> Great price nice little set love it</li>
+<li> Only received the dotting pens, which are great.</li>
+<li> But with the nail tape is a bit cheap.</li>
+<li> But for the price im not disappointed.</li>
+<li> They&#x27;re pretty versatile tools!</li>
+<li> Took awhile to get to me but completely worth the wait</li>
+<li> Also using clear polish on top of them made them fade and change color.</li>
+<li> The dotting tools are exactly as shown.</li>
+<li> My teenager loves painting nails and this kit allows many different designs.  </li>
+<li> Exactly what I ordered, and even came in faster than what the description said.</li>
+<li> Overall I&#x27;m pretty satisfied.</li>
+<li> Exactly what I needed.</li>
+<li> The main reason I purchased this was for the dotting tools, they are fine but just to let you know you might have to get some super glue to glue the metal part back in.  </li>
+<li> It came pretty fast</li>
+<li> Thanks.</li>
+<li> But for the price that really isn&#x27;t an issue to me.&lt;br /&gt;&lt;br</li>
+<li> The shipping was on time which I appreciated</li>
+<li> The nail dotters are very nice they have different size tips for bigger or smaller dots.</li>
+<li> So far they seem pretty sturdy (will update if that changes)</li>
+<li> Some fell off within hours of applying them even with 2coats of clear polish .</li>
+<li> I do wish they were numbered or marked in some way the sizes.  </li>
+<li> I did have a few tapes that weren&#x27;t rolled quite right, but really, for the price, I&#x27;m not all that upset about it.</li>
+<li> It gets very narrow at one point on the roll and breaks easily.</li>
+<li> Used a few times one broke (snapped right off) can&#x27;t complain for the price though!</li>
+<li> The dotting tools work great and are sturdy but i was disappointed in not getting what i was promised</li>
+<li> While the quality of these dotting tools is a little cheap (a few rough edges in the plastic), they are the exact same set as I could find at Sally Beauty Supply, just at half the price.  </li>
+<li> is a disappointment, the strips are nice but are not strong enough for keep long time in the nails, with a minimum move them are out.</li>
+<li> Everything what I expected.</li>
+<li> Sometimes the tape was hard to peel from the end point but not a major problem.</li>
+<li> The line stickers are hard to apply.</li>
+<li> The tape might be difficult to take out neatly out of their little package but it&#x27;s doable.</li>
+<li> but I am a little disappointed with the striping tape.</li>
+<li> Is impossible to use</li>
+<li> But the strips never came.. :(</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> Exactly what I ordered, and even came in faster than what the description said. The tape is great for taping over a painted nail to add another color on top. It doesn&#x27;t pull the bottom color off when you peel them. The main reason I purchased this was for the dotting tools, they are fine but just to let you know you might have to get some super glue to glue the metal part back in.  But for the price that really isn&#x27;t an issue to me.&lt;br /&gt;&lt;br /&gt;Very happy with what I bought!</li>
+    <li> My daughter seems to like this item.</li>
+    <li> Everything what I expected.</li>
+    <li> Absolutely love it! The dotters are good and the tape is very helpful. The tape might be difficult to take out neatly out of their little package but it&#x27;s doable. Also. Sometimes the tape was hard to peel from the end point but not a major problem.</li>
+    <li> Only received the dotting pens, which are great. But the strips never came.. :(</li>
+    <li> Great kit ~ niece loves it!</li>
+    <li> Great price nice little set love it</li>
+    <li> Both are perfect. Dotting pens come in different sizes and tape will last a while. Easy to use and so far have made awesome nail art. Great deal!</li>
+    <li> When I ordered these it said that some sort of nail striping tape was included. However when I opened the package the tape was not included only the nail dotters. The nail dotters are very nice they have different size tips for bigger or smaller dots. The shipping was on time which I appreciated</li>
+    <li> Used a few times one broke (snapped right off) can&#x27;t complain for the price though! Really cool design!</li>
+    <li> Got it very fast and the quality is good for the money I paid. 5 stars</li>
+    <li> Nice product even the tools are ok specially for my daughter who&#x27;s trying to learn how to use them</li>
+    <li> is a disappointment, the strips are nice but are not strong enough for keep long time in the nails, with a minimum move them are out.</li>
+    <li> I did not receive then nail tapes only the dotting tools. The dotting tools work great and are sturdy but i was disappointed in not getting what i was promised</li>
+    <li> bought it for my girlfriend, she says she loves it</li>
+    <li> Perfect! Exactly what I needed. Thank you!</li>
+    <li> The dotting tools are exactly as shown. So far they seem pretty sturdy (will update if that changes) It came pretty fast but I didn&#x27;t recieve the 10 rolls of decorating art strips. But for only $1 i&#x27;m not complaining. Overall I&#x27;m pretty satisfied.</li>
+    <li> While the quality of these dotting tools is a little cheap (a few rough edges in the plastic), they are the exact same set as I could find at Sally Beauty Supply, just at half the price.  I do wish they were numbered or marked in some way the sizes.  I had to eyeball it and apply my own labels. The tapes that came with them are nice, and it&#x27;s a great value.  I did have a few tapes that weren&#x27;t rolled quite right, but really, for the price, I&#x27;m not all that upset about it.</li>
+    <li> I love the dotting tools. But with the nail tape is a bit cheap. Some fell off within hours of applying them even with 2coats of clear polish . Also using clear polish on top of them made them fade and change color. But for the price im not disappointed.</li>
+    <li> My teenager loves painting nails and this kit allows many different designs.  She likes her nail kit!  Thanks.</li>
+    <li> Tape. Is impossible to use</li>
+    <li> The dotting pens are great but I am a little disappointed with the striping tape. It is not the same width all around! It gets very narrow at one point on the roll and breaks easily.</li>
+    <li> Love these! I use them constantly. They&#x27;re pretty versatile tools!</li>
+    <li> even better than what I was hoping for. Took awhile to get to me but completely worth the wait</li>
+    <li> My daughter like it a lot&lt;br /&gt;Even thought it took six weeks to get it</li>
+    <li> The line stickers are hard to apply. But the dotting tools are great.</li>
+    <li> Great product!! Takes some getting used to.  More for beginners like me.  But i love it. I got it 2 weeks earlier than i was supposed to! Very happy customer</li>
+    <li> great If your a nurse and cant wear acrylic nails!!!</li>
+    <li> The dotting tools are awesome, the strips come off easily, they do not last even after top coat.</li>
+</ol>
+
+
+
+

@@ -3,8 +3,8 @@ title: Wahl Lithium Ion Beard &amp; Stubble Trimmer #9867,
 description: Wahl Lithium Ion Beard &amp; Stubble Trimmer #9867,
 author: Suvojit Manna,
 tags: Wahl Lithium Ion Beard &amp; Stubble Trimmer #9867,
-publishedAt: Thu Jan 09 2020 19:08:26 GMT+0530 (India Standard Time),
-modifiedAt: Thu Jan 09 2020 19:08:26 GMT+0530 (India Standard Time),
+publishedAt: Fri Jan 10 2020 14:59:29 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:59:29 GMT+0530 (India Standard Time),
 ---
 
 # [Wahl Lithium Ion Beard &amp; Stubble Trimmer #9867](https://products.checkmycream.com/products/Wahl-Lithium-Ion-Beard-and-Stubble-Trimmer-9867.html)
@@ -12,211 +12,211 @@ modifiedAt: Thu Jan 09 2020 19:08:26 GMT+0530 (India Standard Time),
 ### Positive Reviews
 
 <ol>
-      <li>I&#x27;m very happy with it</li>
-      <li>I&#x27;ve used the default blade that comes per-attached and it works wonderfully</li>
-      <li>I&#x27;m leaning towards 5 stars as I am very happy with this.  </li>
-      <li>I had always thought that Wahl trimmers were supposed to be some of the best grooming products out there.  </li>
-      <li>/&gt;I&#x27;m very happy with it.</li>
-      <li>The Lithium Ion is great!!  </li>
-      <li>Excellent product.</li>
-      <li>This is the best trimmer that I have used.</li>
-      <li>That being said, this is the best Wahl I have ever used.</li>
-      <li>and i can say that it is the best one i have owned.</li>
+      <li>the versatility is excellent.</li>
       <li>Great battery life!!</li>
-      <li>the 1/8 or 1/4 attachment worked perfectly.</li>
-      <li>Works great!  </li>
-      <li>The size of the heads is perfect.  </li>
-      <li>couple examples of how women can best use the groomer:&lt;br /&gt;&lt;br</li>
-      <li>Exactly what I wanted !!!!!!!</li>
-      <li>This product used to be the best trimmer I&#x27;ve ever used.</li>
-      <li>Very happy with it and all the attachments.</li>
-      <li>Excellent excellent excellent.</li>
-      <li>Excellent price for it here on amazon.    </li>
-      <li>I think the best solution is just to spend another 30 bucks on the corded Wahl unit like I did.</li>
-      <li>Best price I could find was at Amazon  </li>
-      <li>The battery life is excellent, and it is perfect for beard trimming.</li>
-      <li>This is the best groomer out there, I have used the conaire and the phillips norelcos for years.  </li>
-      <li>It&#x27;s the greatest thing ever.  </li>
-      <li>Of all the trimmers I&#x27;ve owned, I like this one the best.</li>
-      <li>Lithium battery is wonderful.  </li>
-      <li>Recommended greatly!!</li>
-      <li>The battery life was excellent as well.</li>
-      <li>/&gt;It performs perfectly and has lots of options.</li>
-      <li>This is the best grooming kit my husband has ever owned.  </li>
-      <li>I was really impressed with the power.  </li>
-      <li>This product is great!</li>
-      <li>/&gt;Amazon customer service is excellent....</li>
-      <li>well work the money works perfectly</li>
-      <li>but the mechine is the best</li>
-      <li>Best beard trimmer I&#x27;ve ever used.</li>
-      <li>Excellent power</li>
-      <li>it is impressive).  </li>
-      <li>Very happy with it.</li>
-      <li>best part about this trimmer to me is without a doubt the battery.</li>
-      <li>and it&#x27;s great!</li>
-      <li>Kudos to the Wahl Company for another great product!</li>
-      <li>I can say without reservation that this is the best trimmer I have ever owned.</li>
-      <li>Best clippers I&#x27;ve EVER owned.  </li>
-      <li>best trimmer i&#x27;ve had ever.  </li>
-      <li>customer service is excellent.</li>
-      <li>Otherwise, it&#x27;s an excellent trimmer.</li>
-      <li>Wahl has permanently lost an excellent customer.</li>
-      <li>So I will say that this is the best hair trimmer product I have ever purchased.  </li>
-      <li>These clippers work wonderfully and come with all the needed attachments.  </li>
-      <li>If you read the reviews for items at this price range, this one of the best.</li>
-      <li>It needed to be cleaned up and the Wahl Trimmer was the perfect item to do so.</li>
-      <li>It&#x27;s a great item!</li>
-      <li>the bashing aside, I believe this is probably the best value in the pricerange.</li>
-      <li>Used this trimmer for my wedding to my beautiful gurl!</li>
-      <li>Not the best I had ..  </li>
-      <li>Best bang for the buck in an all in one trimmer, the way it runs, feels in your hand</li>
-      <li>I&#x27;m impressed with the charging capacity and the ease of use for the interchangeable heads.</li>
-      <li>/&gt;This is the best trimmer I&#x27;ve used in this price range.</li>
-      <li>This is the best trimmer I&#x27;ve used in this price range.</li>
-      <li>It works perfectly.  </li>
-      <li>And is very happy with all the applications on this one.</li>
-      <li>but I was impressed with the battery life!</li>
-      <li>would have to say this one is the best one I have ever had.&lt;br /&gt;I</li>
-      <li>The best trimmer we have ever purchased!</li>
-      <li>Best trimmer!</li>
-      <li>The shaver is great!</li>
-      <li>This is a perfect product for bald men like me and it&#x27;s a perfect travel companion.</li>
-      <li>Though, admittedly, it doesn&#x27;t do the best job of housing all the accessories.some as problematic.</li>
-      <li>Though, admittedly, it doesn&#x27;t do the best job of housing all the accessories.</li>
-      <li>It&#x27;s perfect.</li>
-      <li>Excellent choice and product.  </li>
-      <li>Awesome trimmer and</li>
-      <li>I use w/ pre shave lotion and this does the job perfect.</li>
+      <li>This is an excellent trimmer.</li>
+      <li>Excellent.</li>
       <li>Works great!</li>
+      <li>Works great!  </li>
       <li>It&#x27;s the best trimmer I&#x27;ve owned.</li>
+      <li>All In One is the best trimmer I have ever used.  </li>
       <li>Awesome product!  </li>
       <li>Great item!</li>
       <li>Best trimmer I ever had.</li>
       <li>The have stood up perfectly.</li>
+      <li>I&#x27;m very happy with it</li>
+      <li>It&#x27;s the greatest thing ever.  </li>
+      <li>A great value for the price!!</li>
+      <li>Started out great!</li>
+      <li>Are you looking for an affordable, nearly perfect men&#x27;s grooming kit and trimmer??</li>
+      <li>I use w/ pre shave lotion and this does the job perfect.</li>
+      <li>The ease of use is excellent for me to trim beard, mustache and neck.</li>
+      <li>I&#x27;ve used the default blade that comes per-attached and it works wonderfully</li>
+      <li>Awesome trimmer and</li>
       <li>and it is great, and still works!  </li>
       <li>we had a wahl before and it eventually died, but this rechargable one is great!</li>
+      <li>Excellent choice and product.  </li>
+      <li>I&#x27;m leaning towards 5 stars as I am very happy with this.  </li>
+      <li>It&#x27;s perfect.</li>
+      <li>Though, admittedly, it doesn&#x27;t do the best job of housing all the accessories.</li>
+      <li>The product works great!</li>
       <li>Hubby is VERY pleased with the performance of this trimmer!!</li>
+      <li>Though, admittedly, it doesn&#x27;t do the best job of housing all the accessories.some as problematic.</li>
+      <li>Excellent shaver.</li>
       <li>The product itself works great, while it works!</li>
+      <li>and it still works great!  </li>
       <li>/&gt;Now go forth and make your bearded forefathers proud!</li>
+      <li>Kept it plugged in all the time, but otherwise took excellent care with provided oil and cleaning brush.</li>
       <li>This is one of the best electronic razor/trimmer that I have used.</li>
       <li>For him, the best quality of these clippers is how close a trim they can give him.  </li>
       <li>Excellent cost-effectiveness.</li>
       <li>He is very happy with it.</li>
       <li>Excellent product and deal</li>
+      <li>This is a perfect product for bald men like me and it&#x27;s a perfect travel companion.</li>
+      <li>The shaver is great!</li>
       <li>An added plus, this is excellent for trimming the fur between my dogs pads.</li>
+      <li>This shaver is the best thing I bought</li>
+      <li>It is an excellent and precision trimmer.&lt;br</li>
+      <li>Best trimmer!</li>
+      <li>The best trimmer we have ever purchased!</li>
+      <li>Of all the trimmers I&#x27;ve owned, I like this one the best.</li>
+      <li>I had always thought that Wahl trimmers were supposed to be some of the best grooming products out there.  </li>
+      <li>would have to say this one is the best one I have ever had.&lt;br /&gt;I</li>
+      <li>but I was impressed with the battery life!</li>
       <li>The best of the best all the sizes i  need to trip my beard thank you</li>
+      <li>And is very happy with all the applications on this one.</li>
+      <li>It works perfectly.  </li>
+      <li>This is the best trimmer I&#x27;ve used in this price range.</li>
+      <li>Very happy with this product!</li>
+      <li>Great Clipper!  </li>
+      <li>Very happy with my purchase and would purchase it again if I had to do it over again.&lt;br</li>
+      <li>It works great!</li>
+      <li>/&gt;This is the best trimmer I&#x27;ve used in this price range.</li>
+      <li>Very happy with my purchase of these trimmers.</li>
+      <li>and it works flawlessly.  </li>
+      <li>/&gt;I&#x27;m very happy with it.</li>
+      <li>Customer service from Wahl was excellent in replacing the rusted blades.</li>
+      <li>I&#x27;m very happy.</li>
+      <li>best trimmer I got !!!</li>
+      <li>Great Bang for the Buck!! . .  </li>
       <li>Great product!</li>
+      <li>I&#x27;m impressed with the charging capacity and the ease of use for the interchangeable heads.</li>
       <li>IT has a lot of attachments for trimming that work great!  </li>
       <li>We got the gift in great shape and in time!</li>
+      <li>Best of all -  it was made in the USA.</li>
+      <li>/&gt;I&#x27;ve had this for about four months now, and it&#x27;s the best all-rounder</li>
+      <li>It is excellent at trimming beards and mustaches.</li>
+      <li>I am very impressed with this trimmer.  </li>
+      <li>I am impressed with the number of uses for the grooming kit and like the idea of a lithium ion battery.</li>
+      <li>As a result, once I called the company and figured out how to use everything that came with the product I was very happy.    </li>
+      <li>Excellent product</li>
       <li>It works wonderfully.</li>
+      <li>My husband uses these trimmers all the time,and is very happy with them!</li>
       <li>Provides excellent detailing tool for eye brows and nose trimming as well.</li>
       <li>has worked flawlessly.</li>
       <li>I called Wahl and received the best customer service.</li>
+      <li>The 3 blades are great!</li>
+      <li>The lithium battery is awesome!  </li>
+      <li>Battery life is excellent.</li>
+      <li>I am VERY happy with this product.</li>
+      <li>Great product!</li>
+      <li>received in perfect condition</li>
+      <li>Lithium battery is wonderful.  </li>
+      <li>Excellent beard trimmer for the money...  </li>
+      <li>The product is excellent, my husband loves the beard trimmer accessory.</li>
+      <li>I&#x27;ve been fairly impressed with its performance.</li>
+      <li>This is the best groomer out there, I have used the conaire and the phillips norelcos for years.  </li>
+      <li>Else, this thing is perfect</li>
+      <li>Best bang for the buck in an all in one trimmer, the way it runs, feels in your hand</li>
+      <li>he is very happy with it</li>
+      <li>Best part is the battery.</li>
+      <li>The Lithium Ion is great!!  </li>
+      <li>Ive had 3 of these over the years, and theyre still the best value trimmer.</li>
 </ol>
 
 
 <h2>Negative Reviews</h2>
 <ol>
-<li> I&#x27;m very happy with it</li>
-<li> I&#x27;ve used the default blade that comes per-attached and it works wonderfully</li>
-<li> I&#x27;m leaning towards 5 stars as I am very happy with this.  </li>
-<li> I had always thought that Wahl trimmers were supposed to be some of the best grooming products out there.  </li>
-<li> /&gt;I&#x27;m very happy with it.</li>
-<li> The Lithium Ion is great!!  </li>
-<li> Excellent product.</li>
-<li> This is the best trimmer that I have used.</li>
-<li> That being said, this is the best Wahl I have ever used.</li>
-<li> and i can say that it is the best one i have owned.</li>
+<li> the versatility is excellent.</li>
 <li> Great battery life!!</li>
-<li> the 1/8 or 1/4 attachment worked perfectly.</li>
-<li> Works great!  </li>
-<li> The size of the heads is perfect.  </li>
-<li> couple examples of how women can best use the groomer:&lt;br /&gt;&lt;br</li>
-<li> Exactly what I wanted !!!!!!!</li>
-<li> This product used to be the best trimmer I&#x27;ve ever used.</li>
-<li> Very happy with it and all the attachments.</li>
-<li> Excellent excellent excellent.</li>
-<li> Excellent price for it here on amazon.    </li>
-<li> I think the best solution is just to spend another 30 bucks on the corded Wahl unit like I did.</li>
-<li> Best price I could find was at Amazon  </li>
-<li> The battery life is excellent, and it is perfect for beard trimming.</li>
-<li> This is the best groomer out there, I have used the conaire and the phillips norelcos for years.  </li>
-<li> It&#x27;s the greatest thing ever.  </li>
-<li> Of all the trimmers I&#x27;ve owned, I like this one the best.</li>
-<li> Lithium battery is wonderful.  </li>
-<li> Recommended greatly!!</li>
-<li> The battery life was excellent as well.</li>
-<li> /&gt;It performs perfectly and has lots of options.</li>
-<li> This is the best grooming kit my husband has ever owned.  </li>
-<li> I was really impressed with the power.  </li>
-<li> This product is great!</li>
-<li> /&gt;Amazon customer service is excellent....</li>
-<li> well work the money works perfectly</li>
-<li> but the mechine is the best</li>
-<li> Best beard trimmer I&#x27;ve ever used.</li>
-<li> Excellent power</li>
-<li> it is impressive).  </li>
-<li> Very happy with it.</li>
-<li> best part about this trimmer to me is without a doubt the battery.</li>
-<li> and it&#x27;s great!</li>
-<li> Kudos to the Wahl Company for another great product!</li>
-<li> I can say without reservation that this is the best trimmer I have ever owned.</li>
-<li> Best clippers I&#x27;ve EVER owned.  </li>
-<li> best trimmer i&#x27;ve had ever.  </li>
-<li> customer service is excellent.</li>
-<li> Otherwise, it&#x27;s an excellent trimmer.</li>
-<li> Wahl has permanently lost an excellent customer.</li>
-<li> So I will say that this is the best hair trimmer product I have ever purchased.  </li>
-<li> These clippers work wonderfully and come with all the needed attachments.  </li>
-<li> If you read the reviews for items at this price range, this one of the best.</li>
-<li> It needed to be cleaned up and the Wahl Trimmer was the perfect item to do so.</li>
-<li> It&#x27;s a great item!</li>
-<li> the bashing aside, I believe this is probably the best value in the pricerange.</li>
-<li> Used this trimmer for my wedding to my beautiful gurl!</li>
-<li> Not the best I had ..  </li>
-<li> Best bang for the buck in an all in one trimmer, the way it runs, feels in your hand</li>
-<li> I&#x27;m impressed with the charging capacity and the ease of use for the interchangeable heads.</li>
-<li> /&gt;This is the best trimmer I&#x27;ve used in this price range.</li>
-<li> This is the best trimmer I&#x27;ve used in this price range.</li>
-<li> It works perfectly.  </li>
-<li> And is very happy with all the applications on this one.</li>
-<li> but I was impressed with the battery life!</li>
-<li> would have to say this one is the best one I have ever had.&lt;br /&gt;I</li>
-<li> The best trimmer we have ever purchased!</li>
-<li> Best trimmer!</li>
-<li> The shaver is great!</li>
-<li> This is a perfect product for bald men like me and it&#x27;s a perfect travel companion.</li>
-<li> Though, admittedly, it doesn&#x27;t do the best job of housing all the accessories.some as problematic.</li>
-<li> Though, admittedly, it doesn&#x27;t do the best job of housing all the accessories.</li>
-<li> It&#x27;s perfect.</li>
-<li> Excellent choice and product.  </li>
-<li> Awesome trimmer and</li>
-<li> I use w/ pre shave lotion and this does the job perfect.</li>
+<li> This is an excellent trimmer.</li>
+<li> Excellent.</li>
 <li> Works great!</li>
+<li> Works great!  </li>
 <li> It&#x27;s the best trimmer I&#x27;ve owned.</li>
+<li> All In One is the best trimmer I have ever used.  </li>
 <li> Awesome product!  </li>
 <li> Great item!</li>
 <li> Best trimmer I ever had.</li>
 <li> The have stood up perfectly.</li>
+<li> I&#x27;m very happy with it</li>
+<li> It&#x27;s the greatest thing ever.  </li>
+<li> A great value for the price!!</li>
+<li> Started out great!</li>
+<li> Are you looking for an affordable, nearly perfect men&#x27;s grooming kit and trimmer??</li>
+<li> I use w/ pre shave lotion and this does the job perfect.</li>
+<li> The ease of use is excellent for me to trim beard, mustache and neck.</li>
+<li> I&#x27;ve used the default blade that comes per-attached and it works wonderfully</li>
+<li> Awesome trimmer and</li>
 <li> and it is great, and still works!  </li>
 <li> we had a wahl before and it eventually died, but this rechargable one is great!</li>
+<li> Excellent choice and product.  </li>
+<li> I&#x27;m leaning towards 5 stars as I am very happy with this.  </li>
+<li> It&#x27;s perfect.</li>
+<li> Though, admittedly, it doesn&#x27;t do the best job of housing all the accessories.</li>
+<li> The product works great!</li>
 <li> Hubby is VERY pleased with the performance of this trimmer!!</li>
+<li> Though, admittedly, it doesn&#x27;t do the best job of housing all the accessories.some as problematic.</li>
+<li> Excellent shaver.</li>
 <li> The product itself works great, while it works!</li>
+<li> and it still works great!  </li>
 <li> /&gt;Now go forth and make your bearded forefathers proud!</li>
+<li> Kept it plugged in all the time, but otherwise took excellent care with provided oil and cleaning brush.</li>
 <li> This is one of the best electronic razor/trimmer that I have used.</li>
 <li> For him, the best quality of these clippers is how close a trim they can give him.  </li>
 <li> Excellent cost-effectiveness.</li>
 <li> He is very happy with it.</li>
 <li> Excellent product and deal</li>
+<li> This is a perfect product for bald men like me and it&#x27;s a perfect travel companion.</li>
+<li> The shaver is great!</li>
 <li> An added plus, this is excellent for trimming the fur between my dogs pads.</li>
+<li> This shaver is the best thing I bought</li>
+<li> It is an excellent and precision trimmer.&lt;br</li>
+<li> Best trimmer!</li>
+<li> The best trimmer we have ever purchased!</li>
+<li> Of all the trimmers I&#x27;ve owned, I like this one the best.</li>
+<li> I had always thought that Wahl trimmers were supposed to be some of the best grooming products out there.  </li>
+<li> would have to say this one is the best one I have ever had.&lt;br /&gt;I</li>
+<li> but I was impressed with the battery life!</li>
 <li> The best of the best all the sizes i  need to trip my beard thank you</li>
+<li> And is very happy with all the applications on this one.</li>
+<li> It works perfectly.  </li>
+<li> This is the best trimmer I&#x27;ve used in this price range.</li>
+<li> Very happy with this product!</li>
+<li> Great Clipper!  </li>
+<li> Very happy with my purchase and would purchase it again if I had to do it over again.&lt;br</li>
+<li> It works great!</li>
+<li> /&gt;This is the best trimmer I&#x27;ve used in this price range.</li>
+<li> Very happy with my purchase of these trimmers.</li>
+<li> and it works flawlessly.  </li>
+<li> /&gt;I&#x27;m very happy with it.</li>
+<li> Customer service from Wahl was excellent in replacing the rusted blades.</li>
+<li> I&#x27;m very happy.</li>
+<li> best trimmer I got !!!</li>
+<li> Great Bang for the Buck!! . .  </li>
 <li> Great product!</li>
+<li> I&#x27;m impressed with the charging capacity and the ease of use for the interchangeable heads.</li>
 <li> IT has a lot of attachments for trimming that work great!  </li>
 <li> We got the gift in great shape and in time!</li>
+<li> Best of all -  it was made in the USA.</li>
+<li> /&gt;I&#x27;ve had this for about four months now, and it&#x27;s the best all-rounder</li>
+<li> It is excellent at trimming beards and mustaches.</li>
+<li> I am very impressed with this trimmer.  </li>
+<li> I am impressed with the number of uses for the grooming kit and like the idea of a lithium ion battery.</li>
+<li> As a result, once I called the company and figured out how to use everything that came with the product I was very happy.    </li>
+<li> Excellent product</li>
 <li> It works wonderfully.</li>
+<li> My husband uses these trimmers all the time,and is very happy with them!</li>
 <li> Provides excellent detailing tool for eye brows and nose trimming as well.</li>
 <li> has worked flawlessly.</li>
 <li> I called Wahl and received the best customer service.</li>
+<li> The 3 blades are great!</li>
+<li> The lithium battery is awesome!  </li>
+<li> Battery life is excellent.</li>
+<li> I am VERY happy with this product.</li>
+<li> Great product!</li>
+<li> received in perfect condition</li>
+<li> Lithium battery is wonderful.  </li>
+<li> Excellent beard trimmer for the money...  </li>
+<li> The product is excellent, my husband loves the beard trimmer accessory.</li>
+<li> I&#x27;ve been fairly impressed with its performance.</li>
+<li> This is the best groomer out there, I have used the conaire and the phillips norelcos for years.  </li>
+<li> Else, this thing is perfect</li>
+<li> Best bang for the buck in an all in one trimmer, the way it runs, feels in your hand</li>
+<li> he is very happy with it</li>
+<li> Best part is the battery.</li>
+<li> The Lithium Ion is great!!  </li>
+<li> Ive had 3 of these over the years, and theyre still the best value trimmer.</li>
 </ol>
 
 <h2>All Reviews</h2>
@@ -1938,6 +1938,7 @@ modifiedAt: Thu Jan 09 2020 19:08:26 GMT+0530 (India Standard Time),
     <li> The Wahl trimmer works just as advertised. The trimmer comes with a large selection of adapters. The best part is the lithium ion battery. It keeps a charge for a long time and recharges fairly quickly.</li>
     <li> Great trimmer.  Zero complaints.</li>
 </ol>
+
 
 
 

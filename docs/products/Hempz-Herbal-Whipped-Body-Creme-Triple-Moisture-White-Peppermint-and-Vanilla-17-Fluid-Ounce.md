@@ -1,0 +1,110 @@
+---
+title: Hempz Herbal Whipped Body Creme Triple Moisture, White Peppermint and Vanilla, 17 Fluid Ounce,
+description: Hempz Herbal Whipped Body Creme Triple Moisture, White Peppermint and Vanilla, 17 Fluid Ounce,
+author: Suvojit Manna,
+tags: Hempz Herbal Whipped Body Creme Triple Moisture, White Peppermint and Vanilla, 17 Fluid Ounce,
+publishedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
+---
+
+# [Hempz Herbal Whipped Body Creme Triple Moisture, White Peppermint and Vanilla, 17 Fluid Ounce](https://products.checkmycream.com/products/Hempz-Herbal-Whipped-Body-Creme-Triple-Moisture-White-Peppermint-and-Vanilla-17-Fluid-Ounce.html)
+
+### Positive Reviews
+
+<ol>
+      <li>This lotion is wonderful to use on your skin.</li>
+      <li>This stuff is awesome!</li>
+      <li>Got a great price!</li>
+      <li>Very nice smell!</li>
+      <li>Wonderful hydration and love the scent!</li>
+      <li>Great fragrance,</li>
+      <li>Great product.</li>
+      <li>Love this stuff!</li>
+      <li>Love it!</li>
+      <li>This is a nice lotion.  </li>
+      <li>It has a really soft smell and the triple moisture cream is wonderful.</li>
+      <li>Love this lotion and it has such a warm wonderful scent!</li>
+      <li>and I love the way it glides on my skin.</li>
+      <li>Love this lotion.  </li>
+      <li>I love this product.</li>
+      <li>but I still love the product.</li>
+      <li>Item delivered on time, was as described  Love this suff</li>
+      <li>Love any Hempz.</li>
+      <li>Love this lotion.</li>
+      <li>Hempz makes great products and this lived up to their other great products.</li>
+      <li>The first scent is peppermint which I really love, then the vanilla stays with you.</li>
+      <li>I would suggest this the cool of peppermint and the softness of the vanilla.</li>
+      <li>Fantastic and very festive.</li>
+      <li>smell scrumptious!!!! ;]</li>
+      <li>Absolutely love this lotion..need to change from limited to permanent..lots of compliments</li>
+      <li>LOVE this limited edition lotion.  </li>
+      <li>It dries fast and doesn&#x27;t leave your hands feeling oily.  </li>
+      <li>Would highly recommend.</li>
+      <li>I&#x27;ve grown to love the hemp lotions and have yet to try them all, but this one in particular you can&#x27;t go wrong.</li>
+      <li>I highly recommend this, and any other Hempz products!</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> This lotion is wonderful to use on your skin.</li>
+<li> This stuff is awesome!</li>
+<li> Got a great price!</li>
+<li> Very nice smell!</li>
+<li> Wonderful hydration and love the scent!</li>
+<li> Great fragrance,</li>
+<li> Great product.</li>
+<li> Love this stuff!</li>
+<li> Love it!</li>
+<li> This is a nice lotion.  </li>
+<li> It has a really soft smell and the triple moisture cream is wonderful.</li>
+<li> Love this lotion and it has such a warm wonderful scent!</li>
+<li> and I love the way it glides on my skin.</li>
+<li> Love this lotion.  </li>
+<li> I love this product.</li>
+<li> but I still love the product.</li>
+<li> Item delivered on time, was as described  Love this suff</li>
+<li> Love any Hempz.</li>
+<li> Love this lotion.</li>
+<li> Hempz makes great products and this lived up to their other great products.</li>
+<li> The first scent is peppermint which I really love, then the vanilla stays with you.</li>
+<li> I would suggest this the cool of peppermint and the softness of the vanilla.</li>
+<li> Fantastic and very festive.</li>
+<li> smell scrumptious!!!! ;]</li>
+<li> Absolutely love this lotion..need to change from limited to permanent..lots of compliments</li>
+<li> LOVE this limited edition lotion.  </li>
+<li> It dries fast and doesn&#x27;t leave your hands feeling oily.  </li>
+<li> Would highly recommend.</li>
+<li> I&#x27;ve grown to love the hemp lotions and have yet to try them all, but this one in particular you can&#x27;t go wrong.</li>
+<li> I highly recommend this, and any other Hempz products!</li>
+<li> The top of the pump had a little piece broken off</li>
+<li> Wish they would sell it year round</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> I&#x27;ve grown to love the hemp lotions and have yet to try them all, but this one in particular you can&#x27;t go wrong. It has a pepperminty on coat smell and drys to the orginal hempzy banana peel smell scrumptious!!!! ;]</li>
+    <li> LOVE this limited edition lotion.  It has a really soft smell and the triple moisture cream is wonderful. Not oily at all.</li>
+    <li> Absolutely love this lotion..need to change from limited to permanent..lots of compliments</li>
+    <li> Got a great price! The top of the pump had a little piece broken off but I still love the product.</li>
+    <li> Love this lotion and it has such a warm wonderful scent!</li>
+    <li> Wonderful hydration and love the scent! Hempz makes great products and this lived up to their other great products.</li>
+    <li> Great fragrance, and I love the way it glides on my skin. Once I tried Hempz lotion, I haven&#x27;t used anything else. I highly recommend this, and any other Hempz products!</li>
+    <li> I love this product. I would suggest this the cool of peppermint and the softness of the vanilla.</li>
+    <li> The white peppermint &amp; vanilla fragrance did nothing for me.  I didn&#x27;t like it.</li>
+    <li> Love any Hempz. but this one is therapeutic for sore muscles as well as moisturizing! Love it!</li>
+    <li> Love this lotion. Would highly recommend.</li>
+    <li> Item delivered on time, was as described  Love this suff</li>
+    <li> This stuff is awesome!</li>
+    <li> Very nice smell! Love this stuff!</li>
+    <li> Great product. Pump didn&#x27;t work though</li>
+    <li> This is a nice lotion.  It dries fast and doesn&#x27;t leave your hands feeling oily.  The first scent is peppermint which I really love, then the vanilla stays with you.</li>
+    <li> Fantastic and very festive. Brought it to work to share with my coworkers for the holidays. Another solid Hempz product.</li>
+    <li> Love this lotion.  Wish they would sell it year round</li>
+    <li> This lotion is wonderful to use on your skin.</li>
+</ol>
+
+
+
+

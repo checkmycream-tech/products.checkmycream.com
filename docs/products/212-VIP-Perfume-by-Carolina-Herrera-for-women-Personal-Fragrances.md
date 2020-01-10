@@ -1,0 +1,83 @@
+---
+title: 212 VIP Perfume by Carolina Herrera for women Personal Fragrances,
+description: 212 VIP Perfume by Carolina Herrera for women Personal Fragrances,
+author: Suvojit Manna,
+tags: 212 VIP Perfume by Carolina Herrera for women Personal Fragrances,
+publishedAt: Fri Jan 10 2020 15:00:04 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:04 GMT+0530 (India Standard Time),
+---
+
+# [212 VIP Perfume by Carolina Herrera for women Personal Fragrances](https://products.checkmycream.com/products/212-VIP-Perfume-by-Carolina-Herrera-for-women-Personal-Fragrances.html)
+
+### Positive Reviews
+
+<ol>
+      <li>Really delicious fragrance</li>
+      <li>EXCELLENT PRODUCT !!!</li>
+      <li>Excellent presentation shipping</li>
+      <li>It&#x27;s an excellent parfum and the fixer is very good.</li>
+      <li>This item is very good.</li>
+      <li>Very good quality product.</li>
+      <li>I loved it!</li>
+      <li>My wife is so proud that I bought this product for hur.</li>
+      <li>I have bought all the 212 carolina herreras perfumes and have loved them all.</li>
+      <li>it&#x27;s so good.</li>
+      <li>I liked the product, arrived on time without problems and product details, good salespeople recommend hundred percent,thanks for the product</li>
+      <li>in this case, rather prefer the vip 212 rose.</li>
+      <li>My daughter love it...</li>
+      <li>It has an amazing alluring scent that draws the right kind of attention.</li>
+      <li>this Golden one is nice</li>
+      <li>It&#x27;s perfect present for a pretty woman.</li>
+      <li>She liked it so much.</li>
+      <li>Buy buy buy and reap sweet benefits.</li>
+      <li>Fast delivery and the product is original.</li>
+      <li>It has a fragrance very tasty!</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> Really delicious fragrance</li>
+<li> EXCELLENT PRODUCT !!!</li>
+<li> Excellent presentation shipping</li>
+<li> It&#x27;s an excellent parfum and the fixer is very good.</li>
+<li> This item is very good.</li>
+<li> Very good quality product.</li>
+<li> I loved it!</li>
+<li> My wife is so proud that I bought this product for hur.</li>
+<li> I have bought all the 212 carolina herreras perfumes and have loved them all.</li>
+<li> it&#x27;s so good.</li>
+<li> I liked the product, arrived on time without problems and product details, good salespeople recommend hundred percent,thanks for the product</li>
+<li> in this case, rather prefer the vip 212 rose.</li>
+<li> My daughter love it...</li>
+<li> It has an amazing alluring scent that draws the right kind of attention.</li>
+<li> this Golden one is nice</li>
+<li> It&#x27;s perfect present for a pretty woman.</li>
+<li> She liked it so much.</li>
+<li> Buy buy buy and reap sweet benefits.</li>
+<li> Fast delivery and the product is original.</li>
+<li> It has a fragrance very tasty!</li>
+<li> im really sad about it because the other will be gift for my dad</li>
+<li> Selfishly I wish I could have it all to myself.</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> This item is very good. It has a fragrance very tasty! It&#x27;s perfect present for a pretty woman. I loved it!</li>
+    <li> I could buy this stuff by the 55 gallon drum it&#x27;s so good. It has an amazing alluring scent that draws the right kind of attention. Selfishly I wish I could have it all to myself. Buy buy buy and reap sweet benefits.</li>
+    <li> excelente el tramite con esta tienda todo se dio en el tiempo indicado, se recomienda por experiencia propia, continuare hacindo mis pedidos ahora con mas seguridad</li>
+    <li> Fast delivery and the product is original.</li>
+    <li> I have bought all the 212 carolina herreras perfumes and have loved them all. in this case, rather prefer the vip 212 rose. this Golden one is nice but I prefer all the others</li>
+    <li> Very good quality product. Excellent presentation shipping</li>
+    <li> My wife is so proud that I bought this product for hur.She liked it so much.With pleasure I will bay another one later.</li>
+    <li> I liked the product, arrived on time without problems and product details, good salespeople recommend hundred percent,thanks for the product</li>
+    <li> EXCELLENT PRODUCT !!!</li>
+    <li> i pay for one for men and one for woman not 2 for woman im really sad about it because the other will be gift for my dad</li>
+    <li> My daughter love it...It&#x27;s an excellent parfum and the fixer is very good. You need to spray one time during all day,</li>
+    <li> Really delicious fragrance</li>
+</ol>
+
+
+
+

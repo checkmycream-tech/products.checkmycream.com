@@ -1,0 +1,270 @@
+---
+title: Urban Decay Deluxe Shadow Box,
+description: Urban Decay Deluxe Shadow Box,
+author: Suvojit Manna,
+tags: Urban Decay Deluxe Shadow Box,
+publishedAt: Fri Jan 10 2020 14:59:19 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:59:19 GMT+0530 (India Standard Time),
+---
+
+# [Urban Decay Deluxe Shadow Box](https://products.checkmycream.com/products/Urban-Decay-Deluxe-Shadow-Box.html)
+
+### Positive Reviews
+
+<ol>
+      <li>One of the best eye shadows i have had the pleasure to wear.  </li>
+      <li>and that was a great surprise!</li>
+      <li>however...the fishnet shade does tend to fade but besides that very nice!!!</li>
+      <li>The UD eye shadows are magnificent.  </li>
+      <li>Great buy!</li>
+      <li>HAPPY!</li>
+      <li>VERY happy.  </li>
+      <li>It&#x27;s awesome.</li>
+      <li>Always a win in my book!</li>
+      <li>those colors are wonderful</li>
+      <li>UD products are great!</li>
+      <li>It is an awesome color so don&#x27;t neglect it, work with it.</li>
+      <li>but it is perfect for a night out!  </li>
+      <li>The product arrived on time, the packaging was very good, and the product was just as it was described on-line.  </li>
+      <li>A great buy.</li>
+      <li>This eyeshadow is great.</li>
+      <li>Great colors and great texture.  </li>
+      <li>Happy with purchase.</li>
+      <li>UD did a great job of selecting colors.  </li>
+      <li>Perfect colours, the honey is amazing</li>
+      <li>great product</li>
+      <li>Very nice set of eye shadow.</li>
+      <li>The products are amazing!</li>
+      <li>Colors very bold and beautiful!!</li>
+      <li>The colors show up so pigmented &amp; bright on Youtube videos but in all reality they don&#x27;t show up so bright even with primer potion.</li>
+      <li>It has a lot of pigment and looked like bright purple.</li>
+      <li>This color, Zero, is good to use as an eyeliner or to darken up shades if need be.</li>
+      <li>They are also beautiful but more for highlight colors.</li>
+      <li>Sensational not need to talk of brand quality.</li>
+      <li>Great colors, go on well and stay on, can make colors more subdued or bright by using the primer that comes with it.</li>
+      <li>and I&#x27;m very glad.</li>
+      <li>I am very pleased with my purchase.&lt;br /&gt;&lt;br /&gt;Update:  </li>
+      <li>The price was right and it will make great gifts this Christmas!!!</li>
+      <li>Love the Colors for Summer!</li>
+      <li>I do not have the money to buy more, but when I do, I will!</li>
+      <li>Beautiful incredibly fun colors!</li>
+      <li>The colors are awesome, They go on really easily and look fabulous.</li>
+      <li>the product is amazing</li>
+      <li>I love bright blues greens and purples....</li>
+      <li>This palette also includes UD&#x27;s extremely popular Primer Potion.  </li>
+      <li>Christmas in nice holder.</li>
+      <li>Kind of crumbly.</li>
+      <li>AS WELL, IT AMAZING, I LOVE IT</li>
+      <li>I like bright pigmented eyeshadows that go on smoothly</li>
+      <li>Their Deluxe Shadows are even better.  </li>
+      <li>and I simply LOVE, LOVE, LOVE, this palette, and I am always getting compliments on it!  </li>
+      <li>The two sandy colors are excellent and complimentary crease colors and the gold is fun too.</li>
+      <li>came quick!!</li>
+      <li>The best eyeshadow it get my dark brown eyes lighter , make them looks bright shinny</li>
+      <li>For the price, you can&#x27;t ask for a better deal.</li>
+      <li>Love this palette, and it was great for the price and arrived fast.</li>
+      <li>This is probably one of the best palettes that Urban Decay has come out with to date.</li>
+      <li>I LOVE THIS PALLET.</li>
+      <li>So glad I got it.</li>
+      <li>So glad I did.</li>
+      <li>I love it.  </li>
+      <li>i a sure you will love it as i did :)</li>
+      <li>love how pigmented the colors are.</li>
+      <li>Using primer (a must if you are wanting to get the best look possible) and b.) Layer.</li>
+      <li>The packaging is way better than the eyeshadow.</li>
+      <li>Love the fact colors do not look chalky&lt;br /&gt;&lt;br</li>
+      <li>and its cheap here!</li>
+      <li>So many combination for experimenting/mixing (my fav are purple/blue, green/blue/gold).</li>
+      <li>Excellent lastly power.</li>
+      <li>Absolutely love this palette.</li>
+      <li>When it first came in the mail I was so excited!!!</li>
+      <li>Honestly, with the fun colors and the unparalleled quality, I think this palette is more useful than the beloved [[ASIN:</li>
+      <li>It&#x27;s a great sampler of Urban Decay&#x27;s wild, awesomely pigmented colors.  </li>
+      <li>The bottom row  makes for a very nice neutral eye, my only recommendation would be to buy your own brushes for blending</li>
+      <li>The colors are bright and the pigments really pop once you use the primer.</li>
+      <li>value overall though for nice colors with decent amount of product and mini bottle of their excellent primer!</li>
+      <li>Pretty packaging and cute design details!</li>
+      <li>and I wish the bottom row had more fun colors instead of neutrals!</li>
+      <li>I love this Urban Decay Deluxe Shadow Box!.  </li>
+      <li>I love the packaging its very pretty and it has a lot of detail.&lt;br /&gt;The</li>
+      <li>Amazing, especially for the price, colors and lovely!</li>
+      <li>My fiance bought this for me as a gift to get free shipping.</li>
+      <li>the most part, these are smooth and blendable and last for a good amount of time.</li>
+      <li>I can&#x27;t remember the name of the golden shade but it is my favorite color to add if I want just a sweep of shadow with mascara.</li>
+      <li>It was well packages and it was a genuine product.</li>
+      <li>And if I find something in particular that I love - I just buy that one!  </li>
+      <li>However, with the inclusion of several neutrals, it&#x27;s easy to blend in the bright colors for all sorts of looks.</li>
+      <li>but I was not disappointed when I received this one.</li>
+      <li>Excellent range (gold is sparkly, purple and dark blue are matte, and rest shimmery/luminizing) and excellent colors.&lt;br /&gt;&lt;br /&gt;Fluffy eyeshadow brush will give you a sheer layer of color that you can wear anywhere, even to the office.</li>
+      <li>The primer that comes with it is great, but the sin primer is sparkley and makes it last looking fresh all day.</li>
+      <li>-I want to save that thing for special occasions.&lt;br</li>
+      <li>I would definitely recommend this to anyone who is looking for bold and bright colors</li>
+      <li>They are great as all-over eyeshadow or wet and used as liner!</li>
+      <li>Use the eyeshadow primer included and pad shadows on top will give you vibrant color almost like what&#x27;s in the color palette</li>
+      <li>This stuff is highly pigmented :)</li>
+      <li>but since I now have a good black I have realized that it looks much better and more natural on me...</li>
+      <li>I usually use inexpensive make up and save my money for cute clothes instead, but this make up is too good to pass up.</li>
+      <li>Although I got this at a good price for Urban Decay it was on sale compared to when it first came out.</li>
+      <li>They apply smoothly, blend effortlessly, have no fallout, and really pack in color.   </li>
+      <li>I wear this palette when I want to be colorful.  </li>
+      <li>Nice gift for someone who likes different choices in makeup.</li>
+      <li>and I recommend this to anyone who wants good quality makeup that will last!!</li>
+      <li>No one uses it right?</li>
+      <li>The colors are true to the pictures and the seller sends authentic urban decay products.</li>
+      <li>Like all UB products, it is HG, highly pigmented - drop dead gorgeous stuff!  </li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> One of the best eye shadows i have had the pleasure to wear.  </li>
+<li> and that was a great surprise!</li>
+<li> however...the fishnet shade does tend to fade but besides that very nice!!!</li>
+<li> The UD eye shadows are magnificent.  </li>
+<li> Great buy!</li>
+<li> HAPPY!</li>
+<li> VERY happy.  </li>
+<li> It&#x27;s awesome.</li>
+<li> Always a win in my book!</li>
+<li> those colors are wonderful</li>
+<li> UD products are great!</li>
+<li> It is an awesome color so don&#x27;t neglect it, work with it.</li>
+<li> but it is perfect for a night out!  </li>
+<li> The product arrived on time, the packaging was very good, and the product was just as it was described on-line.  </li>
+<li> A great buy.</li>
+<li> This eyeshadow is great.</li>
+<li> Great colors and great texture.  </li>
+<li> Happy with purchase.</li>
+<li> UD did a great job of selecting colors.  </li>
+<li> Perfect colours, the honey is amazing</li>
+<li> great product</li>
+<li> Very nice set of eye shadow.</li>
+<li> The products are amazing!</li>
+<li> Colors very bold and beautiful!!</li>
+<li> The colors show up so pigmented &amp; bright on Youtube videos but in all reality they don&#x27;t show up so bright even with primer potion.</li>
+<li> It has a lot of pigment and looked like bright purple.</li>
+<li> This color, Zero, is good to use as an eyeliner or to darken up shades if need be.</li>
+<li> They are also beautiful but more for highlight colors.</li>
+<li> Sensational not need to talk of brand quality.</li>
+<li> Great colors, go on well and stay on, can make colors more subdued or bright by using the primer that comes with it.</li>
+<li> and I&#x27;m very glad.</li>
+<li> I am very pleased with my purchase.&lt;br /&gt;&lt;br /&gt;Update:  </li>
+<li> The price was right and it will make great gifts this Christmas!!!</li>
+<li> Love the Colors for Summer!</li>
+<li> I do not have the money to buy more, but when I do, I will!</li>
+<li> Beautiful incredibly fun colors!</li>
+<li> The colors are awesome, They go on really easily and look fabulous.</li>
+<li> the product is amazing</li>
+<li> I love bright blues greens and purples....</li>
+<li> This palette also includes UD&#x27;s extremely popular Primer Potion.  </li>
+<li> Christmas in nice holder.</li>
+<li> Kind of crumbly.</li>
+<li> AS WELL, IT AMAZING, I LOVE IT</li>
+<li> I like bright pigmented eyeshadows that go on smoothly</li>
+<li> Their Deluxe Shadows are even better.  </li>
+<li> and I simply LOVE, LOVE, LOVE, this palette, and I am always getting compliments on it!  </li>
+<li> The two sandy colors are excellent and complimentary crease colors and the gold is fun too.</li>
+<li> came quick!!</li>
+<li> The best eyeshadow it get my dark brown eyes lighter , make them looks bright shinny</li>
+<li> For the price, you can&#x27;t ask for a better deal.</li>
+<li> Love this palette, and it was great for the price and arrived fast.</li>
+<li> This is probably one of the best palettes that Urban Decay has come out with to date.</li>
+<li> I LOVE THIS PALLET.</li>
+<li> So glad I got it.</li>
+<li> So glad I did.</li>
+<li> I love it.  </li>
+<li> i a sure you will love it as i did :)</li>
+<li> love how pigmented the colors are.</li>
+<li> Using primer (a must if you are wanting to get the best look possible) and b.) Layer.</li>
+<li> The packaging is way better than the eyeshadow.</li>
+<li> Love the fact colors do not look chalky&lt;br /&gt;&lt;br</li>
+<li> and its cheap here!</li>
+<li> So many combination for experimenting/mixing (my fav are purple/blue, green/blue/gold).</li>
+<li> Excellent lastly power.</li>
+<li> Absolutely love this palette.</li>
+<li> When it first came in the mail I was so excited!!!</li>
+<li> Honestly, with the fun colors and the unparalleled quality, I think this palette is more useful than the beloved [[ASIN:</li>
+<li> It&#x27;s a great sampler of Urban Decay&#x27;s wild, awesomely pigmented colors.  </li>
+<li> The bottom row  makes for a very nice neutral eye, my only recommendation would be to buy your own brushes for blending</li>
+<li> The colors are bright and the pigments really pop once you use the primer.</li>
+<li> value overall though for nice colors with decent amount of product and mini bottle of their excellent primer!</li>
+<li> Pretty packaging and cute design details!</li>
+<li> and I wish the bottom row had more fun colors instead of neutrals!</li>
+<li> I love this Urban Decay Deluxe Shadow Box!.  </li>
+<li> I love the packaging its very pretty and it has a lot of detail.&lt;br /&gt;The</li>
+<li> Amazing, especially for the price, colors and lovely!</li>
+<li> My fiance bought this for me as a gift to get free shipping.</li>
+<li> the most part, these are smooth and blendable and last for a good amount of time.</li>
+<li> I can&#x27;t remember the name of the golden shade but it is my favorite color to add if I want just a sweep of shadow with mascara.</li>
+<li> It was well packages and it was a genuine product.</li>
+<li> And if I find something in particular that I love - I just buy that one!  </li>
+<li> However, with the inclusion of several neutrals, it&#x27;s easy to blend in the bright colors for all sorts of looks.</li>
+<li> but I was not disappointed when I received this one.</li>
+<li> Excellent range (gold is sparkly, purple and dark blue are matte, and rest shimmery/luminizing) and excellent colors.&lt;br /&gt;&lt;br /&gt;Fluffy eyeshadow brush will give you a sheer layer of color that you can wear anywhere, even to the office.</li>
+<li> The primer that comes with it is great, but the sin primer is sparkley and makes it last looking fresh all day.</li>
+<li> -I want to save that thing for special occasions.&lt;br</li>
+<li> I would definitely recommend this to anyone who is looking for bold and bright colors</li>
+<li> They are great as all-over eyeshadow or wet and used as liner!</li>
+<li> Use the eyeshadow primer included and pad shadows on top will give you vibrant color almost like what&#x27;s in the color palette</li>
+<li> This stuff is highly pigmented :)</li>
+<li> but since I now have a good black I have realized that it looks much better and more natural on me...</li>
+<li> I usually use inexpensive make up and save my money for cute clothes instead, but this make up is too good to pass up.</li>
+<li> Although I got this at a good price for Urban Decay it was on sale compared to when it first came out.</li>
+<li> They apply smoothly, blend effortlessly, have no fallout, and really pack in color.   </li>
+<li> I wear this palette when I want to be colorful.  </li>
+<li> Nice gift for someone who likes different choices in makeup.</li>
+<li> and I recommend this to anyone who wants good quality makeup that will last!!</li>
+<li> No one uses it right?</li>
+<li> The colors are true to the pictures and the seller sends authentic urban decay products.</li>
+<li> Like all UB products, it is HG, highly pigmented - drop dead gorgeous stuff!  </li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> I bought this as a gift for my friend in the Netherlands.  She just let me know she loves it.  I have given her Urban Decay shadows in the past and she has loved them.</li>
+    <li> The colors are awesome, They go on really easily and look fabulous. I recommend the urban decay sin eyshadow primer to go with it, it makes the colors really pop and shimmer. The primer that comes with it is great, but the sin primer is sparkley and makes it last looking fresh all day. I usually use inexpensive make up and save my money for cute clothes instead, but this make up is too good to pass up. I am addicted :)</li>
+    <li> Excellent range (gold is sparkly, purple and dark blue are matte, and rest shimmery/luminizing) and excellent colors.&lt;br /&gt;&lt;br /&gt;Fluffy eyeshadow brush will give you a sheer layer of color that you can wear anywhere, even to the office. Use the eyeshadow primer included and pad shadows on top will give you vibrant color almost like what&#x27;s in the color palette (if you have light to med skin, it takes a bit more work for dark skin). The dark blue and purple are much more sheer and you really need to pack it on to show. The light blue is very vibrant. I have med/light asian skintone and was hesitant about the pink shadow/scratch, but it&#x27;s the jackpot. The color is so close to my lid color that you can&#x27;t really tell I&#x27;m wearing eyeshadow except for the fact my eyelids are much much prettier (a tiny bit more luminous and the pink hint brightens up my face). Love the fact colors do not look chalky&lt;br /&gt;&lt;br /&gt;Definitely recommend: sheer color for day, buildable/vibrant color for night. So many combination for experimenting/mixing (my fav are purple/blue, green/blue/gold). Excellent lastly power. I use the sponge to put a swatch on my arm then went about my business as usual, 12 hours later, you can see very faint hint of all colors, 24 hours later, no more shimmer and only the black and light blue are visible. Would give 5 star if the purple and dark blue are as vibrant as other colors.</li>
+    <li> I got this from sephora for 38 dollars. I tried the colors out in the store and absolutely had to have it. I bought it in February. It&#x27;s now going on January and I&#x27;ve only hit pan in 4 shades. Honestly I haven&#x27;t touched the dark blue  shade. I personally think blue shadow looks ridiculous. I DO however like the lighter blue to line my waterline with. I get lots of compliments on it too. The colors last all day, and the gold color is SERIOUSLY gold. Like shiny, metallic gold. It&#x27;s awesome. I&#x27;m also a big fan of the darkest brown \\&quot;underground\\&quot;. That one is almost gone. I don&#x27;t want to talk about it because I may cry. All in all, this is a must have palette!</li>
+    <li> I just received my palette and tried on the purple. It has a lot of pigment and looked like bright purple. I didn&#x27;t use the primer and at the end of a few hours the color wore off a little. I love the packaging its very pretty and it has a lot of detail.&lt;br /&gt;The the little brushes are useless, I use my mac brush.&lt;br /&gt;The colors are very vibrant ! Great quality eyeshadow set if you want a dramatic look!</li>
+    <li> Finally vibrant colors that appear on darker skin tones! This is probably one of the best palettes that Urban Decay has come out with to date. There aren&#x27;t any glittery shadows for once. Even though the brighter colors are the standout ones for me, they also give you the option of having neutral tones for days when you don&#x27;t want fuschia eyeshadow on.     Fishnet (a duochrome fuschia), Ransom (dark vibrant purple), and Peace (blue turqoise) are my favorite shades, they are loud colors but I use them as accent colors.   I can&#x27;t remember the name of the golden shade but it is my favorite color to add if I want just a sweep of shadow with mascara. One of the shades not included in the box is called Heat, a burnt red color also can double as a blush.</li>
+    <li> I love this Urban Decay Deluxe Shadow Box!.  The colors are true and the shadows are long lasting.  I highly recommend it!  The price was right and it will make great gifts this Christmas!!!</li>
+    <li> These colors are so vivid! They are great as all-over eyeshadow or wet and used as liner! People comment all the time when I wear the bright green color.</li>
+    <li> The best eyeshadow it get my dark brown eyes lighter , make them looks bright shinny those colors are wonderful i a sure you will love it as i did :)</li>
+    <li> UD products are great! I have sevral palettes I paid much more from other retailers but I was not disappointed when I received this one. It was well packages and it was a genuine product. Colors are very pigmented and none were broken.</li>
+    <li> Beautiful incredibly fun colors! Not something that I would use everyday at all but it is perfect for a night out!  The colors are vibrant and high pigmented.</li>
+    <li> Okay, this was my first introduction to Urban Decay after having talked about getting my hands on it since I was thirteen. (Over ten years) and I was given a gift card specifically for this from Ulta.&lt;br /&gt;I purchased this box and of course it came with the mini primer.  When I got home I had to try it-of course without the primer-I want to save that thing for special occasions.&lt;br /&gt;The green was so vivid and bright.  I love it.  Most colors go on with a light tint and an undertone of grey and do not last long at all. (I mean the cheaper brands)  This is great for adding a pop of color into your day or night-doing a dramatic color with nutral highlights is one of my favorites.  And the primer? I adore it. I do not have the money to buy more, but when I do, I will!</li>
+    <li> The product arrived on time, the packaging was very good, and the product was just as it was described on-line.  I have not tried this pallete yet, BUT, i have tried the individual UD eyshadows, so i am not new to this.  The UD eye shadows are magnificent.  One of the best eye shadows i have had the pleasure to wear.  I have no complaints.  I am very pleased with my purchase.&lt;br /&gt;&lt;br /&gt;Update:  I have had this for a while and I simply LOVE, LOVE, LOVE, this palette, and I am always getting compliments on it!  HAPPY!</li>
+    <li> This has been on the market for years and I have always wanted it. I finally got the balls to purchase and I&#x27;m very glad. Def recommend!</li>
+    <li> You just can&#x27;t go wrong with anything Urban Decay makes.  Great colors and great texture.  Always a win in my book!</li>
+    <li> I love Urban Decay products, and this isn&#x27;t an exception. The only gripe I have is some colors do need a little more packing-on than other.&lt;br /&gt;For the most part, these are smooth and blendable and last for a good amount of time. The complaints would be the useless applicators that come with it and I wish the bottom row had more fun colors instead of neutrals! (I bought this recently around the same time I bought the new Naked Palette so those neutrals are pretty much useless to me :P)&lt;br /&gt;&lt;br /&gt;Good value overall though for nice colors with decent amount of product and mini bottle of their excellent primer! The packaging is cute and usual from UD and it&#x27;s very portable.</li>
+    <li> Although I got this at a good price for Urban Decay it was on sale compared to when it first came out. The colors show up so pigmented &amp; bright on Youtube videos but in all reality they don&#x27;t show up so bright even with primer potion. Kind of crumbly. The packaging is way better than the eyeshadow. I like bright pigmented eyeshadows that go on smoothly and this is just not the one. You would be better off buying BH Cosmetics 120 palette for the same price.</li>
+    <li> I LOVE THIS PALLET. IT HAS EVERYTHING, NETURALS AND FUNKY COLORS, I USED IT UNTILL EVERY COLOR WAS GONE, I BOUGHT ALL OF THEM SEPERATLY AND SOME OF THE OTHER COLORS THEY OFFER AS WELL, IT AMAZING, I LOVE IT, YOU WILL TOO! and its cheap here!</li>
+    <li> I got this as a birthday present and fell in love with it the moment I opened it. The colors are so pigmented, they are easy to blend and last all day. The only minor problem I have with this that the colors tend to cause a lot of fall out when applying and blending.</li>
+    <li> Very nice set of eye shadow. Christmas in nice holder. Nice gift for someone who likes different choices in makeup.</li>
+    <li> Great colors, go on well and stay on, can make colors more subdued or bright by using the primer that comes with it. Great buy!</li>
+    <li> Let me start by saying that Urban Decay&#x27;s standard shadows are, with a few exceptions, fabulous.  Their Deluxe Shadows are even better.  They apply smoothly, blend effortlessly, have no fallout, and really pack in color.   UD did a great job of selecting colors.  At first glance, the colors seem loud, and hard to use daily. However, with the inclusion of several neutrals, it&#x27;s easy to blend in the bright colors for all sorts of looks. Honestly, with the fun colors and the unparalleled quality, I think this palette is more useful than the beloved [[ASIN:B004ITB3IW Urban Decay Naked Palette]].  This shadow box gives you the capability to create crazy, fun going-out looks, but also conservative, pretty daytime looks.    This palette also includes UD&#x27;s extremely popular Primer Potion.  It makes a great addition to the set, and, paired with the included applicators, you have everything you need to create countless different looks.</li>
+    <li> When it first came in the mail I was so excited!!! I couldn&#x27;t believe I got it and when I tried the colors on they were so soft and so pretty and the primer helped so much with keeping it all there at once! came quick!! great product and I recommend this to anyone who wants good quality makeup that will last!!</li>
+    <li> This eyeshadow is great. It lasts all day and the colors show on the skin as they do in the actual container</li>
+    <li> I love Urban Decay!!!!!!! Colors very bold and beautiful!! I would definitely recommend this to anyone who is looking for bold and bright colors</li>
+    <li> The colours are great and long lasting.  When performing outdoors for colorguard or marching band or cheerleading you will need to reapply only when it is extremely hot or raining.</li>
+    <li> The products are amazing! The colors are bright and the pigments really pop once you use the primer. The colors are true to the pictures and the seller sends authentic urban decay products.The seller also shipped a bunch of extra goodies :) Will definitely purchase from them again!</li>
+    <li> Just what I was looking for - I love bright blues greens and purples....they make my hazel eyes POP! The two sandy colors are excellent and complimentary crease colors and the gold is fun too. Shake off the excess or you will get fall out on your cheeks. This stuff is highly pigmented :)</li>
+    <li> Amazing, especially for the price, colors and lovely! however...the fishnet shade does tend to fade but besides that very nice!!!</li>
+    <li> Met all of my Urban Decay expectations. Love this palette, and it was great for the price and arrived fast.</li>
+    <li> Perfect colours, the honey is amazing and I&#x27;m using it almost everyday. The bottom row  makes for a very nice neutral eye, my only recommendation would be to buy your own brushes for blending</li>
+    <li> Urban Decay is everything.  Absolutely love this palette. I wear this palette when I want to be colorful.  It also came with a primer</li>
+    <li> Received item on time. Exactly what I expected from the description. What you see is what you get. Happy with purchase.</li>
+    <li> For all the make-up lovers out there, this is a basic must-have.  It has all the colors you need to get acquainted with Urban Decay.  This is my first UD purchase.  It has bright colors for your fun-filled nights, and delicate champagnes for your simple work days.  I love that it came with the base to make colors last and pop.  Fast, efficient shipping.  VERY happy.  Colors have amazing pigment and last, just as I was promised by Urban Decay.  For the price, you can&#x27;t ask for a better deal. My fiance bought this for me as a gift to get free shipping. Thank you!!!</li>
+    <li> I love this collection, because it has some wild colors that I love, but may not be necessarily using on an everyday basis, so I don&#x27;t need the full-size.  And if I find something in particular that I love - I just buy that one!  It&#x27;s a great sampler of Urban Decay&#x27;s wild, awesomely pigmented colors.  You just can&#x27;t go wrong with this, and if you&#x27;re looking to start stocking up on some bold colors like blue and green, this is a great place to start.  Also has a few neutral tones that you can blend with as well.  Like all UB products, it is HG, highly pigmented - drop dead gorgeous stuff!  The glitter fallout isn&#x27;t too bad either.</li>
+    <li> the product is amazing i would recommend this to anyone...&lt;br /&gt;however do not count on using the primer potion because there is barely any in that little thing.</li>
+    <li> love how pigmented the colors are. the colors look different in the pic than they do in hand, but still very pretty and blends well</li>
+    <li> Sensational not need to talk of brand quality.</li>
+    <li> Love the Colors for Summer! have not try the potion yet and eye-shadow brush sux! Pretty packaging and cute design details!</li>
+    <li> I live this pallet, and I use it almost everyday! The packaging came with shadow primer as well and that was a great surprise! I deff recommended this!</li>
+    <li> This and the ammo palettes were my first UD purchases. So glad I did. These colors can be made to look just as they look in the palette. The only exceptions are the bottom three. They are also beautiful but more for highlight colors. Also the color in the top right corner (Ransom) is not that dark when put on. It can be achieved by a.) Using primer (a must if you are wanting to get the best look possible) and b.) Layer. It is an awesome color so don&#x27;t neglect it, work with it. You may think why black? No one uses it right? Wrong. This color, Zero, is good to use as an eyeliner or to darken up shades if need be. I was always a pencil girl when it came to eyeliner but since I now have a good black I have realized that it looks much better and more natural on me...don&#x27;t forget to set it with a powder. You get 2 applicators which I don&#x27;t use. I use brushes but they work in a pinch. A great buy. So glad I got it. Also to let anyone wondering know that these shadows aren&#x27;t all glittery like some UD palettes. I think two of the ones on the bottom have a small amount in them.</li>
+</ol>
+
+
+
+

@@ -1,0 +1,175 @@
+---
+title: Dr. Bronner Almond Oil Liquid Soap,
+description: Dr. Bronner Almond Oil Liquid Soap,
+author: Suvojit Manna,
+tags: Dr. Bronner Almond Oil Liquid Soap,
+publishedAt: Fri Jan 10 2020 14:59:38 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:59:38 GMT+0530 (India Standard Time),
+---
+
+# [Dr. Bronner Almond Oil Liquid Soap](https://products.checkmycream.com/products/Dr.-Bronner-Almond-Oil-Liquid-Soap.html)
+
+### Positive Reviews
+
+<ol>
+      <li>Perfect!  </li>
+      <li>This soap and scent is the best.</li>
+      <li>and this is the best remedy I have tried.</li>
+      <li>I am very happy with the purchase and would buy again</li>
+      <li>Works perfect for everything: body, hair, clothes, dishes.</li>
+      <li>I use it on a loofah in the shower and the smell is incredible.</li>
+      <li>Great for body.</li>
+      <li>Great for face.</li>
+      <li>great product</li>
+      <li>and I appreciate getting a good product at a fair price for a change.</li>
+      <li>Love it!</li>
+      <li>As always, Dr. Bronner&#x27;s is phenomenal!</li>
+      <li>The nice scent is also very enjoyable.</li>
+      <li>Soap has amazing almond smell when you use it.</li>
+      <li>They are organic, natural and smell wonderful while doing a good job.</li>
+      <li>Love it in the shower an use on hair and face.</li>
+      <li>For shampoo I mix with water and follow with a Bragg&#x27;s ACV rinse and my hair has never looked better.</li>
+      <li>So many uses.</li>
+      <li>I love the sub factor this soap gave to my hair without stripping it.</li>
+      <li>I will be ordering more.</li>
+      <li>OK, Buti prefer the tea tree</li>
+      <li>Love Dr bronner soaps</li>
+      <li>My husband has many allergies</li>
+      <li>Love the almond liquid.  </li>
+      <li>It lathers up nicely too and leaves your hair squeaky clean.</li>
+      <li>It&#x27;s just good for absolutely everything.</li>
+      <li>The smell is pleasant and it&#x27;s completely natural.</li>
+      <li>This is just a fantastic product that everyone needs to learn to utilize.</li>
+      <li>I use all of Dr Bronner&#x27;s liquid soaps and enjoy every one of them.</li>
+      <li>This is a watery kind of liquid soap that doesn&#x27;t feel harsh and drying, and smells great.</li>
+      <li>The almond smell is good, though the peppermint is my fave so far.</li>
+      <li>Very useful...</li>
+      <li>I use this for a variety of items............hand wash, a squirt in the laundry, anytime I want the clean smell of almonds...</li>
+      <li>Currenlty, April 2014, Whole Foods is selling their 32 oz bottles for $9.99 -- a much better deal.</li>
+      <li>It&#x27;s amazing in general, whether you prefer chemicals or organics.</li>
+      <li>It is worth every penny.</li>
+      <li>I was very impressed by how well only a little goes a long way and liked the fact it didn&#x27;t have anything in it invented by Dupont or Dow Chemical.</li>
+      <li>For hands, 1:4 is a good ratio, or even less.</li>
+      <li>Years ago hospitals used tons of it and when my kids were babies the baby shampoo was pure Castile.  </li>
+      <li>so I started looking for pure Castile soap.  </li>
+      <li>I really like dr bronners soaps.</li>
+      <li>It was a bit much for me</li>
+      <li>It doesn&#x27;t take much product</li>
+      <li>My only issue was the sensation I felt when using the peppermint on my special place.</li>
+      <li>Considering some high-end, chemical-laden stuff is more expensive than this stuff and doesn&#x27;t do near as well, I would say I easily am getting my monies worth</li>
+      <li>Highly recommended.</li>
+      <li>It&#x27;s an amazing cleaning agent, and not amazing \\&quot;for</li>
+      <li>It cleans well, leaving my skin feeling normal, not leached.</li>
+      <li>Also, it&#x27;s VERY highly concentrated, so you can save a lot of money by properly diluting it for whatever you&#x27;re going to be using it for.</li>
+      <li>an all natural cleaner.\\&quot;</li>
+      <li>This is my first purchase of this particular brand of soap and I have to say it is extremely concentrated.  </li>
+      <li>For the women-if you use it down there, it will keep you from ever having another yeast infection...but unless you&#x27;re feeling super kinky, don&#x27;t use peppermint, because it will kill you in that region.</li>
+      <li>I use it to wash my hands, the dishes in the sink (I use something else for the dishwasher, but that&#x27;s only because Dr. Bronner&#x27;s and the type of water in the area I live in don&#x27;t mix because of the phosphates, but that&#x27;s another story.)</li>
+      <li>Kind of expensive.</li>
+      <li>This stuff smells great, but I was shocked when I opened the box and only an 8 oz bottle</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> Perfect!  </li>
+<li> This soap and scent is the best.</li>
+<li> and this is the best remedy I have tried.</li>
+<li> I am very happy with the purchase and would buy again</li>
+<li> Works perfect for everything: body, hair, clothes, dishes.</li>
+<li> I use it on a loofah in the shower and the smell is incredible.</li>
+<li> Great for body.</li>
+<li> Great for face.</li>
+<li> great product</li>
+<li> and I appreciate getting a good product at a fair price for a change.</li>
+<li> Love it!</li>
+<li> As always, Dr. Bronner&#x27;s is phenomenal!</li>
+<li> The nice scent is also very enjoyable.</li>
+<li> Soap has amazing almond smell when you use it.</li>
+<li> They are organic, natural and smell wonderful while doing a good job.</li>
+<li> Love it in the shower an use on hair and face.</li>
+<li> For shampoo I mix with water and follow with a Bragg&#x27;s ACV rinse and my hair has never looked better.</li>
+<li> So many uses.</li>
+<li> I love the sub factor this soap gave to my hair without stripping it.</li>
+<li> I will be ordering more.</li>
+<li> OK, Buti prefer the tea tree</li>
+<li> Love Dr bronner soaps</li>
+<li> My husband has many allergies</li>
+<li> Love the almond liquid.  </li>
+<li> It lathers up nicely too and leaves your hair squeaky clean.</li>
+<li> It&#x27;s just good for absolutely everything.</li>
+<li> The smell is pleasant and it&#x27;s completely natural.</li>
+<li> This is just a fantastic product that everyone needs to learn to utilize.</li>
+<li> I use all of Dr Bronner&#x27;s liquid soaps and enjoy every one of them.</li>
+<li> This is a watery kind of liquid soap that doesn&#x27;t feel harsh and drying, and smells great.</li>
+<li> The almond smell is good, though the peppermint is my fave so far.</li>
+<li> Very useful...</li>
+<li> I use this for a variety of items............hand wash, a squirt in the laundry, anytime I want the clean smell of almonds...</li>
+<li> Currenlty, April 2014, Whole Foods is selling their 32 oz bottles for $9.99 -- a much better deal.</li>
+<li> It&#x27;s amazing in general, whether you prefer chemicals or organics.</li>
+<li> It is worth every penny.</li>
+<li> I was very impressed by how well only a little goes a long way and liked the fact it didn&#x27;t have anything in it invented by Dupont or Dow Chemical.</li>
+<li> For hands, 1:4 is a good ratio, or even less.</li>
+<li> Years ago hospitals used tons of it and when my kids were babies the baby shampoo was pure Castile.  </li>
+<li> so I started looking for pure Castile soap.  </li>
+<li> I really like dr bronners soaps.</li>
+<li> It was a bit much for me</li>
+<li> It doesn&#x27;t take much product</li>
+<li> My only issue was the sensation I felt when using the peppermint on my special place.</li>
+<li> Considering some high-end, chemical-laden stuff is more expensive than this stuff and doesn&#x27;t do near as well, I would say I easily am getting my monies worth</li>
+<li> Highly recommended.</li>
+<li> It&#x27;s an amazing cleaning agent, and not amazing \\&quot;for</li>
+<li> It cleans well, leaving my skin feeling normal, not leached.</li>
+<li> Also, it&#x27;s VERY highly concentrated, so you can save a lot of money by properly diluting it for whatever you&#x27;re going to be using it for.</li>
+<li> an all natural cleaner.\\&quot;</li>
+<li> This is my first purchase of this particular brand of soap and I have to say it is extremely concentrated.  </li>
+<li> For the women-if you use it down there, it will keep you from ever having another yeast infection...but unless you&#x27;re feeling super kinky, don&#x27;t use peppermint, because it will kill you in that region.</li>
+<li> I use it to wash my hands, the dishes in the sink (I use something else for the dishwasher, but that&#x27;s only because Dr. Bronner&#x27;s and the type of water in the area I live in don&#x27;t mix because of the phosphates, but that&#x27;s another story.)</li>
+<li> Kind of expensive.</li>
+<li> This stuff smells great, but I was shocked when I opened the box and only an 8 oz bottle</li>
+<li> either so my 32 oz bottle will last a long time.  </li>
+<li> It leaves a weird film on my skin so I now only use it when I have something stubborn on my hands like sunless tanner which it removes better than any other soap I&#x27;ve ever tried.</li>
+<li> I have dry skin and eczema</li>
+<li> Just like I expected.  </li>
+<li> As expected and I didn&#x27;t have any issue or problem.  </li>
+<li> a little goes a long way...</li>
+<li> I feel like the only cure for hard water is to move or have an industrial strength shower head (neither are usually options)</li>
+<li> I also use a little of it in my garden sprayer for aphids in the greenhouse.</li>
+<li> I wanted to get away from all the nasty chemicals in so many smelly products out there today.</li>
+<li> haven&#x27;t found a small dispensor.</li>
+<li> (I got confused and thought I ordered 16 oz).</li>
+<li> No more shampoo and conditioner with horrible ingredients that are made worse by NC hard hard hard water.</li>
+<li> I know people who use it as shampoo, but again, the water in my area makes that difficult for me.</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> Love the almond liquid.  So many uses.</li>
+    <li> I use this soap for just about everything. I use it to wash my hands, the dishes in the sink (I use something else for the dishwasher, but that&#x27;s only because Dr. Bronner&#x27;s and the type of water in the area I live in don&#x27;t mix because of the phosphates, but that&#x27;s another story.), as a body wash, as a shaving cream, carpet cleaner, as a part of my homemade laundry soap, occasionally as as a toothpaste...just for everything. It&#x27;s an amazing cleaning agent, and not amazing \\&quot;for an all natural cleaner.\\&quot; It&#x27;s amazing in general, whether you prefer chemicals or organics. It&#x27;s just good for absolutely everything. I know people who use it as shampoo, but again, the water in my area makes that difficult for me. For the women-if you use it down there, it will keep you from ever having another yeast infection...but unless you&#x27;re feeling super kinky, don&#x27;t use peppermint, because it will kill you in that region. This is just a fantastic product that everyone needs to learn to utilize. Also, it&#x27;s VERY highly concentrated, so you can save a lot of money by properly diluting it for whatever you&#x27;re going to be using it for. For hands, 1:4 is a good ratio, or even less.</li>
+    <li> As always, Dr. Bronner&#x27;s is phenomenal!</li>
+    <li> Very useful...haven&#x27;t found a small dispensor. Don&#x27;t want a mason jar but want foaming pump. Love it in the shower an use on hair and face.</li>
+    <li> This is my first purchase of this particular brand of soap and I have to say it is extremely concentrated.  The smell is pleasant and it&#x27;s completely natural.</li>
+    <li> I made shampoo out of this product. I love the sub factor this soap gave to my hair without stripping it. I will be ordering more.</li>
+    <li> OK, Buti prefer the tea tree</li>
+    <li> This stuff smells great, but I was shocked when I opened the box and only an 8 oz bottle was there (I got confused and thought I ordered 16 oz). Kind of expensive. Currenlty, April 2014, Whole Foods is selling their 32 oz bottles for $9.99 -- a much better deal.</li>
+    <li> I use all of Dr Bronner&#x27;s liquid soaps and enjoy every one of them. They are organic, natural and smell wonderful while doing a good job.</li>
+    <li> Like the smell and it doesn&#x27;t contain any chemical additives.</li>
+    <li> A coworker of mine gave me some of the peppermint version of this stuff to try. I was very impressed by how well only a little goes a long way and liked the fact it didn&#x27;t have anything in it invented by Dupont or Dow Chemical. My only issue was the sensation I felt when using the peppermint on my special place. It was a bit much for me so now I have almond. It is worth every penny. Considering some high-end, chemical-laden stuff is more expensive than this stuff and doesn&#x27;t do near as well, I would say I easily am getting my monies worth and I appreciate getting a good product at a fair price for a change.</li>
+    <li> Love Dr bronner soaps</li>
+    <li> This is a watery kind of liquid soap that doesn&#x27;t feel harsh and drying, and smells great. It cleans well, leaving my skin feeling normal, not leached. I have dry skin and eczema but this doesn&#x27;t irritate my skin. Highly recommended.</li>
+    <li> It leaves a weird film on my skin so I now only use it when I have something stubborn on my hands like sunless tanner which it removes better than any other soap I&#x27;ve ever tried.</li>
+    <li> I have used Dr. Bronner&#x27;s liquid soap for years for bathing, and I would recommend it to others!  The nice scent is also very enjoyable.</li>
+    <li> I really like dr bronners soaps. The almond smell is good, though the peppermint is my fave so far. I use this in my homemade hand soap. I wanted to get away from all the nasty chemicals in so many smelly products out there today. Do be advised this is a smaller bottle so if you plan to use in bigger quantities you may want to buy the bigger bottle. I wish i would have with the peppermint as i use it for everything including cleaning the house.</li>
+    <li> Tried for different purposes. Works perfect for everything: body, hair, clothes, dishes. Soap has amazing almond smell when you use it. But after washing it away it disappears.</li>
+    <li> As expected and I didn&#x27;t have any issue or problem.  I am very happy with the purchase and would buy again</li>
+    <li> My husband has many allergies so I started looking for pure Castile soap.  Years ago hospitals used tons of it and when my kids were babies the baby shampoo was pure Castile.  If you are trying to stay away from chemicals on yourself and on your children this is for you.  It lathers up nicely too and leaves your hair squeaky clean. It doesn&#x27;t take much product either so my 32 oz bottle will last a long time.  I also use a little of it in my garden sprayer for aphids in the greenhouse. I tbsp per gallon of water.  Love it!</li>
+    <li> I use this for a variety of items............hand wash, a squirt in the laundry, anytime I want the clean smell of almonds...a little goes a long way...great product</li>
+    <li> No more shampoo and conditioner with horrible ingredients that are made worse by NC hard hard hard water. Great for face. Great for body. I mix it using the diluting recommendations on their site. For shampoo I mix with water and follow with a Bragg&#x27;s ACV rinse and my hair has never looked better. I feel like the only cure for hard water is to move or have an industrial strength shower head (neither are usually options) and this is the best remedy I have tried. Go green--Dr. Bronner&#x27;s Almond Green---and you will never look back. Trust me.&lt;br /&gt;(As always with products containing essential oils do an allergy patch test!!! Never skip this step!!!!)</li>
+    <li> This soap and scent is the best. I use it on a loofah in the shower and the smell is incredible. I&#x27;ll never buy another soap again!</li>
+    <li> Just what I wanted.  Just like I expected.  Perfect!  Went back and bought the 32oz size!!</li>
+</ol>
+
+
+
+

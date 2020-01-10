@@ -3,8 +3,8 @@ title: Oral-B White Pro 1000 Power Rechargeable Toothbrush Powered by Braun,
 description: Oral-B White Pro 1000 Power Rechargeable Toothbrush Powered by Braun,
 author: Suvojit Manna,
 tags: Oral-B White Pro 1000 Power Rechargeable Toothbrush Powered by Braun,
-publishedAt: Thu Jan 09 2020 19:08:30 GMT+0530 (India Standard Time),
-modifiedAt: Thu Jan 09 2020 19:08:30 GMT+0530 (India Standard Time),
+publishedAt: Fri Jan 10 2020 14:59:54 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:59:54 GMT+0530 (India Standard Time),
 ---
 
 # [Oral-B White Pro 1000 Power Rechargeable Toothbrush Powered by Braun](https://products.checkmycream.com/products/Oral-B-White-Pro-1000-Power-Rechargeable-Toothbrush-Powered-by-Braun.html)
@@ -12,211 +12,211 @@ modifiedAt: Thu Jan 09 2020 19:08:30 GMT+0530 (India Standard Time),
 ### Positive Reviews
 
 <ol>
-      <li>It does a wonderful job of cleaning.</li>
+      <li>Priced great!</li>
+      <li>This is the best electronic toothbrush I have ever purchased.</li>
       <li>Perfect.</li>
+      <li>This is a wonderful electric toothbrush which thoroughly cleans tooth!</li>
+      <li>a real good deal ez to use pulse at 30 seconds</li>
+      <li>and it was the best thing I&#x27;ve done for my dental health.  </li>
+      <li>It was a great gift.!</li>
+      <li>This toothbrush is the best one I&#x27;ve ever had.</li>
+      <li>This is the best looking of all that I&#x27;ve had.</li>
       <li>Excellent Toothbrush!!  </li>
+      <li>Wonderful toothbrush!  </li>
       <li>The Best Toothbrush</li>
+      <li>This is one of the best electric toothbrushes I have ever used.</li>
+      <li>Works great!!</li>
+      <li>Works wonderfully.</li>
+      <li>and I&#x27;ve always been very happy with this product.</li>
+      <li>Best for the price....</li>
+      <li>Best electric toothbrush I have ever had</li>
+      <li>It&#x27;s the best toothbrush I&#x27;ve owned.</li>
+      <li>It&#x27;s wonderful.</li>
+      <li>I didn&#x27;t think I would have a great checkup ever!</li>
+      <li>Oral B &amp; Crest Pro Health is a great combination!</li>
+      <li>We all know that Oral-B is top-notch!  </li>
+      <li>We checked with our dental hygene rep who said the Oral-b is an excellent product.&lt;br /&gt;&lt;br</li>
+      <li>He has been very happy with it and says he loves using it.  </li>
+      <li>I purchased this as a gift for my husband and he thinks it is the best thing since sliced bread.</li>
+      <li>and I am highly impressed.  </li>
+      <li>Great toothbrush!  </li>
+      <li>I&#x27;m impressed.</li>
+      <li>Is this the best electric toothbrush ever?</li>
+      <li>Excellent price for 1000 rotations which is quite sufficient.  </li>
       <li>Great product!</li>
+      <li>Perfect speed.</li>
+      <li>I was very happy with it.</li>
+      <li>GREAT buy!</li>
+      <li>Her teeth look great!  </li>
+      <li>Awesome product!</li>
+      <li>Awesome brush!  </li>
+      <li>although I will admit, my dentist doesn&#x27;t seem one bit impressed with them.  </li>
+      <li>Excellent configuration.</li>
+      <li>Excellent service i recommended to anyone ji ji ji ji ji ji ji ji ji ji ji ji ji ji</li>
+      <li>My dentist says it&#x27;s the best.  </li>
+      <li>Bought this &amp; it works great!</li>
+      <li>A great brush!</li>
+      <li>Great!</li>
+      <li>This brush is lightweight and does an excellent job.  </li>
+      <li>Very happy with my purchase -</li>
+      <li>Great buy!</li>
+      <li>Excellent.</li>
+      <li>I didn&#x27;t think I would have a great checkup ever!</li>
+      <li>Works great!  </li>
+      <li>Plus, I took advantage of the $20 rebate, so feel I got an excellent product at a great price!</li>
+      <li>Great toothbrush!</li>
       <li>Very happy about my choice.</li>
+      <li>I am very impressed.  </li>
+      <li>I am very happy with it and would buy agian.</li>
+      <li>Best toothbrush</li>
+      <li>Oral B &amp; Crest Pro Health is a great combination!</li>
+      <li>Excellent product! !</li>
       <li>Great toothbrush !!</li>
+      <li>and we&#x27;re both very happy with them.</li>
+      <li>You don&#x27;t always get the best deal on Amazon</li>
+      <li>It is a wonderful product and fulfills my mother&#x27;s needs.</li>
+      <li>Excellent product.</li>
+      <li>The 1000 is the best value in the Oral B line I think.</li>
+      <li>Oral B makes the best tooth brushes.  </li>
+      <li>What a great product!</li>
+      <li>I haven&#x27;t had any issues with it and am impressed with the battery life.</li>
+      <li>I purchased at what I believe was an excellent price point.</li>
+      <li>Wonderful!  </li>
+      <li>I like this one best.</li>
       <li>, it&#x27;s actually perfect.</li>
       <li>I also find that using gel toothpaste works best with this type of brush.&lt;br /&gt;&lt;br</li>
+      <li>Cleans my teeth real good</li>
+      <li>good price!!!</li>
+      <li>Great product!</li>
+      <li>I will stick to phillips sonicare, which worked wonderfully for two years.</li>
+      <li>Very happy with this purchase</li>
+      <li>For the price, this is an excellent toothbrush.  </li>
+      <li>Everything&#x27;s perfect about this brush.</li>
+      <li>This is the best toothbrush I&#x27;ve ever had.</li>
+      <li>Got it on sale, best ever!</li>
+      <li>Excellent product.  </li>
+      <li>You definately had the best price also!!</li>
+      <li>it&#x27;s the best!!</li>
+      <li>best toothbrush Ive ever owned.</li>
+      <li>Excellent purchase.  </li>
       <li>I&#x27;m a prime user and it&#x27;s the best investment I have ever made!</li>
+      <li>I&#x27;m very happy with it.</li>
+      <li>This toothbrush is great!  </li>
+      <li>What a great toothbrush!  </li>
       <li>It works great!</li>
       <li>Probably not the best out there</li>
       <li>but I&#x27;m very happy with it.</li>
-      <li>This has been one of the best pieces of advice I&#x27;ve ever received.  </li>
-      <li>Priced great!</li>
-      <li>Oral B rechargeable electric tooth brush is wonderful.  </li>
-      <li>Well my wife has had a Braun 3D Excel for 10 years and it has worked flawlessly.</li>
-      <li>Very happy with this purchase.</li>
-      <li>Excellent update:  </li>
-      <li>and I&#x27;m very happy with it.</li>
-      <li>and I think its perfect.</li>
-      <li>so I was very happy!</li>
-      <li>/&gt;Battery life is excellent, running 1-2 weeks between charges.  </li>
-      <li>/&gt;Overall, the brush is simply wonderful.</li>
-      <li>A marvelous machine.</li>
-      <li>is a great price for this electric rechargeable toothbrush!  </li>
-      <li>Great product!</li>
-      <li>Its like my mouth is being cleaned by angels LOL!</li>
-      <li>Excellent replacement!</li>
-      <li>This is the best toothbrush ever.</li>
-      <li>, I can say I&#x27;m still very happy with my purchase.  </li>
-      <li>Excellent cleaning, so my dentist says.</li>
-      <li>Might be especially good for kids and the elderly to keep them from hurting their gums.  </li>
-      <li>I am very happy with this toothbrush.  </li>
-      <li>This toothbrush is excellent.</li>
-      <li>Great price too!</li>
-      <li>it&#x27;s the best!!</li>
-      <li>You definately had the best price also!!</li>
-      <li>I&#x27;m impressed.</li>
-      <li>We checked with our dental hygene rep who said the Oral-b is an excellent product.&lt;br /&gt;&lt;br</li>
-      <li>Works wonderfully.</li>
-      <li>It&#x27;s the best toothbrush I&#x27;ve owned.</li>
-      <li>It&#x27;s wonderful.</li>
-      <li>We all know that Oral-B is top-notch!  </li>
-      <li>You don&#x27;t always get the best deal on Amazon</li>
-      <li>The 1000 is the best value in the Oral B line I think.</li>
-      <li>EXCELLENT!  </li>
-      <li>This toothbrush is wonderful.  </li>
-      <li>Great toothbrush!  </li>
-      <li>I searched online for the best electronic toothbrush.  </li>
-      <li>Still the best toothbrush.  </li>
-      <li>All oral b pro toothbrushes are great!</li>
-      <li>Great toothbrush for the money!  </li>
-      <li>He is very happy with it.</li>
-      <li>Great toothbrush!</li>
-      <li>Rechargeable battery life is impressive.  </li>
-      <li>Excellent power brush.</li>
-      <li>Quite happy!</li>
-      <li>It&#x27;s great!</li>
-      <li>This toothbrush is the best one I&#x27;ve ever had.</li>
-      <li>I didn&#x27;t think I would have a great checkup ever!</li>
-      <li>Oral B &amp; Crest Pro Health is a great combination!</li>
-      <li>I didn&#x27;t think I would have a great checkup ever!</li>
-      <li>Oral B &amp; Crest Pro Health is a great combination!</li>
-      <li>What a great product!</li>
-      <li>In the meantime, it&#x27;s the perfect size to provide tension relief to my pet hamster.</li>
-      <li>Works great!</li>
-      <li>Very happy with my purchase!</li>
-      <li>Excellent service from Amazon.</li>
-      <li>Works great!  </li>
-      <li>Very happy with this purchase.</li>
-      <li>Very happy with my purchase.</li>
-      <li>Great toothbrush!</li>
-      <li>Very happy that I purchased this!</li>
-      <li>Great product!</li>
-      <li>Dentist tells me that my oral hygiene is perfect, and all I have used for years is this type of Oral B electric toothbrush.  </li>
-      <li>Does an excellent job of cleaning.  </li>
-      <li>And the price on Amazon was the best I found.</li>
-      <li>Excellent quality all parts made in Germany including the brush head.</li>
-      <li>I&#x27;m very happy with it and would recommend it.</li>
-      <li>I&#x27;m so happy I bought this brush!</li>
-      <li>It also cleans your teeth excellently.</li>
-      <li>It does an excellent job of cleaning the teeth.</li>
       <li>Great buy!</li>
-      <li>What a great toothbrush!  </li>
-      <li>Everything&#x27;s perfect about this brush.</li>
-      <li>I am very happy with it and would buy agian.</li>
-      <li>I was very happy with it.</li>
-      <li>Best electric toothbrush I have ever had</li>
-      <li>Best for the price....</li>
-      <li>This is a wonderful electric toothbrush which thoroughly cleans tooth!</li>
-      <li>It was a great gift.!</li>
-      <li>Excellent price for 1000 rotations which is quite sufficient.  </li>
-      <li>and we&#x27;re both very happy with them.</li>
-      <li>Oral B makes the best tooth brushes.  </li>
-      <li>For the price, this is an excellent toothbrush.  </li>
-      <li>Excellent purchase.  </li>
-      <li>I&#x27;m very happy with it.</li>
       <li>Best price for this item.</li>
-      <li>Oral-B toothbrushes are great!!</li>
+      <li>It does an excellent job of cleaning the teeth.</li>
+      <li>It also cleans your teeth excellently.</li>
+      <li>Great price too!</li>
+      <li>Happy customer!</li>
 </ol>
 
 
 <h2>Negative Reviews</h2>
 <ol>
-<li> It does a wonderful job of cleaning.</li>
+<li> Priced great!</li>
+<li> This is the best electronic toothbrush I have ever purchased.</li>
 <li> Perfect.</li>
+<li> This is a wonderful electric toothbrush which thoroughly cleans tooth!</li>
+<li> a real good deal ez to use pulse at 30 seconds</li>
+<li> and it was the best thing I&#x27;ve done for my dental health.  </li>
+<li> It was a great gift.!</li>
+<li> This toothbrush is the best one I&#x27;ve ever had.</li>
+<li> This is the best looking of all that I&#x27;ve had.</li>
 <li> Excellent Toothbrush!!  </li>
+<li> Wonderful toothbrush!  </li>
 <li> The Best Toothbrush</li>
+<li> This is one of the best electric toothbrushes I have ever used.</li>
+<li> Works great!!</li>
+<li> Works wonderfully.</li>
+<li> and I&#x27;ve always been very happy with this product.</li>
+<li> Best for the price....</li>
+<li> Best electric toothbrush I have ever had</li>
+<li> It&#x27;s the best toothbrush I&#x27;ve owned.</li>
+<li> It&#x27;s wonderful.</li>
+<li> I didn&#x27;t think I would have a great checkup ever!</li>
+<li> Oral B &amp; Crest Pro Health is a great combination!</li>
+<li> We all know that Oral-B is top-notch!  </li>
+<li> We checked with our dental hygene rep who said the Oral-b is an excellent product.&lt;br /&gt;&lt;br</li>
+<li> He has been very happy with it and says he loves using it.  </li>
+<li> I purchased this as a gift for my husband and he thinks it is the best thing since sliced bread.</li>
+<li> and I am highly impressed.  </li>
+<li> Great toothbrush!  </li>
+<li> I&#x27;m impressed.</li>
+<li> Is this the best electric toothbrush ever?</li>
+<li> Excellent price for 1000 rotations which is quite sufficient.  </li>
 <li> Great product!</li>
+<li> Perfect speed.</li>
+<li> I was very happy with it.</li>
+<li> GREAT buy!</li>
+<li> Her teeth look great!  </li>
+<li> Awesome product!</li>
+<li> Awesome brush!  </li>
+<li> although I will admit, my dentist doesn&#x27;t seem one bit impressed with them.  </li>
+<li> Excellent configuration.</li>
+<li> Excellent service i recommended to anyone ji ji ji ji ji ji ji ji ji ji ji ji ji ji</li>
+<li> My dentist says it&#x27;s the best.  </li>
+<li> Bought this &amp; it works great!</li>
+<li> A great brush!</li>
+<li> Great!</li>
+<li> This brush is lightweight and does an excellent job.  </li>
+<li> Very happy with my purchase -</li>
+<li> Great buy!</li>
+<li> Excellent.</li>
+<li> I didn&#x27;t think I would have a great checkup ever!</li>
+<li> Works great!  </li>
+<li> Plus, I took advantage of the $20 rebate, so feel I got an excellent product at a great price!</li>
+<li> Great toothbrush!</li>
 <li> Very happy about my choice.</li>
+<li> I am very impressed.  </li>
+<li> I am very happy with it and would buy agian.</li>
+<li> Best toothbrush</li>
+<li> Oral B &amp; Crest Pro Health is a great combination!</li>
+<li> Excellent product! !</li>
 <li> Great toothbrush !!</li>
+<li> and we&#x27;re both very happy with them.</li>
+<li> You don&#x27;t always get the best deal on Amazon</li>
+<li> It is a wonderful product and fulfills my mother&#x27;s needs.</li>
+<li> Excellent product.</li>
+<li> The 1000 is the best value in the Oral B line I think.</li>
+<li> Oral B makes the best tooth brushes.  </li>
+<li> What a great product!</li>
+<li> I haven&#x27;t had any issues with it and am impressed with the battery life.</li>
+<li> I purchased at what I believe was an excellent price point.</li>
+<li> Wonderful!  </li>
+<li> I like this one best.</li>
 <li> , it&#x27;s actually perfect.</li>
 <li> I also find that using gel toothpaste works best with this type of brush.&lt;br /&gt;&lt;br</li>
+<li> Cleans my teeth real good</li>
+<li> good price!!!</li>
+<li> Great product!</li>
+<li> I will stick to phillips sonicare, which worked wonderfully for two years.</li>
+<li> Very happy with this purchase</li>
+<li> For the price, this is an excellent toothbrush.  </li>
+<li> Everything&#x27;s perfect about this brush.</li>
+<li> This is the best toothbrush I&#x27;ve ever had.</li>
+<li> Got it on sale, best ever!</li>
+<li> Excellent product.  </li>
+<li> You definately had the best price also!!</li>
+<li> it&#x27;s the best!!</li>
+<li> best toothbrush Ive ever owned.</li>
+<li> Excellent purchase.  </li>
 <li> I&#x27;m a prime user and it&#x27;s the best investment I have ever made!</li>
+<li> I&#x27;m very happy with it.</li>
+<li> This toothbrush is great!  </li>
+<li> What a great toothbrush!  </li>
 <li> It works great!</li>
 <li> Probably not the best out there</li>
 <li> but I&#x27;m very happy with it.</li>
-<li> This has been one of the best pieces of advice I&#x27;ve ever received.  </li>
-<li> Priced great!</li>
-<li> Oral B rechargeable electric tooth brush is wonderful.  </li>
-<li> Well my wife has had a Braun 3D Excel for 10 years and it has worked flawlessly.</li>
-<li> Very happy with this purchase.</li>
-<li> Excellent update:  </li>
-<li> and I&#x27;m very happy with it.</li>
-<li> and I think its perfect.</li>
-<li> so I was very happy!</li>
-<li> /&gt;Battery life is excellent, running 1-2 weeks between charges.  </li>
-<li> /&gt;Overall, the brush is simply wonderful.</li>
-<li> A marvelous machine.</li>
-<li> is a great price for this electric rechargeable toothbrush!  </li>
-<li> Great product!</li>
-<li> Its like my mouth is being cleaned by angels LOL!</li>
-<li> Excellent replacement!</li>
-<li> This is the best toothbrush ever.</li>
-<li> , I can say I&#x27;m still very happy with my purchase.  </li>
-<li> Excellent cleaning, so my dentist says.</li>
-<li> Might be especially good for kids and the elderly to keep them from hurting their gums.  </li>
-<li> I am very happy with this toothbrush.  </li>
-<li> This toothbrush is excellent.</li>
-<li> Great price too!</li>
-<li> it&#x27;s the best!!</li>
-<li> You definately had the best price also!!</li>
-<li> I&#x27;m impressed.</li>
-<li> We checked with our dental hygene rep who said the Oral-b is an excellent product.&lt;br /&gt;&lt;br</li>
-<li> Works wonderfully.</li>
-<li> It&#x27;s the best toothbrush I&#x27;ve owned.</li>
-<li> It&#x27;s wonderful.</li>
-<li> We all know that Oral-B is top-notch!  </li>
-<li> You don&#x27;t always get the best deal on Amazon</li>
-<li> The 1000 is the best value in the Oral B line I think.</li>
-<li> EXCELLENT!  </li>
-<li> This toothbrush is wonderful.  </li>
-<li> Great toothbrush!  </li>
-<li> I searched online for the best electronic toothbrush.  </li>
-<li> Still the best toothbrush.  </li>
-<li> All oral b pro toothbrushes are great!</li>
-<li> Great toothbrush for the money!  </li>
-<li> He is very happy with it.</li>
-<li> Great toothbrush!</li>
-<li> Rechargeable battery life is impressive.  </li>
-<li> Excellent power brush.</li>
-<li> Quite happy!</li>
-<li> It&#x27;s great!</li>
-<li> This toothbrush is the best one I&#x27;ve ever had.</li>
-<li> I didn&#x27;t think I would have a great checkup ever!</li>
-<li> Oral B &amp; Crest Pro Health is a great combination!</li>
-<li> I didn&#x27;t think I would have a great checkup ever!</li>
-<li> Oral B &amp; Crest Pro Health is a great combination!</li>
-<li> What a great product!</li>
-<li> In the meantime, it&#x27;s the perfect size to provide tension relief to my pet hamster.</li>
-<li> Works great!</li>
-<li> Very happy with my purchase!</li>
-<li> Excellent service from Amazon.</li>
-<li> Works great!  </li>
-<li> Very happy with this purchase.</li>
-<li> Very happy with my purchase.</li>
-<li> Great toothbrush!</li>
-<li> Very happy that I purchased this!</li>
-<li> Great product!</li>
-<li> Dentist tells me that my oral hygiene is perfect, and all I have used for years is this type of Oral B electric toothbrush.  </li>
-<li> Does an excellent job of cleaning.  </li>
-<li> And the price on Amazon was the best I found.</li>
-<li> Excellent quality all parts made in Germany including the brush head.</li>
-<li> I&#x27;m very happy with it and would recommend it.</li>
-<li> I&#x27;m so happy I bought this brush!</li>
-<li> It also cleans your teeth excellently.</li>
-<li> It does an excellent job of cleaning the teeth.</li>
 <li> Great buy!</li>
-<li> What a great toothbrush!  </li>
-<li> Everything&#x27;s perfect about this brush.</li>
-<li> I am very happy with it and would buy agian.</li>
-<li> I was very happy with it.</li>
-<li> Best electric toothbrush I have ever had</li>
-<li> Best for the price....</li>
-<li> This is a wonderful electric toothbrush which thoroughly cleans tooth!</li>
-<li> It was a great gift.!</li>
-<li> Excellent price for 1000 rotations which is quite sufficient.  </li>
-<li> and we&#x27;re both very happy with them.</li>
-<li> Oral B makes the best tooth brushes.  </li>
-<li> For the price, this is an excellent toothbrush.  </li>
-<li> Excellent purchase.  </li>
-<li> I&#x27;m very happy with it.</li>
 <li> Best price for this item.</li>
-<li> Oral-B toothbrushes are great!!</li>
+<li> It does an excellent job of cleaning the teeth.</li>
+<li> It also cleans your teeth excellently.</li>
+<li> Great price too!</li>
+<li> Happy customer!</li>
 </ol>
 
 <h2>All Reviews</h2>
@@ -2055,6 +2055,7 @@ modifiedAt: Thu Jan 09 2020 19:08:30 GMT+0530 (India Standard Time),
     <li> Like the one I replaced it for, it has tendency to stall.</li>
     <li> I bought this as a Christmas gift for my bother who now wears braces. He loves this brush. He says it gives his teeth a deeper clean than a regular toothbrush. No complaints ;-)</li>
 </ol>
+
 
 
 

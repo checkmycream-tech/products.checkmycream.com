@@ -1,0 +1,311 @@
+---
+title: Merkur-Razor Merkur Safety Razor 39c Chrome,
+description: Merkur-Razor Merkur Safety Razor 39c Chrome,
+author: Suvojit Manna,
+tags: Merkur-Razor Merkur Safety Razor 39c Chrome,
+publishedAt: Fri Jan 10 2020 14:59:36 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:59:36 GMT+0530 (India Standard Time),
+---
+
+# [Merkur-Razor Merkur Safety Razor 39c Chrome](https://products.checkmycream.com/products/Merkur-Razor-Merkur-Safety-Razor-39c-Chrome.html)
+
+### Positive Reviews
+
+<ol>
+      <li>Best razor</li>
+      <li>This razor is awesome!  </li>
+      <li>The concept of the slant razor is an excellent one.</li>
+      <li>That being said, it is an excellent razor.  </li>
+      <li>Now my best &amp;#34;desert island&amp;#34;</li>
+      <li>you will be very happy with the shave.</li>
+      <li>They look wonderful.</li>
+      <li>Have a Mercur 34 g and it&#x27;s the best razor I ever used.</li>
+      <li>Great razor!</li>
+      <li>It works great!</li>
+      <li>That is the best combo I&#x27;ve found for myself.</li>
+      <li>For me however a Feather/Slant combo is the best way to shave.</li>
+      <li>This is the best razor I have ever used.</li>
+      <li>Great product!</li>
+      <li>Quality, price-point, close shave time and time again, very happy with my purchase</li>
+      <li>This Merkur gives me the best shave.  </li>
+      <li>GREAT RAZOR!</li>
+      <li>This razor is awesome.</li>
+      <li>This is the best shave I have ever had.</li>
+      <li>so I used it with Astra SP blades and used Arko shave soap and got a wonderful close shave.</li>
+      <li>Perfect!</li>
+      <li>shaves wonderfully!</li>
+      <li>The closeness of shave is perfect.</li>
+      <li>This is the best razor I have ever used; bar none.</li>
+      <li>This is an amazing razor!!!!</li>
+      <li>This is a very good razor.</li>
+      <li>It will give you a incredible close shave.</li>
+      <li>Brilliant design and engineering.</li>
+      <li>LOOKS and FEELS great.  </li>
+      <li>the slant  may not be for beginners,  but for  experienced wetshavers  </li>
+      <li>Great razor</li>
+      <li>Are use either a med prep or bluebird blade with this raiser which does great things.</li>
+      <li>I would suggest this razor for an experienced shaver.</li>
+      <li>Great starter razor for 10 dollars.</li>
+      <li>and it&#x27;s a joy to use.&lt;br</li>
+      <li>Great razor at a great price.</li>
+      <li>great workmanship.</li>
+      <li>And two, it does indeed give a &#x27;GREAT&#x27; close shave,</li>
+      <li>Great slant bar razor.  </li>
+      <li>Really great razor.  </li>
+      <li>you are looking for a great razor, you need to try this.</li>
+      <li>lol</li>
+      <li>great razor I have had mine for about 2 years now</li>
+      <li>This is truly a great DE slant razor.</li>
+      <li>Great razor but not as aggressive as I thought</li>
+      <li>the sledgehammer is a very nice razor.  </li>
+      <li>it might just be a pleasant surprise for you too....</li>
+      <li>Good quality</li>
+      <li>It shaves as smooth as silk and gets the job done perfectly!</li>
+      <li>, don&#x27;t be scared of this one, just don&#x27;t get in to a rush until you have a good feel for it.</li>
+      <li>Either way, I found the Muhle R41 to be superior.</li>
+      <li>I had heard DEs were good</li>
+      <li>One of the on-line reviews of this razor said that it makes virtually any blade look good.  </li>
+      <li>This razor is aggressive, but nothing that good technique can&#x27;t handle.  </li>
+      <li>The Merkur 23c or the Edwin Jagger/Muhle 89 are good razors for that.</li>
+      <li>Good results with persona blades.</li>
+      <li>it was like wonderful music playing, in other-words I really enjoy the sound, it&#x27;s an audible treat, along with a wonderful shave.&lt;br /&gt;&lt;br</li>
+      <li>/&gt;In summary, I&#x27;ve been very pleased with the Merkur 39c, and it ranks up there as the best razor I&#x27;ve ever used and the best shave I&#x27;ve had so far.</li>
+      <li>and I am very pleased with Bolzano Blades in this razor.</li>
+      <li>Great shave, slices through stubble with much more ease than the merkur futur I&#x27;ve used for years.</li>
+      <li>Very pleased.</li>
+      <li>This thing glides right along and gave me the best shave of my life.</li>
+      <li>Provides excellent reduction on first WTG pass.</li>
+      <li>More heft too!</li>
+      <li>glad I chose the slant bar!</li>
+      <li>I absolutely love this slant razor!</li>
+      <li>it is an absolutely amazing performer.</li>
+      <li>Gives a nice close shave</li>
+      <li>I honestly can&#x27;t see their point if view.</li>
+      <li>The longer I own it</li>
+      <li>Absolutely the best safety razor I own.</li>
+      <li>Good balance, enjoyable shave every time.</li>
+      <li>But I thought why spend that kind of money on a razor</li>
+      <li>it is well balanced, and feels nice in your hand.  </li>
+      <li>Nice heft and nice knurling on the handle.</li>
+      <li>Awesome, just, awesome...&lt;br /&gt;&lt;br /&gt;New to DE shaving but already really enjying it.</li>
+      <li>Good luck and hope you enjoy this razor!</li>
+      <li>Very easy to use and has ample weight to take care of any beard.</li>
+      <li>It&#x27;s very weighty and feels very good in the hand.</li>
+      <li>Even that one gives excellent shaves so far.  </li>
+      <li>Wow this razor is awesome.</li>
+      <li>I find the glycerin more forgiving that the Van Der Hagen Deluxe version.  </li>
+      <li>As others have noted, one has to be very careful with this more aggressive razor, but for an experienced shaver I think this may be the best there is.</li>
+      <li>The Merkur 39C is a very fine razor.  </li>
+      <li>There is a significant learning curve however, and attention to good shaving technique is a must.  </li>
+      <li>As far as slant bar razors go, I&#x27;m sure that this one of, if not, the best.</li>
+      <li>I highly recommend you use a quality razor, as you WILL notice the difference, I first tried to use the Shark blades which I had used in the EJ89 with great results, but I felt the razor pulling my hair, so I then tried the Polsilver blades, and I loved it!</li>
+      <li>My first shave was smooth and easy and just delightful.</li>
+      <li>but it was a very smooth and efficient shave.</li>
+      <li>but I immediately noticed that my shave was very smooth.</li>
+      <li>I absolutely loved it after the first shave!</li>
+      <li>This is great razor and it really is smoother than the Merkur 180 (23C) because of the blade angle.  </li>
+      <li>It doesn&#x27;t get any better than this. &#x27;</li>
+      <li>This 39c is my favorite now with Gillette Silver Blues or Astras.  </li>
+      <li>This razor will be your favorite razor.</li>
+      <li>but I say it&#x27;s more efficient than aggressive.  </li>
+      <li>Somebody got to suffer, somebody sure got to feel some pain...</li>
+      <li>and you will NOT be able to swap out the head</li>
+      <li>the more of my shave is completed with the slant.</li>
+      <li>Love, Love, Love this razor.  </li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> Best razor</li>
+<li> This razor is awesome!  </li>
+<li> The concept of the slant razor is an excellent one.</li>
+<li> That being said, it is an excellent razor.  </li>
+<li> Now my best &amp;#34;desert island&amp;#34;</li>
+<li> you will be very happy with the shave.</li>
+<li> They look wonderful.</li>
+<li> Have a Mercur 34 g and it&#x27;s the best razor I ever used.</li>
+<li> Great razor!</li>
+<li> It works great!</li>
+<li> That is the best combo I&#x27;ve found for myself.</li>
+<li> For me however a Feather/Slant combo is the best way to shave.</li>
+<li> This is the best razor I have ever used.</li>
+<li> Great product!</li>
+<li> Quality, price-point, close shave time and time again, very happy with my purchase</li>
+<li> This Merkur gives me the best shave.  </li>
+<li> GREAT RAZOR!</li>
+<li> This razor is awesome.</li>
+<li> This is the best shave I have ever had.</li>
+<li> so I used it with Astra SP blades and used Arko shave soap and got a wonderful close shave.</li>
+<li> Perfect!</li>
+<li> shaves wonderfully!</li>
+<li> The closeness of shave is perfect.</li>
+<li> This is the best razor I have ever used; bar none.</li>
+<li> This is an amazing razor!!!!</li>
+<li> This is a very good razor.</li>
+<li> It will give you a incredible close shave.</li>
+<li> Brilliant design and engineering.</li>
+<li> LOOKS and FEELS great.  </li>
+<li> the slant  may not be for beginners,  but for  experienced wetshavers  </li>
+<li> Great razor</li>
+<li> Are use either a med prep or bluebird blade with this raiser which does great things.</li>
+<li> I would suggest this razor for an experienced shaver.</li>
+<li> Great starter razor for 10 dollars.</li>
+<li> and it&#x27;s a joy to use.&lt;br</li>
+<li> Great razor at a great price.</li>
+<li> great workmanship.</li>
+<li> And two, it does indeed give a &#x27;GREAT&#x27; close shave,</li>
+<li> Great slant bar razor.  </li>
+<li> Really great razor.  </li>
+<li> you are looking for a great razor, you need to try this.</li>
+<li> lol</li>
+<li> great razor I have had mine for about 2 years now</li>
+<li> This is truly a great DE slant razor.</li>
+<li> Great razor but not as aggressive as I thought</li>
+<li> the sledgehammer is a very nice razor.  </li>
+<li> it might just be a pleasant surprise for you too....</li>
+<li> Good quality</li>
+<li> It shaves as smooth as silk and gets the job done perfectly!</li>
+<li> , don&#x27;t be scared of this one, just don&#x27;t get in to a rush until you have a good feel for it.</li>
+<li> Either way, I found the Muhle R41 to be superior.</li>
+<li> I had heard DEs were good</li>
+<li> One of the on-line reviews of this razor said that it makes virtually any blade look good.  </li>
+<li> This razor is aggressive, but nothing that good technique can&#x27;t handle.  </li>
+<li> The Merkur 23c or the Edwin Jagger/Muhle 89 are good razors for that.</li>
+<li> Good results with persona blades.</li>
+<li> it was like wonderful music playing, in other-words I really enjoy the sound, it&#x27;s an audible treat, along with a wonderful shave.&lt;br /&gt;&lt;br</li>
+<li> /&gt;In summary, I&#x27;ve been very pleased with the Merkur 39c, and it ranks up there as the best razor I&#x27;ve ever used and the best shave I&#x27;ve had so far.</li>
+<li> and I am very pleased with Bolzano Blades in this razor.</li>
+<li> Great shave, slices through stubble with much more ease than the merkur futur I&#x27;ve used for years.</li>
+<li> Very pleased.</li>
+<li> This thing glides right along and gave me the best shave of my life.</li>
+<li> Provides excellent reduction on first WTG pass.</li>
+<li> More heft too!</li>
+<li> glad I chose the slant bar!</li>
+<li> I absolutely love this slant razor!</li>
+<li> it is an absolutely amazing performer.</li>
+<li> Gives a nice close shave</li>
+<li> I honestly can&#x27;t see their point if view.</li>
+<li> The longer I own it</li>
+<li> Absolutely the best safety razor I own.</li>
+<li> Good balance, enjoyable shave every time.</li>
+<li> But I thought why spend that kind of money on a razor</li>
+<li> it is well balanced, and feels nice in your hand.  </li>
+<li> Nice heft and nice knurling on the handle.</li>
+<li> Awesome, just, awesome...&lt;br /&gt;&lt;br /&gt;New to DE shaving but already really enjying it.</li>
+<li> Good luck and hope you enjoy this razor!</li>
+<li> Very easy to use and has ample weight to take care of any beard.</li>
+<li> It&#x27;s very weighty and feels very good in the hand.</li>
+<li> Even that one gives excellent shaves so far.  </li>
+<li> Wow this razor is awesome.</li>
+<li> I find the glycerin more forgiving that the Van Der Hagen Deluxe version.  </li>
+<li> As others have noted, one has to be very careful with this more aggressive razor, but for an experienced shaver I think this may be the best there is.</li>
+<li> The Merkur 39C is a very fine razor.  </li>
+<li> There is a significant learning curve however, and attention to good shaving technique is a must.  </li>
+<li> As far as slant bar razors go, I&#x27;m sure that this one of, if not, the best.</li>
+<li> I highly recommend you use a quality razor, as you WILL notice the difference, I first tried to use the Shark blades which I had used in the EJ89 with great results, but I felt the razor pulling my hair, so I then tried the Polsilver blades, and I loved it!</li>
+<li> My first shave was smooth and easy and just delightful.</li>
+<li> but it was a very smooth and efficient shave.</li>
+<li> but I immediately noticed that my shave was very smooth.</li>
+<li> I absolutely loved it after the first shave!</li>
+<li> This is great razor and it really is smoother than the Merkur 180 (23C) because of the blade angle.  </li>
+<li> It doesn&#x27;t get any better than this. &#x27;</li>
+<li> This 39c is my favorite now with Gillette Silver Blues or Astras.  </li>
+<li> This razor will be your favorite razor.</li>
+<li> but I say it&#x27;s more efficient than aggressive.  </li>
+<li> Somebody got to suffer, somebody sure got to feel some pain...</li>
+<li> and you will NOT be able to swap out the head</li>
+<li> the more of my shave is completed with the slant.</li>
+<li> Love, Love, Love this razor.  </li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> This razor is awesome!  I am not sure why people are so afraid of this razor but I would not hesitate to recommend it to anyone including a beginner.</li>
+    <li> I was hesitant to get this razor due to the &amp;#34;Cut throat&amp;#34; hype this razor has.The first stroke and one more myth was busted. This razor gives a QUALITY shave; it all boils down to good technique, sharp blade, and good lather. Enjoy</li>
+    <li> This razor is bad you know what! I&#x27;ve used the Merkur HD slant for the past few years and I love it. I bought this model a few months ago and I wish I would have bought it sooner. Longer, thicker handle for those of us with bigger hands. More heft too! I use a Feather blade because my facial hair is thick. Not everone will need that sharp of a blade though. For me however a Feather/Slant combo is the best way to shave.</li>
+    <li> This is the best razor I have ever used. It has quickly become my favorite. It shaves as smooth as silk and gets the job done perfectly! It does not have a straight-on chop, it slices instead, so less pressure is needed.</li>
+    <li> This is a well designed but poorly made razor.  Chrome comes off within weeks and Merkur blames your water.  But it&#x27;s a very nice, close shave despite the fact that it&#x27;s pretty ugly after a few months.</li>
+    <li> This is truly a great DE slant razor. I get that close and smooth barbershop shave sought after. Anyone who is a true beginner to the wet shave process should try a less aggressive razor. There is a technique to the wet shave process and this razor performs great! I recommend this product.</li>
+    <li> The razor itself is well made, but mine, unfortunately, came with a small portion of the chrome plating removed around the bottom of the handle. It&#x27;s very weighty and feels very good in the hand. The only issue I had with this razor was perhaps one of user error. Regardless, this razor gave me more tiny nicks than my other two. Perhaps it was the way that I moved the blade across my face, or perhaps it was my choice of blade. Either way, I found the Muhle R41 to be superior. As far as slant bar razors go, I&#x27;m sure that this one of, if not, the best. I simply prefer my Muhle R41. This razor also seemed to fill up after a pass or two, wich wouldn&#x27;t be a problem with an open comb design.</li>
+    <li> I love this razor.  It&#x27;s heirloom-quality.</li>
+    <li> Really great razor.  Good balance, enjoyable shave every time. Can be aggressive in the wrong hands, but once you get used to it, the shave is really close and easy.</li>
+    <li> Using for first pass in three pass shave recommended by Leisure Guy. It works for me better than anything I have come up by myself....so far</li>
+    <li> I&#x27;ve been wanting one of these for a while but didn&#x27;t want to spend almost seventy bucks on it, so when I seen it on sale here I jumped on it. I&#x27;ve heard how aggressive these are but it was a very smooth and efficient shave. I do agree this probably wouldn&#x27;t be a beginner razor, but don&#x27;t think you need decades of experience to try one. This thing glides right along and gave me the best shave of my life. My neck is a problem area and this thing got it smoother than any other razor I own. Give it a try!</li>
+    <li> This is the best razor I have ever used; bar none. The closeness of shave is perfect.</li>
+    <li> I have three other Merkurs. A 23c, and two 1904 classics (closed bar and open comb). This by far blows them all out of the water. I have a few aggressive vintage razors that are single edge as well as the classic Gillette red tip and I find this one give me the closest shave with the least amount of irritation. The razor really &amp;#34;sings&amp;#34; so you hear it cutting whiskers. Now I have a thick stubble so I used it with Astra SP blades and used Arko shave soap and got a wonderful close shave. This is not a forgiving razor, and I do not recommend it for someone new to the wet shaving game. The Merkur 23c or the Edwin Jagger/Muhle 89 are good razors for that. But if you need to move on to a razor that really mows down the stubble, then this along with the Muhle R41 should be on your shortlist.</li>
+    <li> This is hands down the best razor I have ever owned. I am able to clear a few days worth of growth in a single pass. I need to practice a little more with it to avoid the few nicks that I have gotten by trying to rush things.</li>
+    <li> Wow this razor is awesome. I received the razor today and immediately went to town. I initially applied slightly too much pressure and caused a small cut. I adjusted and let the razor do the work. This is the best shave I have ever had. I am not a newbie to DE shaving but this is my first slant bar. I cannot recommend this razor enough.</li>
+    <li> It has a great feel and nice weight, just be careful it can be unforgiving.  It was delivered fast, but the Feather razors have yet to arrive 1 month later.</li>
+    <li> Was reluctant to try a slant this early in my wet shaving experience (2 months and change).  This razor gives the closest shaves I&#x27;ve experienced so far.  I&#x27;ve only nicked myself slightly (no more than usual).  If you are on the fence about getting a slant, I highly recommend this razor.</li>
+    <li> If you&#x27;ve got a thick beard this is the one for you.  Sorta aggressive but not really the man-eater that some reviewers claim it to be.  A light touch is required for any DE razor and this is no different.  But this one seems to mow through tough whiskers better than others like the Merkur 38, which I also own.  The difference is that with the M38 you can be almost casual in your shaving whereas with the M39 slant-bar you&#x27;ve got to pay attention.</li>
+    <li> Awesome, just, awesome...&lt;br /&gt;&lt;br /&gt;New to DE shaving but already really enjying it. I bought a Edwin Jagger, a Merkur futur, and the Merker slant. I found the Edwin jagger to be the smoothest and safe to handle, I used it for a few days with the Razor it came with to get the feel for it. I didn&#x27;t like the Futur, it was to clunky and I could not see the blade so I gave it to a friend, also I did not like the satin, it kind of killed the novelty of these razors for me. Then finally when I thought myself ready I switched over to the Slant.&lt;br /&gt;&lt;br /&gt;If you are new to DE razors, don&#x27;t be scared of this one, just don&#x27;t get in to a rush until you have a good feel for it. Once out of the box you will notice the heft of this razor, it feels like you spent a pretty penny on this (AND YOU DID!). I highly recommend you use a quality razor, as you WILL notice the difference, I first tried to use the Shark blades which I had used in the EJ89 with great results, but I felt the razor pulling my hair, so I then tried the Polsilver blades, and I loved it! You can hear the loud cutting action, and for this first time in your life, you will know what a REAL shave feels like. It was so smooth I couldn&#x27;t stop rubbing my chin that night and the following day.&lt;br /&gt;&lt;br /&gt;Honest to god, the next time I went for a shave I used the EJ89 and I thought it wasn&#x27;t working! lol I took it apart and added a new blade, and still I felt it wasn&#x27;t doing anything, when I rinsed it in the sink I could see hair so I know it was doing something, but I then went over it with eh slant, and I could hear the hair cutting... it was like wonderful music playing, in other-words I really enjoy the sound, it&#x27;s an audible treat, along with a wonderful shave.&lt;br /&gt;&lt;br /&gt;I&#x27;ll keep the EJ for those days I want a 5&#x27;O Clock shadow, but the Slant will cut so close you wont need to shave for 2 days! lol&lt;br /&gt;&lt;br /&gt;UPDATE: The Edwin Jagger was found bent at the base plate, I guess I don&#x27;t know my own strength, this has woken me up to the fact that these razors are made with cheap pot metal. I am now looking at the Above the Tie Atlas Slant razor, these are nothing short of art, with Stainless steel precision machined heads and handles.with cheap pot metal. I am now looking at the Above the Tie Atlas Slant razor, these are nothing short of art, with Stainless steel precision machined heads and handles.</li>
+    <li> Wish I had bought this long ago! It&#x27;s been on my wish list for months... I&#x27;ve been using a merkur futur on the most aggressive setting with OK results but just felt unwieldy in my hand and not very precise around my goatee or nose.  This slant blade is shaving nirvana I tell you! It feels absolutely fantastic in your hands and very precise.  I get a much better shave with this than the Futur.  Doesn&#x27;t seem any more intimidating than any other razor I&#x27;ve ever tried. My search for the ultimate razor ends here.... I use with feather blades FYI.&lt;br /&gt;&lt;br /&gt;Update 10/22/2017&lt;br /&gt;Still the King of razors. I bought the Feather razor for $140 thinking it would be even better than this razor. Nope, not even close. This Merkur gives me the best shave.  Take your time, be careful and you&#x27;ll be rewarded with the smoothest shave of your life with no razor burn. Buy it!  Please like this review if you find it helpful.</li>
+    <li> I&#x27;ll try to keep this short &amp; sweet.  I have had Mergress, Futur, Fatboy, Progress and 34c Merkur razors.  This 39c is my favorite now with Gillette Silver Blues or Astras.  It is nothing to be intimidated by, I think it will nick you less than a straight DE razor.  I get the closest shave with the least amount of irritation using this razor.  The handle and weight is great and this is coming from a daily, military service shaving dude.</li>
+    <li> Great product! I was a bit apprehensive after reading some of the reviews, and then actually seeing the slant; kind of gave me pause. After reading that it was called the &amp;#34;sledgehammer&amp;#34; I was really intimidated. But then, after carefully shaving, the first time, with this balanced tool -- I am static. It is now my &amp;#34;daily&amp;#34; razor, I have 3 other DE styles. It handles very well for a heavy weight (4 oz) razor. Just handle it with care (as you should any double edge Razor), and you&#x27;ll love this thing. It looks odd, but it does the job, even trimming a mustache under the nose area. I do use a small amount of pre-shave oil, lather up with a badger brush, and begin the routine every day. No nicks, burns, or irritation. I currently use the Astra Platinum blades. I have yet to use it with the Feathers; that&#x27;s next. It should be even closer then. Finally, I will strongly recommend this razor to anyone who is serious about wet DE shaving.</li>
+    <li> I&#x27;ve been wet-shaving now for about a year. I knew at some point in time I would have to get the Slant Bar razor. All of the research I had done before I began wet-shaving pretty much said the same thing. Get some experience before trying the Slant Bar. The angle of the blade makes it very aggressive, and very easy to take chunks out of your skin. If used correctly though, it will give you one of the closest shaves you can get with a double-edged safety razor.&lt;br /&gt;&lt;br /&gt;When I finally made the leap, I realized two things. One is that the &#x27;reputation&#x27; is well deserved. And two, it does indeed give a &#x27;GREAT&#x27; close shave,</li>
+    <li> A true meat cleaver. Have a Mercur 34 g and it&#x27;s the best razor I ever used. What a difference in products.</li>
+    <li> Good quality but my Parker still gives a closer shave</li>
+    <li> What a razor this is... I purchased it as a test, knowing that I would be able to get my money&#x27;s worth back if I was unhappy with it. I never expected that it would replace the vintage Gillette that had reigned supreme in my cabinet for two years.&lt;br /&gt;&lt;br /&gt;It takes a little getting used to the slant, but the way it shaves is extremely efficient. The extra weight makes it smoother shaving although it does tire your arm a bit until you get used to it. The shaving angle requires some learning as well since it&#x27;s different from other razors, but again this is just a matter of learning.&lt;br /&gt;&lt;br /&gt;If there are any downsides to the 39C, the blade can be a little bit difficult to align when you put it in, the tolerances between the posts and the blade are a bit too big. Using it with an unaligned blade can make for a harsh shave, but get it right and it&#x27;s a joy to use.&lt;br /&gt;&lt;br /&gt;Everyone&#x27;s face is different, if you do buy one of these and don&#x27;t like it then there is a strong aftermarket for them so your money will not be lost. But give it time and I&#x27;m quite sure you&#x27;ll like it</li>
+    <li> I&#x27;m 61 years old, Its wonderful that I can go back to basics &amp; a good shave, instead of buying expensive blades that you can&#x27;t clean. That&#x27;s some racked these company&#x27;s have...Keep on screwing us &amp; thank you.</li>
+    <li> It is tricky to use but gives great shaves if you are careful. I love the Merkur razor lines. They look wonderful. This one is a beast and cool to own. Would not do without even if I do not grab for it first. If i have a couple days growth, this is the one I use. I have a 34C that is my daily razor.</li>
+    <li> I absolutely love this slant razor! As a DE beginner, it took a bit of practice to get my prep and angles right, but as long as you are careful, I think the slant razor is no more dangerous than any other DE shaver. My one advice to rank beginners is not to use this when you are in a hurry! Go for your old cartridge razor when that happens. Other than that, enjoy the ritual ... and enjoy knowing that you own a fine piece of German technology.</li>
+    <li> I am new to wet shaving. I have been using Mach 3&#x27;s for years and got sick of paying for refills. I decided to try wet shaving to save money. I went with DE razors over straight because of the time factor and I shave before work in the morning. I started out with the Lord Long Handle because I didn&#x27;t want to put a bunch of money in right away. I loved wet shaving immediately. The Lord was light and very forgiving. Great starter razor for 10 dollars. I have been looking at the Slant for about 6 months but hesitated because of people saying it was too aggressive. I like the idea of being able to do a good single pass shave in the shower and be ready to go, but still take my time on the weekends and enjoy a good shave. I received this razor as a gift from my wife. I absolutely loved it after the first shave! it is more aggressive, but not overly so. The biggest thing is that it is much heavier than the Lord, with the weight and more blade exposed it requires attention to detail. As long as you go slow at first and you are very careful to just lay the razor on the skin (let it do the work) you will be very happy with the shave. I have a thick beard with very coarse hair that grows faster than average.&lt;br /&gt;&lt;br /&gt;Pros:&lt;br /&gt;1. Very high quality&lt;br /&gt;2. Possible to do a good single pass&lt;br /&gt;3. Cuts several days worth of growth with ease&lt;br /&gt;&lt;br /&gt;Cons:&lt;br /&gt;1. Price&lt;br /&gt;2. I wouldn&#x27;t get it as a first razor&lt;br /&gt;3. Need to relearn technique</li>
+    <li> the sledgehammer is a very nice razor.  it is well balanced, and feels nice in your hand.  the slant  may not be for beginners,  but for  experienced wetshavers  it&#x27;s a Cadillac</li>
+    <li> This is a very good razor. It&#x27;s an aggressive razor based on the fact that it cuts the hairs very close. It&#x27;s not an aggressive such that it will irritate your skin if you use the correct technique. Regarding holding the razor just hold the razor as you hold any other DE razor. The blade in the slant angle will do all the work. I shave using a Feather blade and I don&#x27;t feel any discomfort. Only thing you have to make sure that the blade exposure is correct on both sides.</li>
+    <li> I&#x27;ve been wet shaving for a few years now with a standard razor, decided to upgrade to a slant and could not be happier.  This razor slices through multiple days of beard growth like butter.  Great razor at a great price.</li>
+    <li> Great slant bar razor.  Nice and heavy (which I like) requires no pressure to get a great shave.  I have sensitive skin with course facial hair.  While I still get the occassional nic, I now use this razor everyday in lieu of my other safety razors.</li>
+    <li> WOW!!!!! This is an amazing razor!!!! Cuts my whiskers like butter. It doesn&#x27;t get any better than this. &#x27;Nuff said.</li>
+    <li> The &amp;#34;Sledgehammer&amp;#34;. Very close shave. The closest. If your technique is off, pain and blood. If you think you KNOW how to shave with a DE,&lt;br /&gt;Get this razor and try. Like the song: &amp;#34;Life has made a whole lot of fools, always reach you something you never learned in school. Somebody got to suffer, somebody sure got to feel some pain...&amp;#34;</li>
+    <li> I am totally shocked at such poor manufacturing process and quality assurance inspections, I will give the benefit of the doubt and allow that they have one.  The first unit I ordered (new) arrived, the outside visible parts for the most were nicely polished and plated, there were a few casting defects at the top of the handle but you did have to look for them.  When I separated into the two pieces to insert the blade I noted the blade table and the underside of the dome were very rough, and the plating appeared bubbled.  The major safety concern for me however was on the dome post threads - stripped over three of the threads about a third of the way from the top, the brass (?) showed through where the chrome plating was missing on the damaged threads, and the metal shavings were present on the other threads.&lt;br /&gt;&lt;br /&gt;As over time this would only become worse and allow the dome and blade to float, thus cutting my face instead of my whiskers I process it for replacement.  Amazon was to the rescue, and my replacement arrived in two days.&lt;br /&gt;&lt;br /&gt;I recorded opening the shipping box, the product box, and the outside of the razor.  A few casting issues again on the handle, and the table and underside of the dome, worse than the first one.  Alas, the threads were also stripped but this time in two different places across several threads.&lt;br /&gt;&lt;br /&gt;I have contacted Amazon to just cancel the order.  I wish I could have written a review on the razors performance, I had high hopes and expectations.  Merkur, has failed me with two back to back razors, I hope you have better experience as I will not pursue this model for ownership</li>
+    <li> I didn&#x27;t get the life-changing shave from this that everybody talked about; I didn&#x27;t even get a particularly close shave.</li>
+    <li> Like the weight of this razor.  I use this for multiple day beard growth; very nice</li>
+    <li> The concept of the slant razor is an excellent one. My first shave was smooth and easy and just delightful. This might not be a razor for a first time user, but with a little practice and technique, you will find an excellent shave. Are use either a med prep or bluebird blade with this raiser which does great things.</li>
+    <li> I moved up to the slant after Shaving with the Merkur 180 long handle for 3 years.  Most say that this is not a beginners razor.. And I agree with them. That being said, it is an excellent razor.  I tried the short handle 37c but I prefer the longer handle.. I Like to get a grip with 3 fingers. The only other real slant out there is the ikon and that is like $175 .. All the reviews I&#x27;ve read say that it is comparable to the Merkur (37/39c) but three times the price. Now my best &amp;#34;desert island&amp;#34; shave is 39c, Treet blade, Arko soap.</li>
+    <li> I&#x27;ve been wet shaving for about 9 months and switched from the Merkur 34C to the slant about a month ago.  If you have a tough beard, and have trouble getting a close shave even with a few passes, this is the razor for you.  There is a significant learning curve however, and attention to good shaving technique is a must.  If successful, you will be rewarded with the closest shave and less irritated skin.  I do have a few pointers after some experimentation and many nicks.  One, warming your face with hot towel and using a pre-shave lotion makes the beard hairs easier to shave.  Two, limiting the passes with each stroke to only two and keeping the skin taught helps. Make sure not to go too fast, and let the weight of the razor do the work.  I do three directions, WTG, perpendicular to grain and ATG(sort of).  I  have found that it is best not to go &amp;#34;hard&amp;#34; against the grain and change the angle of the approach slightly if I feel any tugging.  I also do a last &amp;#34;touch up&amp;#34; in certain areas after feeling for any roughness with my fingers, but limit these areas to one pass.  After all this, a nice splash of cold water and you are good to go.</li>
+    <li> The Merkur 39C performs a shave of a true gentleman; purely luxurious shaves can be achieved with this razor with a little prior technique and experience with a DE razor. If you are ready to take the next step in the pursuit of perfection DO NOT FEAR THIS RAZOR it is an absolutely amazing performer.</li>
+    <li> Buy this razor!  I have a medium beard and medium sensitive skin ... It&#x27;s a pussycat.&lt;br /&gt;&lt;br /&gt;I started with a Edwin Jagger DE89 a year ago.  It took a little adjustment but I liked it very much.  I bought the Utopia DE razor for less than $10 just for the longer, textured handle that I used on the EJ89.  I began to get frustrated with trying to get a good trim around the sideburns and nose, etc.  I thought I would like a razor that is a little more &amp;#34;open&amp;#34; between the blade and the safety bar to get a little closer on the heavier chin beard.  The Utopia was a little more open, but the engineering was poor.  The razor would sit crooked, and even with tedious alignment, it was inconsistent.&lt;br /&gt;&lt;br /&gt;After some research, I decided to try the Murker Slant Razor.  When it arrived I thought, &amp;#34;Holy smokes!  This could get ugly fast!&amp;#34;  After the first try, I was hooked.  Because I had use the Edwin Jagger as a &amp;#34;trainer&amp;#34; razor, I knew to be extra light on the touch.  My beard melted with little effort.  By evening, I still looked relatively fresh.  Most of the time, I go an extra day between shaves.  Even though I didn&#x27;t need it, I shaved everyday for a week.  This is normally a disaster because I get shave rash and ingrown beards.  Not in this case.  It&#x27;s easy to get around tough places like the nose.  I get an easy, straight cut for sideburns, and a baby smooth finish.  I use Dorco 301 blades and Van Der Hagen glycerin shave soap.  I find the glycerin more forgiving that the Van Der Hagen Deluxe version.  Highly recommend the Merkur Slant razor, even for sensitive, light beards.  However, I would recommend several months with a trainer, like the EJ89, first.</li>
+    <li> The Merkur 37c is an amazing slant razor that every wet shaver has to have.  However, if you find the handle to be too short, then the 39c is the razor for you.  Same slant head as the 37c, but with a nicer, longer, handle.  As an everyday shaver, you won&#x27;t notice much of a difference with a slant.  In fact, as there is typically more blade exposure on a slant razor, you may cut yourself without knowing.  A slant razor really differentiates itself from the pack when you need to tackle 2 or more days worth of beard growth.  Because a slant cuts in a slicing motion, it allows for a more closer shave in less passes.  Most will deem a slant a more aggressive razor.  I tend to disagree with that statement because I feel the blade you use is what determines a razor&#x27;s aggressiveness.  Overall, I highly recommend the 39c or 37c razor.  Don&#x27;t be bought in by those overpriced slant razors as they perform no better than the Merkur slant.</li>
+    <li> I had heard that these were &amp;#34;very aggressive&amp;#34; so I stayed clear for a year or so and bought 3 other &#x27;normal&amp;#34; DE razors.  In reality this razor is not overly aggressive just very efficient as it slices instead of chopping.  During one shave with a new blade I  actually looked to see if I had actually installed the blade because it was so smooth.  I am glad that I had bought a &amp;#34;normal &amp;#34; DE razor before;  if I had not I would not have had a comparison.&lt;br /&gt;The other razor you need is a Merkur 37C Slant;  same principle, just a bit shorter and lighter.</li>
+    <li> Great shave, slices through stubble with much more ease than the merkur futur I&#x27;ve used for years.</li>
+    <li> Until now I hated shaving! I bought the fancy multi-blades, flirted with electrics, wore a beard for many years, even relished the respite of chemo: I was too tired to shave but didn&#x27;t have to bother because I had no-hair days. Never could figure out what I was doing wrong.&lt;br /&gt;&lt;br /&gt;So what made me buy this razor?  I figured it this way: either shave properly or not all. I just needed to find out how. My guess is that those who think they look cool looking like porcupine wannabes probably don&#x27;t know how to shave. Never too late to learn. I had heard DEs were good and Merkurs were better still. So I ordered this one and a 50 package of Feather blades. Still cheaper than one of those multi-blade jobs and a years supply of their blades. Watched the YouTubes on using a DE (a real smart thing to do) and waited until my package showed up.&lt;br /&gt;&lt;br /&gt;First time out I had two very small nicks. Not unusual, but I immediately noticed that my shave was very smooth. Much smoother than I&#x27;ve ever had. Slow light and careful. The blades are really sharp. Make sure the blade is tightened down. No pressure;doesn&#x27;t need any. Take your time and keep your digits away from the blade.&lt;br /&gt;&lt;br /&gt;I&#x27;m nearly a week in and I actually look forward to shaving. Really! No irritation, still on my first blade and the shave lasts the day. How cool is that?&lt;br /&gt;&lt;br /&gt;UPDATE: The more I use this razor, the better I appreciate just how well it is designed. Solid and reliable--mine doesn&#x27;t rattle. Remarkably easy to use. I&#x27;d buy another in a heartbeat, but I don&#x27;t think I&#x27;ll need to in the next decade or two!</li>
+    <li> This razor is in my top 3 favorite razors. With a two pass shave, it is baby butt smoothe and I have a very thick Italian/Arabic beard. Absolutely fantastic, I would also suggest the Merkur Futur as well. Shipping from this buyer was very quick.</li>
+    <li> I purchased this razor from off-site but thought that the feedback here would be read more.  This is great razor and it really is smoother than the Merkur 180 (23C) because of the blade angle.  I like the longer handle and the weight of the razor but that is personal preference. You may want the Merkur 37C (short handle) if you like that feel in your hand.  If you are new to double edge shaving then this is probably not the razor you want to learn on but the one you will want to keep after you have tried it.  The blades are easy to exchange and the razor is of excellent German quality.  Like most of double edge shaving it is dependent on your personal knowledge and your physical characteristics.  That being said I believe the double edge slant blade is just a better design than the normal straight bar razor and that there are scientific reasons why.  Just think of the Scottish Maiden verses the improved guillotine or the slicing action of a knife verses the crushing of an axe.  When one slices with a knife you move the blade in two directions at one time (normally away and down through the item being cut).  This places the actually cutting at one single point on the edge of blade and uses less effort.  The same happens with this razor (although the physics of how this happens is different).  If you want go to the next level of double edge shaving this is it.  Try it . . . you will like . . . I do not think you will not be disappointed.</li>
+    <li> I&#x27;ve used several different types of DE safety razors over the years, from vintage Gillette razors such as the Fat Boy, Slim Adjustables, Super Speed, Aristocrat, etc. to modern Merkur razors such as the 34c, Futur, or 1904 model razors. None, however, have matched the smoothness or closeness of shave that I&#x27;ve gotten from the Merkur 39c.&lt;br /&gt;&lt;br /&gt;A little bit about my shaving experiences and skin type. I would describe myself as being fair-skinned with a fairly thick beard and medium or average hair thickness. After changing from modern razors such as the Mach 3 or Fusion, I&#x27;ve come to realize that the grain of my beard grows generally north to south except for the bottom of my neckline which grows from the vertical center line of my neck towards my ears. The neckline is by far the biggest challenge as far as shaving goes. Although I&#x27;ve received great shaves from many other DE razors and blade types in the past, I seemed to always have trouble with my neck (it seemed as if I either didn&#x27;t shave these areas smoothly or I would end up with nicks and weepers in these areas).&lt;br /&gt;&lt;br /&gt;I can confidently say, since purchasing and changing to this particular slant razor, I have never used a DE razor with better results and less irritation. The slicing action that the blade uses as a result of the angle of the razor head makes a huge difference in the ease in which the razor glides across my skin and efficiently cuts through the hair. With some of the more aggressive DE razors (open comb, adjustables set to high blade gap) I experienced tugging often during passes against the grain, but with the same blade in this slant bar razor, I experience none. As a result, I get far fewer nicks or cuts, and much less razor burn. The closeness of the shave, in my opinion, is up there with some of the most &amp;#34;aggressive&amp;#34; razors out there. Keep in mind that aggressiveness, to me, is the closeness of the shave, not the harshness of the shave.&lt;br /&gt;&lt;br /&gt;Beginners, don&#x27;t be afraid to try this razor. Sure, you need good technique (as you need to learn from any DE razor if you&#x27;re starting out), but the learning curve isn&#x27;t all that much different than any other typical razor. The weight of this razor is all you&#x27;ll need to get a close shave. For those of you that are more experienced with DE razors and might be looking to buy their first slant, you definitely need to give these a shot. My only negative about this razor would be the &amp;#34;barber pole&amp;#34; engraving along the handle. I&#x27;ve grown accustomed to the knurling that most vintage razors have along the handle, so the smoother finish combined with the heftier handle made gripping the razor slightly more difficult at first. After a few shaves, I don&#x27;t notice this as much. The finish on the rest of the razor is good (albeit not as good as some of the Edwin Jagger or Muhle razors I&#x27;ve owned), but if you&#x27;ve owned a Merkur razor in the past, there will be no surprises here. At the end of the day, I&#x27;m interested in the quality of the shave first and the &amp;#34;looks&amp;#34; of the razor second.&lt;br /&gt;&lt;br /&gt;In summary, I&#x27;ve been very pleased with the Merkur 39c, and it ranks up there as the best razor I&#x27;ve ever used and the best shave I&#x27;ve had so far.</li>
+    <li> I&#x27;ve owned several razors and this one beats them all.</li>
+    <li> They don&#x27;t call it the sledgehammer for nothing.  Smooth Shaver that glides through even the toughest face hairs.  I would recommend this over the 37c (which is still an excellant Slant Razor) since this has the barber pole handle and extra weight to slide through a three day thick beard like it was hot butter.  High quality product from Merkur, a german made Razor that lives up to it&#x27;s name and heritage (Hoffritz).</li>
+    <li> Great razor! The 39C/Sledgehammer lives up to it&#x27;s name. Very easy to use and has ample weight to take care of any beard. Don&#x27;t be psyched out by people saying this is too difficult to use, too aggressive, etc. It works great! I have experimented with blades on this and I am very pleased with Bolzano Blades in this razor. They really work for me! Opinions about blades, DE Razors, etc. can go on all day. That is the best combo I&#x27;ve found for myself. Very close shave, no razor burn, no irritation. I f you are looking for a great razor, you need to try this. Quality, price-point, close shave time and time again, very happy with my purchase</li>
+    <li> This razor rocks! Some say it&#x27;s very aggressive but I say it&#x27;s more efficient than aggressive.  Works well for me and I wanted a barber pole for the collection. glad I chose the slant bar! I&#x27;ve been reading up on them for quite awhile. so if ya haven&#x27;t tried it give it a shot it might just be a pleasant surprise for you too....</li>
+    <li> great razor I have had mine for about 2 years now and it still looks like the day I bought it. solid and a nice weight.</li>
+    <li> Excellent razor but not one for the inexperienced DE shaver. Provides excellent reduction on first WTG pass. Weight, balance and feel is fantastic. Highly recommend as a second razor.</li>
+    <li> Best Razor I have own, and man 100 blades for less that ten bucks.... When you go Merkur all others razors are just plastic toys</li>
+    <li> I got mine today, and WOW! It shaved so close but oh so comfortable. I shave my face and my head without a nick or weeper. After you get the angle down it&#x27;s a piece of cake. Best razor I&#x27;ve used thus far. I did 2 passes with the grain. No need to go across the grain. Very surprised and pleased. I also own the future razor and a murkur 38 barber pole.GREAT RAZOR! My second choice was the ikon slant. But I thought why spend that kind of money on a razor I know nothing about (165.00)</li>
+    <li> This razor is awesome. Requires a very gentle touch. It will give you a incredible close shave. This razor will be your favorite razor. I would suggest this razor for an experienced shaver.</li>
+    <li> The Merkur 39C Slant Bar is an outstanding shaver that offers you a lot of versatility in your morning shave routine.  The Slant is nothing to be intimidated by for new shavers and you very quickly get the feel for this shaver.  It glides gently on the neck and cheek while cutting in admirably in trouble areas such as the jaw line, upper lip/nose area and along sideburns and down the back of one&#x27;s neck/collar area.  The length is long for a safety, but for my large hands I found it just enough.  I bought this as an alternative to my regular shave routine for those mornings that I don&#x27;t have enough time to indulge in a straight razor shave and found it to be an excellent partner.  It is a two piece razor, but it is a breeze to change the blade which sets straight and ready to shave with no fussy need for re-adjustments.  The \\&quot;barber pole\\&quot; end is a nice aesthetic touch that doesn&#x27;t get in the way, but I did not find it much of a bonus for achieving angles as some reviewers have.  The shaver is easy to hold on to with wet or soapy hands, but it does have considerable heft which I like.  The \\&quot;serrated\\&quot; comb, thought not truly an open comb is nice as it doesn&#x27;t pull away all your soap before the razor&#x27;s pass which, as predominately a straight razor shaver, I also prefer.&lt;br /&gt;&lt;br /&gt;It is definitely a real money saver and gives a much closer, more comfortable shave than cartridge razors.  If you are looking to move into wet shaving and want a safety shaver with some weight to it this is a great, trouble free razor to start with.</li>
+    <li> This item shipped promptly and is as described.  I am not a new-comer to DE shaving, it has been my preferred method for a few years now. I bought this razor on the recommendation of a friend and have had mixed results with its use.  Generally this razor offers a very close shave, but it is impossible for me to comfortably shave my neck with it, many nicks and much irritation which does not occur with my usual razor of more conventional design.  The somewhat radical design is aggressive and takes a little getting used to, I would not recommend this razor to a neophyte DE shaver.  DE shaving is a very personal and individual activity, my low rating is not a condemnation of the razor itself but rather a rating of my personal results with its use.</li>
+    <li> This is my go to razor for &amp;#62;2 day hair growth.  LOOKS and FEELS great.  A little aggressive for an every day shaver.</li>
+    <li> This is quickly becoming my favorite razor.  As a senior citizen who has used double edge razors for most of my life I have a number of different razors I have used over the years, but nothing shaves me as close as this one.  One of the on-line reviews of this razor said that it makes virtually any blade look good.  I find I agree with this statement.  The Merkur blade that came with it did a fantastic job.  I&#x27;m now trying a cheap Dorko blade.  Even that one gives excellent shaves so far.  I look forward to trying out all the other blades I have to see if I get the same results, but so far I am very pleased with this razor.  As others have noted, one has to be very careful with this more aggressive razor, but for an experienced shaver I think this may be the best there is.</li>
+    <li> Slant bar razors are not something new.  When I bought this one, I retired it&#x27;s predecessor which I bought from a cutlery chain in New York City called Hofritz in 1967.  I suspect that it was made by Merkur for Hofritz.  In any case, slant bar razors give a noticeably better shave than regular safety razors.  Because of the slanted head, the blade comes down at an angle and slices through the hairs rather than chopping through them.  It gives a smoother shave and the blades have a longer life too.&lt;br /&gt;&lt;br /&gt;A couple of tips, until you get used to the handling, avoid using a lot of pressure on the razor. Stretch the skin you are shaving, its a big help in avoiding nicks and be sure to rinse the shaver in hot water after you are done.  The build up of hair cuttings and shaving cream on the blade dries like sandpaper and will ruin a blade after a couple of shaves.</li>
+    <li> Do not be intimidated from the slant, yes, this razor is aggressive as noted and has a larger blade gap to the comb, however, the shave is incredible, I own another Mercur but this one is as close to a straight razor you can get. Use any  cream: Creamo, Porazo or Taylor&#x27;s, you will not be disappointed.  The mere weight of the razor will give you a nick free shave with only two passes if you have used a DE shaver before.</li>
+    <li> Design not at all to my liking. When shaving my buzz shaved head, numerous cuts on scalp.  couldn&#x27;t find a position for a cut free shave.</li>
+    <li> I got a good shave with it but not sure if the slant really provided anything of value.  I was expecting a more comfortable shave given the slicing motion in the design but it&#x27;s closeness and comfort was no better than any other DE razor.  Still, Merkur makes a quality razor and it&#x27;s well made and balanced.</li>
+    <li> If you are looking at this DE shaver then you most likely did your homework already. If not, check out the links below and buy it already!&lt;br /&gt;&lt;br /&gt;[...]&lt;br /&gt;&lt;br /&gt;[...]</li>
+    <li> Absolutely the best safety razor I own. Brilliant design and engineering. I can get a ridiculously smooth shave with two passes and the irritation is very minimal for such a close shaver. I wouldn&#x27;t call this aggressive, just extremely efficient at what it is designed to do: slice whiskers instead of chop them. I know some people think the slant design is just hype.  I honestly can&#x27;t see their point if view. The physics just make sense and I can feel and see the difference. It&#x27;s going to be hard to put this razor down and use my other open comb razor and gillette tech again.</li>
+    <li> This is a big heavy razor with a long handle, which is why it&#x27;s called the sledgehammer. But the weight aids in not applying any pressure to your face when you shave. A quality razor that may take getting used to especially if you have been using other lighter weight de razors.</li>
+    <li> Love the slant razor - gives me a better (and more aggressive) shave than my Edwin Jagger. Beware that technique is extra important with this slant, as it cuts more aggressively and you can get some serious irritation if you don&#x27;t use extremely light pressure. I get the closest shave I&#x27;ve ever gotten with the razor, and with the least irritation.</li>
+    <li> As a new DE shaver, I was a bit apprehensive about using a slant.  However, I find it quite easy to use.  I use Feather Brand blade and Merkur blades. I also use a pre-shave oil with either a quality cream or soap. I have had good luck after the initial week of learning but all has turned out good.  I also have two other Merkur products and alternate between them depending on time allotted for completing my morning shave.  I am quite happy and will purchase several other Merkur razors.</li>
+    <li> Perfect! great workmanship. shaves wonderfully! should have started with this years ago.</li>
+    <li> Great razor but not as aggressive as I thought</li>
+    <li> Known as the &amp;#34;Sledgehammer&amp;#34;. The slant bar increases the aggressiveness. Still learning my technique. I use my 38C for most of my shave and the sledgehammer for my trouble spots with excellent results. The longer I own it the more of my shave is completed with the slant. Nice heft and nice knurling on the handle. Very pleased. Good results with persona blades.</li>
+    <li> just finished my first shave with my new &#x27;Sledgehammer&#x27;... a bit quirky, a bit non-standard, but the fit and finish was just fine (no evidence of bad QC underneath the head...&lt;br /&gt;&lt;br /&gt;like others have mentioned, this is a &#x27;rattler,&#x27; due to the loose head-tightening mechanism in the handle... and you will NOT be able to swap out the head - this is a TWO-PIECE razor... the base plate remains fixed to the handle - only the top cap separates - not a problem for me...&lt;br /&gt;&lt;br /&gt;the shave? don&#x27;t be intimidated by the slant or blade exposure - i got a great two-pass shave with my made-in-Verona, Va. Personna blue blade... just take it slow, let the weight of the razor do the work... i liked the balance... out of my seven razors, only one &#x27;bites&#x27; me every time (Parker A1R travel), and another once (Razorock &#x27;Jaws&#x27;)... my others, a Parker 99R, a Utopia silver, and two Webers, all give great shaves with little worry or care..&lt;br /&gt;&lt;br /&gt;this is a curious character of a razor...  it&#x27;s not the dog&#x27;s bollocks, but it&#x27;s fun enough to get the job done!</li>
+    <li> Arrived on time and packaged well. Works very well. Gives a nice close shave</li>
+    <li> This is my third safety razor and was a little hesitant to buy the razor because of the aggressive blade exposure.  I have been using safety razors for the past 7 months and have had no issues it just takes a little extra prep but the shave is worth the time. The Merkur 39C is a very fine razor.  The quality of the razor is everything that was advertised.  I did 2 passes and the shave was close and comfortable.  Great razor I will buy another Merkur in the near future.</li>
+    <li> Love, Love, Love this razor.  A few things to consider.  The weight of this razor is pretty hefty, thus the nickname the sledgehammer.  Don&#x27;t let that scare you.  I like a hefty razor because it takes the guesswork out of trying to figure out pressure.  I let the razor do the work and I just hold the handle.  This razor is aggressive, but nothing that good technique can&#x27;t handle.  If you are new to wet shaving, just take your time.  There are variables to work out and even the most seasoned wet shaver doesn&#x27;t always get the perfect lather.  Don&#x27;t be afraid of a second or third pass.  I think where too many nick themselves is when they are trying to push the razor too hard against their face to shave more quickly or more comprehensively.  Either way you are guaranteeing yourself some blood and pain.  I use this razor to shave my head and my face and have yet to nick either.  I take my time, but I wouldn&#x27;t consider myself slow.  I shave my head in about 10 minutes or so (2 to 3 passes), and my face in 5 (usually 3 passes).  I prefer Derby blades because I have sensitive skin, so Derby blades are more forgiving if I go over the same area too many times.  It seems from reading reviews that Derby&#x27;s are a love or hate relationship.  I recently started using them and they make a great pair with this razor.  I also think that (against conventional thought) often it is a razor/blade pairing that makes the shave and not just one type of blade or one type of razor.  I have other DE Safety razors and use Feather blades in them.  Just depends on the razor and your skin.  Also have become a recent lover of Arko shave soap (the stick).  It is one of the cheapest and thickest creams I have used so far.  I enjoy the &amp;#34;artsy&amp;#34; side of DE shaving, but it can dig into your wallet pretty deep if you are not careful.  I switched to DE shaving because of spending time overseas, and if you think cartridge blades are expensive here, try buying them outside of the country.  Good luck and hope you enjoy this razor!</li>
+    <li> Might I start out by saying this razor is heavy, I was using a merkur 180 long handle before I got this and a 39c weighs about twice as much.  I shaved with this last night after I received  it. I did a 3 shave pass 2 with the grain and one across the grain.  I ended up with 2 little nicks. I attribute those to not respecting the combination of 39c and feather blade as much as I should have. Even after I would shave with the 180, i would still look like i had a shadow , no many how passes I did. When I came out freshly shaved after using the slant my wife commented that it left no facial hair showing except for my goatee.&lt;br /&gt;&lt;br /&gt;Definitely making this my go to razor</li>
+    <li> Great second DE Safety razor. I started out with a Merkur 38C and got my technique down. Just shaved with this razor loaded with a feather blade and it was a super smooth shave. Even smoother than the 38C with a feather. Use very light pressure and take your time as it is not as forgiving as a straight bar.</li>
+</ol>
+
+
+
+

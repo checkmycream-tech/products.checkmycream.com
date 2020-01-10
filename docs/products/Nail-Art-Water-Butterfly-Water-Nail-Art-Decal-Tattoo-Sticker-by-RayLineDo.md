@@ -1,0 +1,70 @@
+---
+title: Nail Art Water Butterfly Water Nail Art Decal / Tattoo / Sticker by RayLineDo,
+description: Nail Art Water Butterfly Water Nail Art Decal / Tattoo / Sticker by RayLineDo,
+author: Suvojit Manna,
+tags: Nail Art Water Butterfly Water Nail Art Decal / Tattoo / Sticker by RayLineDo,
+publishedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
+---
+
+# [Nail Art Water Butterfly Water Nail Art Decal / Tattoo / Sticker by RayLineDo](https://products.checkmycream.com/products/Nail-Art-Water-Butterfly-Water-Nail-Art-Decal-Tattoo-Sticker-by-RayLineDo.html)
+
+### Positive Reviews
+
+<ol>
+      <li>These are great.</li>
+      <li>loved these are easy to use and make wonderful designs on your nails</li>
+      <li>I Gave this to my daughter, she liked them alot</li>
+      <li>Daughter loved these they are Pretty nail decals!!</li>
+      <li>so i guess i will be ordering more</li>
+      <li>I love this nail art.</li>
+      <li>Love them.  </li>
+      <li>Love it very cute thanks a lot</li>
+      <li>Easy to use and</li>
+      <li>Pretty  love this</li>
+      <li>You need a delicate hand to apply but they come out beautifully.</li>
+      <li>Took a little while to get but very well worth the wait.</li>
+      <li>I have them on my nails with clear studs.  </li>
+      <li>Due to customs shipping takes longer than expected but pretty</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> These are great.</li>
+<li> loved these are easy to use and make wonderful designs on your nails</li>
+<li> I Gave this to my daughter, she liked them alot</li>
+<li> Daughter loved these they are Pretty nail decals!!</li>
+<li> so i guess i will be ordering more</li>
+<li> I love this nail art.</li>
+<li> Love them.  </li>
+<li> Love it very cute thanks a lot</li>
+<li> Easy to use and</li>
+<li> Pretty  love this</li>
+<li> You need a delicate hand to apply but they come out beautifully.</li>
+<li> Took a little while to get but very well worth the wait.</li>
+<li> I have them on my nails with clear studs.  </li>
+<li> Due to customs shipping takes longer than expected but pretty</li>
+<li> very small but pretty</li>
+<li> These decals were dried up and wouldn&#x27;t stick properly to my nails.</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> Took a little while to get but very well worth the wait. I love this nail art.</li>
+    <li> loved these are easy to use and make wonderful designs on your nails</li>
+    <li> Do not buy looks nothing like the picture Looks like tiny pin drops</li>
+    <li> Love it very cute thanks a lot</li>
+    <li> Daughter loved these they are Pretty nail decals!! Due to customs shipping takes longer than expected but pretty item! Lasts a while too.</li>
+    <li> Love them.  Easy to use and just what I saw was what I got.</li>
+    <li> These are great. You need a delicate hand to apply but they come out beautifully.</li>
+    <li> Pretty  love this I have them on my nails with clear studs.  I get a lot of compliments</li>
+    <li> These decals were dried up and wouldn&#x27;t stick properly to my nails.</li>
+    <li> I Gave this to my daughter, she liked them alot so i guess i will be ordering more</li>
+    <li> very small but pretty .from china will not do that again.good price though.</li>
+</ol>
+
+
+
+

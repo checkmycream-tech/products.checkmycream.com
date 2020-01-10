@@ -1,0 +1,300 @@
+---
+title: Winstonia 8pcs Set Double Ended 10 Size Dotting Tools Sable Detailing Painting Brushes Pen Kit,
+description: Winstonia 8pcs Set Double Ended 10 Size Dotting Tools Sable Detailing Painting Brushes Pen Kit,
+author: Suvojit Manna,
+tags: Winstonia 8pcs Set Double Ended 10 Size Dotting Tools Sable Detailing Painting Brushes Pen Kit,
+publishedAt: Fri Jan 10 2020 15:00:32 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:32 GMT+0530 (India Standard Time),
+---
+
+# [Winstonia 8pcs Set Double Ended 10 Size Dotting Tools Sable Detailing Painting Brushes Pen Kit](https://products.checkmycream.com/products/Winstonia-8pcs-Set-Double-Ended-10-Size-Dotting-Tools-Sable-Detailing-Painting-Brushes-Pen-Kit.html)
+
+### Positive Reviews
+
+<ol>
+      <li>impressed.</li>
+      <li>These arrived on time and in perfect condition.  </li>
+      <li>I&#x27;m very happy with my purchase!</li>
+      <li>Sturdy and a really a great gift for someone!</li>
+      <li>It&#x27;s perfect.</li>
+      <li>So happy when it arrived!</li>
+      <li>just amazing!!!</li>
+      <li>awesome product</li>
+      <li>The dotting tools snd brushes both work great!</li>
+      <li>Ive been very happy with this set!</li>
+      <li>it came in perfect condition thank you</li>
+      <li>It was shipped in a timely manner and when I opened the package, it was perfect!  </li>
+      <li>The dotting tools are excellent!</li>
+      <li>It works wonderfully , give me a lot of choices for my design!  </li>
+      <li>Awesome value!</li>
+      <li>WONDERFUL - WILL DO BUSINESS AGAIN!  </li>
+      <li>PERFECT TOOLS FOR HER AS A NAIL ARTIST</li>
+      <li>Perfect!</li>
+      <li>These dotting tools, paint brushes &amp; carrying pouch are wonderful.</li>
+      <li>my sis is gonna love it!!!</li>
+      <li>AND SHE LOVED IT!  </li>
+      <li>These are great for the price</li>
+      <li>Great tools, not flimsy but well made.</li>
+      <li>I&#x27;m happy.</li>
+      <li>Great price and shipped from US.  </li>
+      <li>but they work great.</li>
+      <li>Great price for great items.</li>
+      <li>These dotting tools are great, they are what the pros at the fancy schmancy nail salons use.</li>
+      <li>, these are working great for me</li>
+      <li>Great products for nail art designers.</li>
+      <li>and it worked great.</li>
+      <li>I&#x27;m absolutely happy with the entirety of this order.</li>
+      <li>The assortment of tip sizes is great, and clean-up appears to be a snap.  </li>
+      <li>great quality!&lt;br /&gt;&lt;br</li>
+      <li>Great price &amp;</li>
+      <li>It&#x27;s a great purchase</li>
+      <li>Great Quality.</li>
+      <li>use these for nail art, so if your looking for detail brushes these work great.</li>
+      <li>but you don&#x27;t need them to be for great results IMO.</li>
+      <li>very nice kit.  </li>
+      <li>All comes in a nice zipper case too!</li>
+      <li>my daughter loved them, great price</li>
+      <li>The material quality was great and the brushes were good as well.</li>
+      <li>Also shipping was good, I ordered them Monday and they came Friday</li>
+      <li>I loved it.</li>
+      <li>For this price, they were so good.</li>
+      <li>They don&#x27;t fall apart and were shipped in good packaging</li>
+      <li>Everything is good quality</li>
+      <li>i&#x27;m not an expert, but im good at painting my nails.</li>
+      <li>i loved this kit.</li>
+      <li>The brushes are a good beginner set.</li>
+      <li>This is a really good, versatile set.</li>
+      <li>Brushes are good quality and have not lost any hairs.</li>
+      <li>The pouch is great for tidy storage, or if you&#x27;re like me and keep your tools in a cup, you can use it for storing something else.</li>
+      <li>I am very pleased with this purchase.  </li>
+      <li>Both were very pleased with them although they haven&#x27;t had a chance to use them yet.</li>
+      <li>The variation in size on the dotting tools is great, and the teeniest one has become a very useful tool for cleaning up errors as well!</li>
+      <li>but all the dotting look great, the brushes are not frayed, the bag that it comes with is cute, and it even came with a nice nail file.</li>
+      <li>I love it!</li>
+      <li>I love this set!</li>
+      <li>I love it!</li>
+      <li>BUT I love!</li>
+      <li>Easy to use and the case is really great to keep them all together.</li>
+      <li>For me, these were easy to use and a great quality.</li>
+      <li>The dotting tools and brushes work great and are really easy</li>
+      <li>Bought these tools to create my own pedicure art &amp; love them!</li>
+      <li>these are truly amazing</li>
+      <li>Honestly, it&#x27;s a well made</li>
+      <li>Everything fits in it perfectly &amp; it&#x27;s nice &amp; slim, so I can take it anywhere.</li>
+      <li>Nice substantial file that will be utilized to &#x27;sand&#x27; gum paste &amp; pastillage edges...</li>
+      <li>so re-dipping is kind of a pain, but gets the job done eventually.</li>
+      <li>a deluxe salon-quality nail file/buffer&lt;br /&gt;I</li>
+      <li>Glad I read the good reviews these had and went with them.</li>
+      <li>Nice variety of dotting tips.</li>
+      <li>The brushes and dotting tools are of good quality, and I love the bag they came in as well.  </li>
+      <li>The dotting tool are really nice button</li>
+      <li>It will effectively aid you me in all of my nail art ideas.</li>
+      <li>Although I have not yet tried the brushes, I felt it is a great price,and it arrived quickly.</li>
+      <li>This  was a present for my niece, se loved it and said that they worked well and was very happy with them.</li>
+      <li>They smell very strong of paint.</li>
+      <li>These doting tools are also very pretty and the storage bag is great.</li>
+      <li>Arrived early and in perfect condition.</li>
+      <li>Very nice STRAIGHT MOUNTED brush tips!!</li>
+      <li>Super happy with my purchase :)</li>
+      <li>I love doing my own nail art and my daughters, these are perfect, sturdy, strong, &amp; professional.</li>
+      <li>fast shipping and beautiful satin case including all the items; dotting tools, 3 brushes and a nail file.</li>
+      <li>They come in a very nice case that I don&#x27;t use just because I have 1 specific place where I put all my nail art tools, but it is very nice.</li>
+      <li>Really easy to use and comes with a handy pouch to keep them all in.  </li>
+      <li>Will enjoy these four many years to come!</li>
+      <li>I used it every week to paint my nail, and i love it.</li>
+      <li>I love it</li>
+      <li>I love that it came in a bag</li>
+      <li>The brushes are ok.</li>
+      <li>I also love the bag they come in.</li>
+      <li>These dotting tools and brushes help make perfect circles in 10 different sizes!</li>
+      <li>My favorite hobby is my &amp;#34;me time&amp;#34;</li>
+      <li>It came with a free gift, too!</li>
+      <li>I absolutely love the dotting tools.</li>
+      <li>already I can&#x27;t wait to use it more</li>
+      <li>I love the dotting tools as they work well and have a variety of sizes.  </li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> impressed.</li>
+<li> These arrived on time and in perfect condition.  </li>
+<li> I&#x27;m very happy with my purchase!</li>
+<li> Sturdy and a really a great gift for someone!</li>
+<li> It&#x27;s perfect.</li>
+<li> So happy when it arrived!</li>
+<li> just amazing!!!</li>
+<li> awesome product</li>
+<li> The dotting tools snd brushes both work great!</li>
+<li> Ive been very happy with this set!</li>
+<li> it came in perfect condition thank you</li>
+<li> It was shipped in a timely manner and when I opened the package, it was perfect!  </li>
+<li> The dotting tools are excellent!</li>
+<li> It works wonderfully , give me a lot of choices for my design!  </li>
+<li> Awesome value!</li>
+<li> WONDERFUL - WILL DO BUSINESS AGAIN!  </li>
+<li> PERFECT TOOLS FOR HER AS A NAIL ARTIST</li>
+<li> Perfect!</li>
+<li> These dotting tools, paint brushes &amp; carrying pouch are wonderful.</li>
+<li> my sis is gonna love it!!!</li>
+<li> AND SHE LOVED IT!  </li>
+<li> These are great for the price</li>
+<li> Great tools, not flimsy but well made.</li>
+<li> I&#x27;m happy.</li>
+<li> Great price and shipped from US.  </li>
+<li> but they work great.</li>
+<li> Great price for great items.</li>
+<li> These dotting tools are great, they are what the pros at the fancy schmancy nail salons use.</li>
+<li> , these are working great for me</li>
+<li> Great products for nail art designers.</li>
+<li> and it worked great.</li>
+<li> I&#x27;m absolutely happy with the entirety of this order.</li>
+<li> The assortment of tip sizes is great, and clean-up appears to be a snap.  </li>
+<li> great quality!&lt;br /&gt;&lt;br</li>
+<li> Great price &amp;</li>
+<li> It&#x27;s a great purchase</li>
+<li> Great Quality.</li>
+<li> use these for nail art, so if your looking for detail brushes these work great.</li>
+<li> but you don&#x27;t need them to be for great results IMO.</li>
+<li> very nice kit.  </li>
+<li> All comes in a nice zipper case too!</li>
+<li> my daughter loved them, great price</li>
+<li> The material quality was great and the brushes were good as well.</li>
+<li> Also shipping was good, I ordered them Monday and they came Friday</li>
+<li> I loved it.</li>
+<li> For this price, they were so good.</li>
+<li> They don&#x27;t fall apart and were shipped in good packaging</li>
+<li> Everything is good quality</li>
+<li> i&#x27;m not an expert, but im good at painting my nails.</li>
+<li> i loved this kit.</li>
+<li> The brushes are a good beginner set.</li>
+<li> This is a really good, versatile set.</li>
+<li> Brushes are good quality and have not lost any hairs.</li>
+<li> The pouch is great for tidy storage, or if you&#x27;re like me and keep your tools in a cup, you can use it for storing something else.</li>
+<li> I am very pleased with this purchase.  </li>
+<li> Both were very pleased with them although they haven&#x27;t had a chance to use them yet.</li>
+<li> The variation in size on the dotting tools is great, and the teeniest one has become a very useful tool for cleaning up errors as well!</li>
+<li> but all the dotting look great, the brushes are not frayed, the bag that it comes with is cute, and it even came with a nice nail file.</li>
+<li> I love it!</li>
+<li> I love this set!</li>
+<li> I love it!</li>
+<li> BUT I love!</li>
+<li> Easy to use and the case is really great to keep them all together.</li>
+<li> For me, these were easy to use and a great quality.</li>
+<li> The dotting tools and brushes work great and are really easy</li>
+<li> Bought these tools to create my own pedicure art &amp; love them!</li>
+<li> these are truly amazing</li>
+<li> Honestly, it&#x27;s a well made</li>
+<li> Everything fits in it perfectly &amp; it&#x27;s nice &amp; slim, so I can take it anywhere.</li>
+<li> Nice substantial file that will be utilized to &#x27;sand&#x27; gum paste &amp; pastillage edges...</li>
+<li> so re-dipping is kind of a pain, but gets the job done eventually.</li>
+<li> a deluxe salon-quality nail file/buffer&lt;br /&gt;I</li>
+<li> Glad I read the good reviews these had and went with them.</li>
+<li> Nice variety of dotting tips.</li>
+<li> The brushes and dotting tools are of good quality, and I love the bag they came in as well.  </li>
+<li> The dotting tool are really nice button</li>
+<li> It will effectively aid you me in all of my nail art ideas.</li>
+<li> Although I have not yet tried the brushes, I felt it is a great price,and it arrived quickly.</li>
+<li> This  was a present for my niece, se loved it and said that they worked well and was very happy with them.</li>
+<li> They smell very strong of paint.</li>
+<li> These doting tools are also very pretty and the storage bag is great.</li>
+<li> Arrived early and in perfect condition.</li>
+<li> Very nice STRAIGHT MOUNTED brush tips!!</li>
+<li> Super happy with my purchase :)</li>
+<li> I love doing my own nail art and my daughters, these are perfect, sturdy, strong, &amp; professional.</li>
+<li> fast shipping and beautiful satin case including all the items; dotting tools, 3 brushes and a nail file.</li>
+<li> They come in a very nice case that I don&#x27;t use just because I have 1 specific place where I put all my nail art tools, but it is very nice.</li>
+<li> Really easy to use and comes with a handy pouch to keep them all in.  </li>
+<li> Will enjoy these four many years to come!</li>
+<li> I used it every week to paint my nail, and i love it.</li>
+<li> I love it</li>
+<li> I love that it came in a bag</li>
+<li> The brushes are ok.</li>
+<li> I also love the bag they come in.</li>
+<li> These dotting tools and brushes help make perfect circles in 10 different sizes!</li>
+<li> My favorite hobby is my &amp;#34;me time&amp;#34;</li>
+<li> It came with a free gift, too!</li>
+<li> I absolutely love the dotting tools.</li>
+<li> already I can&#x27;t wait to use it more</li>
+<li> I love the dotting tools as they work well and have a variety of sizes.  </li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> my daughter loved them, great price</li>
+    <li> very nice kit.  impressed.</li>
+    <li> I got it so fast even though my card didnt go through the first time. Fast Shipping. For this price, they were so good. Great Quality. I loved it.</li>
+    <li> The dotting tools really do have ten different sizes. I see in reviews for other dotting tools one end is the same so you really only get five sizes. This is a really good, versatile set. Brushes are good quality and have not lost any hairs. NOT cheapo made in china stuff.</li>
+    <li> I got the This set but with just the Nail Art Dotters and the Pouch and they are very nice with Dark Colors  and I like  the swirls on the pens</li>
+    <li> My order can a day before estimated slipping date. The dotting tool are really nice button the other hand the brushes aren&#x27;t. They are really flimsy and the bristle spread out when doing long strokes. Also when I tried each size brushes I ended up with the same result. BUT I love! The buffer and pouch it helps me keep everything all together</li>
+    <li> I got this for my daughters birthday because she is going to beauty school for nails and cosmetology and the dotting tools were cracked and when we went to use one of them. The dotter on the top totally broke off. I had to super glue it back together and the detail brushes sucked. I am really disappointed in this product.</li>
+    <li> I like my new dotting tools and brushes. They arrived in a timely fashion. I briefly used the dotting tools to test them out, and they work well. They appear to be all different sizes, which matches the seller&#x27;s description. I think that they are well worth the money. The case is cute and fits the tools, brushes, and a couple of nail files. It came with a free gift, too! I would recommend this product and seller to my family and friends.</li>
+    <li> I enjoy designing my nails, nothing ever fancy but something cool here and there. I had a lot of trouble finding nail polish that already came withthin tip brushes for design,  so this was what I wanted.  The dotting tools were extra.  So far they all work really well. The brushes paint just fine and they clean off with out loosing any of the bristles. The dotting tools also clean really easily.&lt;br /&gt;I read a lot of complaints about how you don&#x27;t actually get 10 different sizes with the dotting tools, but from what I can tell, you don&#x27;t really need much more than what they give you. There is enough different sizes variety to get the job done.&lt;br /&gt;I love the extra Winstonia bag and the doublesided nail filer, pretty good quality.&lt;br /&gt;&lt;br /&gt;WARNING When I opened the brushes and went to pull off the plastic tube cover, it was on tighter than I thought it would be and I pulled the brush tip right of the wooden handle. Woops, but no big deal, I just stuck ot right back on and it is prettystable. I won&#x27;t be using the brushes for anything that would cause the brush tip to fall off so I&#x27;m not too worried about it. Just be careful.&lt;br /&gt;&lt;br /&gt;For the price I think it was an excdllent purchase. I&#x27;m happy.</li>
+    <li> Perfect! Just as described!</li>
+    <li> I used it every week to paint my nail, and i love it. Different colors, and this are my tools to express what i want with my nails.</li>
+    <li> The tools are all Winstonia brand, and very high-quality. The dotters have all the sizes you would want, from the really big to the super small ones. And the brushes are soft and non-frayed, absolute professional quality.&lt;br /&gt;The package arrived within 3 days of ordering- before the window of delivery time had even begun. They even included an extra little &#x27;gift&#x27; in my delivery, a deluxe salon-quality nail file/buffer&lt;br /&gt;I will definitely be buying from this seller again, and I recommend that you do, too.</li>
+    <li> Lots of different sizes they work great. Would definitely buy again. These doting tools are also very pretty and the storage bag is great.</li>
+    <li> It works wonderfully , give me a lot of choices for my design!  Light weight easy to handle.  The color are super nice.</li>
+    <li> This was the perfect set, I recently started doing nail art at home on myself and family and this set makes me like a professional!!</li>
+    <li> Rating 3 stars because the Dotting tools get 4 stars and Striping brushes get only 2! I&#x27;m a professional nail tech and use these dotting tools regularly. The tip of one of them came off after a few months but I easily glued it back on and they&#x27;ve all been fine since. Obviously they&#x27;re not the tip top quality but you don&#x27;t need them to be for great results IMO. I like having several sizes of tips to choose from and they get the job done. The stripers on the other hand were very disappointing to me! After only 1 practice session with them the bristles are all splayed out and scraggly and they are too soft/flexible to get a solid straight line. I&#x27;m not sure what good a stripe brush is if it can&#x27;t create a straight line? I threw them out almost immediately. I do like and use the carrying back this set came in to hold my dotting set, some files and shaping tools. Over all an okay purchase.</li>
+    <li> This  was a present for my niece, se loved it and said that they worked well and was very happy with them.</li>
+    <li> my daughter is loving her new talent of decorating her nails.  this product is working very well for her.  it allows her to do exactly what she wanted it to do.</li>
+    <li> I&#x27;ve used these tools on several manicures now, and am kinda in love with them! The variation in size on the dotting tools is great, and the teeniest one has become a very useful tool for cleaning up errors as well! One of my brushes popped off the handle when I removed the plastic protector, which is why I only give them 4 stars. I was able to pop it back on and keep going, but I&#x27;ll need to glue it later to avoid accidents while painting!&lt;br /&gt;&lt;br /&gt;I was initially concerned about using the brushes with polish, but they each worked well, and cleaned up easily with acetone polish, no worse for wear the several times I&#x27;ve used them.&lt;br /&gt;&lt;br /&gt;The free file is okay, but I prefer crystal files, so I don&#x27;t see myself using it. The pouch is great for tidy storage, or if you&#x27;re like me and keep your tools in a cup, you can use it for storing something else. Honestly, it&#x27;s a well made zipper pouch!&lt;br /&gt;&lt;br /&gt;You can likely get similar products more cheaply from other sellers, but these arrived in 2 days (yay! Prime!) instead of weeks, coming from overseas. The extra cash was worth it to me to get them sooner.</li>
+    <li> What A Deal!! Very nice STRAIGHT MOUNTED brush tips!! Purchased this set solely for cookie/cake decorating...Nice substantial file that will be utilized to &#x27;sand&#x27; gum paste &amp; pastillage edges...the tiny ball tip tools are perfect for dotted designing...pleased-pleased with this purchase!!</li>
+    <li> I bought this product on a whim and I wasn&#x27;t expecting much since some other reviews were negative but all the dotting look great, the brushes are not frayed, the bag that it comes with is cute, and it even came with a nice nail file. I haven&#x27;t used them yet but it doesn&#x27;t look like I&#x27;ll have any issues. Shipped on time as well.  Happy so far :)</li>
+    <li> The dotting tools and brushes work great and are really easy , I thought it would be hard because I don&#x27;t have much experience and especially because I&#x27;m a begginer and I have short nails but they work great. Also shipping was good, I ordered them Monday and they came Friday</li>
+    <li> it came in perfect condition thank you awesome product my sis is gonna love it!!! for Christmas present yes yep</li>
+    <li> These arrived on time and in perfect condition.  Really easy to use and comes with a handy pouch to keep them all in.  I am still mastering the art of nail decorating so hopefully in time I will work up to using all the different sized tools this has.</li>
+    <li> fast shipping and beautiful satin case including all the items; dotting tools, 3 brushes and a nail file. The detail brush (#000) is really thin and perfect for small details. I love it! Thanks</li>
+    <li> And they&#x27;re pretty good. I&#x27;ve never owned any dotting tools or fine point brushes before so I found this to be quite a deal. I got 5 different rods with 10 different sized tools as well as 3 different brushes. Some slight damage to my yellow rod, some of the acrylic had chipped off but its not a big deal. They came in a cute black zip case with a free file. (mine was pink!:) )</li>
+    <li> I bought this set as I needed a second set of the doters. The brushes work very well for small details.&lt;br /&gt;I use these for nail art, so if your looking for detail brushes these work great.</li>
+    <li> This set was much nicer than I thought it would be. Sturdy and a really a great gift for someone!</li>
+    <li> I&#x27;m mad I only received the brushes and the the nail file but not the dotting tools.</li>
+    <li> I am very pleased with this purchase.  The brushes and dotting tools are of good quality, and I love the bag they came in as well.  I&#x27;m so glad I decided to spend a little more money and get something of quality, not the cheaper brushes you see on Amazon from Hong Kong.</li>
+    <li> Great price &amp; great quality!&lt;br /&gt;&lt;br /&gt;Very simple to use and the brushes make nail art all that much easier. I love this set!</li>
+    <li> I like these nail tools. Nice variety of dotting tips. Brushes don&#x27;t hold a lot of paint so re-dipping is kind of a pain, but gets the job done eventually. Nice starter set for young girls to play with.</li>
+    <li> I checked out SEVERAL dotting tools on Amazon before buying this one. I noticed that many reviews on the other dotting tools said that many of them were actually the same size. Well not with this one! There are 10 different sizes with this dotting tool. I love it! I used it right away after it arrived and it worked great. The material quality was great and the brushes were good as well. It came with the little pouch and a filer as well. After I&#x27;m done, I put it all back in the little bag and nothing gets lost. I would definitely buy from this brand again :)</li>
+    <li> Thanks, lots of fun to use</li>
+    <li> Came super fast, great quality, nice little pouch, and even came with a nice nail file that wasn&#x27;t included in the description! Awesome value!</li>
+    <li> WONDERFUL - WILL DO BUSINESS AGAIN!  IT WAS A GIFT AND SHE LOVED IT!  PERFECT TOOLS FOR HER AS A NAIL ARTIST</li>
+    <li> I started going to school for nail technology not too long ago &amp; I felt it was time for some professional products. These dotting tools, paint brushes &amp; carrying pouch are wonderful. Very well made. The case is a lot smaller than I expected, which is great. Everything fits in it perfectly &amp; it&#x27;s nice &amp; slim, so I can take it anywhere. Definitely worth the purchase. Also, the free buffer I got is light pink, my favorite color! :)</li>
+    <li> These brushes and dotting tools are cheap. I love the dotting tools -- you can&#x27;t go wrong with them. The brushes, however, are a little bit on the short side, particularly the striping brush. I expected the bristles to be longer. They are smooth, picks up paint easily (I use acrylic), cleans easily and are fun to work with when creating different designs on your nails. If you have small nails like I do, you may want to the trim them if you want to make intricate works of art.</li>
+    <li> These dotting tools are great, they are what the pros at the fancy schmancy nail salons use. They don&#x27;t fall apart and were shipped in good packaging</li>
+    <li> This is a nice little starter kit for nail art beginnes. Although I have not yet tried the brushes, I felt it is a great price,and it arrived quickly.</li>
+    <li> I love them, i have barely used the brushes but so far they are great, the dotting tools are awesome and i can make all sorts of designs with them.</li>
+    <li> I&#x27;ve finally tried it and they totally work!</li>
+    <li> Arrived before expected. I absolutely love the dotting tools. You really get 10 different sizes. I dont like the brushes too much. They dont keep their point for too long. Ive only had them for a few days and they are already no good</li>
+    <li> brushes suck but the tools were all different sizes, some do look like the same size but when i actually used them the dots were different sizes.&lt;br /&gt;wouldnt recommend</li>
+    <li> I really like what you get for the price. Dotting tools are just what I was looking for. (I ordered them on 8/29/13) I just got them 9/3/13 and estimated delivery was 9/5/13.&lt;br /&gt;I noticed like other reviewers that on the detailing brushes you can&#x27;t get any nailpolish remover as the paint comes off. They smell very strong of paint. I have to practice using them as yesterday&#x27;s nail design didn&#x27;t come out as I wanted but that&#x27;s a user error not the tools ;)&lt;br /&gt;The set all comes in a little bag that you can keep all these tools together which is awesome and it also comes with a nice double sided file. So far I&#x27;m loving this set. I like it more than others I&#x27;ve seen out there as some don&#x27;t have different sized dots. I&#x27;ve seen some that all one side is same size and the other side has different sizes.&lt;br /&gt;I&#x27;ve only used them once and I wasn&#x27;t able to get the dots to come out different sizes on my nail design even when using the differnt sized dotting tools but that could just be me not using them correctly so I&#x27;ll need to keep practicing as I got used to using toothpicks/pins for dot nail designs.&lt;br /&gt;Anyways. I love my new dotting tools. Glad I read the good reviews these had and went with them. Hope this helps.</li>
+    <li> I just received this set and it is true to the description.  I haven&#x27;t used it yet, the dotting tools are sturdy and are all different sizes, the brushes look amazing, you get a black case and a gift, i got a beautiful pink file.  I received this product in three day after purchase, super fast and it was pack very well.  Love this seller they are fast and sell good quality and good pricing, my second purchase with them and i will continue to purchase from them.</li>
+    <li> These are great for the price</li>
+    <li> Love the case, love the dotting tools. The brushes are a good beginner set.</li>
+    <li> i loved this kit. all dotting tools came in different sizes in a little bag with a file. the only thing is the brushes could be better but overall a great kit for the price. shipping was quick. i highly recommend.</li>
+    <li> i got the brushes and the metal design tool. i&#x27;m not an expert, but im good at painting my nails. For me, these were easy to use and a great quality.</li>
+    <li> So I bought these primarily for the dotting tools, but when I saw this combo I was like, &amp;#34;hey, I could use some new brushes too&amp;#34;. They come in a very nice case that I don&#x27;t use just because I have 1 specific place where I put all my nail art tools, but it is very nice. The dotting tools...oh my god...I have never been so obsessed over doing polka dot designs ever before, they&#x27;re easy to use and so much fun! They are very well made, all of the tips are secure, the handles are solid, pretty and made of plastic so no worries about splinters like with the wood ones. The dotting ends are also all different sizes, so you truly are getting 10 different sized dotting tools (though some the size difference is very subtle) ranging from very big to very small. The brushes are also awesome, 3 distinct different size detailing brushes, as I do a lot of detail work in my nail art these are definitely my go-to brushes out of all the other ones I have. Cleaning them so they don&#x27;t get stiff is a pain, but that&#x27;s the case with any nail art brush. The only possible complaint is that the paint/coating whatever it is on the brush handle melts off in acetone and can get all over your hand, but that&#x27;s kinda just me not being careful. these are truly amazing and I recommend them to anybody into nail art.</li>
+    <li> i love this. It came with everything in the picture. Everything is good quality and I like that the brushes came with protection. They have plastic tubing around the brushes so the don&#x27;t get ruined in shipping. Also the shipping for me did not take long at all.</li>
+    <li> I purchased this set as an Easter gift for my teenage daughters.  Both were very pleased with them although they haven&#x27;t had a chance to use them yet.</li>
+    <li> Arrived early and in perfect condition. All tips are a different size and very high quality. They were exactly what I was looking for.</li>
+    <li> Great tools, not flimsy but well made. Arrived on time if not before date stated.  Great price and shipped from US.  A lot of these nail stuff are from Taiwan or China so read the reviews so you know where it is shipped from!</li>
+    <li> I love doing my own nail art and my daughters, these are perfect, sturdy, strong, &amp; professional. However, i don&#x27;t use the brushes.</li>
+    <li> Great price for great items. I use them all the time and never have any problems. Bag is big enough that I have room for my other brushes.</li>
+    <li> I ordered this on a thursday and it came on a monday so very fast shipping, most of the dotting tools you see on here have repeats, but this one doesnt so its worth the extra few bucks to get a nicer quality one, these are working great for me i couldent be happier!</li>
+    <li> I love it I got it yesterday and I love it I have used it twice already I can&#x27;t wait to use it more</li>
+    <li> I&#x27;ve been looking at dotting tools and nail art brushes for a while, and was about to make two separate purchases for them at a cost of about $20 total. Then I found this combo! It was absolutely what I wanted, a nice set of dotting tools with 10 different tips, and three brushes, all different than what I already have. And yes, less money than I thought I would have to spend....All comes in a nice zipper case too! WooHoo and thanks!!  ;-)</li>
+    <li> 5 stars because this set is everything you need to create any nail art design. I received my order super quick, before the estimated delivery date. Comes with a huge file as well and all the tools fit in a nice carry around bag. Affordable as well. I&#x27;m absolutely happy with the entirety of this order.</li>
+    <li> The dotting tools are excellent! 10 sizes lets you do a lot of different kinds of nail art. The brushes are ok. The handles are painted and they are pretty smelly; strong paint smell. Also, if you even barely touch the handles with acetone/remover, the paint comes off. So be careful with the brushes.</li>
+    <li> It was shipped in a timely manner and when I opened the package, it was perfect!  The dotting tools were made of good quality and were of different sizes.  The brushes were also a great size to pain little details on my nails.  I highly recommend this product!</li>
+    <li> I love the dotting tools as they work well and have a variety of sizes.  I am not sure about the brushes just yet, the quality might not be as good on those.  I love that it came in a bag so I can keep it all together.</li>
+    <li> The set was purchased for my teenage daughter.  She loves it and has been able to make quite intricate designs on her nails.  The assortment of tip sizes is great, and clean-up appears to be a snap.  She has not yet tried the brushes, but overall the tools appear to be well made and very functional.</li>
+    <li> Bought these tools to create my own pedicure art &amp; love them! I also love the bag they come in. Will enjoy these four many years to come!</li>
+    <li> Ive been very happy with this set! The dotting tools snd brushes both work great! Have no complaints. Would tecommend!</li>
+    <li> My favorite hobby is my &amp;#34;me time&amp;#34; where I can create fun, silly, cute, and whatever else nail designs. These dotting tools and brushes help make perfect circles in 10 different sizes! It&#x27;s a great purchase and I would recommend this to friends!</li>
+    <li> just amazing!!! they came in a black case, 5 dotting pens and 3 brushes plus it came with and extra nail file. Super happy with my purchase :)</li>
+    <li> I fell in love with nail art recently and NEEDED this kit! So happy when it arrived! The entire kit comes in a little zippered pouch which makes it convenient for storing and travelling. It&#x27;s perfect. Each dotting tool is double sided and the brushes are different sizes as well. It will effectively aid you me in all of my nail art ideas. I&#x27;m very happy with my purchase!</li>
+    <li> Great products for nail art designers. Easy to use and the case is really great to keep them all together.</li>
+</ol>
+
+
+
+

@@ -1,0 +1,287 @@
+---
+title: Vogue Professional LED UV Lamp Light Portable Nail Dryer spa for cure &amp; bond LED or UV hybrid gels,
+description: Vogue Professional LED UV Lamp Light Portable Nail Dryer spa for cure &amp; bond LED or UV hybrid gels,
+author: Suvojit Manna,
+tags: Vogue Professional LED UV Lamp Light Portable Nail Dryer spa for cure &amp; bond LED or UV hybrid gels,
+publishedAt: Fri Jan 10 2020 15:00:03 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:03 GMT+0530 (India Standard Time),
+---
+
+# [Vogue Professional LED UV Lamp Light Portable Nail Dryer spa for cure &amp; bond LED or UV hybrid gels](https://products.checkmycream.com/products/Vogue-Professional-LED-UV-Lamp-Light-Portable-Nail-Dryer-spa-for-cure-and-bond-LED-or-UV-hybrid-gels.html)
+
+### Positive Reviews
+
+<ol>
+      <li>It works great!</li>
+      <li>I&#x27;m very happy with purchase</li>
+      <li>Works great!</li>
+      <li>Excellent product.</li>
+      <li>Great but!!</li>
+      <li>and it works wonderful on my jewelry.</li>
+      <li>it work great with the gels!!!</li>
+      <li>awesome shipping comes with warranty and great packaging loved the price by the way!!</li>
+      <li>but it worked beautifully</li>
+      <li>Great product and</li>
+      <li>but it works great.</li>
+      <li>For people who are DIY divas or just looking to save time and money, this product is great.</li>
+      <li>Great price too</li>
+      <li>And it works great.</li>
+      <li>Both work great with this lamp..</li>
+      <li>was a great price for I got.</li>
+      <li>Perfect size and really easy to use</li>
+      <li>Good quality</li>
+      <li>great for the price, but you always want something quicker :)</li>
+      <li>Great product I use it all the time, although it could use a self timer to shut off automatically. :)</li>
+      <li>LOVE IT!</li>
+      <li>This light works great with Gelish nail polish...</li>
+      <li>Bought product to start doing my own nails to save money.</li>
+      <li>I was real excited about getting this product</li>
+      <li>Very good and economic</li>
+      <li>The price was good and I like the design of the light</li>
+      <li>Its a good light</li>
+      <li>makes me very happy very very satisfied with such cheap purchase</li>
+      <li>It did not cure the shellac (Creative Nail Shellac Gold Vip Status).</li>
+      <li>Most of which was taking off chipped nail polish or redoing them.</li>
+      <li>The instruction booklet says that each coat will remain sticky until the top it off coat.</li>
+      <li>I love it.</li>
+      <li>I wouldn&#x27;t spend more unless you wanted to MAKE money doing manicures.</li>
+      <li>I am sure it won&#x27;t damage hand nails.&lt;br /&gt;&lt;br</li>
+      <li>so I am sure it will do a faster job on hand nails.</li>
+      <li>But you will need more watts to cure your nails faster.</li>
+      <li>It does okay with some gel nail polishes but not all</li>
+      <li>It is ok for gel nails I assume.  </li>
+      <li>I thought the brand might be ok, but</li>
+      <li>its ok</li>
+      <li>u finish the top coat, you need to use gel cleanser to make it shine and remove the excess gel.</li>
+      <li>I do recommend applying a strong sunblock to your skin</li>
+      <li>it works fine, but u need 3 minutes for every layer.</li>
+      <li>and it works for her just fine.</li>
+      <li>I received this light super fast!!!!</li>
+      <li>I figured a UV light is a UV light.  </li>
+      <li>The light stopped working after one week.</li>
+      <li>but it does fit my finger tips.</li>
+      <li>Secure, no rips or dents in box.</li>
+      <li>but when I got the chance to use it, it didn&#x27;t even harden the gel nail polish like it should have, even after keeping my hand under the light for almost 10 minutes.</li>
+      <li>So It does work for drying real fast and it safe</li>
+      <li>Works amazingly and fast shipping.</li>
+      <li>When i got the light i snapped the light in</li>
+      <li>so i removed the light and placed it and still did not work</li>
+      <li>The only thing I wish it had is a timer but for the price it is a great buy.</li>
+      <li>This light is definitely worth it. :)</li>
+      <li>There is a special Gel Du Soleil UV Epoxy UV Curing  Bonding Light that look just like this one.</li>
+      <li>After you are done with the whole gel process just take a piece of cotton with rubbing alcohol and rub all the stinky layer off your nails and you will have a perfectly cured, dry gel manicure.</li>
+      <li>It dries quickly without any light.</li>
+      <li>I really believe this lamp is very affordable money wise</li>
+      <li>Got this it dry my uv glue on my phone repair I had to do,worked great fit a Samsung galaxy s4 just right</li>
+      <li>it fits the whole hand, but it&#x27;s better to do four finger and then 2 thumbs rather than 5 fingers at once.</li>
+      <li>but it doesn&#x27;t do a good job with drying and can last about 2 hours under the lamp and nothing</li>
+      <li>Lamp was wrapped in bubble wrap, the whole box was wrapped in more packing bubbles and shipped in another box..</li>
+      <li>Arrived on time, looked clean and worked right away.</li>
+      <li>but i think its not that powerful use it with  chalk</li>
+      <li>I bought mine overseas and am not convinced that a 36w lamp is worth what I will be using it for.</li>
+      <li>The discription is right on point.</li>
+      <li>However, i am out right now</li>
+      <li>Dries gel nail polish super fast.  </li>
+      <li>/&gt;Shipping was Super Fast.</li>
+      <li>It is simple to use and very light weight.</li>
+      <li>This was pretty close to the one I already owned.  </li>
+      <li>first use, sticky nail polish even after just one coat.  </li>
+      <li>ok so i purchased this the first of august received it 4 days later</li>
+      <li>It was exactly what I wanted...</li>
+      <li>i am very new at doing nails and this lamp does the job!!&lt;br /&gt;easy to slide your toes right in when doing toes</li>
+      <li>I bought this to dry the shellac UV gel polish I bought and after having my hands in it 10 minutes the nail polish was sticky and the light was getting very hot.  </li>
+      <li>If you want your nail polish to last, then this works fine.</li>
+      <li>It fits my fingers not my whole hand</li>
+      <li>I tried drying my nails another 10 minutes, and still sticky- the light starting getting hotter.  </li>
+      <li>I really like it, I have had it for a few months now, and it&#x27;s nice to do my nails at home.</li>
+      <li>For those that have or prefer to use store-bought gels, I recommend Sally Hanson brand, or if willing to spend a little more, IBD brand.</li>
+      <li>The gel nail polish you buy in pharmacies does not need the light to dry.  </li>
+      <li>Does not emit enough light to actually do anything.</li>
+      <li>It cost me lots of money to clear from my skybox company and I can&#x27;t even use it.</li>
+      <li>But after sending a request for a refund but what I really wanted was just a replacement to give it a chance I was just given the money back into my account.</li>
+      <li>The commenters that were dissatisfied said that their gel never dried but that is because of the inhibition layer.</li>
+      <li>Just straight up regular....</li>
+      <li>does it dry regular polish quickly??</li>
+      <li>before using to let it warm up; the second time I used this I left my wet nails under for about a minute and this helped dry them faster....</li>
+      <li>Came in 3 days later  where i live, Phoenix , AZ!</li>
+      <li>Its definitely a brand new, unused item..</li>
+      <li>it takes twice as much time to work and dry my nails</li>
+      <li>Didn&#x27;t come with instructions, and it doesn&#x27;t dry my nails fast.</li>
+      <li>Second use, left my hands under the light over half an hour.  </li>
+      <li>That last layer of gel will never completely be dried without removing the sticky coating.</li>
+      <li>Thanks but no thanks.</li>
+      <li>The bulb is broken, it should have been secured better in the package.</li>
+      <li>I was a little concerned after reading some reviews that it didn&#x27;t cure properly, but as long as you do the alcohol cleaning step after curing, its fine.</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> It works great!</li>
+<li> I&#x27;m very happy with purchase</li>
+<li> Works great!</li>
+<li> Excellent product.</li>
+<li> Great but!!</li>
+<li> and it works wonderful on my jewelry.</li>
+<li> it work great with the gels!!!</li>
+<li> awesome shipping comes with warranty and great packaging loved the price by the way!!</li>
+<li> but it worked beautifully</li>
+<li> Great product and</li>
+<li> but it works great.</li>
+<li> For people who are DIY divas or just looking to save time and money, this product is great.</li>
+<li> Great price too</li>
+<li> And it works great.</li>
+<li> Both work great with this lamp..</li>
+<li> was a great price for I got.</li>
+<li> Perfect size and really easy to use</li>
+<li> Good quality</li>
+<li> great for the price, but you always want something quicker :)</li>
+<li> Great product I use it all the time, although it could use a self timer to shut off automatically. :)</li>
+<li> LOVE IT!</li>
+<li> This light works great with Gelish nail polish...</li>
+<li> Bought product to start doing my own nails to save money.</li>
+<li> I was real excited about getting this product</li>
+<li> Very good and economic</li>
+<li> The price was good and I like the design of the light</li>
+<li> Its a good light</li>
+<li> makes me very happy very very satisfied with such cheap purchase</li>
+<li> It did not cure the shellac (Creative Nail Shellac Gold Vip Status).</li>
+<li> Most of which was taking off chipped nail polish or redoing them.</li>
+<li> The instruction booklet says that each coat will remain sticky until the top it off coat.</li>
+<li> I love it.</li>
+<li> I wouldn&#x27;t spend more unless you wanted to MAKE money doing manicures.</li>
+<li> I am sure it won&#x27;t damage hand nails.&lt;br /&gt;&lt;br</li>
+<li> so I am sure it will do a faster job on hand nails.</li>
+<li> But you will need more watts to cure your nails faster.</li>
+<li> It does okay with some gel nail polishes but not all</li>
+<li> It is ok for gel nails I assume.  </li>
+<li> I thought the brand might be ok, but</li>
+<li> its ok</li>
+<li> u finish the top coat, you need to use gel cleanser to make it shine and remove the excess gel.</li>
+<li> I do recommend applying a strong sunblock to your skin</li>
+<li> it works fine, but u need 3 minutes for every layer.</li>
+<li> and it works for her just fine.</li>
+<li> I received this light super fast!!!!</li>
+<li> I figured a UV light is a UV light.  </li>
+<li> The light stopped working after one week.</li>
+<li> but it does fit my finger tips.</li>
+<li> Secure, no rips or dents in box.</li>
+<li> but when I got the chance to use it, it didn&#x27;t even harden the gel nail polish like it should have, even after keeping my hand under the light for almost 10 minutes.</li>
+<li> So It does work for drying real fast and it safe</li>
+<li> Works amazingly and fast shipping.</li>
+<li> When i got the light i snapped the light in</li>
+<li> so i removed the light and placed it and still did not work</li>
+<li> The only thing I wish it had is a timer but for the price it is a great buy.</li>
+<li> This light is definitely worth it. :)</li>
+<li> There is a special Gel Du Soleil UV Epoxy UV Curing  Bonding Light that look just like this one.</li>
+<li> After you are done with the whole gel process just take a piece of cotton with rubbing alcohol and rub all the stinky layer off your nails and you will have a perfectly cured, dry gel manicure.</li>
+<li> It dries quickly without any light.</li>
+<li> I really believe this lamp is very affordable money wise</li>
+<li> Got this it dry my uv glue on my phone repair I had to do,worked great fit a Samsung galaxy s4 just right</li>
+<li> it fits the whole hand, but it&#x27;s better to do four finger and then 2 thumbs rather than 5 fingers at once.</li>
+<li> but it doesn&#x27;t do a good job with drying and can last about 2 hours under the lamp and nothing</li>
+<li> Lamp was wrapped in bubble wrap, the whole box was wrapped in more packing bubbles and shipped in another box..</li>
+<li> Arrived on time, looked clean and worked right away.</li>
+<li> but i think its not that powerful use it with  chalk</li>
+<li> I bought mine overseas and am not convinced that a 36w lamp is worth what I will be using it for.</li>
+<li> The discription is right on point.</li>
+<li> However, i am out right now</li>
+<li> Dries gel nail polish super fast.  </li>
+<li> /&gt;Shipping was Super Fast.</li>
+<li> It is simple to use and very light weight.</li>
+<li> This was pretty close to the one I already owned.  </li>
+<li> first use, sticky nail polish even after just one coat.  </li>
+<li> ok so i purchased this the first of august received it 4 days later</li>
+<li> It was exactly what I wanted...</li>
+<li> i am very new at doing nails and this lamp does the job!!&lt;br /&gt;easy to slide your toes right in when doing toes</li>
+<li> I bought this to dry the shellac UV gel polish I bought and after having my hands in it 10 minutes the nail polish was sticky and the light was getting very hot.  </li>
+<li> If you want your nail polish to last, then this works fine.</li>
+<li> It fits my fingers not my whole hand</li>
+<li> I tried drying my nails another 10 minutes, and still sticky- the light starting getting hotter.  </li>
+<li> I really like it, I have had it for a few months now, and it&#x27;s nice to do my nails at home.</li>
+<li> For those that have or prefer to use store-bought gels, I recommend Sally Hanson brand, or if willing to spend a little more, IBD brand.</li>
+<li> The gel nail polish you buy in pharmacies does not need the light to dry.  </li>
+<li> Does not emit enough light to actually do anything.</li>
+<li> It cost me lots of money to clear from my skybox company and I can&#x27;t even use it.</li>
+<li> But after sending a request for a refund but what I really wanted was just a replacement to give it a chance I was just given the money back into my account.</li>
+<li> The commenters that were dissatisfied said that their gel never dried but that is because of the inhibition layer.</li>
+<li> Just straight up regular....</li>
+<li> does it dry regular polish quickly??</li>
+<li> before using to let it warm up; the second time I used this I left my wet nails under for about a minute and this helped dry them faster....</li>
+<li> Came in 3 days later  where i live, Phoenix , AZ!</li>
+<li> Its definitely a brand new, unused item..</li>
+<li> it takes twice as much time to work and dry my nails</li>
+<li> Didn&#x27;t come with instructions, and it doesn&#x27;t dry my nails fast.</li>
+<li> Second use, left my hands under the light over half an hour.  </li>
+<li> That last layer of gel will never completely be dried without removing the sticky coating.</li>
+<li> Thanks but no thanks.</li>
+<li> The bulb is broken, it should have been secured better in the package.</li>
+<li> I was a little concerned after reading some reviews that it didn&#x27;t cure properly, but as long as you do the alcohol cleaning step after curing, its fine.</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> I bought this as a sort of back up/travel lamp and I already tried it out. It works great! I was a little concerned after reading some reviews that it didn&#x27;t cure properly, but as long as you do the alcohol cleaning step after curing, its fine. I use professional grade builder gels, and color gels, and it worked as well as the more expensive UV lamps that I have. For those that have or prefer to use store-bought gels, I recommend Sally Hanson brand, or if willing to spend a little more, IBD brand. Both work great with this lamp..&lt;br /&gt;&lt;br /&gt;I did notice that it felt a little hot for the first few seconds, but that was probably due to my nail being so thin after removing acrylics. Went away after a few seconds... I do recommend applying a strong sunblock to your skin (don&#x27;t get any on the nail). You can never be too careful when using UV...&lt;br /&gt;&lt;br /&gt;Shipping was Super Fast. I purchased this on October 31st, and received it on November 4th. I probably would&#x27;ve gotten it faster had it not been the weekend.&lt;br /&gt;&lt;br /&gt;Packaging was what I expected. Secure, no rips or dents in box. Lamp was wrapped in bubble wrap, the whole box was wrapped in more packing bubbles and shipped in another box.. Its definitely a brand new, unused item..</li>
+    <li> This not worked for gel nail polish you need Put in your nails for 3 days so i cant return this</li>
+    <li> Can I use this with regular nail polish????? Just straight up regular.... Not gel, not UV....does it dry regular polish quickly??</li>
+    <li> I like the product it does do what it says the only issue is that the space is quite small, and it does take 2+ minutes for each coat to cure since this lamp does have such a low wattage.</li>
+    <li> This item came today and the uv bulb was loose and broken. What am I to do with it now. It cost me lots of money to clear from my skybox company and I can&#x27;t even use it. The bulb is broken, it should have been secured better in the package. I am disappointed because I bought it as a gift and can&#x27;t use it. Who is going to repay me? It looks like it would have functioned properly if I got the opportunity to use it.</li>
+    <li> I figured a UV light is a UV light.  Was buying Shellac nail polish because I prefer my natural nails to acrylics but hate having to constantly touch up the polish or keeping my hands out of the water...tough if you want to shower every day...so I bought this light.&lt;br /&gt;&lt;br /&gt;My first use, sticky nail polish even after just one coat.  Second use, left my hands under the light over half an hour.  sticky nail polish NOT DRY.&lt;br /&gt;&lt;br /&gt;It never will dry gel, not even the polish.&lt;br /&gt;&lt;br /&gt;Worthless product.</li>
+    <li> This thing hardly works.  I wish I would&#x27;ve just went with the more expensive one instead. This one was a waste of money and didn&#x27;t dry the gel at all</li>
+    <li> If you want your nail polish to last, then this works fine. I usually do my nails once a week or every other week. Most of which was taking off chipped nail polish or redoing them. Harmony gelish nail polish definitely works with a 9w lamp. The instruction booklet says that each coat will remain sticky until the top it off coat. I bought mine overseas and am not convinced that a 36w lamp is worth what I will be using it for. This will PAY for itself and SAVE you money after 1, maybe 2 manicures. I wouldn&#x27;t spend more unless you wanted to MAKE money doing manicures.</li>
+    <li> The price was good and I like the design of the light but when I received it the product did not work.  Needless to say I was disappointed and the item was returned.</li>
+    <li> I really believe this lamp is very affordable money wise but I don&#x27;t know if it&#x27;s the  watts or what but it doesn&#x27;t do a good job with drying and can last about 2 hours under the lamp and nothing😒</li>
+    <li> Waste of money doesnt work well. Don&#x27;t buy. I thought the brand might be ok, but no. I&#x27;ve tried it with 2 different types of gel and it does not cure to a hard finish.</li>
+    <li> Its a good light but it takes to long for the gel to dry fully</li>
+    <li> Does not emit enough light to actually do anything.</li>
+    <li> Not too bad. The discription is right on point. But you will need more watts to cure your nails faster.</li>
+    <li> The light stopped working after one week. I&#x27;m disappointed. It&#x27;s not worth the trouble of sending it back. It worked well when it was working.</li>
+    <li> Great product and it work great with the gels!!! It is exacly what I needed for no more salon visits</li>
+    <li> It did not cure the shellac (Creative Nail Shellac Gold Vip Status). It is simply not strong enough.</li>
+    <li> Helps my regular nail pollish dry fast and it seems to last longer.  Makes life easier and no smudges or mistakes</li>
+    <li> This light works great with Gelish nail polish... It cures within a minute. The commenters that were dissatisfied said that their gel never dried but that is because of the inhibition layer. That last layer of gel will never completely be dried without removing the sticky coating. After you are done with the whole gel process just take a piece of cotton with rubbing alcohol and rub all the stinky layer off your nails and you will have a perfectly cured, dry gel manicure. This light is definitely worth it. :)</li>
+    <li> There is a special Gel Du Soleil UV Epoxy UV Curing  Bonding Light that look just like this one. It has the same wattage, volts and everything else. So I took a risk and purchase this instead. Less pricey and it works wonderful on my jewelry. Prefect for my Gel Du Soleil. Cost me 1/3 of what the other would have. So It does work for drying real fast and it safe and it doesn&#x27;t heat up. If I can touch metal with my hands after being there for 5 minutes. I am sure it won&#x27;t damage hand nails.&lt;br /&gt;&lt;br /&gt;Dried my Gel Du Soleil in 3 minutes so I am sure it will do a faster job on hand nails. LOVE IT!</li>
+    <li> Doesn&#x27;t work as well as I&#x27;d hope for. It does okay with some gel nail polishes but not all and it takes a long time to cure.</li>
+    <li> it works fine, but u need 3 minutes for every layer. 2 minutes is not enough.&lt;br /&gt;when u finish the top coat, you need to use gel cleanser to make it shine and remove the excess gel. otherwise it will be sticky.</li>
+    <li> Great but!! I love it. Works amazingly and fast shipping. Came in 3 days later  where i live, Phoenix , AZ! Recommend it to everyone.</li>
+    <li> For people who are DIY divas or just looking to save time and money, this product is great. It is simple to use and very light weight. The only thing I wish it had is a timer but for the price it is a great buy.</li>
+    <li> Bought product to start doing my own nails to save money. It was larger than I expected but I can cure my whole hand. Arrived on time, looked clean and worked right away. Can&#x27;t wait to use it but have to wait for the polish to arrive now :( was a great price for I got.</li>
+    <li> Great product I use it all the time, although it could use a self timer to shut off automatically. :)</li>
+    <li> ok so i purchased this the first of august received it 4 days later awesome shipping comes with warranty and great packaging loved the price by the way!! i am very new at doing nails and this lamp does the job!!&lt;br /&gt;easy to slide your toes right in when doing toes makes me very happy very very satisfied with such cheap purchase</li>
+    <li> I bought this to dry the shellac UV gel polish I bought and after having my hands in it 10 minutes the nail polish was sticky and the light was getting very hot.  I tried drying my nails another 10 minutes, and still sticky- the light starting getting hotter.  So, I just shut it off.</li>
+    <li> great for the price, but you always want something quicker :) it fits the whole hand, but it&#x27;s better to do four finger and then 2 thumbs rather than 5 fingers at once.</li>
+    <li> its ok but i think its not that powerful use it with  chalk it takes twice as much time to work and dry my nails</li>
+    <li> It is ok for gel nails I assume.  Thought info was misleading.  I wanted for regular nail polish.  The gel nail polish you buy in pharmacies does not need the light to dry.  It dries quickly without any light.</li>
+    <li> I bought this as a gift so I am only going on what the owner says.  She does like it and it works for her just fine.</li>
+    <li> Turn on a few min. before using to let it warm up; the second time I used this I left my wet nails under for about a minute and this helped dry them faster....I like this product...I don&#x27;t know how long the bulb will last and manufacturer does not state if you can put a new bulb in it or not? That needs to be stated in directions...</li>
+    <li> Excellent product. Good quality</li>
+    <li> Dries gel nail polish super fast.  Great price too</li>
+    <li> Works great! Perfect size and really easy to use</li>
+    <li> Gave it a 5 because of the FASTTT delivery! Ordered it on the 5th &amp; came on the 9th. However, i am out right now so i will open it tomorrow!</li>
+    <li> When i got the light i snapped the light in and it did not work...so i removed the light and placed it and still did not work so i started messing with the plug and finally it worked so iv been using it since so i hope it continues to work</li>
+    <li> Very good and economic</li>
+    <li> The rating I chose is because my nails dry within 3 minutes after 2 coats and a topcoat with no bubbles !!</li>
+    <li> Got this it dry my uv glue on my phone repair I had to do,worked great fit a Samsung galaxy s4 just right</li>
+    <li> Didn&#x27;t come with instructions, and it doesn&#x27;t dry my nails fast.</li>
+    <li> I really like it, I have had it for a few months now, and it&#x27;s nice to do my nails at home. It doesn&#x27;t have all the bells and whistles but I don&#x27;t need it to time my nails!</li>
+    <li> I received this light super fast!!!! I&#x27;m taking it to work tomorrow to test it out. It fits my fingers not my whole hand but it does fit my finger tips.</li>
+    <li> seemed fairly complicated and not that easy to use.</li>
+    <li> I have only used this once but it works great. Lots of room for your hands.</li>
+    <li> I&#x27;m very happy with purchase</li>
+    <li> Doesn&#x27;t work as promised.</li>
+    <li> works for what I need it for</li>
+    <li> Any reason as to why this product burns my clients nails?</li>
+    <li> Lamp did not work.... I should have ordered another one from the last place I did but I wanted it from somewhere in the USA that would ship quicker and that&#x27;s what I get for being impatient. The plug attachment in the back was almost detached and the place where you insert the bulb was loose. Really disappointed. But after sending a request for a refund but what I really wanted was just a replacement to give it a chance I was just given the money back into my account. Really not worth the time in my case. I&#x27;ll just order from where I know. Thanks but no thanks.</li>
+    <li> Sucks. U gotta be there FOREVER.</li>
+    <li> It was exactly what I wanted...</li>
+    <li> Defective product. My cousin bought this one as well and it was also defective</li>
+    <li> I was real excited about getting this product but when I got the chance to use it, it didn&#x27;t even harden the gel nail polish like it should have, even after keeping my hand under the light for almost 10 minutes. I was very disappointed.</li>
+    <li> This was pretty close to the one I already owned.  And it works great.</li>
+    <li> Works good...easy to use...</li>
+    <li> I didn&#x27;t think it would word to well cause there&#x27;s no fan but it worked beautifully it got the job done.......</li>
+</ol>
+
+
+
+

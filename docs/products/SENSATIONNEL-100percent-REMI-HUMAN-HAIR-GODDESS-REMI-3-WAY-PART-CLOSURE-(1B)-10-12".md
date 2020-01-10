@@ -1,0 +1,111 @@
+---
+title: SENSATIONNEL 100% REMI HUMAN HAIR GODDESS REMI 3 WAY PART CLOSURE (1B) 10-12&quot;,
+description: SENSATIONNEL 100% REMI HUMAN HAIR GODDESS REMI 3 WAY PART CLOSURE (1B) 10-12&quot;,
+author: Suvojit Manna,
+tags: SENSATIONNEL 100% REMI HUMAN HAIR GODDESS REMI 3 WAY PART CLOSURE (1B) 10-12&quot;,
+publishedAt: Fri Jan 10 2020 15:00:45 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:45 GMT+0530 (India Standard Time),
+---
+
+# [SENSATIONNEL 100% REMI HUMAN HAIR GODDESS REMI 3 WAY PART CLOSURE (1B) 10-12&quot;](https://products.checkmycream.com/products/SENSATIONNEL-100percent-REMI-HUMAN-HAIR-GODDESS-REMI-3-WAY-PART-CLOSURE-(1B)-10-12&quot;.html)
+
+### Positive Reviews
+
+<ol>
+      <li>Wonderful product.  </li>
+      <li>It blended perfectly with the Remy weave hair I used!</li>
+      <li>I made it into a wig and it looks amazing!!</li>
+      <li>This closure is great quality for the price....</li>
+      <li>I loved this closure...</li>
+      <li>I guess it&#x27;s a good purchase if you know how to tailor the piece to satisfy your preference.</li>
+      <li>Good closure, look well with the remi sensational hair I purchased from the beauty supply store.</li>
+      <li>There&#x27;s no shine it blends right in with my hairline and lays perfectly.</li>
+      <li>love this closure!</li>
+      <li>I really liked it.</li>
+      <li>Great product, price and fast shipping!</li>
+      <li>I had to &amp;#34;doctor-up&amp;#34; this closure before it was able to suit my needs.</li>
+      <li>I love love love this hair.</li>
+      <li>I used it on top of remy goddess hair...</li>
+      <li>I love this</li>
+      <li>but the perferation is too easily pulled apart.  </li>
+      <li>delivery was very fast!!</li>
+      <li>My beautician was able to make it look so real and natural as she said it was a good closure too.</li>
+      <li>and i guess i will have to pay more for what i really want.</li>
+      <li>i was hoping that this was the full lace closure</li>
+      <li>Will last about a month, but looked really good.</li>
+      <li>only thing is I wish it had a bit more hair, but besides that it gets a 5 star.</li>
+      <li>The part was to narrow, not as realistic as I would have liked.  </li>
+      <li>This closure looked so natural and real!</li>
+      <li>Otherwise it is decent hair and any tangles brush away quickly with an open brush.  </li>
+      <li>no shedding, I can curl it with a curling iron, the part looks very natural!</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> Wonderful product.  </li>
+<li> It blended perfectly with the Remy weave hair I used!</li>
+<li> I made it into a wig and it looks amazing!!</li>
+<li> This closure is great quality for the price....</li>
+<li> I loved this closure...</li>
+<li> I guess it&#x27;s a good purchase if you know how to tailor the piece to satisfy your preference.</li>
+<li> Good closure, look well with the remi sensational hair I purchased from the beauty supply store.</li>
+<li> There&#x27;s no shine it blends right in with my hairline and lays perfectly.</li>
+<li> love this closure!</li>
+<li> I really liked it.</li>
+<li> Great product, price and fast shipping!</li>
+<li> I had to &amp;#34;doctor-up&amp;#34; this closure before it was able to suit my needs.</li>
+<li> I love love love this hair.</li>
+<li> I used it on top of remy goddess hair...</li>
+<li> I love this</li>
+<li> but the perferation is too easily pulled apart.  </li>
+<li> delivery was very fast!!</li>
+<li> My beautician was able to make it look so real and natural as she said it was a good closure too.</li>
+<li> and i guess i will have to pay more for what i really want.</li>
+<li> i was hoping that this was the full lace closure</li>
+<li> Will last about a month, but looked really good.</li>
+<li> only thing is I wish it had a bit more hair, but besides that it gets a 5 star.</li>
+<li> The part was to narrow, not as realistic as I would have liked.  </li>
+<li> This closure looked so natural and real!</li>
+<li> Otherwise it is decent hair and any tangles brush away quickly with an open brush.  </li>
+<li> no shedding, I can curl it with a curling iron, the part looks very natural!</li>
+<li> 3 WAYS!&amp;#34; seemed as if there were 3 different areas for parting (center, and 2 sides) ..</li>
+<li> instead there is one center part that you can rip?????</li>
+<li> The lace is thin, so be aware not to pull the closure to tight as it may tear.</li>
+<li> Hardly sheds.</li>
+<li> however it had tracks on it and the part where it was knotted was very small</li>
+<li> the part just looks fake like extra fake ,</li>
+<li> After reading through the positive reviews and deciding to purchase, I was very disappointed with the product.</li>
+<li> but the life on both were limited before it starts tangling and looks bad.</li>
+<li> Poor quality!</li>
+<li> Also, hair was very thin.</li>
+<li> Its was terrible</li>
+<li> AWFUL.</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> I loved this closure...no shedding</li>
+    <li> The part was to narrow, not as realistic as I would have liked.  I will probably stick with the silk closures.</li>
+    <li> Great product, price and fast shipping!</li>
+    <li> love this closure! no shedding, I can curl it with a curling iron, the part looks very natural! only thing is I wish it had a bit more hair, but besides that it gets a 5 star. delivery was very fast!! I made it into a wig and it looks amazing!!</li>
+    <li> After reading through the positive reviews and deciding to purchase, I was very disappointed with the product. Also, should probably update product description for those (such as myself) not in the hair industry....&amp;#34;3 LOOKS! 3 WAYS!&amp;#34; seemed as if there were 3 different areas for parting (center, and 2 sides) ..instead there is one center part that you can rip????? Also, hair was very thin.</li>
+    <li> This closure is great quality for the price....no tangling or shedding.  It blended perfectly with the Remy weave hair I used! Wonderful product.  Would definitely buy again!</li>
+    <li> the part just looks fake like extra fake ,</li>
+    <li> I love this but the perferation is too easily pulled apart.  I did not want it to open.  It should have been scored so you can just cut along the line not hand tear it.  Otherwise it is decent hair and any tangles brush away quickly with an open brush.  Hardly sheds.</li>
+    <li> This closure looked so natural and real! There&#x27;s no shine it blends right in with my hairline and lays perfectly. I love love love this hair.</li>
+    <li> i was hoping that this was the full lace closure however it had tracks on it and the part where it was knotted was very small but you get what you pay for and i guess i will have to pay more for what i really want.</li>
+    <li> AWFUL. I just threw it away... money in the garbage</li>
+    <li> Will last about a month, but looked really good. Did the job. I used it on top of remy goddess hair...but the life on both were limited before it starts tangling and looks bad.</li>
+    <li> Its was terrible it wasnt lined up correctly nothing never again</li>
+    <li> Hair is short but the part is like 4 inches</li>
+    <li> I don&#x27;t know why I thought that this product would be the answer to my prayers, priced at only 30 bucks. I had to &amp;#34;doctor-up&amp;#34; this closure before it was able to suit my needs. I guess it&#x27;s a good purchase if you know how to tailor the piece to satisfy your preference.</li>
+    <li> Good closure, look well with the remi sensational hair I purchased from the beauty supply store. My beautician was able to make it look so real and natural as she said it was a good closure too. The lace is thin, so be aware not to pull the closure to tight as it may tear. I wear my closure for about two months. I would definitely recommend it for a sew in!!</li>
+    <li> Not enough hair on the weft.  Poor quality!</li>
+    <li> It holds curls the way I wanted it too. The part looked just like my hair I really liked it.</li>
+</ol>
+
+
+
+

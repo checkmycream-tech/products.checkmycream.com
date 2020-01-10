@@ -1,0 +1,298 @@
+---
+title: Speed Stick Deodorant, 3 Ounce (Case of 6),
+description: Speed Stick Deodorant, 3 Ounce (Case of 6),
+author: Suvojit Manna,
+tags: Speed Stick Deodorant, 3 Ounce (Case of 6),
+publishedAt: Fri Jan 10 2020 14:59:28 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:59:28 GMT+0530 (India Standard Time),
+---
+
+# [Speed Stick Deodorant, 3 Ounce (Case of 6)](https://products.checkmycream.com/products/Speed-Stick-Deodorant-3-Ounce-(Case-of-6).html)
+
+### Positive Reviews
+
+<ol>
+      <li>Best deodorant I have ever used and at a great bargain!</li>
+      <li>Best deodorant for me, and I started noticing stores stopped carrying this one.</li>
+      <li>It really is perfect.</li>
+      <li>I went on Amazon and found it at a great price!</li>
+      <li>Best deoderant brand and scent EVER!  </li>
+      <li>Getting it on line is great!</li>
+      <li>This is the best stuff.  </li>
+      <li>This is the best stick deodorant that can be found.</li>
+      <li>My pits havent smelled this good since 1997!</li>
+      <li>It was also a great value for cost per ounce.  </li>
+      <li>Happy to have a source.</li>
+      <li>I bought this deodorant having seen all the great reviews.  </li>
+      <li>Great price</li>
+      <li>is a great source for it.  </li>
+      <li>Great scent.</li>
+      <li>The smell is great</li>
+      <li>/&gt;Lastly, it&#x27;s a GREAT</li>
+      <li>Cast your concerns aside, Speed Stick works great at controlling odor.</li>
+      <li>To me it smells great.</li>
+      <li>Great product....</li>
+      <li>who cares if it smells great if it doesn&#x27;t work?</li>
+      <li>Great price for this pack of six 3.25 sticks of deodorant.</li>
+      <li>and then you&#x27;ll get a whiff and it smells great.</li>
+      <li>is a good product for men and is on par with the Jovan deodorant which is also a great men&#x27;s product.&lt;br /&gt;The</li>
+      <li>it is the perfect scent of musk not to strong just pleasant</li>
+      <li>Came at a good time.  </li>
+      <li>a good price.&lt;br /&gt;&lt;br</li>
+      <li>Has a good smell that is not overpowering.</li>
+      <li>Good buy and</li>
+      <li>Always loved this deodorant and have used it for years.</li>
+      <li>item, good price.</li>
+      <li>As described, delivered, great price, favorite brand.  </li>
+      <li>works great, smells great, price is right.</li>
+      <li>If you&#x27;ve never smelled this, I think it closely resembles the scent of some kind of canned shaving foam.</li>
+      <li>They seem nice</li>
+      <li>This smells nice.</li>
+      <li>Great clean, musk smell and truly keeps the smell away.</li>
+      <li>The price was good, and it was prime, so the shipping was free.</li>
+      <li>I&#x27;m so glad I found it here on amazon and for an amazing deal too.</li>
+      <li>Kind of a manly cologne or aftershave scent, not too strong but</li>
+      <li>Better price</li>
+      <li>Love this musk scent and have worn it for yrs and yrs</li>
+      <li>Love the product.  </li>
+      <li>The love of my life says if I could not get this</li>
+      <li>I can see why some people would love it.  </li>
+      <li>and I&#x27;m so pleased I can buy a 2 year supply on Amazon.  </li>
+      <li>Glad Amazon has it.</li>
+      <li>What more do you need?</li>
+      <li>Glad I could find it somewhere.</li>
+      <li>This might be meant for men, but I&#x27;m not a man and I use it. :)</li>
+      <li>$1.00 more than Walmart per stick.</li>
+      <li>Probably one of my favorite smelling deodorants.</li>
+      <li>but I perspire even more, and body odor becomes a problem (which is isn&#x27;t with the Speed Stick).&lt;br /&gt;&lt;br</li>
+      <li>We just love it and hope that we will be able to find it whenever needed.</li>
+      <li>I love the way this deodorant smells...</li>
+      <li>I LOVE IT.</li>
+      <li>I like this scent and it has become scarce at most stores.  </li>
+      <li>I was glad to be able to get it again.</li>
+      <li>Glad Amazon carries it in bulk.</li>
+      <li>/&gt;So all in all, a pretty good product, reformulated to remove a chemical compound under scrutiny for lack of beneficial evidence.hemical compound under scrutiny for lack of beneficial evidence.</li>
+      <li>The scent is VERY clean without being overly strong like some others.</li>
+      <li>The smell is unique that is for sure.  </li>
+      <li>and most importantly, it&#x27;s EFFECTIVE and GENTLE on my skin.&lt;br</li>
+      <li>It&#x27;s a great, clean, truly masculine scent that will leave you smelling like a man, not</li>
+      <li>/&gt;The new look and formula removes triclosan from the ingredients list, a GOOD thing!&lt;br /&gt;&lt;br /&gt;Per</li>
+      <li>Luckily , I was able to find it here</li>
+      <li>Just ordered two sets of six (free shipping) for the Easter bunny to give my husband.&lt;br /&gt;The</li>
+      <li>It&#x27;s definitely time for some rebranding, but it smells great.</li>
+      <li>/&gt;It&#x27;s cheap.</li>
+      <li>know the actual product is great, exactly what we wanted, but since it is deceiving in showing the picture when there are no intentions on delivering that product, I give this one 2 Stars at most.</li>
+      <li>My wife is glad too...;)</li>
+      <li>as expected  it is great</li>
+      <li>This is my tried and true.</li>
+      <li>/&gt;Secondly, it has a fresh, clean</li>
+      <li>To me, it just smells fresh and clean.</li>
+      <li>Sometimes I get lucky, but I&#x27;d rather not take the risk</li>
+      <li>have sensitive skin and have experimented with many different deodorants to find those that offer good odor protection without inflaming my skin.</li>
+      <li>Don&#x27;t know why stores in the Austin, TX area stopped stocking this scent, but after 30 years of using the same deodorant, this creature of habit is glad he could find it here on Amazon!  </li>
+      <li>It was OLD stock with most of the scent evaporated.</li>
+      <li>Just as good as expected</li>
+      <li>-Powerful odor protection that lasts all day&lt;br</li>
+      <li>It&#x27;s just right.</li>
+      <li>It keeps me dry, odor free and confident.</li>
+      <li>I love speed stick musk and like other reviewers, the deodorant (NOT antiperspirant) is easy on my skin.  </li>
+      <li>It does have a scent, but it&#x27;s natural and very mild</li>
+      <li>the FDA, triclosan is \\&quot;an ingredient added to many consumer products to reduce or prevent bacterial contamination\\&quot;, but \\&quot;does not have evidence that triclosan in antibacterial soaps and body washes provides any benefit over washing with regular soap and water\\&quot;</li>
+      <li>only thing that could make it better is Triclosan.</li>
+      <li>By lunch time I am smelling pretty ripe.  </li>
+      <li>Maybe that&#x27;s why I have found it to be refreshingly gentle yet completely powerful.</li>
+      <li>Exactly what I was looking for.</li>
+      <li>so much that after CVS stopped carrying it, I made my boyfriend order it from here!</li>
+      <li>Dummy me didn&#x27;t check first.</li>
+      <li>Recently, it seems that some deodorants try to concentrate more on smelling like cologne than being a product to rub on your pits.&lt;br /&gt;&lt;br</li>
+      <li>This deodorant is my husband&#x27;s favorite and he&#x27;d been looking for it at different stores without any luck.</li>
+      <li>Thanks!</li>
+      <li>exactly as promised - Has been my brand for years and can&#x27;t seem to find it around here.</li>
+      <li>and it is very effective and long lasting and causes no skin</li>
+      <li>fast delivery and exactly what I wanted.</li>
+      <li>I&#x27;ve used Speed Stick before in the past and had a good experience.</li>
+      <li>Hard to fine this good-smelling and safe (no harmful ingredients) deodorant in stores.  </li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> Best deodorant I have ever used and at a great bargain!</li>
+<li> Best deodorant for me, and I started noticing stores stopped carrying this one.</li>
+<li> It really is perfect.</li>
+<li> I went on Amazon and found it at a great price!</li>
+<li> Best deoderant brand and scent EVER!  </li>
+<li> Getting it on line is great!</li>
+<li> This is the best stuff.  </li>
+<li> This is the best stick deodorant that can be found.</li>
+<li> My pits havent smelled this good since 1997!</li>
+<li> It was also a great value for cost per ounce.  </li>
+<li> Happy to have a source.</li>
+<li> I bought this deodorant having seen all the great reviews.  </li>
+<li> Great price</li>
+<li> is a great source for it.  </li>
+<li> Great scent.</li>
+<li> The smell is great</li>
+<li> /&gt;Lastly, it&#x27;s a GREAT</li>
+<li> Cast your concerns aside, Speed Stick works great at controlling odor.</li>
+<li> To me it smells great.</li>
+<li> Great product....</li>
+<li> who cares if it smells great if it doesn&#x27;t work?</li>
+<li> Great price for this pack of six 3.25 sticks of deodorant.</li>
+<li> and then you&#x27;ll get a whiff and it smells great.</li>
+<li> is a good product for men and is on par with the Jovan deodorant which is also a great men&#x27;s product.&lt;br /&gt;The</li>
+<li> it is the perfect scent of musk not to strong just pleasant</li>
+<li> Came at a good time.  </li>
+<li> a good price.&lt;br /&gt;&lt;br</li>
+<li> Has a good smell that is not overpowering.</li>
+<li> Good buy and</li>
+<li> Always loved this deodorant and have used it for years.</li>
+<li> item, good price.</li>
+<li> As described, delivered, great price, favorite brand.  </li>
+<li> works great, smells great, price is right.</li>
+<li> If you&#x27;ve never smelled this, I think it closely resembles the scent of some kind of canned shaving foam.</li>
+<li> They seem nice</li>
+<li> This smells nice.</li>
+<li> Great clean, musk smell and truly keeps the smell away.</li>
+<li> The price was good, and it was prime, so the shipping was free.</li>
+<li> I&#x27;m so glad I found it here on amazon and for an amazing deal too.</li>
+<li> Kind of a manly cologne or aftershave scent, not too strong but</li>
+<li> Better price</li>
+<li> Love this musk scent and have worn it for yrs and yrs</li>
+<li> Love the product.  </li>
+<li> The love of my life says if I could not get this</li>
+<li> I can see why some people would love it.  </li>
+<li> and I&#x27;m so pleased I can buy a 2 year supply on Amazon.  </li>
+<li> Glad Amazon has it.</li>
+<li> What more do you need?</li>
+<li> Glad I could find it somewhere.</li>
+<li> This might be meant for men, but I&#x27;m not a man and I use it. :)</li>
+<li> $1.00 more than Walmart per stick.</li>
+<li> Probably one of my favorite smelling deodorants.</li>
+<li> but I perspire even more, and body odor becomes a problem (which is isn&#x27;t with the Speed Stick).&lt;br /&gt;&lt;br</li>
+<li> We just love it and hope that we will be able to find it whenever needed.</li>
+<li> I love the way this deodorant smells...</li>
+<li> I LOVE IT.</li>
+<li> I like this scent and it has become scarce at most stores.  </li>
+<li> I was glad to be able to get it again.</li>
+<li> Glad Amazon carries it in bulk.</li>
+<li> /&gt;So all in all, a pretty good product, reformulated to remove a chemical compound under scrutiny for lack of beneficial evidence.hemical compound under scrutiny for lack of beneficial evidence.</li>
+<li> The scent is VERY clean without being overly strong like some others.</li>
+<li> The smell is unique that is for sure.  </li>
+<li> and most importantly, it&#x27;s EFFECTIVE and GENTLE on my skin.&lt;br</li>
+<li> It&#x27;s a great, clean, truly masculine scent that will leave you smelling like a man, not</li>
+<li> /&gt;The new look and formula removes triclosan from the ingredients list, a GOOD thing!&lt;br /&gt;&lt;br /&gt;Per</li>
+<li> Luckily , I was able to find it here</li>
+<li> Just ordered two sets of six (free shipping) for the Easter bunny to give my husband.&lt;br /&gt;The</li>
+<li> It&#x27;s definitely time for some rebranding, but it smells great.</li>
+<li> /&gt;It&#x27;s cheap.</li>
+<li> know the actual product is great, exactly what we wanted, but since it is deceiving in showing the picture when there are no intentions on delivering that product, I give this one 2 Stars at most.</li>
+<li> My wife is glad too...;)</li>
+<li> as expected  it is great</li>
+<li> This is my tried and true.</li>
+<li> /&gt;Secondly, it has a fresh, clean</li>
+<li> To me, it just smells fresh and clean.</li>
+<li> Sometimes I get lucky, but I&#x27;d rather not take the risk</li>
+<li> have sensitive skin and have experimented with many different deodorants to find those that offer good odor protection without inflaming my skin.</li>
+<li> Don&#x27;t know why stores in the Austin, TX area stopped stocking this scent, but after 30 years of using the same deodorant, this creature of habit is glad he could find it here on Amazon!  </li>
+<li> It was OLD stock with most of the scent evaporated.</li>
+<li> Just as good as expected</li>
+<li> -Powerful odor protection that lasts all day&lt;br</li>
+<li> It&#x27;s just right.</li>
+<li> It keeps me dry, odor free and confident.</li>
+<li> I love speed stick musk and like other reviewers, the deodorant (NOT antiperspirant) is easy on my skin.  </li>
+<li> It does have a scent, but it&#x27;s natural and very mild</li>
+<li> the FDA, triclosan is \\&quot;an ingredient added to many consumer products to reduce or prevent bacterial contamination\\&quot;, but \\&quot;does not have evidence that triclosan in antibacterial soaps and body washes provides any benefit over washing with regular soap and water\\&quot;</li>
+<li> only thing that could make it better is Triclosan.</li>
+<li> By lunch time I am smelling pretty ripe.  </li>
+<li> Maybe that&#x27;s why I have found it to be refreshingly gentle yet completely powerful.</li>
+<li> Exactly what I was looking for.</li>
+<li> so much that after CVS stopped carrying it, I made my boyfriend order it from here!</li>
+<li> Dummy me didn&#x27;t check first.</li>
+<li> Recently, it seems that some deodorants try to concentrate more on smelling like cologne than being a product to rub on your pits.&lt;br /&gt;&lt;br</li>
+<li> This deodorant is my husband&#x27;s favorite and he&#x27;d been looking for it at different stores without any luck.</li>
+<li> Thanks!</li>
+<li> exactly as promised - Has been my brand for years and can&#x27;t seem to find it around here.</li>
+<li> and it is very effective and long lasting and causes no skin</li>
+<li> fast delivery and exactly what I wanted.</li>
+<li> I&#x27;ve used Speed Stick before in the past and had a good experience.</li>
+<li> Hard to fine this good-smelling and safe (no harmful ingredients) deodorant in stores.  </li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> Just as good as expected</li>
+    <li> Exactly what I was looking for. Cannot find in local stores. Great product....Great price</li>
+    <li> I love the way this deodorant smells... so much that after CVS stopped carrying it, I made my boyfriend order it from here!</li>
+    <li> This might be meant for men, but I&#x27;m not a man and I use it. :)&lt;br /&gt;&lt;br /&gt;I don&#x27;t want to use anything with aluminum.  Even the all-natural \\&quot;mineral\\&quot; stuff is 100% alum, which defeats the purpose.  So, I went to the store and looked at all the deodorants.  All had artificial colors and scents except this one. It does have a scent, but it&#x27;s natural and very mild (I don&#x27;t smell whiffs of it during the day). It&#x27;s not &#x27;manly&#x27; or &#x27;womanly.&#x27; It works, but you still might perspire because of the lack of aluminum crud.&lt;br /&gt;&lt;br /&gt;As for the all-natural non-alum deodorants and anti-perspirants which are available (Tom&#x27;s, Kiss My Face, Jason, etc.), they simply don&#x27;t work for me.  They seem nice but I perspire even more, and body odor becomes a problem (which is isn&#x27;t with the Speed Stick).&lt;br /&gt;&lt;br /&gt;I don&#x27;t give it 5 stars because it contains propylene glycol. I&#x27;d still rather have that than aluminum.</li>
+    <li> no complaints, from me or others</li>
+    <li> I love speed stick musk and like other reviewers, the deodorant (NOT antiperspirant) is easy on my skin.  I break out into a rash with the anti&#x27;s.  The smell is great and I&#x27;m so pleased I can buy a 2 year supply on Amazon.  When they stop making this smell, I have no idea what I&#x27;m going to do with myself.  It really is perfect.</li>
+    <li> We were having a hard time finding my husband&#x27;s favorite deodorant locally. I went on Amazon and found it at a great price!</li>
+    <li> I bought this deodorant having seen all the great reviews.  It was also a great value for cost per ounce.  The smell is unique that is for sure.  I can see why some people would love it.  The problem I have is that it does not last.  By lunch time I am smelling pretty ripe.  Another problem with that musk smell is that it is not a perfumy smell so it does not cover up BO all that well.  If anything it only enhances the BO.  If you dont have problems with BO or perspiration then I can see this working for you.  Otherwise, avoid.</li>
+    <li> exactly as promised - Has been my brand for years and can&#x27;t seem to find it around here. fast delivery and exactly what I wanted.</li>
+    <li> -Powerful odor protection that lasts all day&lt;br /&gt;&lt;br /&gt;-Clean masculine scent&lt;br /&gt;&lt;br /&gt;I have sensitive skin and have experimented with many different deodorants to find those that offer good odor protection without inflaming my skin. In my search, there are 3 types that I can use regularly without a problem and out of those, Speed Stick Musk is my #1 CHOICE!! To me it smells great. If you&#x27;ve never smelled this, I think it closely resembles the scent of some kind of canned shaving foam. If you&#x27;ve never thought about trying this because you&#x27;ve smelled musk after-shave....don&#x27;t worry, it&#x27;s NOT LIKE THAT STUFF. The scent is VERY clean without being overly strong like some others. Recently, it seems that some deodorants try to concentrate more on smelling like cologne than being a product to rub on your pits.&lt;br /&gt;&lt;br /&gt;Speed Stick Musk is a clear solid so there is none of that white gunk that can grab onto your hairs and discolor your shirts. For me, I have observed that the odor protection is BETTER than any other I have tried which proves to me that expensive doesn&#x27;t mean better. This has EVERTHING I&#x27;m looking for...&lt;br /&gt;&lt;br /&gt;First and most importantly, it&#x27;s EFFECTIVE and GENTLE on my skin.&lt;br /&gt;Secondly, it has a fresh, clean scent.&lt;br /&gt;Lastly, it&#x27;s a GREAT value.&lt;br /&gt;&lt;br /&gt;This contains only six ingredients with stearyl alcohol being listed last and is thankfully ALUMINUM FREE!. Maybe that&#x27;s why I have found it to be refreshingly gentle yet completely powerful. Whatever it is....I LOVE IT. For a guy that has never been completely brand-loyal, this is one of those brands where I make an exception.</li>
+    <li> I have been using this product for years and often have a hard time finding it.  It keeps me dry, odor free and confident.</li>
+    <li> Are Stags in rut endangered?  Musk is now found only on the Amazon.  The love of my life says if I could not get this I would not smell like me.&lt;br /&gt;&lt;br /&gt;TGFA - (Thank Goddess for Amazon)</li>
+    <li> Don&#x27;t know why stores in the Austin, TX area stopped stocking this scent, but after 30 years of using the same deodorant, this creature of habit is glad he could find it here on Amazon!  My wife is glad too...;)</li>
+    <li> Just ordered two sets of six (free shipping) for the Easter bunny to give my husband.&lt;br /&gt;The last place around here to carry it was Target, was there today, nope, nada, none.&lt;br /&gt;Thought about trying Axe but I really don&#x27;t know what Twist, Excite, or Kilo (kilo, really?)&lt;br /&gt;is supposed to smell like.  Glad I could find it somewhere.</li>
+    <li> as expected  it is great</li>
+    <li> $1.00 more than Walmart per stick. Dummy me didn&#x27;t check first. Alas...  Live and learn.  But I like it and have been using it for at least 25 years. Great scent.</li>
+    <li> i eat the deodorant&lt;br /&gt;its like a pushpop&lt;br /&gt;remember those&lt;br /&gt;they tell me it makes me smell like a schizo but that&#x27;s probably confirmation bias because &#x27;they&#x27; already know me here at the halfway home</li>
+    <li> I like this scent and it has become scarce at most stores.  I was glad to be able to get it again.</li>
+    <li> Keeps you dry all day, no white residue, soft fragrance</li>
+    <li> Hard to fine this good-smelling and safe (no harmful ingredients) deodorant in stores.  Glad Amazon carries it in bulk. You CBA still find it sometimes at Wal-mart.</li>
+    <li> My deodorant of choice for years. Great clean, musk smell and truly keeps the smell away. But...I cannot find this deodorant anywhere. I&#x27;ve searched everywhere, Walgreens, CVS, supermarket, etc...nothing.</li>
+    <li> Exactly what I ordered, for reasons unknown, Musk has become very hard to find where I live.</li>
+    <li> This deodorant is my husband&#x27;s favorite and he&#x27;d been looking for it at different stores without any luck. I&#x27;m so glad I found it here on amazon and for an amazing deal too.</li>
+    <li> After CVS and Walgreens stopped carrying this I was wondering where to get it.&lt;br /&gt;This is a good product for men and is on par with the Jovan deodorant which is also a great men&#x27;s product.&lt;br /&gt;The Speed Stick is for the days I expect to have one tough day of physical labor and it meets the task.&lt;br /&gt;Good item, good price.</li>
+    <li> Musk— Yes, it sounds like something horrible, particularly as a deodorant, but this actually has a really nice neutral smell to it. I recommend giving it a shot.</li>
+    <li> Best deodorant I have ever used and at a great bargain! Amazon Rocks !!!!!</li>
+    <li> Does not smell quite the same as the older formulation that I bought several years ago, but I bought them in bulk and enough time passed that the company probably joined the move by other companies to launch &amp;#34;fresh young&amp;#34; scents to appease the greasy younger generation who have started to explore the methods of cloaking their infernal stench, erring on the side of thermonuclear chemical scents. I shall attempt to mitigate my disappointment in this new smell by appealing directly to Mennen, here on Amazon&#x27;s website: Please begin producing a &amp;#34;Get Off My Lawn&amp;#34; scent, for us old fogeys.</li>
+    <li> As advertised, I could not find them in the local stores anymore, all switched to fancy names and odd scents.  It is just like what I used to buy in the store. Tim.</li>
+    <li> Got this for hubby.  He was so frustrated about 10-15 years ago trying to find this particular brand and flavor, so I want to make sure he never runs out again.....will be ordering another one soon....6 in a box and on him they last for ever.</li>
+    <li> works great, smells great, price is right.</li>
+    <li> A lot of stores don&#x27;t carry this scent anymore. Sometimes I get lucky, but I&#x27;d rather not take the risk so I&#x27;m getting them in bulk like Elaine and The Sponge. I hate antiperspirant and have been using this forever. Not a lot of companies make just deodorant anymore. Welp, that&#x27;s my story.</li>
+    <li> everyting was what was to be expected</li>
+    <li> love the smell, last a long time</li>
+    <li> Came at a good time.  My son loves it.</li>
+    <li> Best deodorant for me, and I started noticing stores stopped carrying this one. It always reminds me of being a kid and being like my dad. Glad Amazon has it.</li>
+    <li> This smells nice. There are certain scents for deoderant that say &#x27;clean&#x27; in the same way the flavors in Trix and Fr&amp;uuml;ty pebbles and Fr&amp;uuml;t L&amp;uuml;ps say &#x27;fruit&#x27;. This has the advantage of not smelling like any of them while still being pleasant.&lt;br /&gt;&lt;br /&gt;It&#x27;s cheap. Each stick seems to last much longer than other brands of deoderant I&#x27;ve used, in that I find myself running out much less frequently (that could just be because they&#x27;re bigger, but still.)&lt;br /&gt;&lt;br /&gt;The only thing that could make it better is Triclosan. If they reformulated this with half the scent and a bit of triclosan in it, I&#x27;d buy it instantly. Actually killing off the bacteria feeding in your armpits is one of the few things triclosan actually has any legitimate use for.</li>
+    <li> Best deoderant brand and scent EVER!  Please keep selling this, I can&#x27;t find this anywhere in San Francisco!  I&#x27;ll buy from you until I die, thank you so much.</li>
+    <li> The only deodorant I&#x27;ll ever use. I ran out the week of a job interview and couldn&#x27;t find it in stores. Amazon to the rescue. It arrived the morning of the interview. I hope they never stop selling it.</li>
+    <li> I have used Speed Stick Musk for years but have had a harder and harder time finding it locally. Getting it on line is great! Better price and I have enough to last several months. Thanks!</li>
+    <li> It was OLD stock with most of the scent evaporated.</li>
+    <li> This is the best stick deodorant that can be found. The only one without aluminum, the ingredient that I do not like. My husband uses it, even me and my mother, we use it because it has a very soft scent that can be used by women as much as by men. We just love it and hope that we will be able to find it whenever needed.</li>
+    <li> I&#x27;ve used Speed Stick before in the past and had a good experience. So, when buying online I figured I&#x27;d stick with a brand that I know will not make me break out. Well, it did not make me break out, however, the odor protection is not what I remember it to be. I really like the smell of the musk Speed Stick. Probably one of my favorite smelling deodorants. Kind of a manly cologne or aftershave scent, not too strong but every now and then you&#x27;ll get a whiff and it smells great. Unfortunately, the odor protection does not last all day. Probably only last about half the day and by the end of the day I can definitely tell it isn&#x27;t working anymore. I still give it three stars though for the scent.</li>
+    <li> Always loved this deodorant and have used it for years. Was glad I found it on here is bulk as its getting hard to find at the store.</li>
+    <li> Been using this since high school. I am ultra sensitive as far as my skin in this area and Speed Sick has never caused me pain. Terribly hard to find in the local markets so thanks Amazon for giving me the help I needed and in a larger package at a reasonable price.</li>
+    <li> Because I couldn&#x27;t find this in regular stores, and my husband has been using it for years, I Bought the case of six on Amazon. The price was good, and it was prime, so the shipping was free. Now I don&#x27;t have to worry about where to get it anymore!</li>
+    <li> This is the second time I&#x27;ve bought this package. This particular scent seems not to be available in the local stores, I just need to remember to order my next when I start the last stick.</li>
+    <li> If you are tired of the \\&quot;sporty\\&quot; and \\&quot;fresh\\&quot; scents filling the shelves of your local supermarket, and want something a little more \\&quot;manly\\&quot;, then this could be the deodorant for you. It&#x27;s a great, clean, truly masculine scent that will leave you smelling like a man, not a boy.&lt;br /&gt;&lt;br /&gt;But who cares if it smells great if it doesn&#x27;t work? Cast your concerns aside, Speed Stick works great at controlling odor. Mind you, this is not an antiperspirant, and as such is aluminum free.&lt;br /&gt;&lt;br /&gt;The new look and formula removes triclosan from the ingredients list, a GOOD thing!&lt;br /&gt;&lt;br /&gt;Per the FDA, triclosan is \\&quot;an ingredient added to many consumer products to reduce or prevent bacterial contamination\\&quot;, but \\&quot;does not have evidence that triclosan in antibacterial soaps and body washes provides any benefit over washing with regular soap and water\\&quot; [1,2].&lt;br /&gt;&lt;br /&gt;What does this mean for you? Well, with recent health concerns over triclosan, that means that it&#x27;s inclusion in this product may not necessarily be necessary to provide any additional benefit. As an antibiotic, triclosan has been linked to hormone disruption, and the emergence of antibiotic-resistant bacteria [3]. The Canadian Medical Association has even asked for a ban on triclosan [4]. The American Medical Association suggests removing triclosan from your home, which also prevents runoff and accumulation into soil, groundwater, lakes, and streams where triclosan is toxic to wildlife [5]. Water treatment does not fully remove triclosan.&lt;br /&gt;&lt;br /&gt;1. FDA, \\&quot;Triclosan: What Consumers Should Know\\&quot;&lt;br /&gt;2. WebMD, \\&quot;FDA Panel: No Advantage to Antibacterial Soap\\&quot;&lt;br /&gt;3. CBC News, \\&quot;Toxic chemical monitoring program gets $500M\\&quot;&lt;br /&gt;4. The Globe and Mail, \\&quot;Experts concerned about dangers of antibacterial products\\&quot;&lt;br /&gt;5. Environmental Working Group, \\&quot;Pesticide in Soap, Toothpaste and Breast Milk - Is It Kid-Safe?: EWG&#x27;s Guide to Triclosan\\&quot;&lt;br /&gt;&lt;br /&gt;So all in all, a pretty good product, reformulated to remove a chemical compound under scrutiny for lack of beneficial evidence.hemical compound under scrutiny for lack of beneficial evidence.</li>
+    <li> This is the best stuff.  Hard to come by.  I have been stocking up on it.  To me, it just smells fresh and clean.</li>
+    <li> As described, delivered, great price, favorite brand.  What more do you need?</li>
+    <li> Has a good smell that is not overpowering.</li>
+    <li> Does not irritate my armpits like the other two brands I tired and never used again.  Sometimes the classics is all you need instead of the newer fancy brands.</li>
+    <li> My husband only uses Speed Stick Musk Scent and this is a great source for it.  It arrived quickly and is reasonably priced and save a lot of driving around to find it local.</li>
+    <li> Love the product.  The delivery was incredibly fast.</li>
+    <li> On time, delivered as shown, works as promised</li>
+    <li> Purchased this because it is cheaper than buying locally.  It&#x27;s Speedstick....it&#x27;s deodorant...  It works for me.  Compare prices locally.  May not be cheaper for you.</li>
+    <li> I have been using this product for over 25 years and it is getting harder to find on store shelves . Luckily , I was able to find it here</li>
+    <li> Too bad we cant find this product in the store.  You all need to bring this product back in in the store.</li>
+    <li> Wow!! Great price for this pack of six 3.25 sticks of deodorant. Mennen surprised me with this musk deodorant &amp; the quality of it.&lt;br /&gt;This deodorant is long lasting &amp; works very well in all situations. This goes on clear &amp; leaves no type of stain on any type of shirt. One stick is long lasting even after applying it several times a day.&lt;br /&gt;This is a great way to stock up at an affordable price. I am very,very particular about what I buy &amp; use but could not find anything negative to say about this item.</li>
+    <li> I have been using this product for years, probably since it was introduced.&lt;br /&gt;I like the smell and it is very effective and long lasting and causes no skin&lt;br /&gt;irritations.</li>
+    <li> It&#x27;s hard to find Musk Scent in stores these days. This scent is not overpowering. It&#x27;s just right. This is my tried and true.</li>
+    <li> Everything delivered as promised.</li>
+    <li> The only deodorant I use and it is sometimes hard to find at the store.  This is not antiperspirant by the way, I don&#x27;t like that stuff as it gives me a rash and is inherently bad for you skin.  This scent smells masculine but is not overpowering.  Good buy and a good price.&lt;br /&gt;&lt;br /&gt;peace</li>
+    <li> The joke is that this deodorant is not the one we received, even though we wanted this one. Yes, I am aware that I am not rating the correct product, but another Speed Stick (the one that comes in white and smears, and was the last one we wanted) product. Makes anyone upset to order an specific product and receive a totally different product instead. That is why the 1 Star review. For if someone chooses this product and receives one they did not order, I think that would warrant a star. Noticed this has happened more than once, according to other reviewers, and that is Baloney, because what it means is that someone in a warehouse is substituting products at their whim.&lt;br /&gt;I know the actual product is great, exactly what we wanted, but since it is deceiving in showing the picture when there are no intentions on delivering that product, I give this one 2 Stars at most.</li>
+    <li> I have used this product for years.  It is consistent, works well, and has a subtle, nice scent.  Recommend it.</li>
+    <li> Love this musk scent and have worn it for yrs and yrs</li>
+    <li> probably because the brown packaging makes it looks like something your grandfather would wear in the 70s with his leisure suit.  It&#x27;s definitely time for some rebranding, but it smells great.</li>
+    <li> My pits havent smelled this good since 1997! i keep my nose buried under my arms just to keep me from smelling the putrid world we live in.</li>
+    <li> My favorite deodorant that is difficult or impossible to find in stores. Happy to have a source.</li>
+    <li> I have been using this scent for years it is the perfect scent of musk not to strong just pleasant</li>
+</ol>
+
+
+
+

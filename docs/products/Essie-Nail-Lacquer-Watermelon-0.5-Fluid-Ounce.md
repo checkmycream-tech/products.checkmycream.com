@@ -1,0 +1,162 @@
+---
+title: Essie Nail Lacquer, Watermelon, 0.5 Fluid Ounce,
+description: Essie Nail Lacquer, Watermelon, 0.5 Fluid Ounce,
+author: Suvojit Manna,
+tags: Essie Nail Lacquer, Watermelon, 0.5 Fluid Ounce,
+publishedAt: Fri Jan 10 2020 15:00:13 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:13 GMT+0530 (India Standard Time),
+---
+
+# [Essie Nail Lacquer, Watermelon, 0.5 Fluid Ounce](https://products.checkmycream.com/products/Essie-Nail-Lacquer-Watermelon-0.5-Fluid-Ounce.html)
+
+### Positive Reviews
+
+<ol>
+      <li>Looks great on toes and hands!</li>
+      <li>Perfect for the summer.</li>
+      <li>Wish Revlon had this perfect summer color&amp;#34;</li>
+      <li>Happy Summer Nails Dance!</li>
+      <li>Great polish!  </li>
+      <li>Perfect summer pedicure color</li>
+      <li>so perfect for summer.&lt;br /&gt;&lt;br</li>
+      <li>Perfect color for summer.</li>
+      <li>it goes on beautifully and lasts wonderfully on my acrylic nails.  </li>
+      <li>A beautiful color that applies well.&lt;br /&gt;&lt;br</li>
+      <li>Color is beautiful..</li>
+      <li>It&#x27;s a happy choice for your phallanges</li>
+      <li>This is a great summer color.  </li>
+      <li>Great price for a great product.  </li>
+      <li>it goes on nice and to me, it&#x27;s the perfect</li>
+      <li>They&#x27;re quality is wonderful (doesn&#x27;t chip too quickly) and they have the best colors.</li>
+      <li>Good price for Essie nail polish.</li>
+      <li>Nice and bright.</li>
+      <li>I liked -</li>
+      <li>I am very happy with this color (watermelon) and with the Essie products as a whole.  </li>
+      <li>and she like it :)</li>
+      <li>I was expecting a lot more from this nail lacquer.</li>
+      <li>love this color.</li>
+      <li>Who could ask for more?</li>
+      <li>I love, love Essie nail polish,,,and</li>
+      <li>Very unique color.</li>
+      <li>The application is good but it would have rated higher if the smell of it didn&#x27;t make me dizzy.</li>
+      <li>reflection on the product -  the color is a bit too strong for my skin</li>
+      <li>You never can tell if it will be exactly the color you&#x27;ll wear and love, BUT, I have always been completely satisfied with Essie.  </li>
+      <li>I&#x27;ve been looking for this particular color for a long time &amp; happy to now own it!  </li>
+      <li>I love the bold color and it lasts well.  </li>
+      <li>It is bright without being neon or really loud.  </li>
+      <li>Who does not look great in red nail polish.....</li>
+      <li>my favourite essie nailpolish, amazing bright fresh pink</li>
+      <li>I take it to my salon and have my nail professional use it, since I want to be sure I always have it for summer manicures!  </li>
+      <li>I love Essie and this is a great hot pink!  </li>
+      <li>Love this vibrant color!</li>
+      <li>Went on great and was the color I expected.</li>
+      <li>First time wearing Essie and so far so good.  </li>
+      <li>Got it sooner than expected, just what I wanted, good price, free shipping.</li>
+      <li>This is such a bright and fun color.</li>
+      <li>The color is fabulous, I get lots of comments on what a pretty color it is.  </li>
+      <li>This is the most beautiful shade of pink red</li>
+      <li>The color is beautiful tough.</li>
+      <li>The polish itself is very high quality and seems to resist chipping very well.  </li>
+      <li>company has a lot of shades of pink that are more suited to my skin tone.</li>
+      <li>Shipment came fast.</li>
+      <li>Highly recommend this seller.</li>
+      <li>Application is not as smooth as Revlon which I usually use..</li>
+      <li>It goes on hot pink but later changes to red.</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> Looks great on toes and hands!</li>
+<li> Perfect for the summer.</li>
+<li> Wish Revlon had this perfect summer color&amp;#34;</li>
+<li> Happy Summer Nails Dance!</li>
+<li> Great polish!  </li>
+<li> Perfect summer pedicure color</li>
+<li> so perfect for summer.&lt;br /&gt;&lt;br</li>
+<li> Perfect color for summer.</li>
+<li> it goes on beautifully and lasts wonderfully on my acrylic nails.  </li>
+<li> A beautiful color that applies well.&lt;br /&gt;&lt;br</li>
+<li> Color is beautiful..</li>
+<li> It&#x27;s a happy choice for your phallanges</li>
+<li> This is a great summer color.  </li>
+<li> Great price for a great product.  </li>
+<li> it goes on nice and to me, it&#x27;s the perfect</li>
+<li> They&#x27;re quality is wonderful (doesn&#x27;t chip too quickly) and they have the best colors.</li>
+<li> Good price for Essie nail polish.</li>
+<li> Nice and bright.</li>
+<li> I liked -</li>
+<li> I am very happy with this color (watermelon) and with the Essie products as a whole.  </li>
+<li> and she like it :)</li>
+<li> I was expecting a lot more from this nail lacquer.</li>
+<li> love this color.</li>
+<li> Who could ask for more?</li>
+<li> I love, love Essie nail polish,,,and</li>
+<li> Very unique color.</li>
+<li> The application is good but it would have rated higher if the smell of it didn&#x27;t make me dizzy.</li>
+<li> reflection on the product -  the color is a bit too strong for my skin</li>
+<li> You never can tell if it will be exactly the color you&#x27;ll wear and love, BUT, I have always been completely satisfied with Essie.  </li>
+<li> I&#x27;ve been looking for this particular color for a long time &amp; happy to now own it!  </li>
+<li> I love the bold color and it lasts well.  </li>
+<li> It is bright without being neon or really loud.  </li>
+<li> Who does not look great in red nail polish.....</li>
+<li> my favourite essie nailpolish, amazing bright fresh pink</li>
+<li> I take it to my salon and have my nail professional use it, since I want to be sure I always have it for summer manicures!  </li>
+<li> I love Essie and this is a great hot pink!  </li>
+<li> Love this vibrant color!</li>
+<li> Went on great and was the color I expected.</li>
+<li> First time wearing Essie and so far so good.  </li>
+<li> Got it sooner than expected, just what I wanted, good price, free shipping.</li>
+<li> This is such a bright and fun color.</li>
+<li> The color is fabulous, I get lots of comments on what a pretty color it is.  </li>
+<li> This is the most beautiful shade of pink red</li>
+<li> The color is beautiful tough.</li>
+<li> The polish itself is very high quality and seems to resist chipping very well.  </li>
+<li> company has a lot of shades of pink that are more suited to my skin tone.</li>
+<li> Shipment came fast.</li>
+<li> Highly recommend this seller.</li>
+<li> Application is not as smooth as Revlon which I usually use..</li>
+<li> It goes on hot pink but later changes to red.</li>
+<li> It is long lasting too!</li>
+<li> Also, doesn&#x27;t last as long..</li>
+<li> The lacquer does not spread properly and the nail get a not very well polished look.</li>
+<li> Watermelon goes with pink, orange or red, and compliments every skin tone.  </li>
+<li> color goes with everything all season long.</li>
+<li> I will definitely buy the Essie brand again in other colors.</li>
+<li> Again, you do have to use a base coat and a top coat to make it last.  </li>
+<li> Other polishes don&#x27;t do that to me.</li>
+<li> Essie never lets me down.</li>
+<li> little kids to grannies ...</li>
+<li> That&#x27;s hard to say with nail polish.</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> Also bought this as a gift for my god sister,and of course she loves it!</li>
+    <li> I&#x27;m wearing this now.  I&#x27;ve been looking for this color for a while and finally found it on Amazon.  I get compliments on it all the time.  First time wearing Essie and so far so good.  Highly recommend this seller.</li>
+    <li> Love this vibrant color! Essie never lets me down. They&#x27;re quality is wonderful (doesn&#x27;t chip too quickly) and they have the best colors.</li>
+    <li> love this color. so perfect for summer.&lt;br /&gt;&lt;br /&gt;What I liked - it goes on nice and to me, it&#x27;s the perfect pink!&lt;br /&gt;&lt;br /&gt;I would recommend this product!</li>
+    <li> I love Essie and this is a great hot pink!  I love the bold color and it lasts well.  Nice and bright.</li>
+    <li> my favourite essie nailpolish, amazing bright fresh pink</li>
+    <li> I was expecting a lot more from this nail lacquer. The lacquer does not spread properly and the nail get a not very well polished look. I do not recommend it. The color is beautiful tough.</li>
+    <li> Who does not look great in red nail polish.....little kids to grannies ...color goes with everything all season long. It&#x27;s a happy choice for your phallanges</li>
+    <li> This is a great summer color.  It is bright without being neon or really loud.  The polish itself is very high quality and seems to resist chipping very well.  Again, you do have to use a base coat and a top coat to make it last.  All in all I am very happy with this color (watermelon) and with the Essie products as a whole.  I will definitely buy the Essie brand again in other colors.</li>
+    <li> I&#x27;ve been looking for this particular color for a long time &amp; happy to now own it!  Very unique color.</li>
+    <li> Great price for a great product.  Went on great and was the color I expected.</li>
+    <li> Looks great on toes and hands! Perfect color for summer. Good price for Essie nail polish. Shipment came fast. Would purchase this again.</li>
+    <li> I bought it for my sis and she like it :)</li>
+    <li> Got it sooner than expected, just what I wanted, good price, free shipping. Who could ask for more?</li>
+    <li> Perfect summer pedicure color</li>
+    <li> A beautiful color that applies well.&lt;br /&gt;&lt;br /&gt;No reflection on the product -  the color is a bit too strong for my skin tone.&lt;br /&gt;&lt;br /&gt;This company has a lot of shades of pink that are more suited to my skin tone.</li>
+    <li> Great polish!  The color is fabulous, I get lots of comments on what a pretty color it is.  It is long lasting too!</li>
+    <li> You never can tell if it will be exactly the color you&#x27;ll wear and love, BUT, I have always been completely satisfied with Essie.  That&#x27;s hard to say with nail polish.</li>
+    <li> This is the most beautiful shade of pink red I have ever seen. It goes on hot pink but later changes to red. The application is good but it would have rated higher if the smell of it didn&#x27;t make me dizzy. Other polishes don&#x27;t do that to me.</li>
+    <li> I love, love Essie nail polish,,,and it goes on beautifully and lasts wonderfully on my acrylic nails.  I take it to my salon and have my nail professional use it, since I want to be sure I always have it for summer manicures!  Watermelon goes with pink, orange or red, and compliments every skin tone.  Happy Summer Nails Dance!</li>
+    <li> Color is beautiful.. Application is not as smooth as Revlon which I usually use.. Also, doesn&#x27;t last as long.. Wish Revlon had this perfect summer color&amp;#34;</li>
+    <li> This is such a bright and fun color. Perfect for the summer.</li>
+</ol>
+
+
+
+

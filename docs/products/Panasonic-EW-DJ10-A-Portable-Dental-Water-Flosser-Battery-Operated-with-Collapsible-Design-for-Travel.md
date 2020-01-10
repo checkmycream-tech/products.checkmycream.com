@@ -3,8 +3,8 @@ title: Panasonic EW-DJ10-A Portable Dental Water Flosser, Battery Operated with 
 description: Panasonic EW-DJ10-A Portable Dental Water Flosser, Battery Operated with Collapsible Design for Travel,
 author: Suvojit Manna,
 tags: Panasonic EW-DJ10-A Portable Dental Water Flosser, Battery Operated with Collapsible Design for Travel,
-publishedAt: Thu Jan 09 2020 19:08:28 GMT+0530 (India Standard Time),
-modifiedAt: Thu Jan 09 2020 19:08:28 GMT+0530 (India Standard Time),
+publishedAt: Fri Jan 10 2020 14:59:34 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:59:34 GMT+0530 (India Standard Time),
 ---
 
 # [Panasonic EW-DJ10-A Portable Dental Water Flosser, Battery Operated with Collapsible Design for Travel](https://products.checkmycream.com/products/Panasonic-EW-DJ10-A-Portable-Dental-Water-Flosser-Battery-Operated-with-Collapsible-Design-for-Travel.html)
@@ -12,211 +12,211 @@ modifiedAt: Thu Jan 09 2020 19:08:28 GMT+0530 (India Standard Time),
 ### Positive Reviews
 
 <ol>
-      <li>It works great!</li>
-      <li>Works great, I use it in the shower every morning!  </li>
-      <li>And what a great value!</li>
-      <li>Great!</li>
-      <li>Excellent device, exceeded my expectations!</li>
-      <li>Had it for a month now, I&#x27;m very happy with it!</li>
-      <li>The water resovoir is perfect size/easy to use.</li>
-      <li>A marvel of design, it performs flawlessly and collapses into almost nothing for travel.</li>
-      <li>I use NiMH rechargeable batteries in all of them, changing them every two weeks for best pressure.  </li>
-      <li>I need to use an irrigator about once a week to keep bacteria away from my gum or the pain is EXQUISITE.  </li>
-      <li>I am very happy with this one.</li>
-      <li>Batteries included..works great!</li>
-      <li>I was also very happy to see 2 AA batteries included in the package so I have tried the product as soon as it was delivered.</li>
-      <li>Very good buy!</li>
-      <li>Excellent waterpik.  </li>
-      <li>This is the best oral irrigator on the market!  </li>
-      <li>That is also an excellent product and I have that one, too.</li>
-      <li>All over great product!</li>
       <li>The on/off button is perfectly located.  </li>
-      <li>Very happy with this product.</li>
-      <li>perfect size for travel.</li>
-      <li>Excellent!</li>
-      <li>I always have been taken care of my mouth and, of course,I&#x27;ve been looking for the best way to accomplish my goal.</li>
-      <li>Great product!</li>
-      <li>Excellent device.</li>
-      <li>, this is the best irrigator you can by IMHO.  </li>
-      <li>I am very happy with the product - BUT</li>
-      <li>Works great!  </li>
-      <li>use with two drops of the PerioCleanse Concentrate.&lt;br /&gt;I am very happy I made this purchase.  </li>
-      <li>The best travel size oral irrigator.</li>
-      <li>but this thing is great!!!</li>
-      <li>I am really impressed with it.  </li>
-      <li>and it has been a wonderful addition to my oral hygiene.  </li>
-      <li>I like it best for:&lt;br /&gt;travel</li>
-      <li>I bought the Panasonic Oral Irrigator to bring to Thailand since it&#x27;s gotten excellent reviews on Amazon.</li>
-      <li>This one is awesome.  </li>
+      <li>Does a wonderful job.</li>
+      <li>I have had it for 3 years now, and it still works perfectly.</li>
       <li>I continue to use one PowerGenix NiZn battery with one Duracell NiMH battery for the best balance of power without tearing up my gums.</li>
-      <li>I had been really impressed with that model as the batteries lasted forever</li>
-      <li>Very happy with this one.</li>
-      <li>battery-powered portable oral irrigation /cleaning device works perfectly.</li>
-      <li>but if that were remedied it would be a perfect 5 star.  </li>
-      <li>I will take it on an overseas trip and the best part ..</li>
-      <li>Excellent quality.</li>
-      <li>Don&#x27;t see great products like this too often!</li>
-      <li>/&gt;this  Panasonic best for travel.</li>
-      <li>the Panasonic Oral irrigator is wonderful for traveling.</li>
-      <li>Which bring&#x27;s me to the Panasonic&#x27;s best point, portability.  </li>
-      <li>The build quality is excellent and it does what it&#x27;s designed to do.  </li>
-      <li>and I&#x27;m very happy with it for oral hygiene.</li>
-      <li>just returned it to Amazon, that wonderful customer-friendly company.</li>
+      <li>This is the best dental tool I have ever used.</li>
+      <li>Works great!</li>
+      <li>It works great!</li>
+      <li>Excellent product.&lt;br /&gt;Four years</li>
+      <li>I&#x27;m just confirming that it&#x27;s a great device!</li>
       <li>Just had my semi-annual cleaning and the hygienist said my teeth and gums looked the best she&#x27;d ever seen them.</li>
+      <li>Excellent pressure and portability.</li>
+      <li>/&gt;Overall it&#x27;s the best for</li>
+      <li>Excellent product.</li>
+      <li>Excellent!  </li>
+      <li>Very happy with purchase.</li>
       <li>it&#x27;s awesome,</li>
+      <li>arrived and loving it.. !!!</li>
+      <li>The Panasonic irrigator seems the perfect travel-mate.&lt;br /&gt;&lt;br</li>
+      <li>The quality and performance of the unit are superb.  </li>
+      <li>We&#x27;re very happy with this purchase!</li>
+      <li>The best thing I have done for my mouth period!</li>
+      <li>Perfect for those that travel abroad a lot.</li>
+      <li>Battery life is great!</li>
+      <li>It is great to have this for the office or travel!</li>
+      <li>For what it is - a battery powered dental water pick, it&#x27;s great!</li>
+      <li>Not the strongest on earth but wonderful.</li>
+      <li>Great gums!</li>
+      <li>It is an excellent product for travel.</li>
+      <li>Works great, I use it in the shower every morning!  </li>
+      <li>This oral irrigator is great!</li>
       <li>excellent product-out Dentist recommended it!!!</li>
+      <li>Best portable water pick out there.</li>
+      <li>Excellent design.</li>
+      <li>excellent irrigator</li>
+      <li>So this is an excellent alternative.</li>
+      <li>I will take it on an overseas trip and the best part ..</li>
+      <li>Excellent tool if you have bridge work and cannot get between teeth, also strengthens gums.</li>
+      <li>This one is awesome.  </li>
+      <li>This is a great product!  </li>
       <li>It is an excellent design.</li>
       <li>Great product!</li>
+      <li>Very happy at this point.</li>
+      <li>The oral Irrigator works wonderfully!</li>
       <li>Regardless, this is a wonderful unit for traveling.  </li>
       <li>Otherwise very happy with this product.</li>
+      <li>Convenient travel size, uses batteries and does a great job!</li>
+      <li>Very good buy!</li>
+      <li>I bought the Panasonic Oral Irrigator to bring to Thailand since it&#x27;s gotten excellent reviews on Amazon.</li>
+      <li>I am very happy with this item.</li>
+      <li>I like it best for:&lt;br /&gt;travel</li>
+      <li>This perfectly fits the bill.  </li>
+      <li>It&#x27;s perfect</li>
+      <li>THE BEST !  </li>
+      <li>This model is the best they&#x27;ve made in terms of features.</li>
       <li>This is the best oral irrigator I have used.</li>
       <li>It does an excellent job.</li>
       <li>This is one of the best and easiest products I&#x27;ve bought.  </li>
+      <li>This is the perfect size for traveling.  </li>
+      <li>And what a great value!</li>
+      <li>I love it!!!!</li>
       <li>These irrigators are really excellent for travel as well, since they are so compact and are batter-operated.  </li>
+      <li>You just need to change batteries often, but hey, it&#x27;s the best in the shower anyway - having</li>
       <li>great all-round!!</li>
       <li>Is my dental hygienist going to be happy!</li>
+      <li>Best travel flossier ever.</li>
+      <li>and it has been a wonderful addition to my oral hygiene.  </li>
+      <li>a real great buy.</li>
       <li>Bought this item, and it is perfect.</li>
+      <li>Great!</li>
+      <li>I am really impressed with it.  </li>
       <li>Portions of water perfectly suffice for massage of gums and washing of teeth.</li>
-      <li>It is an excellent travel item that packs neatly away with a slot for storing the nozzle in the unit.</li>
-      <li>Perfect that it is battery operated, so you don&#x27;t have to deal with cords.  </li>
-      <li>It&#x27;s perfect for travel.</li>
-      <li>but this is the BEST i can for my teeth.</li>
-      <li>This is an excellent product.</li>
-      <li>It&#x27;s perfect for traveling even out of the country because there&#x27;s no power conversion to worry about.</li>
-      <li>I want to spread the word about your great product!</li>
-      <li>Works wonderfully!  </li>
-      <li>but once you get the hang of it it is awesome.</li>
-      <li>I&#x27;m so happy with this water flosser!</li>
-      <li>Perfect size for on the go!</li>
-      <li>I have no problems using it, and it does a wonderful job!  </li>
-      <li>Great product, I received in todays!!!</li>
-      <li>Excellent product to remove bits and particles from between teeth.  </li>
-      <li>I am very happy with this.  </li>
-      <li>It is convenient to use and uses AA batteries which is perfect because I have a lot of rechargeable batteries.  </li>
-      <li>This Panasonic is wonderful.  </li>
-      <li>it is good,it&#x27;s perfect</li>
-      <li>Excellent purchase.</li>
-      <li>I think this is an excellent option for an irrigator/flosser.  </li>
-      <li>I am so happy with it!  </li>
-      <li>It is perfect for travel.</li>
-      <li>Very happy with the Panasonic.</li>
-      <li>The battery life is excellent.</li>
-      <li>it is wonderful!</li>
-      <li>Travels great!</li>
-      <li>Great for on the go!!!</li>
-      <li>It removes all the things between your teeth perfectly.  </li>
-      <li>The reservoir capacity is perfect for one usage.</li>
-      <li>Especially good for someone with dental implants.</li>
-      <li>This is an excellent product.</li>
-      <li>This device is marvelous.</li>
-      <li>It has proven to be wonderful.  </li>
-      <li>I thinks is great!</li>
+      <li>So, who is being honest here!!!!!!!!!!!!!</li>
+      <li>The item is perfect to me and my family</li>
+      <li>I have to say practice makes perfect</li>
+      <li>&#x27;s handle making it perfect for your carry-on.&lt;br</li>
+      <li>no cables &#x3D; awesome.</li>
+      <li>Excellent device, exceeded my expectations!</li>
+      <li>Very happy with this irrigator.</li>
+      <li>Great product!</li>
+      <li>I have a couple of bridges and crowns ,so this is perfect///and great for travel!</li>
       <li>but I was so impressed with this item I needed to comment.</li>
+      <li>This is great !  </li>
+      <li>best part is, its portable...</li>
+      <li>But that&#x27;s the best I can say about it.  </li>
+      <li>Great DEAL OF THE DAY price!  </li>
+      <li>but if that were remedied it would be a perfect 5 star.  </li>
+      <li>It is perfect for using in the shower.  </li>
+      <li>I thinks is great!</li>
+      <li>Works Great!</li>
+      <li>It is an excellent travel item that packs neatly away with a slot for storing the nozzle in the unit.</li>
+      <li>I&#x27;m a very experienced handyman but the cap had me stumped.</li>
+      <li>This one had the best reviews of the battery powered types .&lt;br /&gt;I</li>
+      <li>It has proven to be wonderful.  </li>
+      <li>This oral irrigator has the perfect pressure.</li>
+      <li>This model has plenty of power and does an excellent job preventing a build-up of plaque or tartar at the gum line.</li>
+      <li>but this thing is great!!!</li>
+      <li>I bought this for travel and it works just perfectly!  </li>
+      <li>Perfect that it is battery operated, so you don&#x27;t have to deal with cords.  </li>
+      <li>Had it for a month now, I&#x27;m very happy with it!</li>
+      <li>Great Product!</li>
 </ol>
 
 
 <h2>Negative Reviews</h2>
 <ol>
-<li> It works great!</li>
-<li> Works great, I use it in the shower every morning!  </li>
-<li> And what a great value!</li>
-<li> Great!</li>
-<li> Excellent device, exceeded my expectations!</li>
-<li> Had it for a month now, I&#x27;m very happy with it!</li>
-<li> The water resovoir is perfect size/easy to use.</li>
-<li> A marvel of design, it performs flawlessly and collapses into almost nothing for travel.</li>
-<li> I use NiMH rechargeable batteries in all of them, changing them every two weeks for best pressure.  </li>
-<li> I need to use an irrigator about once a week to keep bacteria away from my gum or the pain is EXQUISITE.  </li>
-<li> I am very happy with this one.</li>
-<li> Batteries included..works great!</li>
-<li> I was also very happy to see 2 AA batteries included in the package so I have tried the product as soon as it was delivered.</li>
-<li> Very good buy!</li>
-<li> Excellent waterpik.  </li>
-<li> This is the best oral irrigator on the market!  </li>
-<li> That is also an excellent product and I have that one, too.</li>
-<li> All over great product!</li>
 <li> The on/off button is perfectly located.  </li>
-<li> Very happy with this product.</li>
-<li> perfect size for travel.</li>
-<li> Excellent!</li>
-<li> I always have been taken care of my mouth and, of course,I&#x27;ve been looking for the best way to accomplish my goal.</li>
-<li> Great product!</li>
-<li> Excellent device.</li>
-<li> , this is the best irrigator you can by IMHO.  </li>
-<li> I am very happy with the product - BUT</li>
-<li> Works great!  </li>
-<li> use with two drops of the PerioCleanse Concentrate.&lt;br /&gt;I am very happy I made this purchase.  </li>
-<li> The best travel size oral irrigator.</li>
-<li> but this thing is great!!!</li>
-<li> I am really impressed with it.  </li>
-<li> and it has been a wonderful addition to my oral hygiene.  </li>
-<li> I like it best for:&lt;br /&gt;travel</li>
-<li> I bought the Panasonic Oral Irrigator to bring to Thailand since it&#x27;s gotten excellent reviews on Amazon.</li>
-<li> This one is awesome.  </li>
+<li> Does a wonderful job.</li>
+<li> I have had it for 3 years now, and it still works perfectly.</li>
 <li> I continue to use one PowerGenix NiZn battery with one Duracell NiMH battery for the best balance of power without tearing up my gums.</li>
-<li> I had been really impressed with that model as the batteries lasted forever</li>
-<li> Very happy with this one.</li>
-<li> battery-powered portable oral irrigation /cleaning device works perfectly.</li>
-<li> but if that were remedied it would be a perfect 5 star.  </li>
-<li> I will take it on an overseas trip and the best part ..</li>
-<li> Excellent quality.</li>
-<li> Don&#x27;t see great products like this too often!</li>
-<li> /&gt;this  Panasonic best for travel.</li>
-<li> the Panasonic Oral irrigator is wonderful for traveling.</li>
-<li> Which bring&#x27;s me to the Panasonic&#x27;s best point, portability.  </li>
-<li> The build quality is excellent and it does what it&#x27;s designed to do.  </li>
-<li> and I&#x27;m very happy with it for oral hygiene.</li>
-<li> just returned it to Amazon, that wonderful customer-friendly company.</li>
+<li> This is the best dental tool I have ever used.</li>
+<li> Works great!</li>
+<li> It works great!</li>
+<li> Excellent product.&lt;br /&gt;Four years</li>
+<li> I&#x27;m just confirming that it&#x27;s a great device!</li>
 <li> Just had my semi-annual cleaning and the hygienist said my teeth and gums looked the best she&#x27;d ever seen them.</li>
+<li> Excellent pressure and portability.</li>
+<li> /&gt;Overall it&#x27;s the best for</li>
+<li> Excellent product.</li>
+<li> Excellent!  </li>
+<li> Very happy with purchase.</li>
 <li> it&#x27;s awesome,</li>
+<li> arrived and loving it.. !!!</li>
+<li> The Panasonic irrigator seems the perfect travel-mate.&lt;br /&gt;&lt;br</li>
+<li> The quality and performance of the unit are superb.  </li>
+<li> We&#x27;re very happy with this purchase!</li>
+<li> The best thing I have done for my mouth period!</li>
+<li> Perfect for those that travel abroad a lot.</li>
+<li> Battery life is great!</li>
+<li> It is great to have this for the office or travel!</li>
+<li> For what it is - a battery powered dental water pick, it&#x27;s great!</li>
+<li> Not the strongest on earth but wonderful.</li>
+<li> Great gums!</li>
+<li> It is an excellent product for travel.</li>
+<li> Works great, I use it in the shower every morning!  </li>
+<li> This oral irrigator is great!</li>
 <li> excellent product-out Dentist recommended it!!!</li>
+<li> Best portable water pick out there.</li>
+<li> Excellent design.</li>
+<li> excellent irrigator</li>
+<li> So this is an excellent alternative.</li>
+<li> I will take it on an overseas trip and the best part ..</li>
+<li> Excellent tool if you have bridge work and cannot get between teeth, also strengthens gums.</li>
+<li> This one is awesome.  </li>
+<li> This is a great product!  </li>
 <li> It is an excellent design.</li>
 <li> Great product!</li>
+<li> Very happy at this point.</li>
+<li> The oral Irrigator works wonderfully!</li>
 <li> Regardless, this is a wonderful unit for traveling.  </li>
 <li> Otherwise very happy with this product.</li>
+<li> Convenient travel size, uses batteries and does a great job!</li>
+<li> Very good buy!</li>
+<li> I bought the Panasonic Oral Irrigator to bring to Thailand since it&#x27;s gotten excellent reviews on Amazon.</li>
+<li> I am very happy with this item.</li>
+<li> I like it best for:&lt;br /&gt;travel</li>
+<li> This perfectly fits the bill.  </li>
+<li> It&#x27;s perfect</li>
+<li> THE BEST !  </li>
+<li> This model is the best they&#x27;ve made in terms of features.</li>
 <li> This is the best oral irrigator I have used.</li>
 <li> It does an excellent job.</li>
 <li> This is one of the best and easiest products I&#x27;ve bought.  </li>
+<li> This is the perfect size for traveling.  </li>
+<li> And what a great value!</li>
+<li> I love it!!!!</li>
 <li> These irrigators are really excellent for travel as well, since they are so compact and are batter-operated.  </li>
+<li> You just need to change batteries often, but hey, it&#x27;s the best in the shower anyway - having</li>
 <li> great all-round!!</li>
 <li> Is my dental hygienist going to be happy!</li>
+<li> Best travel flossier ever.</li>
+<li> and it has been a wonderful addition to my oral hygiene.  </li>
+<li> a real great buy.</li>
 <li> Bought this item, and it is perfect.</li>
+<li> Great!</li>
+<li> I am really impressed with it.  </li>
 <li> Portions of water perfectly suffice for massage of gums and washing of teeth.</li>
-<li> It is an excellent travel item that packs neatly away with a slot for storing the nozzle in the unit.</li>
-<li> Perfect that it is battery operated, so you don&#x27;t have to deal with cords.  </li>
-<li> It&#x27;s perfect for travel.</li>
-<li> but this is the BEST i can for my teeth.</li>
-<li> This is an excellent product.</li>
-<li> It&#x27;s perfect for traveling even out of the country because there&#x27;s no power conversion to worry about.</li>
-<li> I want to spread the word about your great product!</li>
-<li> Works wonderfully!  </li>
-<li> but once you get the hang of it it is awesome.</li>
-<li> I&#x27;m so happy with this water flosser!</li>
-<li> Perfect size for on the go!</li>
-<li> I have no problems using it, and it does a wonderful job!  </li>
-<li> Great product, I received in todays!!!</li>
-<li> Excellent product to remove bits and particles from between teeth.  </li>
-<li> I am very happy with this.  </li>
-<li> It is convenient to use and uses AA batteries which is perfect because I have a lot of rechargeable batteries.  </li>
-<li> This Panasonic is wonderful.  </li>
-<li> it is good,it&#x27;s perfect</li>
-<li> Excellent purchase.</li>
-<li> I think this is an excellent option for an irrigator/flosser.  </li>
-<li> I am so happy with it!  </li>
-<li> It is perfect for travel.</li>
-<li> Very happy with the Panasonic.</li>
-<li> The battery life is excellent.</li>
-<li> it is wonderful!</li>
-<li> Travels great!</li>
-<li> Great for on the go!!!</li>
-<li> It removes all the things between your teeth perfectly.  </li>
-<li> The reservoir capacity is perfect for one usage.</li>
-<li> Especially good for someone with dental implants.</li>
-<li> This is an excellent product.</li>
-<li> This device is marvelous.</li>
-<li> It has proven to be wonderful.  </li>
-<li> I thinks is great!</li>
+<li> So, who is being honest here!!!!!!!!!!!!!</li>
+<li> The item is perfect to me and my family</li>
+<li> I have to say practice makes perfect</li>
+<li> &#x27;s handle making it perfect for your carry-on.&lt;br</li>
+<li> no cables &#x3D; awesome.</li>
+<li> Excellent device, exceeded my expectations!</li>
+<li> Very happy with this irrigator.</li>
+<li> Great product!</li>
+<li> I have a couple of bridges and crowns ,so this is perfect///and great for travel!</li>
 <li> but I was so impressed with this item I needed to comment.</li>
+<li> This is great !  </li>
+<li> best part is, its portable...</li>
+<li> But that&#x27;s the best I can say about it.  </li>
+<li> Great DEAL OF THE DAY price!  </li>
+<li> but if that were remedied it would be a perfect 5 star.  </li>
+<li> It is perfect for using in the shower.  </li>
+<li> I thinks is great!</li>
+<li> Works Great!</li>
+<li> It is an excellent travel item that packs neatly away with a slot for storing the nozzle in the unit.</li>
+<li> I&#x27;m a very experienced handyman but the cap had me stumped.</li>
+<li> This one had the best reviews of the battery powered types .&lt;br /&gt;I</li>
+<li> It has proven to be wonderful.  </li>
+<li> This oral irrigator has the perfect pressure.</li>
+<li> This model has plenty of power and does an excellent job preventing a build-up of plaque or tartar at the gum line.</li>
+<li> but this thing is great!!!</li>
+<li> I bought this for travel and it works just perfectly!  </li>
+<li> Perfect that it is battery operated, so you don&#x27;t have to deal with cords.  </li>
+<li> Had it for a month now, I&#x27;m very happy with it!</li>
+<li> Great Product!</li>
 </ol>
 
 <h2>All Reviews</h2>
@@ -1977,6 +1977,7 @@ modifiedAt: Thu Jan 09 2020 19:08:28 GMT+0530 (India Standard Time),
     <li> I liked this product but it died three months after purchase. I don&#x27;t think that i can return it but i may buy another in hopes that the death of the first one was a fluke.</li>
     <li> I bought it two months ago. I used it less than 10 times. I found out the motor dead. It didn&#x27;t work at all, even replace the new battery.</li>
 </ol>
+
 
 
 

@@ -3,8 +3,8 @@ title: 100 Astra Superior Premium Platinum Double Edge Safety Razor Blades,
 description: 100 Astra Superior Premium Platinum Double Edge Safety Razor Blades,
 author: Suvojit Manna,
 tags: 100 Astra Superior Premium Platinum Double Edge Safety Razor Blades,
-publishedAt: Thu Jan 09 2020 19:08:28 GMT+0530 (India Standard Time),
-modifiedAt: Thu Jan 09 2020 19:08:28 GMT+0530 (India Standard Time),
+publishedAt: Fri Jan 10 2020 14:59:32 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:59:32 GMT+0530 (India Standard Time),
 ---
 
 # [100 Astra Superior Premium Platinum Double Edge Safety Razor Blades](https://products.checkmycream.com/products/100-Astra-Superior-Premium-Platinum-Double-Edge-Safety-Razor-Blades.html)
@@ -12,211 +12,211 @@ modifiedAt: Thu Jan 09 2020 19:08:28 GMT+0530 (India Standard Time),
 ### Positive Reviews
 
 <ol>
-      <li>Awesome blades for the money</li>
-      <li>Best blades I&#x27;ve used.</li>
-      <li>was the best for me.</li>
-      <li>Excellent blades for the price.  </li>
-      <li>I think it&#x27;s the best way to shave shaves so close</li>
-      <li>Perfect.</li>
-      <li>These are the best safety razor blades I have used.  </li>
-      <li>They offer an ideal combination of sharpness and smoothness that beats all others!  </li>
-      <li>These blades have been some of the best of the 10+ brands I have tried.  </li>
-      <li>Excellent results with minimum cost!</li>
-      <li>Best.</li>
-      <li>These are among the best razors I&#x27;ve used.</li>
-      <li>Best bang for the buck in terms of sharpness and price</li>
-      <li>Excellent blade in combination with Nutragena shave gel.</li>
-      <li>excellent blades</li>
-      <li>Awesome blades and inexpensive!</li>
-      <li>These blades are the best buy for the money.</li>
-      <li>I was looking for inexpensive, so for me they are perfect.</li>
-      <li>I went through a blade sampler pack from TryABlade and found that these Astas were the best for me.  </li>
-      <li>Best value on the market.</li>
-      <li>being said, I am very happy with the Astra Platinum DE blades.</li>
-      <li>These worked best for my face.  </li>
-      <li>so I can&#x27;t say these are the best over all</li>
-      <li>but they are the best I have tried to date.  </li>
       <li>These blades are, simply, great!</li>
-      <li>Best I&#x27;ve tried, to date.</li>
-      <li>The best shaves ever.</li>
-      <li>These astra blades are in my opinion the best blades you can get.</li>
-      <li>Awesome product.</li>
-      <li>Awesome blades.  </li>
-      <li>These are perfect for my face, and may for yours as well, but you need to check out a sampler some time to see which is best.  </li>
-      <li>I determined that Platinum blades were best for my skin.  </li>
-      <li>Great razors!  </li>
-      <li>Best purchase EVER!</li>
-      <li>They are some of the best blades I&#x27;ve ever used.</li>
-      <li>Best brand I have found.</li>
-      <li>These gave me the best, smoothest shave.</li>
-      <li>Awesome blades.</li>
-      <li>These Astra Blades are the best DE blades I have used to date.</li>
-      <li>the Astra was the best for me.  </li>
-      <li>best blades from the 4 I&#x27;ve bought</li>
-      <li>Great deal!</li>
-      <li>A great buy for the price !!</li>
-      <li>Guaranteed to be the best shave you can get from these types of blades.</li>
-      <li>Best blades I&#x27;ve ever used for my razor at the best price I&#x27;ve seen</li>
-      <li>gave about 20 blades a shot, and the Astra platinum blades were the best for my face.</li>
-      <li>every 2 shaves just to get the best quality shave</li>
-      <li>great buy!!</li>
-      <li>it&#x27;s amazing !!!</li>
-      <li>These are unquestionably the best performing blades of all those I tried.  </li>
-      <li>This product is the best of the variety pack I had purchased.</li>
-      <li>these razors are awesome.</li>
-      <li>They work perfectly for my beard.</li>
-      <li>Great product!</li>
-      <li>best blades to shave with</li>
-      <li>Item was perfect.</li>
-      <li>Very happy with my purchase</li>
-      <li>I think this is an excellent blade.</li>
-      <li>The best way to make a $75 safety razor shaver into a $5 safety razor shaver, is by using sub-par blades.  </li>
-      <li>An excellent choice.</li>
-      <li>Awesome!</li>
-      <li>These blades are great!</li>
+      <li>I bought a sample pack I used merkur feather derby and these were the best for me maybe for you</li>
+      <li>maybe not (DE) shaving is the best</li>
+      <li>No complaints at all with Astra&#x27;s and they are a great value as well!</li>
+      <li>After trying a sample pack I find these the best balance of sharpness and durability.</li>
+      <li>These blades work flawlessly and come at a price that make it a no brainer.  </li>
+      <li>Excellent buy for the price.</li>
+      <li>I still think Astras are the best blade AND cheapest blade out there.</li>
+      <li>I like these Astras the best by far.&lt;br</li>
+      <li>Best blades I&#x27;ve used.</li>
+      <li>/&gt;Buy the best you can afford</li>
+      <li>I just started DE shaving and have found these blades to be excellent.</li>
+      <li>These razors are great!</li>
+      <li>/&gt;Buy the best you can afford</li>
+      <li>was the best for me.</li>
+      <li>Ended replacements, and these were an excellent buy.  </li>
+      <li>Excellent blades for the price.  </li>
+      <li>These are the best double-edge blades I&#x27;ve used yet, and for the price, I see no reason to buy anything else.</li>
+      <li>Great price!!!</li>
+      <li>razor burn).&lt;br /&gt;&lt;br /&gt;I have been on a mission to find the best blade.&lt;br /&gt;&lt;br</li>
+      <li>Out of the three I tried(Merker and Featherblade) these blades are the cheapest and best for me.</li>
+      <li>Handle with great care!!  </li>
+      <li>And it works the best.</li>
+      <li>They provide the best shaves I have ever had.</li>
+      <li>I decided to try these by Astra and they are excellent.</li>
+      <li>and this is a best buy.</li>
+      <li>I&#x27;m not rating this 5 stars because some of the razors are perfect, just a couple weren&#x27;t.</li>
+      <li>product is excellent.</li>
+      <li>One of the best buys on DE blade out there.</li>
       <li>These Astra blades are wonderful in this razor.</li>
+      <li>These blades seem to be perfect for me!</li>
       <li>I always get an excellent shave with no tugging or nicks.</li>
-      <li>I have used Feather and Derby blades, and I have to say these are great!</li>
-      <li>is simply Awesome.  </li>
-      <li>am impressed with their performance.  </li>
-      <li>best blades i have used yet.</li>
-      <li>Great pricing!</li>
-      <li>in all, these blades are excellent.</li>
-      <li>I find all of these work wonderfully for me.  </li>
-      <li>AWESOME!!!  </li>
-      <li>Best shave</li>
-      <li>Best idea he ever had!  </li>
-      <li>best blades for the money.</li>
-      <li>They aren&#x27;t perfect, no....</li>
-      <li>Saves money and works great!  </li>
-      <li>I&#x27;ve tried a lot of blades but Astras seem to work best for me.  </li>
-      <li>Blades work perfectly for my skin.</li>
-      <li>Best of three types of blades I bought.  </li>
-      <li>and I found these to be the best for my face.  </li>
-      <li>These are the best blades I have ever used.</li>
-      <li>Excellent deal.</li>
-      <li>Good quality for the price!!</li>
-      <li>I have found the astra blades to be the best all around shave.  </li>
-      <li>Been using the Astra now for a bit and have been very happy.</li>
-      <li>Best bang for your buck razor deal on Amazon.  </li>
-      <li>Great blades, but remember there are 100 of them!!!  </li>
-      <li>Excellent shave, every time.</li>
-      <li>Excellent value and quality.</li>
-      <li>These go perfectly with the Merkur safety razor .&lt;br /&gt;I</li>
-      <li>the best two that I have found are the Astra and the Feather.</li>
-      <li>These blades are great!</li>
-      <li>I&#x27;ve paired these with a Van Der Hagen safety razor and I love it!!!!  </li>
-      <li>awesome value</li>
-      <li>I never had a cut yet and find these blades to be awesome!  </li>
-      <li>These Astra&#x27;s are the best of both worlds.  </li>
-      <li>Astra is my preferred blade, the best balance between sharpness and smoothness that I&#x27;ve found.</li>
-      <li>I, for myself, believe it to be the perfect balance of performance and value, period.</li>
+      <li>I think it&#x27;s the best way to shave shaves so close</li>
+      <li>The shave is superb.</li>
+      <li>This deal was incredible, and I am set for a while now!</li>
+      <li>This was the greatest deal!</li>
+      <li>Blades are awesome, but they are in a cardboard box.  </li>
+      <li>The best thing about these blades is the price!</li>
+      <li>I must say I am very impressed by the quality of these blades.</li>
+      <li>Astra blades are perfect.  </li>
+      <li>I have to say they give an excellent shave</li>
+      <li>They&#x27;re the best blades that I have used</li>
+      <li>I gave these blades 5 stars because they are the best I&#x27;ve tried.  </li>
+      <li>Great blades for the money!!</li>
+      <li>Perfect.</li>
+      <li>These blades are the best I have used.  </li>
       <li>If you can&#x27;t decide go for Amazon&#x27;s sampler packs of blades and choose the perfect one for you!</li>
+      <li>I&#x27;ve been using these blades for awhile now, and I&#x27;m impressed with the longstanding quality of the shave they yield.</li>
+      <li>/&gt;This is not to say that the Astras are unequivocally the best choice for everyone.  </li>
+      <li>I, for myself, believe it to be the perfect balance of performance and value, period.</li>
+      <li>These blades have been the best safety blades I have used.</li>
+      <li>I&#x27;m very happy I purchased them.</li>
+      <li>Excellent value!!</li>
+      <li>Excellent.</li>
+      <li>Really a great deal!</li>
+      <li>The Astra Platinum&#x27;s were among the best.  </li>
+      <li>Perfect for me.</li>
+      <li>Perfect.</li>
+      <li>recommend trying these out, and if they work, great!  </li>
+      <li>Awesome blade!</li>
+      <li>I had been trying every blade in order to find the best blade for the two razors (Merkur and Jagger), had tried a number of soaps and creams, and saw the bargain100 blade offer and thought, \\&quot;what the heck!\\&quot;.  </li>
+      <li>These are the best safety razor blades I have used.  </li>
+      <li>We chose the Astra blades after reading a number of reviews and we are very happy with the results.</li>
+      <li>These blades are awesome.</li>
+      <li>These blades are great!</li>
+      <li>Great price!</li>
+      <li>Great blades!  </li>
+      <li>They offer an ideal combination of sharpness and smoothness that beats all others!  </li>
+      <li>These blades are excellent quality and an excellent value, I see no reason to use anything else.</li>
+      <li>These blades are great!!!</li>
+      <li>I have used Feather and Derby blades, and I have to say these are great!</li>
+      <li>In my experience Astras offer the best combination of price and quality.</li>
+      <li>These blades have been some of the best of the 10+ brands I have tried.  </li>
+      <li>The best blades I have found for the price.</li>
+      <li>These blades work great for me!  </li>
+      <li>Excellent results with minimum cost!</li>
+      <li>Best value i have found.  </li>
+      <li>Excellent blades for the money</li>
+      <li>After trying a sample pack, these worked best, closely followed by Wilkinson Sword and Bic.  </li>
+      <li>GREAT PRODUCT!</li>
+      <li>Best.</li>
+      <li>Really awesome stuff.</li>
+      <li>I decided to pick these blades up because, well, 100 blades for like $12 is an awesome deal.</li>
+      <li>Awesome!</li>
+      <li>These things are awesome.  </li>
+      <li>These are excellent.</li>
+      <li>I ordered these blades for a friend and he was very, very pleased with the order!!!</li>
+      <li>Astra is my preferred blade, the best balance between sharpness and smoothness that I&#x27;ve found.</li>
+      <li>Definately like these the best and for the price, they just can&#x27;t be beat.</li>
+      <li>Excellent performance when used in a Mühle R89.</li>
+      <li>so I would suggest getting a sample pack to see what works best for you.</li>
+      <li>Great Blades!!</li>
+      <li>Great Buy!</li>
+      <li>These are among the best razors I&#x27;ve used.</li>
+      <li>Perfect.</li>
+      <li>I get GREAT shaves with these blades!</li>
+      <li>awesome</li>
+      <li>Best bang for the buck in terms of sharpness and price</li>
+      <li>Wonderful close shave.</li>
+      <li>is simply Awesome.  </li>
 </ol>
 
 
 <h2>Negative Reviews</h2>
 <ol>
-<li> Awesome blades for the money</li>
-<li> Best blades I&#x27;ve used.</li>
-<li> was the best for me.</li>
-<li> Excellent blades for the price.  </li>
-<li> I think it&#x27;s the best way to shave shaves so close</li>
-<li> Perfect.</li>
-<li> These are the best safety razor blades I have used.  </li>
-<li> They offer an ideal combination of sharpness and smoothness that beats all others!  </li>
-<li> These blades have been some of the best of the 10+ brands I have tried.  </li>
-<li> Excellent results with minimum cost!</li>
-<li> Best.</li>
-<li> These are among the best razors I&#x27;ve used.</li>
-<li> Best bang for the buck in terms of sharpness and price</li>
-<li> Excellent blade in combination with Nutragena shave gel.</li>
-<li> excellent blades</li>
-<li> Awesome blades and inexpensive!</li>
-<li> These blades are the best buy for the money.</li>
-<li> I was looking for inexpensive, so for me they are perfect.</li>
-<li> I went through a blade sampler pack from TryABlade and found that these Astas were the best for me.  </li>
-<li> Best value on the market.</li>
-<li> being said, I am very happy with the Astra Platinum DE blades.</li>
-<li> These worked best for my face.  </li>
-<li> so I can&#x27;t say these are the best over all</li>
-<li> but they are the best I have tried to date.  </li>
 <li> These blades are, simply, great!</li>
-<li> Best I&#x27;ve tried, to date.</li>
-<li> The best shaves ever.</li>
-<li> These astra blades are in my opinion the best blades you can get.</li>
-<li> Awesome product.</li>
-<li> Awesome blades.  </li>
-<li> These are perfect for my face, and may for yours as well, but you need to check out a sampler some time to see which is best.  </li>
-<li> I determined that Platinum blades were best for my skin.  </li>
-<li> Great razors!  </li>
-<li> Best purchase EVER!</li>
-<li> They are some of the best blades I&#x27;ve ever used.</li>
-<li> Best brand I have found.</li>
-<li> These gave me the best, smoothest shave.</li>
-<li> Awesome blades.</li>
-<li> These Astra Blades are the best DE blades I have used to date.</li>
-<li> the Astra was the best for me.  </li>
-<li> best blades from the 4 I&#x27;ve bought</li>
-<li> Great deal!</li>
-<li> A great buy for the price !!</li>
-<li> Guaranteed to be the best shave you can get from these types of blades.</li>
-<li> Best blades I&#x27;ve ever used for my razor at the best price I&#x27;ve seen</li>
-<li> gave about 20 blades a shot, and the Astra platinum blades were the best for my face.</li>
-<li> every 2 shaves just to get the best quality shave</li>
-<li> great buy!!</li>
-<li> it&#x27;s amazing !!!</li>
-<li> These are unquestionably the best performing blades of all those I tried.  </li>
-<li> This product is the best of the variety pack I had purchased.</li>
-<li> these razors are awesome.</li>
-<li> They work perfectly for my beard.</li>
-<li> Great product!</li>
-<li> best blades to shave with</li>
-<li> Item was perfect.</li>
-<li> Very happy with my purchase</li>
-<li> I think this is an excellent blade.</li>
-<li> The best way to make a $75 safety razor shaver into a $5 safety razor shaver, is by using sub-par blades.  </li>
-<li> An excellent choice.</li>
-<li> Awesome!</li>
-<li> These blades are great!</li>
+<li> I bought a sample pack I used merkur feather derby and these were the best for me maybe for you</li>
+<li> maybe not (DE) shaving is the best</li>
+<li> No complaints at all with Astra&#x27;s and they are a great value as well!</li>
+<li> After trying a sample pack I find these the best balance of sharpness and durability.</li>
+<li> These blades work flawlessly and come at a price that make it a no brainer.  </li>
+<li> Excellent buy for the price.</li>
+<li> I still think Astras are the best blade AND cheapest blade out there.</li>
+<li> I like these Astras the best by far.&lt;br</li>
+<li> Best blades I&#x27;ve used.</li>
+<li> /&gt;Buy the best you can afford</li>
+<li> I just started DE shaving and have found these blades to be excellent.</li>
+<li> These razors are great!</li>
+<li> /&gt;Buy the best you can afford</li>
+<li> was the best for me.</li>
+<li> Ended replacements, and these were an excellent buy.  </li>
+<li> Excellent blades for the price.  </li>
+<li> These are the best double-edge blades I&#x27;ve used yet, and for the price, I see no reason to buy anything else.</li>
+<li> Great price!!!</li>
+<li> razor burn).&lt;br /&gt;&lt;br /&gt;I have been on a mission to find the best blade.&lt;br /&gt;&lt;br</li>
+<li> Out of the three I tried(Merker and Featherblade) these blades are the cheapest and best for me.</li>
+<li> Handle with great care!!  </li>
+<li> And it works the best.</li>
+<li> They provide the best shaves I have ever had.</li>
+<li> I decided to try these by Astra and they are excellent.</li>
+<li> and this is a best buy.</li>
+<li> I&#x27;m not rating this 5 stars because some of the razors are perfect, just a couple weren&#x27;t.</li>
+<li> product is excellent.</li>
+<li> One of the best buys on DE blade out there.</li>
 <li> These Astra blades are wonderful in this razor.</li>
+<li> These blades seem to be perfect for me!</li>
 <li> I always get an excellent shave with no tugging or nicks.</li>
-<li> I have used Feather and Derby blades, and I have to say these are great!</li>
-<li> is simply Awesome.  </li>
-<li> am impressed with their performance.  </li>
-<li> best blades i have used yet.</li>
-<li> Great pricing!</li>
-<li> in all, these blades are excellent.</li>
-<li> I find all of these work wonderfully for me.  </li>
-<li> AWESOME!!!  </li>
-<li> Best shave</li>
-<li> Best idea he ever had!  </li>
-<li> best blades for the money.</li>
-<li> They aren&#x27;t perfect, no....</li>
-<li> Saves money and works great!  </li>
-<li> I&#x27;ve tried a lot of blades but Astras seem to work best for me.  </li>
-<li> Blades work perfectly for my skin.</li>
-<li> Best of three types of blades I bought.  </li>
-<li> and I found these to be the best for my face.  </li>
-<li> These are the best blades I have ever used.</li>
-<li> Excellent deal.</li>
-<li> Good quality for the price!!</li>
-<li> I have found the astra blades to be the best all around shave.  </li>
-<li> Been using the Astra now for a bit and have been very happy.</li>
-<li> Best bang for your buck razor deal on Amazon.  </li>
-<li> Great blades, but remember there are 100 of them!!!  </li>
-<li> Excellent shave, every time.</li>
-<li> Excellent value and quality.</li>
-<li> These go perfectly with the Merkur safety razor .&lt;br /&gt;I</li>
-<li> the best two that I have found are the Astra and the Feather.</li>
-<li> These blades are great!</li>
-<li> I&#x27;ve paired these with a Van Der Hagen safety razor and I love it!!!!  </li>
-<li> awesome value</li>
-<li> I never had a cut yet and find these blades to be awesome!  </li>
-<li> These Astra&#x27;s are the best of both worlds.  </li>
-<li> Astra is my preferred blade, the best balance between sharpness and smoothness that I&#x27;ve found.</li>
-<li> I, for myself, believe it to be the perfect balance of performance and value, period.</li>
+<li> I think it&#x27;s the best way to shave shaves so close</li>
+<li> The shave is superb.</li>
+<li> This deal was incredible, and I am set for a while now!</li>
+<li> This was the greatest deal!</li>
+<li> Blades are awesome, but they are in a cardboard box.  </li>
+<li> The best thing about these blades is the price!</li>
+<li> I must say I am very impressed by the quality of these blades.</li>
+<li> Astra blades are perfect.  </li>
+<li> I have to say they give an excellent shave</li>
+<li> They&#x27;re the best blades that I have used</li>
+<li> I gave these blades 5 stars because they are the best I&#x27;ve tried.  </li>
+<li> Great blades for the money!!</li>
+<li> Perfect.</li>
+<li> These blades are the best I have used.  </li>
 <li> If you can&#x27;t decide go for Amazon&#x27;s sampler packs of blades and choose the perfect one for you!</li>
+<li> I&#x27;ve been using these blades for awhile now, and I&#x27;m impressed with the longstanding quality of the shave they yield.</li>
+<li> /&gt;This is not to say that the Astras are unequivocally the best choice for everyone.  </li>
+<li> I, for myself, believe it to be the perfect balance of performance and value, period.</li>
+<li> These blades have been the best safety blades I have used.</li>
+<li> I&#x27;m very happy I purchased them.</li>
+<li> Excellent value!!</li>
+<li> Excellent.</li>
+<li> Really a great deal!</li>
+<li> The Astra Platinum&#x27;s were among the best.  </li>
+<li> Perfect for me.</li>
+<li> Perfect.</li>
+<li> recommend trying these out, and if they work, great!  </li>
+<li> Awesome blade!</li>
+<li> I had been trying every blade in order to find the best blade for the two razors (Merkur and Jagger), had tried a number of soaps and creams, and saw the bargain100 blade offer and thought, \\&quot;what the heck!\\&quot;.  </li>
+<li> These are the best safety razor blades I have used.  </li>
+<li> We chose the Astra blades after reading a number of reviews and we are very happy with the results.</li>
+<li> These blades are awesome.</li>
+<li> These blades are great!</li>
+<li> Great price!</li>
+<li> Great blades!  </li>
+<li> They offer an ideal combination of sharpness and smoothness that beats all others!  </li>
+<li> These blades are excellent quality and an excellent value, I see no reason to use anything else.</li>
+<li> These blades are great!!!</li>
+<li> I have used Feather and Derby blades, and I have to say these are great!</li>
+<li> In my experience Astras offer the best combination of price and quality.</li>
+<li> These blades have been some of the best of the 10+ brands I have tried.  </li>
+<li> The best blades I have found for the price.</li>
+<li> These blades work great for me!  </li>
+<li> Excellent results with minimum cost!</li>
+<li> Best value i have found.  </li>
+<li> Excellent blades for the money</li>
+<li> After trying a sample pack, these worked best, closely followed by Wilkinson Sword and Bic.  </li>
+<li> GREAT PRODUCT!</li>
+<li> Best.</li>
+<li> Really awesome stuff.</li>
+<li> I decided to pick these blades up because, well, 100 blades for like $12 is an awesome deal.</li>
+<li> Awesome!</li>
+<li> These things are awesome.  </li>
+<li> These are excellent.</li>
+<li> I ordered these blades for a friend and he was very, very pleased with the order!!!</li>
+<li> Astra is my preferred blade, the best balance between sharpness and smoothness that I&#x27;ve found.</li>
+<li> Definately like these the best and for the price, they just can&#x27;t be beat.</li>
+<li> Excellent performance when used in a Mühle R89.</li>
+<li> so I would suggest getting a sample pack to see what works best for you.</li>
+<li> Great Blades!!</li>
+<li> Great Buy!</li>
+<li> These are among the best razors I&#x27;ve used.</li>
+<li> Perfect.</li>
+<li> I get GREAT shaves with these blades!</li>
+<li> awesome</li>
+<li> Best bang for the buck in terms of sharpness and price</li>
+<li> Wonderful close shave.</li>
+<li> is simply Awesome.  </li>
 </ol>
 
 <h2>All Reviews</h2>
@@ -2188,6 +2188,7 @@ modifiedAt: Thu Jan 09 2020 19:08:28 GMT+0530 (India Standard Time),
     <li> I placed an order for a box of 100 blades alongside the Merkur long handle safety razor. The cut of the blades and overall comfort are matched by no other brand for this price. I will continue to purchase Astra Platinum blades from now on.</li>
     <li> Nice sharp blades, they will get the job done and better than some cheaper blades out there, no complaints. keep on shavin!</li>
 </ol>
+
 
 
 

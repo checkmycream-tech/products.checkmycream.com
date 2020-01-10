@@ -1,0 +1,310 @@
+---
+title: Conair 1875 Watt Ionic Conditioning Cord-Keeper Folding Handle Hair Dryer,
+description: Conair 1875 Watt Ionic Conditioning Cord-Keeper Folding Handle Hair Dryer,
+author: Suvojit Manna,
+tags: Conair 1875 Watt Ionic Conditioning Cord-Keeper Folding Handle Hair Dryer,
+publishedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
+---
+
+# [Conair 1875 Watt Ionic Conditioning Cord-Keeper Folding Handle Hair Dryer](https://products.checkmycream.com/products/Conair-1875-Watt-Ionic-Conditioning-Cord-Keeper-Folding-Handle-Hair-Dryer.html)
+
+### Positive Reviews
+
+<ol>
+      <li>Excellent product.  </li>
+      <li>Works great!</li>
+      <li>Excellent hairdryer.</li>
+      <li>Excellent hairdryer for travel.  </li>
+      <li>Works great!!</li>
+      <li>and of course, best price found on Amazon!!</li>
+      <li>Excellent product for its price point.  </li>
+      <li>Very good hair dryer.</li>
+      <li>, cord retracts and it is great for traveling.  </li>
+      <li>Works great</li>
+      <li>Hers has worked great for four years</li>
+      <li>I like how the cord goes inside.and the dryer works great.</li>
+      <li>LOL.  </li>
+      <li>Item received in great condition.</li>
+      <li>The dryer works great.  </li>
+      <li>This is a great dryer for the price.  </li>
+      <li>I have always trusted Conair&#x27;s products and this one is great.</li>
+      <li>Great appliance for the price.</li>
+      <li>You kind of have to hold it at arm&#x27;s length, push the button, and hope for the best.</li>
+      <li>The retractable cord is great and the folding handle makes it great for compact storing.</li>
+      <li>These retractable cords are great.</li>
+      <li>Great dryer.</li>
+      <li>Great dryer.</li>
+      <li>Very effective appliance.  </li>
+      <li>This is a good, reliable hair dryer and at a great value.</li>
+      <li>it&#x27;s a good product...</li>
+      <li>Good power, good for styling</li>
+      <li>However, it was a good price</li>
+      <li>it does everything a good dryer should do.  </li>
+      <li>For the price, it&#x27;s a good dryer</li>
+      <li>A good price for this unit.</li>
+      <li>The price was good</li>
+      <li>Was delighted when I found one just like it on Amazon.</li>
+      <li>Good weight and heat distribution.  </li>
+      <li>I loved the retractable cable and the hinged handle.&lt;br /&gt;&lt;br</li>
+      <li>Dries my hair quickly and stores beautifully with the retractable cord and folding handle !!</li>
+      <li>Very pleased.  </li>
+      <li>and it doesn&#x27;t work any more!  </li>
+      <li>So hopefully when I wear this one out I will be able to replace it again!</li>
+      <li>For me, the cord rewind button works great, and the folding handle makes storage easy.  </li>
+      <li>It is great as a travel dryer, but is perfectly fine as a compact home dryer too.</li>
+      <li>would recommend to anyone who wants a great hair dryer for a great price.</li>
+      <li>but it works well and folds up nicely.  </li>
+      <li>Folds nicely, cord retracts well.</li>
+      <li>It is nice and compact to keep folded in my bathroom.</li>
+      <li>Great size for the power; great folding handle and very efficient.</li>
+      <li>works really good and easy to store...</li>
+      <li>The first retractable cord was great.  </li>
+      <li>The retractable cord was our favorite feature.  </li>
+      <li>I had one like it for many years.</li>
+      <li>well, in most industries you get what you pay for..</li>
+      <li>Anyway I love this dryer.  </li>
+      <li>and I loved hers and then found same model on here for a great price.</li>
+      <li>This is my second one and it works great!</li>
+      <li>Love the folding handle, easy to store.</li>
+      <li>Comes in handy 4 travel or a quick fix it.</li>
+      <li>Best $ spent.</li>
+      <li>and so far works great.</li>
+      <li>So far I am happy with the product.</li>
+      <li>Took a shower in there one day and LOVED this so much I threw mine away and bought one for myself too.</li>
+      <li>I like the retractable cord and folding handle so that I can easily tuck it away rather than leave it out on the counter.  </li>
+      <li>I like that this one has a folding handle and a retractable cord for easy packing if you are traveling.  </li>
+      <li>Easy to use.</li>
+      <li>I tested it and it seemed to work fine</li>
+      <li>Works just fine.  </li>
+      <li>Works fine.</li>
+      <li>Love it, lots of power and drys my hair quickly</li>
+      <li>I bought this dryer specifically because the handle could collapse and the cord was retractable, which I thought would make it fit in my drawer.  </li>
+      <li>Perfect for travel and everyday use.</li>
+      <li>but it seemed important when I bought it).  </li>
+      <li>but, it still wouldn&#x27;t fit in the drawer.  </li>
+      <li>The cheap plastic just cracked.  </li>
+      <li>Very powerful.  </li>
+      <li>So glad I got it ; )</li>
+      <li>Fast and easy!</li>
+      <li>Works really great, and much much quieter than the old one, too.  </li>
+      <li>Has lots of power to dry hair quickly and it is great for travel.</li>
+      <li>This dryer does not get very hot</li>
+      <li>I bought a second one about 6 months ago, since I loved the first one I had for 5 years.  </li>
+      <li>The volume outweighs the convenience of the retractable cord and folding body (I rarely use either feature</li>
+      <li>Well worth the money.</li>
+      <li>I have no issue with the hair dryer part, it is hot or cool, but I like a really hot dryer.  </li>
+      <li>However I still like it very much as it does blow alot of air which is why bought it again.</li>
+      <li>works perfectly, exactly what i was looking for.  </li>
+      <li>This is absolutely horrendous!</li>
+      <li>It didn&#x27;t after the first week.  </li>
+      <li>and I love the different settings.</li>
+      <li>Exactly as described and exactly what I wanted.</li>
+      <li>Never gets too hot.</li>
+      <li>Absolutely would recommend it!  </li>
+      <li>This hairdryer has worked OK for me in the last year</li>
+      <li>I&#x27;m buying a second for travel.  :)</li>
+      <li>I had a model similar that lasted many years</li>
+      <li>so I ordered this one, a few differences but just as good as the one I had.</li>
+      <li>This hair dryer is great, it dries my hair much faster than my other Revlon which is about 3 years old</li>
+      <li>Good for travel and small bathrooms.</li>
+      <li>It works fine, however it is very load on high and low is very gentle.  </li>
+      <li>I like the cord keeper feature on it really well.</li>
+      <li>Cord doesn&#x27;t retract very well</li>
+      <li>I was pleasantly surprised that this was so powerful.</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> Excellent product.  </li>
+<li> Works great!</li>
+<li> Excellent hairdryer.</li>
+<li> Excellent hairdryer for travel.  </li>
+<li> Works great!!</li>
+<li> and of course, best price found on Amazon!!</li>
+<li> Excellent product for its price point.  </li>
+<li> Very good hair dryer.</li>
+<li> , cord retracts and it is great for traveling.  </li>
+<li> Works great</li>
+<li> Hers has worked great for four years</li>
+<li> I like how the cord goes inside.and the dryer works great.</li>
+<li> LOL.  </li>
+<li> Item received in great condition.</li>
+<li> The dryer works great.  </li>
+<li> This is a great dryer for the price.  </li>
+<li> I have always trusted Conair&#x27;s products and this one is great.</li>
+<li> Great appliance for the price.</li>
+<li> You kind of have to hold it at arm&#x27;s length, push the button, and hope for the best.</li>
+<li> The retractable cord is great and the folding handle makes it great for compact storing.</li>
+<li> These retractable cords are great.</li>
+<li> Great dryer.</li>
+<li> Great dryer.</li>
+<li> Very effective appliance.  </li>
+<li> This is a good, reliable hair dryer and at a great value.</li>
+<li> it&#x27;s a good product...</li>
+<li> Good power, good for styling</li>
+<li> However, it was a good price</li>
+<li> it does everything a good dryer should do.  </li>
+<li> For the price, it&#x27;s a good dryer</li>
+<li> A good price for this unit.</li>
+<li> The price was good</li>
+<li> Was delighted when I found one just like it on Amazon.</li>
+<li> Good weight and heat distribution.  </li>
+<li> I loved the retractable cable and the hinged handle.&lt;br /&gt;&lt;br</li>
+<li> Dries my hair quickly and stores beautifully with the retractable cord and folding handle !!</li>
+<li> Very pleased.  </li>
+<li> and it doesn&#x27;t work any more!  </li>
+<li> So hopefully when I wear this one out I will be able to replace it again!</li>
+<li> For me, the cord rewind button works great, and the folding handle makes storage easy.  </li>
+<li> It is great as a travel dryer, but is perfectly fine as a compact home dryer too.</li>
+<li> would recommend to anyone who wants a great hair dryer for a great price.</li>
+<li> but it works well and folds up nicely.  </li>
+<li> Folds nicely, cord retracts well.</li>
+<li> It is nice and compact to keep folded in my bathroom.</li>
+<li> Great size for the power; great folding handle and very efficient.</li>
+<li> works really good and easy to store...</li>
+<li> The first retractable cord was great.  </li>
+<li> The retractable cord was our favorite feature.  </li>
+<li> I had one like it for many years.</li>
+<li> well, in most industries you get what you pay for..</li>
+<li> Anyway I love this dryer.  </li>
+<li> and I loved hers and then found same model on here for a great price.</li>
+<li> This is my second one and it works great!</li>
+<li> Love the folding handle, easy to store.</li>
+<li> Comes in handy 4 travel or a quick fix it.</li>
+<li> Best $ spent.</li>
+<li> and so far works great.</li>
+<li> So far I am happy with the product.</li>
+<li> Took a shower in there one day and LOVED this so much I threw mine away and bought one for myself too.</li>
+<li> I like the retractable cord and folding handle so that I can easily tuck it away rather than leave it out on the counter.  </li>
+<li> I like that this one has a folding handle and a retractable cord for easy packing if you are traveling.  </li>
+<li> Easy to use.</li>
+<li> I tested it and it seemed to work fine</li>
+<li> Works just fine.  </li>
+<li> Works fine.</li>
+<li> Love it, lots of power and drys my hair quickly</li>
+<li> I bought this dryer specifically because the handle could collapse and the cord was retractable, which I thought would make it fit in my drawer.  </li>
+<li> Perfect for travel and everyday use.</li>
+<li> but it seemed important when I bought it).  </li>
+<li> but, it still wouldn&#x27;t fit in the drawer.  </li>
+<li> The cheap plastic just cracked.  </li>
+<li> Very powerful.  </li>
+<li> So glad I got it ; )</li>
+<li> Fast and easy!</li>
+<li> Works really great, and much much quieter than the old one, too.  </li>
+<li> Has lots of power to dry hair quickly and it is great for travel.</li>
+<li> This dryer does not get very hot</li>
+<li> I bought a second one about 6 months ago, since I loved the first one I had for 5 years.  </li>
+<li> The volume outweighs the convenience of the retractable cord and folding body (I rarely use either feature</li>
+<li> Well worth the money.</li>
+<li> I have no issue with the hair dryer part, it is hot or cool, but I like a really hot dryer.  </li>
+<li> However I still like it very much as it does blow alot of air which is why bought it again.</li>
+<li> works perfectly, exactly what i was looking for.  </li>
+<li> This is absolutely horrendous!</li>
+<li> It didn&#x27;t after the first week.  </li>
+<li> and I love the different settings.</li>
+<li> Exactly as described and exactly what I wanted.</li>
+<li> Never gets too hot.</li>
+<li> Absolutely would recommend it!  </li>
+<li> This hairdryer has worked OK for me in the last year</li>
+<li> I&#x27;m buying a second for travel.  :)</li>
+<li> I had a model similar that lasted many years</li>
+<li> so I ordered this one, a few differences but just as good as the one I had.</li>
+<li> This hair dryer is great, it dries my hair much faster than my other Revlon which is about 3 years old</li>
+<li> Good for travel and small bathrooms.</li>
+<li> It works fine, however it is very load on high and low is very gentle.  </li>
+<li> I like the cord keeper feature on it really well.</li>
+<li> Cord doesn&#x27;t retract very well</li>
+<li> I was pleasantly surprised that this was so powerful.</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> Good power, good for styling, cord retracts and it is great for traveling.  I don&#x27;t know why some people are complaining about the noise...it&#x27;s a blow dryer... they&#x27;re loud.</li>
+    <li> I like how the cord goes inside.and the dryer works great. Agreat dryer that I would buy again. This did arrive on time.&lt;br /&gt;Thank you.</li>
+    <li> Great dryer. Never gets too hot.</li>
+    <li> It&#x27;s what I would expect from a 25 dollar hair dryer.  Not many extra, but does the job.</li>
+    <li> Bought this for my wife who was replacing her 20 year old Conair, which obviously had served her well. She loves this one too! Great size for the power; great folding handle and very efficient. Delivered a day early, well packaged. We live in Canada, 45 minutes from the US border, and through Amazon, it was half of what we would have paid on the Canadian side.</li>
+    <li> I had to replace my old Conair that finally quit on me.  I like that this one has a folding handle and a retractable cord for easy packing if you are traveling.  I have always trusted Conair&#x27;s products and this one is great.</li>
+    <li> I bought this to replace a previous similar model.  It works fine, however it is very load on high and low is very gentle.  It works well on high and dries in a flash and I have thick hair.</li>
+    <li> Love it, lots of power and drys my hair quickly</li>
+    <li> This hair dryer died within 4 months of buying it. Waste of money.</li>
+    <li> Item received in great condition.</li>
+    <li> The dryer works great.  The only reason for not 5 stars is the cord retraction.  It sometimes takes three times to get the cord to retract fully.</li>
+    <li> Has lots of power to dry hair quickly and it is great for travel.</li>
+    <li> This is my everyday hair dryer-have had this same dryer for years!  so hard to replace - Amazon came through again! Thank you.</li>
+    <li> Cord doesn&#x27;t retract very well</li>
+    <li> Great appliance for the price.</li>
+    <li> My wife and I needed a new hair dryer, and we had good luck with Conair in the past, so I thought I would try this new model which was just introduced.  Works really great, and much much quieter than the old one, too.  Absolutely would recommend it!  5 Stars.</li>
+    <li> Piece of junk.  The cord keeper feature is a joke.  The only place the cord keeper keeps it is outside of the dryer.  DO NOT BUY</li>
+    <li> Very pleased.  Folds nicely, cord retracts well.</li>
+    <li> Both the retractable cord and the folding handle are very convenient for storing the hair dryer  back in a drawer after use.</li>
+    <li> I purchased this dryer less than 6 months ago and it&#x27;s already stopped working.  I always plug my appliances into a surge protector and even so, this dryer&#x27;s test/reset buttons just stopped deploying.  They won&#x27;t stay pressed down and so the dryer won&#x27;t turn on.  I&#x27;m staying away from Conair hair products, because of this.  Very disappointed in a product that won&#x27;t last longer than this--especially considering how careful I was with it.</li>
+    <li> Works great! Fast and easy!</li>
+    <li> I sent it back.  Basically not worth it.  Heavy - cord did not retract all the way -- not what I was looking for.</li>
+    <li> works great, sometimes cord re winder does not rewind all the way which can be a little frustrating. I had a model similar that lasted many years so when it died I bought this and it works the same and has the same issues with the cord winder. However I still like it very much as it does blow alot of air which is why bought it again.</li>
+    <li> Exactly as described and exactly what I wanted.</li>
+    <li> I purchased this hairdryer to replace the same model I have had for years.  I like the retractable cord and folding handle so that I can easily tuck it away rather than leave it out on the counter.  It has power for efficient drying.</li>
+    <li> Had one of these for several years and I wore it out so I ordered this one, a few differences but just as good as the one I had. So hopefully when I wear this one out I will be able to replace it again! I like the cord keeper feature on it really well.</li>
+    <li> This hairdryer has worked OK for me in the last year so I can&#x27;t say it&#x27;s a complete dud, but its major flaw is its volume!  When I use it I have to put half a cotton ball in each ear.  If not, the volume when I&#x27;m drying my hair on high is deafening.  I&#x27;m surprised that there aren&#x27;t industry regulations that would put a warning label on a model like this, seriously.  The volume outweighs the convenience of the retractable cord and folding body (I rarely use either feature but it seemed important when I bought it).  I would never buy this style again.  In fact, I&#x27;m in here looking for a quieter model - way too late.</li>
+    <li> It works great, but it is little heavy.</li>
+    <li> Too loud! All the descriptions about the noise is true.&lt;br /&gt;And the low setting is too low.</li>
+    <li> Excellent hairdryer. The retractable cord is great and the folding handle makes it great for compact storing.</li>
+    <li> Excellent hairdryer for travel.  Folding handle makes packing much easier as does the retractable cord.  Very good hair dryer.</li>
+    <li> Works great!! Dries my hair quickly and stores beautifully with the retractable cord and folding handle !! So glad I got it ; )</li>
+    <li> I have a battle with this hair dryer every day... I never know when I hit the cord retract button if it&#x27;s going to do nothing, or if it&#x27;s going to turn into a deadly weapon. It&#x27;s like it&#x27;s supposed to double as some kind of secret villain grappling hook... To get the cord to retract, you can&#x27;t have any pressure or pull on the plug end of the cord... You kind of have to hold it at arm&#x27;s length, push the button, and hope for the best. Every once in a while, you push the button and the cord absolutely shoots in, even if you&#x27;re holding onto it. I actually have a scar on my leg from the plug from one of those times.  I have no issue with the hair dryer part, it is hot or cool, but I like a really hot dryer.  I just wanted one that folds, without a retractable cord. Half the time it will only retract part way and you end up folding the rest up to store it. CONAIR, I HATE your retractable cords.</li>
+    <li> Read all reviews and still bought this dryer, I think some people expect to much from a product so far this dryer is doing what I expected it to do. The retractable cord is working and the handle folds like it should and provides proper heat and cooling.</li>
+    <li> Works just fine.  No problems.</li>
+    <li> I bought this dryer specifically because the handle could collapse and the cord was retractable, which I thought would make it fit in my drawer.  Both features work well but, it still wouldn&#x27;t fit in the drawer.  This dryer does not get very hot so it takes longer to dry my hair than my previous one.  However, it was a good price and you get what you pay for.  I&#x27;ll keep it but I would try another model before I bought this again.</li>
+    <li> Pros: The retractable cord - no more messy cord all over the bathroom counter&lt;br /&gt;Con: The settings - either lukewarm or hot; nothing in-between. Have learned to make it work since I did spend money on it.</li>
+    <li> This is definitely not a babyliss or other high-end blow dryer, but it will get the job done. It is great as a travel dryer, but is perfectly fine as a compact home dryer too.</li>
+    <li> I bought a second one about 6 months ago, since I loved the first one I had for 5 years.  The first retractable cord was great.  It dried my hair quickly.  This one is very different.  First the cord doesn&#x27;t retract completely.  It didn&#x27;t after the first week.  Then, this week the plug cracked wide open.  The cheap plastic just cracked.  I don&#x27;t remember hitting it on anything, but maybe it happened when I tried plugging it into an old outlet.  Whatever happened, I&#x27;ve never had a plug crack wide open before.  Like many other new appliances on the market, this one is inferior to the exact same model we could buy 5 years ago.</li>
+    <li> This is my second one and it works great!</li>
+    <li> Great dryer. Only reason I didn&#x27;t give it 5 stars is because it is a bit heavy.</li>
+    <li> Excellent product for its price point.  Good weight and heat distribution.  Retractable cord needs to be guided in when activated.</li>
+    <li> The low speed doesn&#x27;t dry very well.  The high speed is very loud.  It does the job but I wouldn&#x27;t buy again.</li>
+    <li> I had one like it for many years. It didn&#x27;t stop working. But the the fold out handle failed to lock any more. Was delighted when I found one just like it on Amazon. It is just like the other one. Hope I get the same amount of use from this one!</li>
+    <li> Perfect for travel and everyday use.</li>
+    <li> Easy to use. Love the folding handle, easy to store.</li>
+    <li> Power cord doesn&#x27;t retract well but it works well and folds up nicely.  For the price, it&#x27;s a good dryer</li>
+    <li> Comes in handy 4 travel or a quick fix it.</li>
+    <li> Excellent product.  Very effective appliance.  For me, the cord rewind button works great, and the folding handle makes storage easy.  Well worth the money.</li>
+    <li> Does what it&#x27;s supposed to do.</li>
+    <li> I ordered this one because a friend of mine has one. Hers has worked great for four years and I loved hers and then found same model on here for a great price. I just got this a few days ago it is exactly what it says it is. and so far works great. would recommend to anyone who wants a great hair dryer for a great price.</li>
+    <li> Although the package was damaged on arrival the contents were intact.  This was replacement for an identical Conair unit that my Bride has used continually for several years.  We expect the new Conair to be as serviceable as the previous one.</li>
+    <li> Cord retract is a bitch to work.  Have to screw with it to get it to take it all in.</li>
+    <li> So little air power and very, very low temp on the &amp;#34;Low&amp;#34; setting. Only warms up with a little more force on the &amp;#34;Hi&amp;#34; setting. Kinda useless for me.</li>
+    <li> My wife received this hair dryer as a gift a few days ago. She went to fold it up and her index finger was pinched pretty bad, it tore the skin and received a nasty blood blister. Its really hard to fold, even for me, she filed a complaint with the consumer protection agency</li>
+    <li> Good for travel and small bathrooms.</li>
+    <li> AWFUL!!!  I have only had this dryer since the end of May and it doesn&#x27;t work any more!  I&#x27;m so disappointed!</li>
+    <li> Works great and yeah the cord doesn&#x27;t retract all the way but hey it retracts enough to pack away.</li>
+    <li> I was looking for something to travel with, that is why I was attracted to the fold down and retractable cord.  I tested it and it seemed to work fine but it&#x27;s too big for travel, even with the handle folded.  The price was good so I may keep it as a back up to my regular hair dryer but now I need to look for a smaller one for my suitcase.</li>
+    <li> The blow dryer I had for years died so I went to Walmart and found this.&lt;br /&gt; I like that it had a retractable cord and could fold, but its not hot enough, it took too long to dry my hair this morning.&lt;br /&gt;I do not live close to the store, so I will deal with it for the week and return it over the weekend, and in the mean time I will look up reviews for a better item.</li>
+    <li> Very noisy with limited heating functions. I have only owned this dryer for a week and the cord-keeper function is already hit or miss.</li>
+    <li> Purchased as a guest bathroom hairdryer. Between the retractable cord and the folding feature, it fits neatly in a drawer.</li>
+    <li> I don&#x27;t know why there are so many negative reviews, other than maybe operator error. This hair dryer is great, it dries my hair much faster than my other Revlon which is about 3 years old and I love the different settings. I wash my hair every other day, so it doesn&#x27;t get daily use, but so far so good. The cord will only retract well if you have the handle extended, if you try to fold the handle and then retract it wont work. It is nice and compact to keep folded in my bathroom.</li>
+    <li> it does everything a good dryer should do.  The retractable cord doesn&#x27;t work as well as it should unfortunately but can be managed.</li>
+    <li> These retractable cords are great.</li>
+    <li> bought this to replace the exact same model for my wife that was 10 years old... it&#x27;s a good product... works really good and easy to store...</li>
+    <li> Its a hair dryer! Works fine.</li>
+    <li> I was pleasantly surprised that this was so powerful. The cord retracting is a bonus. Wish it wasn&#x27;t discontinued. Maybe I should have bought 2!!</li>
+    <li> This is a great dryer for the price.  Occasionally I have trouble retracting the cord, but it always seems to get figured out.  I&#x27;m buying a second for travel.  :)</li>
+    <li> Bought these for our rental beach house.  The retractable cord was our favorite feature.  A good price for this unit.</li>
+    <li> My Conair just died on me yesterday!!! i Just bought it last January and it died. I tried pressing the reset button and it is not working.&lt;br /&gt;I have exactly the same dryer and i had it for 7 years but this new one just dies after a month!!!&lt;br /&gt;i don&#x27;t know if they can still replace or refund me with my purchase?? any help???</li>
+    <li> works perfectly, exactly what i was looking for.  and of course, best price found on Amazon!!</li>
+    <li> I bought this specifically because I had the previous unit (Conair Cord Keeper 1875) that I purchased from Target a few years ago.  Now that I have boycotted Target I had to look elsewhere for a replacement. I wanted Conair simply because the only thing wrong with my previous unit was an &amp;#34;iffy&amp;#34; plug...ie: after a while the reset button on the plug broke. I loved the retractable cable and the hinged handle.&lt;br /&gt;&lt;br /&gt;BUT listen to everyone yelling about the cord retraction. This is absolutely horrendous! It does work to get the cord up to around 90% retracted, however, that last little bit is almost never pulled in.  Unless you hold the button and feed it in manually. I wish Conair would&#x27;ve fixed this. For only $12, it is a steal as long as you are willing to deal with the cord.&lt;br /&gt;&lt;br /&gt;For the person that said it is loud... hey -- it is a hair dryer you hold 12&amp;#34; away from your ears. Of course it is loud! I prefer to know that there is air flowing through than deal with a quiet hairdryer not pushing the air through.&lt;br /&gt;&lt;br /&gt;For the other person that said &amp;#34;Lukewarm or hot...nothing in between&amp;#34;... well, in most industries you get what you pay for..and you didn&#x27;t pay for those features.</li>
+    <li> This is a good, reliable hair dryer and at a great value. The only thing I don&#x27;t like is it is hard to fold and sometimes pinches your fingers. I have the older version and it is much easier to close.</li>
+    <li> A little bit too big for travelling</li>
+    <li> Cord doesn&#x27;t retract all the way, which defeats the whole reason I wanted this hairdryer.  Maybe I got a bad unit.</li>
+    <li> ordered this as a back up because it was a good deal/price and the day it arrived, my everyday dryer went kaput.  It was like it knew there was a new model in town. LOL.  Anyway I love this dryer.  I have thick hair and I&#x27;m done with drying in about 5 mins.  and that&#x27;s with styling hair also.  Best $ spent.</li>
+    <li> Bought one of these for a spare bedroom when we have guests. Took a shower in there one day and LOVED this so much I threw mine away and bought one for myself too.</li>
+    <li> The cord keeper didn&#x27;t last long. This one doesn&#x27;t seem to be as sturdy as the previous version I had. Disappointed.</li>
+    <li> Very powerful.  Cord gets stuck a little when you go to retract it, but it will go in with a little finagling.</li>
+    <li> Arrived before promised.  So far I am happy with the product.</li>
+</ol>
+
+
+
+

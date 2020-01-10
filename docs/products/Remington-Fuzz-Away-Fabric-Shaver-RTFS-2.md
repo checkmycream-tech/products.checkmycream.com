@@ -3,8 +3,8 @@ title: Remington Fuzz-Away Fabric Shaver, RTFS-2,
 description: Remington Fuzz-Away Fabric Shaver, RTFS-2,
 author: Suvojit Manna,
 tags: Remington Fuzz-Away Fabric Shaver, RTFS-2,
-publishedAt: Thu Jan 09 2020 19:08:29 GMT+0530 (India Standard Time),
-modifiedAt: Thu Jan 09 2020 19:08:29 GMT+0530 (India Standard Time),
+publishedAt: Fri Jan 10 2020 14:59:44 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:59:44 GMT+0530 (India Standard Time),
 ---
 
 # [Remington Fuzz-Away Fabric Shaver, RTFS-2](https://products.checkmycream.com/products/Remington-Fuzz-Away-Fabric-Shaver-RTFS-2.html)
@@ -13,210 +13,210 @@ modifiedAt: Thu Jan 09 2020 19:08:29 GMT+0530 (India Standard Time),
 
 <ol>
       <li>Works great!</li>
-      <li>I did the best I could with removing the fuzzballs and in the end</li>
-      <li>This is probably for the best since the purpose of this shaver it to remove fuzzballs.&lt;br /&gt;&lt;br</li>
-      <li>Works great!</li>
-      <li>This thing is great!</li>
-      <li>So that&#x27;s awesome.</li>
-      <li>I&#x27;ve been really impressed with how it&#x27;s been cleaning up the material.</li>
-      <li>Not the best out there, but does the job.</li>
-      <li>I WOULD SAY IT&#x27;S PERFECT.    </li>
-      <li>Best investment ever made!</li>
-      <li>and they have the best shavers.  </li>
-      <li>and it works flawlessly.</li>
-      <li>Awesome!</li>
-      <li>Great product!</li>
-      <li>Best lint remover ever</li>
-      <li>works great!</li>
-      <li>Functions perfectly.</li>
-      <li>Best sweater shaver I&#x27;ve ever had.</li>
-      <li>This is an awesome product.  </li>
-      <li>Great for the money!!</li>
-      <li>Excellent price for what you get.</li>
-      <li>It&#x27;s a great product!  </li>
-      <li>Being a guy I thought I would never purchase anything like this, but I&#x27;m very happy I did.</li>
-      <li>awesome!!</li>
-      <li>Great shipping time!</li>
-      <li>I am very happy with it.</li>
-      <li>Best eleven dollars (and 28 cents)</li>
-      <li>Wonderful product!  </li>
-      <li>It works GREAT!</li>
-      <li>I am happy with my purchase!</li>
-      <li>IT WORKS GREAT!</li>
-      <li>This is the perfect tool for removing them and allowing me to abuse my clothing over and over again.  </li>
-      <li>I am really happy with this product!  </li>
-      <li>This fabric shaver works great!  </li>
-      <li>Wonderful.</li>
-      <li>This is great until it catches the fabric of your shirt and puts a hole in your clothing!</li>
-      <li>This works great!  </li>
-      <li>:D</li>
-      <li>It performs perfectly!!!!!</li>
-      <li>I really am happy with this fabric shaver!</li>
-      <li>This shaver does the trick like no others and the best thing</li>
-      <li>What a great concept!  </li>
-      <li>It works well and does its job perfectly.</li>
-      <li>Very pleased with the shaver!!</li>
-      <li>It&#x27;s freaking awesome..</li>
-      <li>I was definetly happy and will recommend it!</li>
-      <li>This thing is Awesome.  </li>
-      <li>I&#x27;m very happy with the purchase.</li>
       <li>This is so wonderful, I just got it</li>
-      <li>and I used it on my tights and sweaters and it worked perfectly.</li>
-      <li>Happy fabric shaving!</li>
-      <li>Excellent tool that is irreplaceable!</li>
-      <li>I paid $5.99 for mine, didn&#x27;t get the best deal($4.99)</li>
-      <li>so I am happy!</li>
-      <li>my best sweater.</li>
-      <li>It worked perfectly and didn&#x27;t ruin or snag any of the fabric.</li>
-      <li>Works perfectly.</li>
-      <li>Very happy with my purchase.</li>
-      <li>This product worked great for me!</li>
-      <li>Worked great on my cotton and jersey sheets and pillow cases!</li>
-      <li>Seems to work great!</li>
-      <li>Remington Battery Operated Fabric Shaver  Works perfectly!</li>
-      <li>I needed to shave pills off a chair and it did it perfectly!</li>
-      <li>My sister told me about this fabric shaver and it became my best friend.</li>
-      <li>Practice makes perfect.</li>
-      <li>I find that for pants, it&#x27;s best to use it WHILE you&#x27;re wearing the garment.</li>
-      <li>Works perfect!</li>
-      <li>I&#x27;m impressed.</li>
-      <li>Thank you for this wonderful product.</li>
-      <li>This fabric shaver is not the best, but does work on some fabrics.</li>
-      <li>But even that said, I am very happy with it.</li>
-      <li>it is perfect.  </li>
-      <li>and I think this one is the best.  </li>
-      <li>this thing worked perfectly.  </li>
-      <li>I used this and was very happy with how well it worked on my blazer.</li>
-      <li>Great buy!!!</li>
-      <li>It&#x27;s been a great help, and I haven&#x27;t had any issues with it!</li>
-      <li>This thing is (without overstating) one of the best purchases</li>
-      <li>Would recommend since it is priced great!</li>
-      <li>This is one of the best things I have ever purchased!</li>
-      <li>This works great!  </li>
-      <li>Awesome on bras, sweaters, blankets....</li>
-      <li>I&#x27;ve found that if I do this, again, as directed, it works great!!!</li>
-      <li>Excellent!</li>
+      <li>perfect !!</li>
+      <li>I have found Remington Fabric Shaver to be the best.  </li>
+      <li>I did the best I could with removing the fuzzballs and in the end</li>
+      <li>Has worked perfectly on everything.</li>
+      <li>I think it&#x27;s great!</li>
+      <li>Wonderful.</li>
+      <li>Awesome product all around.</li>
+      <li>Excellent buy for the money</li>
+      <li>Being a guy I thought I would never purchase anything like this, but I&#x27;m very happy I did.</li>
       <li>I also decided to try it on one of my fleece columbia sweatshirts, and it worked great!</li>
+      <li>Works perfect!</li>
+      <li>But even that said, I am very happy with it.</li>
+      <li>I am so happy we got it!</li>
+      <li>This is probably for the best since the purpose of this shaver it to remove fuzzballs.&lt;br /&gt;&lt;br</li>
+      <li>Awesome product!  </li>
+      <li>The is one of the best Fabric shavers that I have owned.  </li>
+      <li>I&#x27;m impressed.</li>
+      <li>ALSO GOT THE BEST PRICE HERE ON AMAZON FOR IT!</li>
+      <li>Excellent!</li>
+      <li>Amazing!!!!</li>
+      <li>Excellent value too!</li>
+      <li>It Comb to compare which one worked best.</li>
+      <li>Works perfectly.</li>
+      <li>This fabric shaver works great!  </li>
+      <li>Very pleased with the shaver!!</li>
+      <li>Was not as impressed as I was told this</li>
+      <li>I&#x27;ve found that if I do this, again, as directed, it works great!!!</li>
+      <li>After struggling with a lint brush this cleared up the uniform flawlessly.</li>
+      <li>I really am happy with this fabric shaver!</li>
       <li>Best thing ever..</li>
+      <li>It&#x27;s a great product!  </li>
+      <li>and I used it on my tights and sweaters and it worked perfectly.</li>
+      <li>Great price for this fabric shaver too!</li>
+      <li>I am really happy with this product!  </li>
+      <li>This is great until it catches the fabric of your shirt and puts a hole in your clothing!</li>
+      <li>I think it&#x27;s a great buy for the price!</li>
+      <li>Works great!</li>
+      <li>Very happy!</li>
+      <li>Very happy with my purchase.</li>
+      <li>It&#x27;s freaking awesome..</li>
+      <li>Very Happy with product and price.</li>
+      <li>Works great!</li>
+      <li>This a a great shaver!  </li>
+      <li>Works wonderful!</li>
+      <li>This is the perfect tool for removing them and allowing me to abuse my clothing over and over again.  </li>
+      <li>This is a great product!!!</li>
+      <li>I bought the Remington shaver, and it is perfect!</li>
+      <li>I was SO happy with this purchase!  </li>
+      <li>It is a grate product that works perfect</li>
+      <li>, it worked wonderfully for four minutes &amp; then died.</li>
+      <li>I used this and was very happy with how well it worked on my blazer.</li>
+      <li>I find that for pants, it&#x27;s best to use it WHILE you&#x27;re wearing the garment.</li>
+      <li>Excellent price for what you get.</li>
+      <li>IT WORKS GREAT!</li>
+      <li>Works perfect!</li>
+      <li>Works great for this purpose!</li>
+      <li>Service was excellent.</li>
+      <li>This is the best product.</li>
+      <li>Works great!!!</li>
+      <li>This is the best invention ever.</li>
+      <li>This thing is great!</li>
       <li>Just used and it works great!</li>
+      <li>So that&#x27;s awesome.</li>
       <li>So happy I bought this!</li>
+      <li>I was definetly happy and will recommend it!</li>
+      <li>I am happy with my purchase!</li>
+      <li>I&#x27;ve been really impressed with how it&#x27;s been cleaning up the material.</li>
+      <li>It performs perfectly!!!!!</li>
+      <li>Practice makes perfect.</li>
+      <li>Awesome on bras, sweaters, blankets....</li>
+      <li>Works perfectly.</li>
+      <li>I found this to be excellent in its usage detatching pills etc.</li>
+      <li>This product worked great for me!</li>
+      <li>Great for the money!!</li>
+      <li>Excellent Product !!!</li>
+      <li>It worked perfectly and didn&#x27;t ruin or snag any of the fabric.</li>
+      <li>Thank you Remington for this excellent product.</li>
+      <li>Does a wonderful job a cleaning any of clothing.  </li>
+      <li>This is just too perfect of a fuzz buster to give up after one mishap which could have just been a manufacturing defect.  </li>
+      <li>my best sweater.</li>
+      <li>Works wonderful on winter coats</li>
       <li>It worked great for my thicker clothes!</li>
+      <li>Perfect holes for shaving everything by the way.  </li>
       <li>It works perfect for that.</li>
       <li>&lt;br /&gt;Works great!</li>
-      <li>I&#x27;ve tried a couple of methods for pill removal and this is the best solution I&#x27;ve found.</li>
-      <li>This works awesome!!!</li>
-      <li>Great!</li>
-      <li>So my review is 5 starts, and I am very happy with my purchase.</li>
-      <li>Awesome!</li>
-      <li>Works wonderfully!  </li>
-      <li>It works great!</li>
-      <li>and I am already impressed on the job it did.</li>
-      <li>Great product!!</li>
+      <li>This is the best value on a fabric shaver I have come across.</li>
+      <li>It&#x27;s an EXCELLENT product and does everything it says it will do for an AMAZING price!!!!</li>
+      <li>This is an awesome product.  </li>
+      <li>This thing is perfect.</li>
+      <li>It worked perfectly!</li>
+      <li>Very happy with it.</li>
+      <li>I am very happy with the product.  </li>
+      <li>very happy i purchased this.  </li>
+      <li>Did what it said perfectly.</li>
+      <li>This shaver does the trick like no others and the best thing</li>
+      <li>It&#x27;s perfect size for baby clothes though.</li>
+      <li>and it&#x27;s worked wonderfully.  </li>
+      <li>it is perfect.  </li>
 </ol>
 
 
 <h2>Negative Reviews</h2>
 <ol>
 <li> Works great!</li>
-<li> I did the best I could with removing the fuzzballs and in the end</li>
-<li> This is probably for the best since the purpose of this shaver it to remove fuzzballs.&lt;br /&gt;&lt;br</li>
-<li> Works great!</li>
-<li> This thing is great!</li>
-<li> So that&#x27;s awesome.</li>
-<li> I&#x27;ve been really impressed with how it&#x27;s been cleaning up the material.</li>
-<li> Not the best out there, but does the job.</li>
-<li> I WOULD SAY IT&#x27;S PERFECT.    </li>
-<li> Best investment ever made!</li>
-<li> and they have the best shavers.  </li>
-<li> and it works flawlessly.</li>
-<li> Awesome!</li>
-<li> Great product!</li>
-<li> Best lint remover ever</li>
-<li> works great!</li>
-<li> Functions perfectly.</li>
-<li> Best sweater shaver I&#x27;ve ever had.</li>
-<li> This is an awesome product.  </li>
-<li> Great for the money!!</li>
-<li> Excellent price for what you get.</li>
-<li> It&#x27;s a great product!  </li>
-<li> Being a guy I thought I would never purchase anything like this, but I&#x27;m very happy I did.</li>
-<li> awesome!!</li>
-<li> Great shipping time!</li>
-<li> I am very happy with it.</li>
-<li> Best eleven dollars (and 28 cents)</li>
-<li> Wonderful product!  </li>
-<li> It works GREAT!</li>
-<li> I am happy with my purchase!</li>
-<li> IT WORKS GREAT!</li>
-<li> This is the perfect tool for removing them and allowing me to abuse my clothing over and over again.  </li>
-<li> I am really happy with this product!  </li>
-<li> This fabric shaver works great!  </li>
-<li> Wonderful.</li>
-<li> This is great until it catches the fabric of your shirt and puts a hole in your clothing!</li>
-<li> This works great!  </li>
-<li> :D</li>
-<li> It performs perfectly!!!!!</li>
-<li> I really am happy with this fabric shaver!</li>
-<li> This shaver does the trick like no others and the best thing</li>
-<li> What a great concept!  </li>
-<li> It works well and does its job perfectly.</li>
-<li> Very pleased with the shaver!!</li>
-<li> It&#x27;s freaking awesome..</li>
-<li> I was definetly happy and will recommend it!</li>
-<li> This thing is Awesome.  </li>
-<li> I&#x27;m very happy with the purchase.</li>
 <li> This is so wonderful, I just got it</li>
-<li> and I used it on my tights and sweaters and it worked perfectly.</li>
-<li> Happy fabric shaving!</li>
-<li> Excellent tool that is irreplaceable!</li>
-<li> I paid $5.99 for mine, didn&#x27;t get the best deal($4.99)</li>
-<li> so I am happy!</li>
-<li> my best sweater.</li>
-<li> It worked perfectly and didn&#x27;t ruin or snag any of the fabric.</li>
-<li> Works perfectly.</li>
-<li> Very happy with my purchase.</li>
-<li> This product worked great for me!</li>
-<li> Worked great on my cotton and jersey sheets and pillow cases!</li>
-<li> Seems to work great!</li>
-<li> Remington Battery Operated Fabric Shaver  Works perfectly!</li>
-<li> I needed to shave pills off a chair and it did it perfectly!</li>
-<li> My sister told me about this fabric shaver and it became my best friend.</li>
-<li> Practice makes perfect.</li>
-<li> I find that for pants, it&#x27;s best to use it WHILE you&#x27;re wearing the garment.</li>
-<li> Works perfect!</li>
-<li> I&#x27;m impressed.</li>
-<li> Thank you for this wonderful product.</li>
-<li> This fabric shaver is not the best, but does work on some fabrics.</li>
-<li> But even that said, I am very happy with it.</li>
-<li> it is perfect.  </li>
-<li> and I think this one is the best.  </li>
-<li> this thing worked perfectly.  </li>
-<li> I used this and was very happy with how well it worked on my blazer.</li>
-<li> Great buy!!!</li>
-<li> It&#x27;s been a great help, and I haven&#x27;t had any issues with it!</li>
-<li> This thing is (without overstating) one of the best purchases</li>
-<li> Would recommend since it is priced great!</li>
-<li> This is one of the best things I have ever purchased!</li>
-<li> This works great!  </li>
-<li> Awesome on bras, sweaters, blankets....</li>
-<li> I&#x27;ve found that if I do this, again, as directed, it works great!!!</li>
-<li> Excellent!</li>
+<li> perfect !!</li>
+<li> I have found Remington Fabric Shaver to be the best.  </li>
+<li> I did the best I could with removing the fuzzballs and in the end</li>
+<li> Has worked perfectly on everything.</li>
+<li> I think it&#x27;s great!</li>
+<li> Wonderful.</li>
+<li> Awesome product all around.</li>
+<li> Excellent buy for the money</li>
+<li> Being a guy I thought I would never purchase anything like this, but I&#x27;m very happy I did.</li>
 <li> I also decided to try it on one of my fleece columbia sweatshirts, and it worked great!</li>
+<li> Works perfect!</li>
+<li> But even that said, I am very happy with it.</li>
+<li> I am so happy we got it!</li>
+<li> This is probably for the best since the purpose of this shaver it to remove fuzzballs.&lt;br /&gt;&lt;br</li>
+<li> Awesome product!  </li>
+<li> The is one of the best Fabric shavers that I have owned.  </li>
+<li> I&#x27;m impressed.</li>
+<li> ALSO GOT THE BEST PRICE HERE ON AMAZON FOR IT!</li>
+<li> Excellent!</li>
+<li> Amazing!!!!</li>
+<li> Excellent value too!</li>
+<li> It Comb to compare which one worked best.</li>
+<li> Works perfectly.</li>
+<li> This fabric shaver works great!  </li>
+<li> Very pleased with the shaver!!</li>
+<li> Was not as impressed as I was told this</li>
+<li> I&#x27;ve found that if I do this, again, as directed, it works great!!!</li>
+<li> After struggling with a lint brush this cleared up the uniform flawlessly.</li>
+<li> I really am happy with this fabric shaver!</li>
 <li> Best thing ever..</li>
+<li> It&#x27;s a great product!  </li>
+<li> and I used it on my tights and sweaters and it worked perfectly.</li>
+<li> Great price for this fabric shaver too!</li>
+<li> I am really happy with this product!  </li>
+<li> This is great until it catches the fabric of your shirt and puts a hole in your clothing!</li>
+<li> I think it&#x27;s a great buy for the price!</li>
+<li> Works great!</li>
+<li> Very happy!</li>
+<li> Very happy with my purchase.</li>
+<li> It&#x27;s freaking awesome..</li>
+<li> Very Happy with product and price.</li>
+<li> Works great!</li>
+<li> This a a great shaver!  </li>
+<li> Works wonderful!</li>
+<li> This is the perfect tool for removing them and allowing me to abuse my clothing over and over again.  </li>
+<li> This is a great product!!!</li>
+<li> I bought the Remington shaver, and it is perfect!</li>
+<li> I was SO happy with this purchase!  </li>
+<li> It is a grate product that works perfect</li>
+<li> , it worked wonderfully for four minutes &amp; then died.</li>
+<li> I used this and was very happy with how well it worked on my blazer.</li>
+<li> I find that for pants, it&#x27;s best to use it WHILE you&#x27;re wearing the garment.</li>
+<li> Excellent price for what you get.</li>
+<li> IT WORKS GREAT!</li>
+<li> Works perfect!</li>
+<li> Works great for this purpose!</li>
+<li> Service was excellent.</li>
+<li> This is the best product.</li>
+<li> Works great!!!</li>
+<li> This is the best invention ever.</li>
+<li> This thing is great!</li>
 <li> Just used and it works great!</li>
+<li> So that&#x27;s awesome.</li>
 <li> So happy I bought this!</li>
+<li> I was definetly happy and will recommend it!</li>
+<li> I am happy with my purchase!</li>
+<li> I&#x27;ve been really impressed with how it&#x27;s been cleaning up the material.</li>
+<li> It performs perfectly!!!!!</li>
+<li> Practice makes perfect.</li>
+<li> Awesome on bras, sweaters, blankets....</li>
+<li> Works perfectly.</li>
+<li> I found this to be excellent in its usage detatching pills etc.</li>
+<li> This product worked great for me!</li>
+<li> Great for the money!!</li>
+<li> Excellent Product !!!</li>
+<li> It worked perfectly and didn&#x27;t ruin or snag any of the fabric.</li>
+<li> Thank you Remington for this excellent product.</li>
+<li> Does a wonderful job a cleaning any of clothing.  </li>
+<li> This is just too perfect of a fuzz buster to give up after one mishap which could have just been a manufacturing defect.  </li>
+<li> my best sweater.</li>
+<li> Works wonderful on winter coats</li>
 <li> It worked great for my thicker clothes!</li>
+<li> Perfect holes for shaving everything by the way.  </li>
 <li> It works perfect for that.</li>
 <li> &lt;br /&gt;Works great!</li>
-<li> I&#x27;ve tried a couple of methods for pill removal and this is the best solution I&#x27;ve found.</li>
-<li> This works awesome!!!</li>
-<li> Great!</li>
-<li> So my review is 5 starts, and I am very happy with my purchase.</li>
-<li> Awesome!</li>
-<li> Works wonderfully!  </li>
-<li> It works great!</li>
-<li> and I am already impressed on the job it did.</li>
-<li> Great product!!</li>
+<li> This is the best value on a fabric shaver I have come across.</li>
+<li> It&#x27;s an EXCELLENT product and does everything it says it will do for an AMAZING price!!!!</li>
+<li> This is an awesome product.  </li>
+<li> This thing is perfect.</li>
+<li> It worked perfectly!</li>
+<li> Very happy with it.</li>
+<li> I am very happy with the product.  </li>
+<li> very happy i purchased this.  </li>
+<li> Did what it said perfectly.</li>
+<li> This shaver does the trick like no others and the best thing</li>
+<li> It&#x27;s perfect size for baby clothes though.</li>
+<li> and it&#x27;s worked wonderfully.  </li>
+<li> it is perfect.  </li>
 </ol>
 
 <h2>All Reviews</h2>
@@ -1872,6 +1872,7 @@ modifiedAt: Thu Jan 09 2020 19:08:29 GMT+0530 (India Standard Time),
     <li> This takes most of the pills on our sweaters without snagging the fabric. Great price for this fabric shaver too!</li>
     <li> This product is great.  Good power and very good at removing those annoying balls of lint from my daughter&#x27;s dance tights.  The only thing I didn&#x27;t like was that the casing that holds the lint slides off sometimes while using it. Other than that it does the job is supposed to do.  It also had pretty good battery life.</li>
 </ol>
+
 
 
 

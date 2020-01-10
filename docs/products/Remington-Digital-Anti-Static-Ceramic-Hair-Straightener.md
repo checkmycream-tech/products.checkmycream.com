@@ -3,8 +3,8 @@ title: Remington Digital Anti Static Ceramic Hair Straightener,
 description: Remington Digital Anti Static Ceramic Hair Straightener,
 author: Suvojit Manna,
 tags: Remington Digital Anti Static Ceramic Hair Straightener,
-publishedAt: Thu Jan 09 2020 19:08:30 GMT+0530 (India Standard Time),
-modifiedAt: Thu Jan 09 2020 19:08:30 GMT+0530 (India Standard Time),
+publishedAt: Fri Jan 10 2020 14:59:52 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:59:52 GMT+0530 (India Standard Time),
 ---
 
 # [Remington Digital Anti Static Ceramic Hair Straightener](https://products.checkmycream.com/products/Remington-Digital-Anti-Static-Ceramic-Hair-Straightener.html)
@@ -12,211 +12,211 @@ modifiedAt: Thu Jan 09 2020 19:08:30 GMT+0530 (India Standard Time),
 ### Positive Reviews
 
 <ol>
-      <li>This straightener is so great!</li>
+      <li>I bought this because my best friend had it</li>
+      <li>Best part is its inexpensive!  </li>
+      <li>Very very happy !</li>
+      <li>is one of the best all around hair styling tools you can get for the money.&lt;br</li>
       <li>I didn&#x27;t hesitate to buy another one, because I think it&#x27;s the best straightener for the money.</li>
+      <li>Best quality for its price.</li>
+      <li>Awesome for curling your hair as well</li>
+      <li>But this is the best straightener I have ever used.</li>
+      <li>Excellent straightener for the price, IMO.</li>
       <li>This is soooo affordable ladies, and let me tell you, it works great!</li>
+      <li>The best Hair Straightener!</li>
       <li>Excellent !!</li>
+      <li>Awesome!</li>
       <li>The product arrived in perfect condition aVenezuela</li>
+      <li>I am very happy to order one them .</li>
+      <li>I gave them to my co-workers and they think I am the best thing since sliced bread.  </li>
+      <li>and this has to be the best straightener I have ever used.</li>
+      <li>I use it on my brazillian hair and the settings are great!</li>
+      <li>and I am very happy with it.</li>
       <li>and i am very happy with it.</li>
+      <li>Honestly great buy!</li>
+      <li>excellent value for money.</li>
+      <li>AWESOME quality!</li>
+      <li>doesn&#x27;t pull my hair and the length of the plates is great!!</li>
+      <li>but to my surprise, it worked great on my hair!</li>
       <li>Works great!</li>
+      <li>oh, and awesome price!!!</li>
       <li>I&#x27;m very happy with this product.&lt;br /&gt;I</li>
+      <li>Straightens the hair perfectly in  one shot .</li>
+      <li>OMG!its great but the smell ew!</li>
+      <li>so it&#x27;s awesome.</li>
+      <li>but this was great!</li>
+      <li>I would recommend this to anyone who is looking for a great reliable straightener!</li>
+      <li>It is awesome.</li>
+      <li>The wife says its perfect.</li>
+      <li>And all I can say is that it is amazing!!!!</li>
+      <li>This Ceramic hair straightener is the best</li>
+      <li>This straightener works perfectly!  </li>
+      <li>AWESOME!</li>
+      <li>I am that impressed with this one.</li>
       <li>great buy!</li>
+      <li>I love this Straightener iron!!!!</li>
+      <li>Love this!!!!  </li>
+      <li>It was the perfect gift.</li>
+      <li>Excellent.</li>
+      <li>The best thing about it is that is doesn&#x27;t fry your hair.</li>
+      <li>Not salon quality, but excellent for the price.</li>
+      <li>Does a great job!</li>
+      <li>Great item!</li>
+      <li>Probably one of the best hair straighteners I&#x27;ve ever purchased.</li>
+      <li>Very happy with this purchase.</li>
+      <li>Best Straightener I ever had</li>
+      <li>Great buy for a inexpensive price!</li>
+      <li>but it works wonderfully.</li>
+      <li>It works awesome.</li>
+      <li>I wasn&#x27;t expecting it to be this wonderful, but it blew my mind!!</li>
       <li>Remington did a magnificent job with this product!!!!</li>
+      <li>Am very happy with this purchase.</li>
       <li>goodnight, the product arrived in excellent condition.</li>
+      <li>I&#x27;ve been using this straightener for months, and it has worked flawlessly.  </li>
+      <li>This hair straightener is great!</li>
+      <li>so Seeing all the great reviews I had to see what the hype was about !</li>
+      <li>and it works great for her!</li>
+      <li>Bought forever ago and still works great!</li>
+      <li>Excellent buy!</li>
+      <li>Very happy with this straigntner.</li>
       <li>/&gt;This is just a wonderful product for an even wonderful price!  </li>
+      <li>It works great!</li>
+      <li>For the price it&#x27;s especially a good deal.</li>
+      <li>Very impressed.  </li>
       <li>and it works amazing!!!</li>
+      <li>After reading the reviews for this straighter i decided to go for it and just buy it and hope for the best.</li>
+      <li>Great Product!</li>
+      <li>and I&#x27;m extremely happy with it!!</li>
       <li>This is an incredible bargain!</li>
+      <li>great price!</li>
+      <li>This hair straightener is wonderful.</li>
+      <li>An awesome purchase.</li>
+      <li>It works great!</li>
+      <li>Great buy !!!</li>
+      <li>this item was just awesome!</li>
+      <li>Perfect.</li>
+      <li>Awesome price!!</li>
+      <li>These got me looking flawless</li>
+      <li>and I have been getting the greatest compliments on my hair each time I use it.</li>
+      <li>It heats up in seconds and works great!</li>
+      <li>i wouldn&#x27;t suggest spending a ton of money on another straightener, this one is great!</li>
+      <li>This one is great!</li>
+      <li>It is the best straightener I have ever had, and I used to use Chi and then another fancy brand.</li>
+      <li>it also makes a good xmas gift !!</li>
+      <li>It&#x27;s the best.</li>
+      <li>great product!</li>
+      <li>It&#x27;s excellent...</li>
+      <li>This is the best price + rating I&#x27;ve found anywhere.</li>
+      <li>and it works great!</li>
+      <li>For this price... this is probably the best straightener you can find.</li>
+      <li>It works perfectly for me whether I&#x27;m straightening my hair or curling it.</li>
       <li>This is a great straightener!  </li>
       <li>Using this hair straightener in addition to a grounded plug/prong adapter worked perfectly for our trip to Spain and France.  </li>
-      <li>and this lil&#x27; iron works wonderful for it</li>
-      <li>Both my sister and best friend has gotten one since using mine</li>
-      <li>My daughter is very happy with this product.</li>
-      <li>It works great!</li>
-      <li>Def not the best ive used.</li>
-      <li>this was inexpensive and works GREAT!</li>
-      <li>Great price!</li>
-      <li>and I must say I was impressed with this product!</li>
-      <li>Great value!!</li>
-      <li>Great straightener!!</li>
-      <li>it worked perfectly!</li>
-      <li>I have curly,frizzy hair when its not straighted and this works perfectly.</li>
-      <li>This straightener is the best one I&#x27;ve ever bought.</li>
-      <li>I received this for my birthday and this product works great!</li>
-      <li>I am very happy now to choose this one.</li>
-      <li>Hi, it works perfectly to me..</li>
-      <li>, it is GREAT!</li>
-      <li>Awesome results.</li>
-      <li>One of the best straighteners you can buy.</li>
-      <li>So this may not \\&quot;the best out there\\&quot;</li>
-      <li>For a straightener, it works great!</li>
-      <li>Not the best thing around, but it does its job.</li>
-      <li>BEST straightener I have ever used...</li>
-      <li>and I was very happy with the results.</li>
-      <li>/&gt;This is the best iron I have ever used, and I am SO happy I never shelled out $100+ for an iron!  </li>
-      <li>Great straightener for the price!</li>
-      <li>Excellent for the price</li>
-      <li>Perfect for the price!  </li>
-      <li>The best iron ever.</li>
-      <li>wonderful works like those Irons that cost $25.00 in the malls.</li>
-      <li>This is a great product for its price!!!!</li>
-      <li>Works great!</li>
-      <li>Works great!</li>
-      <li>That straightener is working GREAT!!</li>
-      <li>Works great!</li>
-      <li>Otherwise, wonderful!</li>
-      <li>I use the lowest setting and it&#x27;s perfect.</li>
-      <li>Happy hair styling!</li>
-      <li>Absolutely wonderful for the price!</li>
-      <li>Great product!!!</li>
-      <li>its great!</li>
-      <li>This product is just great!</li>
-      <li>This one does the trick and I am very happy with the price!</li>
-      <li>excellent hair straightener</li>
-      <li>These got me looking flawless</li>
-      <li>and I am very happy with it.</li>
-      <li>After reading the reviews for this straighter i decided to go for it and just buy it and hope for the best.</li>
       <li>Best Straightener ever!!!</li>
-      <li>and I thought I was killing my hair because it just didn&#x27;t feel good, but with this straightener it improved the way my hair feels and looks!!</li>
-      <li>This is an awesome product for this price.</li>
-      <li>It is awesome to have this as a straightener and curler.</li>
-      <li>Nice,love it,the best I have bought .thank you</li>
-      <li>This was an excellent choice for a hair straightener.</li>
-      <li>excellent.</li>
-      <li>but it is perfect for me.  </li>
-      <li>This is the best straightener i have had.</li>
-      <li>i think and it still works perfectly.</li>
-      <li>Love it!!!!!</li>
-      <li>I&#x27;m very happy with this purchase.</li>
-      <li>(Amazon was great about this!)</li>
-      <li>For the price, I am impressed!</li>
-      <li>It&#x27;s awesome!</li>
-      <li>I use it to curl my hair and its perfect-- perfect curls every time.</li>
-      <li>and I have to say that this is the best Saranne</li>
-      <li>I am unsure how (the best rated)</li>
-      <li>This straightner is awesome.</li>
-      <li>straightner works wonderfully.</li>
-      <li>My sister had done research on hair straighteners and concluded that this one was the best - probably out of hair straighteners under $50.  </li>
-      <li>it has a swivel cord which is excellent.</li>
-      <li>but the product itself is excellent.</li>
-      <li>I was IMMEDIATELY impressed.</li>
-      <li>and I am actually very impressed and hope to continue using it for years to come.&lt;br /&gt;&lt;br</li>
-      <li>Happy Mother&#x27;s day, mom!</li>
-      <li>This product is awesome!</li>
-      <li>I don&#x27;t use it every day, but when I do, my hair looks so great!</li>
-      <li>Works great!  </li>
-      <li>Great product!</li>
-      <li>I got it a couple of months ago and it has been used a lot but still works in perfect condition.</li>
-      <li>Not the best job in the world, since I still had some frizz and unwanted volume.</li>
-      <li>iron, for the price, the power, the features, and yes, the color too, is the best iron I&#x27;ve owned.</li>
-      <li>The temp controls are perfect.</li>
-      <li>Excellent product, arrive in time, no problems.</li>
-      <li>I&#x27;ve had this product for almost 3 years now and it still works perfect!</li>
-      <li>Very happy with this purchase.</li>
 </ol>
 
 
 <h2>Negative Reviews</h2>
 <ol>
-<li> This straightener is so great!</li>
+<li> I bought this because my best friend had it</li>
+<li> Best part is its inexpensive!  </li>
+<li> Very very happy !</li>
+<li> is one of the best all around hair styling tools you can get for the money.&lt;br</li>
 <li> I didn&#x27;t hesitate to buy another one, because I think it&#x27;s the best straightener for the money.</li>
+<li> Best quality for its price.</li>
+<li> Awesome for curling your hair as well</li>
+<li> But this is the best straightener I have ever used.</li>
+<li> Excellent straightener for the price, IMO.</li>
 <li> This is soooo affordable ladies, and let me tell you, it works great!</li>
+<li> The best Hair Straightener!</li>
 <li> Excellent !!</li>
+<li> Awesome!</li>
 <li> The product arrived in perfect condition aVenezuela</li>
+<li> I am very happy to order one them .</li>
+<li> I gave them to my co-workers and they think I am the best thing since sliced bread.  </li>
+<li> and this has to be the best straightener I have ever used.</li>
+<li> I use it on my brazillian hair and the settings are great!</li>
+<li> and I am very happy with it.</li>
 <li> and i am very happy with it.</li>
+<li> Honestly great buy!</li>
+<li> excellent value for money.</li>
+<li> AWESOME quality!</li>
+<li> doesn&#x27;t pull my hair and the length of the plates is great!!</li>
+<li> but to my surprise, it worked great on my hair!</li>
 <li> Works great!</li>
+<li> oh, and awesome price!!!</li>
 <li> I&#x27;m very happy with this product.&lt;br /&gt;I</li>
+<li> Straightens the hair perfectly in  one shot .</li>
+<li> OMG!its great but the smell ew!</li>
+<li> so it&#x27;s awesome.</li>
+<li> but this was great!</li>
+<li> I would recommend this to anyone who is looking for a great reliable straightener!</li>
+<li> It is awesome.</li>
+<li> The wife says its perfect.</li>
+<li> And all I can say is that it is amazing!!!!</li>
+<li> This Ceramic hair straightener is the best</li>
+<li> This straightener works perfectly!  </li>
+<li> AWESOME!</li>
+<li> I am that impressed with this one.</li>
 <li> great buy!</li>
+<li> I love this Straightener iron!!!!</li>
+<li> Love this!!!!  </li>
+<li> It was the perfect gift.</li>
+<li> Excellent.</li>
+<li> The best thing about it is that is doesn&#x27;t fry your hair.</li>
+<li> Not salon quality, but excellent for the price.</li>
+<li> Does a great job!</li>
+<li> Great item!</li>
+<li> Probably one of the best hair straighteners I&#x27;ve ever purchased.</li>
+<li> Very happy with this purchase.</li>
+<li> Best Straightener I ever had</li>
+<li> Great buy for a inexpensive price!</li>
+<li> but it works wonderfully.</li>
+<li> It works awesome.</li>
+<li> I wasn&#x27;t expecting it to be this wonderful, but it blew my mind!!</li>
 <li> Remington did a magnificent job with this product!!!!</li>
+<li> Am very happy with this purchase.</li>
 <li> goodnight, the product arrived in excellent condition.</li>
+<li> I&#x27;ve been using this straightener for months, and it has worked flawlessly.  </li>
+<li> This hair straightener is great!</li>
+<li> so Seeing all the great reviews I had to see what the hype was about !</li>
+<li> and it works great for her!</li>
+<li> Bought forever ago and still works great!</li>
+<li> Excellent buy!</li>
+<li> Very happy with this straigntner.</li>
 <li> /&gt;This is just a wonderful product for an even wonderful price!  </li>
+<li> It works great!</li>
+<li> For the price it&#x27;s especially a good deal.</li>
+<li> Very impressed.  </li>
 <li> and it works amazing!!!</li>
+<li> After reading the reviews for this straighter i decided to go for it and just buy it and hope for the best.</li>
+<li> Great Product!</li>
+<li> and I&#x27;m extremely happy with it!!</li>
 <li> This is an incredible bargain!</li>
+<li> great price!</li>
+<li> This hair straightener is wonderful.</li>
+<li> An awesome purchase.</li>
+<li> It works great!</li>
+<li> Great buy !!!</li>
+<li> this item was just awesome!</li>
+<li> Perfect.</li>
+<li> Awesome price!!</li>
+<li> These got me looking flawless</li>
+<li> and I have been getting the greatest compliments on my hair each time I use it.</li>
+<li> It heats up in seconds and works great!</li>
+<li> i wouldn&#x27;t suggest spending a ton of money on another straightener, this one is great!</li>
+<li> This one is great!</li>
+<li> It is the best straightener I have ever had, and I used to use Chi and then another fancy brand.</li>
+<li> it also makes a good xmas gift !!</li>
+<li> It&#x27;s the best.</li>
+<li> great product!</li>
+<li> It&#x27;s excellent...</li>
+<li> This is the best price + rating I&#x27;ve found anywhere.</li>
+<li> and it works great!</li>
+<li> For this price... this is probably the best straightener you can find.</li>
+<li> It works perfectly for me whether I&#x27;m straightening my hair or curling it.</li>
 <li> This is a great straightener!  </li>
 <li> Using this hair straightener in addition to a grounded plug/prong adapter worked perfectly for our trip to Spain and France.  </li>
-<li> and this lil&#x27; iron works wonderful for it</li>
-<li> Both my sister and best friend has gotten one since using mine</li>
-<li> My daughter is very happy with this product.</li>
-<li> It works great!</li>
-<li> Def not the best ive used.</li>
-<li> this was inexpensive and works GREAT!</li>
-<li> Great price!</li>
-<li> and I must say I was impressed with this product!</li>
-<li> Great value!!</li>
-<li> Great straightener!!</li>
-<li> it worked perfectly!</li>
-<li> I have curly,frizzy hair when its not straighted and this works perfectly.</li>
-<li> This straightener is the best one I&#x27;ve ever bought.</li>
-<li> I received this for my birthday and this product works great!</li>
-<li> I am very happy now to choose this one.</li>
-<li> Hi, it works perfectly to me..</li>
-<li> , it is GREAT!</li>
-<li> Awesome results.</li>
-<li> One of the best straighteners you can buy.</li>
-<li> So this may not \\&quot;the best out there\\&quot;</li>
-<li> For a straightener, it works great!</li>
-<li> Not the best thing around, but it does its job.</li>
-<li> BEST straightener I have ever used...</li>
-<li> and I was very happy with the results.</li>
-<li> /&gt;This is the best iron I have ever used, and I am SO happy I never shelled out $100+ for an iron!  </li>
-<li> Great straightener for the price!</li>
-<li> Excellent for the price</li>
-<li> Perfect for the price!  </li>
-<li> The best iron ever.</li>
-<li> wonderful works like those Irons that cost $25.00 in the malls.</li>
-<li> This is a great product for its price!!!!</li>
-<li> Works great!</li>
-<li> Works great!</li>
-<li> That straightener is working GREAT!!</li>
-<li> Works great!</li>
-<li> Otherwise, wonderful!</li>
-<li> I use the lowest setting and it&#x27;s perfect.</li>
-<li> Happy hair styling!</li>
-<li> Absolutely wonderful for the price!</li>
-<li> Great product!!!</li>
-<li> its great!</li>
-<li> This product is just great!</li>
-<li> This one does the trick and I am very happy with the price!</li>
-<li> excellent hair straightener</li>
-<li> These got me looking flawless</li>
-<li> and I am very happy with it.</li>
-<li> After reading the reviews for this straighter i decided to go for it and just buy it and hope for the best.</li>
 <li> Best Straightener ever!!!</li>
-<li> and I thought I was killing my hair because it just didn&#x27;t feel good, but with this straightener it improved the way my hair feels and looks!!</li>
-<li> This is an awesome product for this price.</li>
-<li> It is awesome to have this as a straightener and curler.</li>
-<li> Nice,love it,the best I have bought .thank you</li>
-<li> This was an excellent choice for a hair straightener.</li>
-<li> excellent.</li>
-<li> but it is perfect for me.  </li>
-<li> This is the best straightener i have had.</li>
-<li> i think and it still works perfectly.</li>
-<li> Love it!!!!!</li>
-<li> I&#x27;m very happy with this purchase.</li>
-<li> (Amazon was great about this!)</li>
-<li> For the price, I am impressed!</li>
-<li> It&#x27;s awesome!</li>
-<li> I use it to curl my hair and its perfect-- perfect curls every time.</li>
-<li> and I have to say that this is the best Saranne</li>
-<li> I am unsure how (the best rated)</li>
-<li> This straightner is awesome.</li>
-<li> straightner works wonderfully.</li>
-<li> My sister had done research on hair straighteners and concluded that this one was the best - probably out of hair straighteners under $50.  </li>
-<li> it has a swivel cord which is excellent.</li>
-<li> but the product itself is excellent.</li>
-<li> I was IMMEDIATELY impressed.</li>
-<li> and I am actually very impressed and hope to continue using it for years to come.&lt;br /&gt;&lt;br</li>
-<li> Happy Mother&#x27;s day, mom!</li>
-<li> This product is awesome!</li>
-<li> I don&#x27;t use it every day, but when I do, my hair looks so great!</li>
-<li> Works great!  </li>
-<li> Great product!</li>
-<li> I got it a couple of months ago and it has been used a lot but still works in perfect condition.</li>
-<li> Not the best job in the world, since I still had some frizz and unwanted volume.</li>
-<li> iron, for the price, the power, the features, and yes, the color too, is the best iron I&#x27;ve owned.</li>
-<li> The temp controls are perfect.</li>
-<li> Excellent product, arrive in time, no problems.</li>
-<li> I&#x27;ve had this product for almost 3 years now and it still works perfect!</li>
-<li> Very happy with this purchase.</li>
 </ol>
 
 <h2>All Reviews</h2>
@@ -2317,6 +2317,7 @@ modifiedAt: Thu Jan 09 2020 19:08:30 GMT+0530 (India Standard Time),
     <li> I wasn&#x27;t expecting a lot from this iron based on the price, but after owning it for two years I am really impressed.&lt;br /&gt;&lt;br /&gt;Pros:&lt;br /&gt;-------------&lt;br /&gt;(+) Heats up very quickly compared to other irons&lt;br /&gt;(+) Stays hot after multiple passes&lt;br /&gt;(+) Temp controls are helpful, making this work with fine or thick hair&lt;br /&gt;(+) The shape and size of the iron make it ideal for both straightening and curling&lt;br /&gt;(+) Works perfectly as curling iron because of the rounded edges and small size, it&#x27;s easy to turn and curl&lt;br /&gt;(+) Power cord is long enough and has a swivel where it attaches, it&#x27;s not going to get loose or break&lt;br /&gt;(+) The price, I mean come on... under 20 bucks.. it&#x27;s impossible to beat&lt;br /&gt;&lt;br /&gt;Cons / Considerations:&lt;br /&gt;-------------&lt;br /&gt;(-) It&#x27;s not going to last forever&lt;br /&gt;(-) After 2 years of use, the temp controls stopped working&lt;br /&gt;&lt;br /&gt;For the price it seems like two years of use is pretty good, considering it is a small plastic appliance that gets very hot and is used almost every day. Even the much more expensive irons will not last forever. At least with this one it&#x27;s inexpensive enough that replacing it is not a problem.&lt;br /&gt;&lt;br /&gt;Conclusion:&lt;br /&gt;--------------------&lt;br /&gt;This is one of the best all around hair styling tools you can get for the money.&lt;br /&gt;&lt;br /&gt;For more information on how to curl with this, check YouTube. Many of the videos will feature this exact iron.rch for \\&quot;how to curl with a straightening iron\\&quot; or similar, many of the videos will feature this exact iron.&lt;br /&gt;&lt;br /&gt;Don&#x27;t let the naysayers fool you and don&#x27;t get suckered into paying 10x as much for an iron that will probably break in about the same amount of time as this one. If this one does eventually break, the replacement cost is so low you won&#x27;t even sweat it.</li>
     <li> Heats up in less than 30 seconds! This is a huge time saver in the morning and it is super easy to tell what temperature is at with the digital display. I have frizzy hair and this keeps it straight until I wash my hair again. I have a Remington curling iron and hair dryer and I have never had a problem with them and this will I&#x27;m sure be the same. The automatic shutoff after 30 minuets is super helpful if I&#x27;m rushing and forget to turn it off. I love this straightener and I would definitely buy it again.</li>
 </ol>
+
 
 
 

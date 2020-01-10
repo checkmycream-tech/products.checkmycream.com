@@ -1,0 +1,268 @@
+---
+title: English Lavender Perfume by Yardley of London for women Personal Fragrances,
+description: English Lavender Perfume by Yardley of London for women Personal Fragrances,
+author: Suvojit Manna,
+tags: English Lavender Perfume by Yardley of London for women Personal Fragrances,
+publishedAt: Fri Jan 10 2020 14:59:38 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:59:38 GMT+0530 (India Standard Time),
+---
+
+# [English Lavender Perfume by Yardley of London for women Personal Fragrances](https://products.checkmycream.com/products/English-Lavender-Perfume-by-Yardley-of-London-for-women-Personal-Fragrances.html)
+
+### Positive Reviews
+
+<ol>
+      <li>and it&#x27;s still wonderful.</li>
+      <li>The best!  </li>
+      <li>It&#x27;s a beautiful scent</li>
+      <li>What a wonderful memory, I have loved lavender ever since.</li>
+      <li>I think the price is really great for the size.</li>
+      <li>This perfume is great.</li>
+      <li>I always loved it.  </li>
+      <li>I think it&#x27;s great to spray in the room before going to sleep because it gives a really nice ambiance.</li>
+      <li>I have absolutely gorgeous smelling lavender body wash and shampoo, therefore I decided to give Yardley&#x27;s a try based on the lavender scent.  </li>
+      <li>A gift for an elderly lady in USA, and she is delighted with it.</li>
+      <li>My nephew told me that I smell good.  </li>
+      <li>Always loved this smell..</li>
+      <li>The lavender scent is lovely, as is the attractive bottle and packaging.</li>
+      <li>I am very pleased with this purchase.  </li>
+      <li>I was delighted to find the soap, and I was even more delighted to find the Eau de Toilette, which I had not used before.  </li>
+      <li>I am just in love with it!</li>
+      <li>I love using it!</li>
+      <li>I myself just love lavender and use a lot of stuff, with lavender in it!</li>
+      <li>It&#x60;s really nice and goes well with the Yardley lavender powder and soap.</li>
+      <li>I had heard so many good things about it</li>
+      <li>It&#x27;s a rose garden now</li>
+      <li>I don&#x27;t smell lavender, but kind of a spicey scent.  </li>
+      <li>Is nice to spray on the sheets.</li>
+      <li>Bottle produces a very light mist.</li>
+      <li>I love this product and will buy it again.</li>
+      <li>-I love it for wearing at home and shopping-just feeling feminine without&lt;br /&gt;&lt;br /&gt;overpowering the neighborhood.</li>
+      <li>However, I use mostly organic, all-natural products.</li>
+      <li>It is cheap, but it does not smell like it is!</li>
+      <li>I love this product.  </li>
+      <li>I think I would have been more satisfied</li>
+      <li>I love the lightness of this cologne.  </li>
+      <li>I love this scent.</li>
+      <li>I love the smell but it does not stay with you.  </li>
+      <li>I love lavender</li>
+      <li>I was hoping this would be a nice and light fragrance-</li>
+      <li>The fragrance is just as I remember it from thirty or more years ago.  </li>
+      <li>nice light and airy smell.</li>
+      <li>this is the fragrance I would sometimes find under the Christmas tree many years ago.  </li>
+      <li>someone finds it appealing.</li>
+      <li>Its a really nice lavender smell, which is not too strong but sweet!</li>
+      <li>This is not overpowering, nor overstated, but a calm relaxing scent that mixes well with my own smell.</li>
+      <li>This smells light and lovely.</li>
+      <li>If you apply it before bed, it will get you through the night just fine.  </li>
+      <li>love it quick response would buy again</li>
+      <li>There seem to be some lighter after-notes (did I smell vanilla?), which are more pleasant but the initial \\&quot;lavender\\&quot; smell is not.  </li>
+      <li>It&#x27;s hard to find lavender perfume in stores, so I was happy to find this on Amazon for a good price.</li>
+      <li>Quite cheap</li>
+      <li>When I saw that it was again available, I jumped at the chance to embrace</li>
+      <li>and I had to spray a couple times to enjoy.</li>
+      <li>But if you love the refreshing sharpness of real lavender don&#x27;t bother with this.</li>
+      <li>People, often ask me what is the name of the perfume I am wearing, because it smells so clean, and is not offensive.</li>
+      <li>If only more things in life could be so nice and so uncomplicated.</li>
+      <li>Maybe that&#x27;s why this smells like pure chemicals to me, mostly alcohol.</li>
+      <li>I had a large flower bed devoted to my favorite lavender varieties.</li>
+      <li>It smells so amazing, and refreshing, and the scent stays long time.</li>
+      <li>As a child, over sixty years ago, my mother used Yardley English Lavender as a reward for good behavior.</li>
+      <li>I thought this would have a light fresh lavender scent.  </li>
+      <li>It&#x27;s not a bad scent, but it&#x27;s not the lavender scent</li>
+      <li>It just smells fresh and clean.</li>
+      <li>But it smells really fresh and clean.</li>
+      <li>I am highly allergic to many perfumes, but not this one.  </li>
+      <li>But is remains true to the original smell of clean fresh Lavender, that made it a favorite throughout several countries , and generations!!  </li>
+      <li>but I miss the fragrance of fresh lavender.</li>
+      <li>While this perfume does the same, they make a nice balance.</li>
+      <li>I have looked for over a year to find a distinctly lavender smell in perfume.</li>
+      <li>Just not the old aroma, but still ok.</li>
+      <li>After our bath, right before bed, she was applied it to me and my sister.</li>
+      <li>It is very soft, very feminine, and very light.  </li>
+      <li>Just exactly what I wanted.  </li>
+      <li>This is my first time trying this spray.</li>
+      <li>I love English Lavender!!  </li>
+      <li>I love Yardley&#x27;s English Lavender!</li>
+      <li>it&#x27;s own can be overpowering, so people add in other substances.</li>
+      <li>Fast shipping, exact product shown in images</li>
+      <li>I wanted something soft, feminine, and light for the summer months, and I remembered Yardley&#x27;s Old English Lavender Soap from many years ago.  </li>
+      <li>I am glad the English people are not swayed by the wave of fashions, and kept this item alive!!</li>
+      <li>Smells like lavender essential oil, but not as strong.</li>
+      <li>Smells like lavender, yet in a perfume way - not as strong as pure lavender, there are other mild scents included.  </li>
+      <li>I didn&#x27;t really care for the bottle either</li>
+      <li>Gifts arrived on time and family was very please with the quality of the product.</li>
+      <li>The smell to me is very musky, but off.  </li>
+      <li>Unfortunately, I did not find Yardley&#x27;s to embrace that beautiful smell</li>
+      <li>I highly recommend it to all you lavender fans, out there.</li>
+      <li>I highly recommend it.</li>
+      <li>It is that old....!!</li>
+      <li>The scent is not very long lasting (it had disappeared by morning), but it is very pleasant for a few hours, especially if you apply it liberally.  </li>
+      <li>IT&#x27;S OK BUT DOES NOT LAST VERY LONG CONSIDERING THE COST</li>
+      <li>, it&#x27;s pretty bland compared to some of the cool things they do with packaging these days.  </li>
+      <li>I&#x27;m currently using a touch of essential oil rather than an edt in order to get a true lavender scent.&lt;br</li>
+      <li>Old English Lavender is such a wonderfully simple, gentle, sweet, and demure scent.  </li>
+      <li>Mild  lavender and maybe other flower/?</li>
+      <li>Yardley is an old brand and a high-quality, product.</li>
+      <li>Does not give even a sensitive person headaches at all.</li>
+      <li>It is not heavy-</li>
+      <li>Although it has some other scents in it the overall scent is that of Lavender fresh from the garden.  </li>
+      <li>I appreciate a perfume that is not overly sweet, strong, or fake (It seems 90% of perfumes fall in that category!).</li>
+      <li>It feels not as &amp;#34;elegant and agreeable&amp;#34; as I remember it several decades ago, and the ones I bought directly in London.</li>
+      <li>Barely any lavender scent.  </li>
+      <li>I think I bought the wrong kind of perfume - Had it not been toilette</li>
+      <li>It is a mild scent and not overwhelming.  </li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> and it&#x27;s still wonderful.</li>
+<li> The best!  </li>
+<li> It&#x27;s a beautiful scent</li>
+<li> What a wonderful memory, I have loved lavender ever since.</li>
+<li> I think the price is really great for the size.</li>
+<li> This perfume is great.</li>
+<li> I always loved it.  </li>
+<li> I think it&#x27;s great to spray in the room before going to sleep because it gives a really nice ambiance.</li>
+<li> I have absolutely gorgeous smelling lavender body wash and shampoo, therefore I decided to give Yardley&#x27;s a try based on the lavender scent.  </li>
+<li> A gift for an elderly lady in USA, and she is delighted with it.</li>
+<li> My nephew told me that I smell good.  </li>
+<li> Always loved this smell..</li>
+<li> The lavender scent is lovely, as is the attractive bottle and packaging.</li>
+<li> I am very pleased with this purchase.  </li>
+<li> I was delighted to find the soap, and I was even more delighted to find the Eau de Toilette, which I had not used before.  </li>
+<li> I am just in love with it!</li>
+<li> I love using it!</li>
+<li> I myself just love lavender and use a lot of stuff, with lavender in it!</li>
+<li> It&#x60;s really nice and goes well with the Yardley lavender powder and soap.</li>
+<li> I had heard so many good things about it</li>
+<li> It&#x27;s a rose garden now</li>
+<li> I don&#x27;t smell lavender, but kind of a spicey scent.  </li>
+<li> Is nice to spray on the sheets.</li>
+<li> Bottle produces a very light mist.</li>
+<li> I love this product and will buy it again.</li>
+<li> -I love it for wearing at home and shopping-just feeling feminine without&lt;br /&gt;&lt;br /&gt;overpowering the neighborhood.</li>
+<li> However, I use mostly organic, all-natural products.</li>
+<li> It is cheap, but it does not smell like it is!</li>
+<li> I love this product.  </li>
+<li> I think I would have been more satisfied</li>
+<li> I love the lightness of this cologne.  </li>
+<li> I love this scent.</li>
+<li> I love the smell but it does not stay with you.  </li>
+<li> I love lavender</li>
+<li> I was hoping this would be a nice and light fragrance-</li>
+<li> The fragrance is just as I remember it from thirty or more years ago.  </li>
+<li> nice light and airy smell.</li>
+<li> this is the fragrance I would sometimes find under the Christmas tree many years ago.  </li>
+<li> someone finds it appealing.</li>
+<li> Its a really nice lavender smell, which is not too strong but sweet!</li>
+<li> This is not overpowering, nor overstated, but a calm relaxing scent that mixes well with my own smell.</li>
+<li> This smells light and lovely.</li>
+<li> If you apply it before bed, it will get you through the night just fine.  </li>
+<li> love it quick response would buy again</li>
+<li> There seem to be some lighter after-notes (did I smell vanilla?), which are more pleasant but the initial \\&quot;lavender\\&quot; smell is not.  </li>
+<li> It&#x27;s hard to find lavender perfume in stores, so I was happy to find this on Amazon for a good price.</li>
+<li> Quite cheap</li>
+<li> When I saw that it was again available, I jumped at the chance to embrace</li>
+<li> and I had to spray a couple times to enjoy.</li>
+<li> But if you love the refreshing sharpness of real lavender don&#x27;t bother with this.</li>
+<li> People, often ask me what is the name of the perfume I am wearing, because it smells so clean, and is not offensive.</li>
+<li> If only more things in life could be so nice and so uncomplicated.</li>
+<li> Maybe that&#x27;s why this smells like pure chemicals to me, mostly alcohol.</li>
+<li> I had a large flower bed devoted to my favorite lavender varieties.</li>
+<li> It smells so amazing, and refreshing, and the scent stays long time.</li>
+<li> As a child, over sixty years ago, my mother used Yardley English Lavender as a reward for good behavior.</li>
+<li> I thought this would have a light fresh lavender scent.  </li>
+<li> It&#x27;s not a bad scent, but it&#x27;s not the lavender scent</li>
+<li> It just smells fresh and clean.</li>
+<li> But it smells really fresh and clean.</li>
+<li> I am highly allergic to many perfumes, but not this one.  </li>
+<li> But is remains true to the original smell of clean fresh Lavender, that made it a favorite throughout several countries , and generations!!  </li>
+<li> but I miss the fragrance of fresh lavender.</li>
+<li> While this perfume does the same, they make a nice balance.</li>
+<li> I have looked for over a year to find a distinctly lavender smell in perfume.</li>
+<li> Just not the old aroma, but still ok.</li>
+<li> After our bath, right before bed, she was applied it to me and my sister.</li>
+<li> It is very soft, very feminine, and very light.  </li>
+<li> Just exactly what I wanted.  </li>
+<li> This is my first time trying this spray.</li>
+<li> I love English Lavender!!  </li>
+<li> I love Yardley&#x27;s English Lavender!</li>
+<li> it&#x27;s own can be overpowering, so people add in other substances.</li>
+<li> Fast shipping, exact product shown in images</li>
+<li> I wanted something soft, feminine, and light for the summer months, and I remembered Yardley&#x27;s Old English Lavender Soap from many years ago.  </li>
+<li> I am glad the English people are not swayed by the wave of fashions, and kept this item alive!!</li>
+<li> Smells like lavender essential oil, but not as strong.</li>
+<li> Smells like lavender, yet in a perfume way - not as strong as pure lavender, there are other mild scents included.  </li>
+<li> I didn&#x27;t really care for the bottle either</li>
+<li> Gifts arrived on time and family was very please with the quality of the product.</li>
+<li> The smell to me is very musky, but off.  </li>
+<li> Unfortunately, I did not find Yardley&#x27;s to embrace that beautiful smell</li>
+<li> I highly recommend it to all you lavender fans, out there.</li>
+<li> I highly recommend it.</li>
+<li> It is that old....!!</li>
+<li> The scent is not very long lasting (it had disappeared by morning), but it is very pleasant for a few hours, especially if you apply it liberally.  </li>
+<li> IT&#x27;S OK BUT DOES NOT LAST VERY LONG CONSIDERING THE COST</li>
+<li> , it&#x27;s pretty bland compared to some of the cool things they do with packaging these days.  </li>
+<li> I&#x27;m currently using a touch of essential oil rather than an edt in order to get a true lavender scent.&lt;br</li>
+<li> Old English Lavender is such a wonderfully simple, gentle, sweet, and demure scent.  </li>
+<li> Mild  lavender and maybe other flower/?</li>
+<li> Yardley is an old brand and a high-quality, product.</li>
+<li> Does not give even a sensitive person headaches at all.</li>
+<li> It is not heavy-</li>
+<li> Although it has some other scents in it the overall scent is that of Lavender fresh from the garden.  </li>
+<li> I appreciate a perfume that is not overly sweet, strong, or fake (It seems 90% of perfumes fall in that category!).</li>
+<li> It feels not as &amp;#34;elegant and agreeable&amp;#34; as I remember it several decades ago, and the ones I bought directly in London.</li>
+<li> Barely any lavender scent.  </li>
+<li> I think I bought the wrong kind of perfume - Had it not been toilette</li>
+<li> It is a mild scent and not overwhelming.  </li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> As a child, over sixty years ago, my mother used Yardley English Lavender as a reward for good behavior. After our bath, right before bed, she was applied it to me and my sister. What a wonderful memory, I have loved lavender ever since. When I saw that it was again available, I jumped at the chance to embrace it&#x27;s fragrence.&lt;br /&gt;&lt;br /&gt;It smelled stronger and was harsh. I read the box and it listed musk as one of it&#x27;s ingredient. I don&#x27;t believe musk was in it in those days. Oh, well.</li>
+    <li> I am a lavender freak. I like everything to smell like lavender. However, I use mostly organic, all-natural products. Maybe that&#x27;s why this smells like pure chemicals to me, mostly alcohol. I don&#x27;t smell lavender at all. I ran it by some friends, too; some smelled lavender, some didn&#x27;t. But they all agreed on one thing: This is the worst perfume we&#x27;ve ever smelled. I can&#x27;t believe this is by Yardley. This stuff is horrible. Invest in the lavender scent by L&#x27;Occitane. I feel I threw my money away on this.</li>
+    <li> Fast shipping, exact product shown in images</li>
+    <li> Just like I remember Yardley Lavender from so many years ago, very nostalgic!</li>
+    <li> This smells light and lovely. It just smells fresh and clean. Smells like lavender essential oil, but not as strong. Bottle produces a very light mist. Does not give even a sensitive person headaches at all.</li>
+    <li> I love the lightness of this cologne.  My nephew told me that I smell good.  It is not heavy-I was&lt;br /&gt;&lt;br /&gt;afraid that I would smell &amp;#34;old ladyish&amp;#34;-but, have had several compliments (male and female).  I also&lt;br /&gt;&lt;br /&gt;wear the talc-combined-I love it for wearing at home and shopping-just feeling feminine without&lt;br /&gt;&lt;br /&gt;overpowering the neighborhood.</li>
+    <li> It stinks! Highly disappointed.</li>
+    <li> I have absolutely gorgeous smelling lavender body wash and shampoo, therefore I decided to give Yardley&#x27;s a try based on the lavender scent.  Unfortunately, I did not find Yardley&#x27;s to embrace that beautiful smell that other lavender products I have represent.  The smell to me is very musky, but off.  I&#x27;m not one for colognes or perfumes that smell like chemicals and Yardley&#x27;s is just strange.  I had heard so many good things about it, I thought maybe I got a bad bottle or something because I was shocked that I disliked it so much. There seem to be some lighter after-notes (did I smell vanilla?), which are more pleasant but the initial \\&quot;lavender\\&quot; smell is not.  The good thing is that once it&#x27;s on, it doesn&#x27;t permeate everything so you don&#x27;t smell horrible all day.  I didn&#x27;t really care for the bottle either, it&#x27;s pretty bland compared to some of the cool things they do with packaging these days.  I think I&#x27;ll stick to my body wash (Dial&#x27;s Lavender and Twilight Jasmine is to die for) and my lavender shampoo.  Too bad the Internet doesn&#x27;t have smell-o-vision, it could have saved me a few bucks.</li>
+    <li> Mild  lavender and maybe other flower/?</li>
+    <li> I wanted something soft, feminine, and light for the summer months, and I remembered Yardley&#x27;s Old English Lavender Soap from many years ago.  I could not find it in stores locally, so of course I checked Amazon.  I was delighted to find the soap, and I was even more delighted to find the Eau de Toilette, which I had not used before.  It arrived yesterday, and I spritzed it on after my evening bath with the soap.  I am very pleased with this purchase.  The fragrance is just as I remember it from thirty or more years ago.  It is very soft, very feminine, and very light.  This is not a scent that will overpower you or anyone around you.  The sillage is perhaps one to two feet.  The scent is not very long lasting (it had disappeared by morning), but it is very pleasant for a few hours, especially if you apply it liberally.  If you apply it in the a.m., you will probably want to reapply it after lunch.  If you apply it before bed, it will get you through the night just fine.  I gave it four out of five stars because it is not long lasting.&lt;br /&gt;&lt;br /&gt;Yardley Old English Lavender is such a wonderfully simple, gentle, sweet, and demure scent.  If only more things in life could be so nice and so uncomplicated.</li>
+    <li> Just exactly what I wanted.  Smells just like I was hoping it would.  Although it has some other scents in it the overall scent is that of Lavender fresh from the garden.  My one complaint is that it does not last long enough.  A dab of almond oil helps hold the fragrance a little longer.</li>
+    <li> Have to get used to the different type of scent it has to grow on you and I had to spray a couple times to enjoy.</li>
+    <li> IT&#x27;S OK BUT DOES NOT LAST VERY LONG CONSIDERING THE COST, ABOUT 10 MINUETS IS ABOUT ALL.</li>
+    <li> I love this product.  One spray in the AM is all that is needed for the day.  I use the English Lavender hand soap, also.  I especially like this size and price as it is less expensive than others.  Thank you for offering it. Eleanor</li>
+    <li> This was such a disappointment. I&#x27;m currently using a touch of essential oil rather than an edt in order to get a true lavender scent.&lt;br /&gt;&lt;br /&gt;For years I had a large flower bed devoted to my favorite lavender varieties. It&#x27;s a rose garden now but I miss the fragrance of fresh lavender.</li>
+    <li> I like it.  Bought it for a room freshener and to put on sheets in the guest room.</li>
+    <li> I thought this would have a light fresh lavender scent.  I don&#x27;t smell lavender, but kind of a spicey scent.  It&#x27;s not a bad scent, but it&#x27;s not the lavender scent I wanted (since I can&#x27;t smell lavender at all).</li>
+    <li> It&#x27;s hard to find lavender perfume in stores, so I was happy to find this on Amazon for a good price. The lavender scent is lovely, as is the attractive bottle and packaging. It smells similar to other Yardley lavender products. My only complaint is that the scent doesn&#x27;t seem to last that long.</li>
+    <li> this is the fragrance I would sometimes find under the Christmas tree many years ago.  I always loved it.  It&#x27;s a beautiful scent and it&#x27;s still wonderful.</li>
+    <li> I love the smell but it does not stay with you.  I find myself reapplying it a lot.  But it smells really fresh and clean.</li>
+    <li> It feels not as &amp;#34;elegant and agreeable&amp;#34; as I remember it several decades ago, and the ones I bought directly in London.</li>
+    <li> The best!  I love English Lavender!!  This price was&lt;br /&gt;reasonable and free-shipping.  I love using it!</li>
+    <li> Gifts arrived on time and family was very please with the quality of the product. It is on my list for next years gift giving</li>
+    <li> Always loved this smell..</li>
+    <li> nice light and airy smell. will compliment the soap.  That is the reason why I bought it.  Is nice to spray on the sheets.</li>
+    <li> This is my first time trying this spray. It&#x60;s really nice and goes well with the Yardley lavender powder and soap. I highly recommend it to all you lavender fans, out there. Yardley is an old brand and a high-quality, product. It came as promised and well packed. I recommend this seller!</li>
+    <li> Barely any lavender scent.  Not fresh like the Yardley Lavender soap.  It carries a babypowder/candy scent.</li>
+    <li> A gift for an elderly lady in USA, and she is delighted with it.</li>
+    <li> I think I bought the wrong kind of perfume - Had it not been toilette I think I would have been more satisfied</li>
+    <li> I have known about this product for ages, and ages!  It is that old....!! But is remains true to the original smell of clean fresh Lavender, that made it a favorite throughout several countries , and generations!!  People, often ask me what is the name of the perfume I am wearing, because it smells so clean, and is not offensive. I am glad the English people are not swayed by the wave of fashions, and kept this item alive!! It is cheap, but it does not smell like it is!</li>
+    <li> I saw my mother and aunt using English Lavender, powder and soaps, since I was a kid. I myself just love lavender and use a lot of stuff, with lavender in it! I bought this, from an airport, while I was travelling. I am just in love with it! It smells so amazing, and refreshing, and the scent stays long time. Its a really nice lavender smell, which is not too strong but sweet! I think the price is really great for the size. Its a must try cologne!</li>
+    <li> I love this scent. I have looked for over a year to find a distinctly lavender smell in perfume. Lavender on it&#x27;s own can be overpowering, so people add in other substances. While this perfume does the same, they make a nice balance. This is not overpowering, nor overstated, but a calm relaxing scent that mixes well with my own smell. I think it&#x27;s great to spray in the room before going to sleep because it gives a really nice ambiance. I love this product and will buy it again.</li>
+    <li> I love lavender but this is expensive for a small bottle. Although I like it I won&#x27;t be purchasing again.</li>
+    <li> I was hoping this would be a nice and light fragrance- but it is quite bitter. When I looked at the ingredients, it said &#x27;fragrance&#x27;--but no mention of lavender!! Quite cheap so I am not surprised it is artificial fragrance, but thought I&#x27;d give it a try. But if you love the refreshing sharpness of real lavender don&#x27;t bother with this. I&#x27;m donating to Goodwill in case someone finds it appealing.</li>
+    <li> Same as the soap.  Just not the old aroma, but still ok.</li>
+    <li> love it quick response would buy again</li>
+    <li> Smells like lavender, yet in a perfume way - not as strong as pure lavender, there are other mild scents included.  I appreciate a perfume that is not overly sweet, strong, or fake (It seems 90% of perfumes fall in that category!). This perfume is great.</li>
+    <li> I am highly allergic to many perfumes, but not this one.  It is a mild scent and not overwhelming.  I highly recommend it.</li>
+    <li> I love Yardley&#x27;s English Lavender!</li>
+</ol>
+
+
+
+

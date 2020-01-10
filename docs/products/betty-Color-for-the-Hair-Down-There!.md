@@ -1,0 +1,127 @@
+---
+title: betty - Color for the Hair Down There!,
+description: betty - Color for the Hair Down There!,
+author: Suvojit Manna,
+tags: betty - Color for the Hair Down There!,
+publishedAt: Fri Jan 10 2020 14:59:51 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:59:51 GMT+0530 (India Standard Time),
+---
+
+# [betty - Color for the Hair Down There!](https://products.checkmycream.com/products/betty-Color-for-the-Hair-Down-There!.html)
+
+### Positive Reviews
+
+<ol>
+      <li>Perfect just as described</li>
+      <li>Awesome!</li>
+      <li>Works great.</li>
+      <li>LOL, this product works well.</li>
+      <li>Great product.</li>
+      <li>Well...things look much better, is the best way of putting it!</li>
+      <li>It does a really good job and it seems to be perfectly safe.</li>
+      <li>Product is effective.  </li>
+      <li>Always liked it.</li>
+      <li>Very easy to use.  </li>
+      <li>It was easy to use, and it worked!</li>
+      <li>I use it on my beard for a more uniform color.</li>
+      <li>love it</li>
+      <li>But it can be used more times than advertised.</li>
+      <li>being an older women wanting to cover the gray, this works great.</li>
+      <li>easy to use, no drip at all</li>
+      <li>Much more than a few applications.. which is great!!</li>
+      <li>This is great for male body hair!</li>
+      <li>We used to buy cheap color and discard it.  </li>
+      <li>easy application, very little time involved &amp; looks great.</li>
+      <li>Very (!!)</li>
+      <li>Useful product.  </li>
+      <li>and you can get three months&#x27; worth applications out of one package.</li>
+      <li>wasn;t right for me.</li>
+      <li>Thanks Betty!</li>
+      <li>love the fact that you don&#x27;t have to use it all at once giving you multiple applications for touch ups.</li>
+      <li>Good product; doesn&#x27;t last as long as we hoped.</li>
+      <li>Works really well.</li>
+      <li>Gentle to skin.</li>
+      <li>As a guy who wasn&#x27;t ready for gray chest hair</li>
+      <li>Thanks.</li>
+      <li>Sure that a lot of women and men will really appreciate how easy it is to cover up a few white hairs...</li>
+      <li>I mixed a little more than I needed this first time</li>
+      <li>I have very sensitive skin</li>
+      <li>The directions were clear and explanatory.  </li>
+      <li>I chose the five star rating as it covered my grey and made a rich dark brown color.</li>
+      <li>color is too dark, and it does not take very well.  </li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> Perfect just as described</li>
+<li> Awesome!</li>
+<li> Works great.</li>
+<li> LOL, this product works well.</li>
+<li> Great product.</li>
+<li> Well...things look much better, is the best way of putting it!</li>
+<li> It does a really good job and it seems to be perfectly safe.</li>
+<li> Product is effective.  </li>
+<li> Always liked it.</li>
+<li> Very easy to use.  </li>
+<li> It was easy to use, and it worked!</li>
+<li> I use it on my beard for a more uniform color.</li>
+<li> love it</li>
+<li> But it can be used more times than advertised.</li>
+<li> being an older women wanting to cover the gray, this works great.</li>
+<li> easy to use, no drip at all</li>
+<li> Much more than a few applications.. which is great!!</li>
+<li> This is great for male body hair!</li>
+<li> We used to buy cheap color and discard it.  </li>
+<li> easy application, very little time involved &amp; looks great.</li>
+<li> Very (!!)</li>
+<li> Useful product.  </li>
+<li> and you can get three months&#x27; worth applications out of one package.</li>
+<li> wasn;t right for me.</li>
+<li> Thanks Betty!</li>
+<li> love the fact that you don&#x27;t have to use it all at once giving you multiple applications for touch ups.</li>
+<li> Good product; doesn&#x27;t last as long as we hoped.</li>
+<li> Works really well.</li>
+<li> Gentle to skin.</li>
+<li> As a guy who wasn&#x27;t ready for gray chest hair</li>
+<li> Thanks.</li>
+<li> Sure that a lot of women and men will really appreciate how easy it is to cover up a few white hairs...</li>
+<li> I mixed a little more than I needed this first time</li>
+<li> I have very sensitive skin</li>
+<li> The directions were clear and explanatory.  </li>
+<li> I chose the five star rating as it covered my grey and made a rich dark brown color.</li>
+<li> color is too dark, and it does not take very well.  </li>
+<li> Betty allows us to mix only what is needed, and it saves money in the long run.</li>
+<li> It works better than beard Color because it doesn&#x27;t stain your skin near is bad.</li>
+<li> You get a least 4 applications with this box.</li>
+<li> I was not impressed, I used it once</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> Good product; doesn&#x27;t last as long as we hoped. But it can be used more times than advertised.</li>
+    <li> Useful product.  Thanks.</li>
+    <li> We used to buy cheap color and discard it.  Betty allows us to mix only what is needed, and it saves money in the long run.</li>
+    <li> Always liked it. It does a really good job and it seems to be perfectly safe.</li>
+    <li> It was easy to use, and it worked! (Coat with vaseline the parts you don&#x27;t want dye to get on.)</li>
+    <li> I have very sensitive skin but this didn&#x27;t bother me at all.  You get a least 4 applications with this box.</li>
+    <li> Works great. At 66, I had turned a ole lady gray &amp;#34;down there&amp;#34;. Not enticing in the bedroom! This solves that problem. Lasts about a month and you can get three months&#x27; worth applications out of one package. Gentle to skin.</li>
+    <li> I use it on my beard for a more uniform color. It works better than beard Color because it doesn&#x27;t stain your skin near is bad.</li>
+    <li> color is too dark, and it does not take very well.  I would not buy it again.It just wasn;t right for me.</li>
+    <li> This works well. Does not burn or cause any troubles. Well...things look much better, is the best way of putting it!</li>
+    <li> being an older women wanting to cover the gray, this works great. easy application, very little time involved &amp; looks great. love the fact that you don&#x27;t have to use it all at once giving you multiple applications for touch ups. love it</li>
+    <li> I was not impressed, I used it once and I did not see any difference.  I will not be purchasing this again</li>
+    <li> Much more than a few applications.. which is great!! Very (!!) easy to use, no drip at all</li>
+    <li> Works really well. No permanent staining on the genital area and no irritation either.  Sure that a lot of women and men will really appreciate how easy it is to cover up a few white hairs...&amp;#34;down there&amp;#34;!</li>
+    <li> Very easy to use.  Product is effective.  I mixed a little more than I needed this first time but I will know for next time--definitely will get several applications from this one purchase.</li>
+    <li> I chose the five star rating as it covered my grey and made a rich dark brown color. I would definitely use and buy this product again. There was NO skin reaction.  The directions were clear and explanatory.  Who knows, I may try another color!  Great product.</li>
+    <li> This is great for male body hair!</li>
+    <li> Awesome! I tried regular men&#x27;s mustache color and I broke out in an itchy rash. Thanks Betty!</li>
+    <li> As a guy who wasn&#x27;t ready for gray chest hair LOL, this product works well.</li>
+    <li> Perfect just as described</li>
+</ol>
+
+
+
+

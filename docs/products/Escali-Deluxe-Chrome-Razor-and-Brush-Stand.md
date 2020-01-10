@@ -3,8 +3,8 @@ title: Escali Deluxe Chrome Razor and Brush Stand,
 description: Escali Deluxe Chrome Razor and Brush Stand,
 author: Suvojit Manna,
 tags: Escali Deluxe Chrome Razor and Brush Stand,
-publishedAt: Thu Jan 09 2020 19:08:39 GMT+0530 (India Standard Time),
-modifiedAt: Thu Jan 09 2020 19:08:39 GMT+0530 (India Standard Time),
+publishedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
 ---
 
 # [Escali Deluxe Chrome Razor and Brush Stand](https://products.checkmycream.com/products/Escali-Deluxe-Chrome-Razor-and-Brush-Stand.html)
@@ -12,211 +12,211 @@ modifiedAt: Thu Jan 09 2020 19:08:39 GMT+0530 (India Standard Time),
 ### Positive Reviews
 
 <ol>
+      <li>I bought it for my muhle razor and it fits perfect.</li>
+      <li>Perfect size and weight!  </li>
+      <li>My Merkur long-handle DE razor fits the stand perfectly, as does my Escali shaving brush.  </li>
+      <li>and I&#x27;m very happy with it.</li>
+      <li>Price on this was great!  </li>
       <li>Great value!!</li>
+      <li>Wonderful item</li>
+      <li>He loved it!!!!  </li>
+      <li>I am very happy with all three!</li>
+      <li>I am very happy with this purchase.  </li>
+      <li>This stand is perfect for my brush and DE razor.</li>
+      <li>I&#x27;ve been very happy with it.</li>
+      <li>It pairs perfectly with my Murkur safety razor and Tweezerman brush.</li>
+      <li>He was very impressed with the quality.</li>
       <li>I am using Gillette Sensor Excel and fits perfectly on the stand.</li>
+      <li>A great buy!</li>
+      <li>This is a very attractive and functional stand for my brush and razor.</li>
+      <li>stand is perfect addition!</li>
+      <li>my son said this is great!</li>
       <li>It&#x27;s a great stand!</li>
       <li>I am very happy with it!</li>
+      <li>Awesome !  </li>
+      <li>Goes perfect with my Merkur razor and Escali Badger shaver brush!</li>
       <li>Fits my parker brush and futur razor perfectly.</li>
+      <li>The quality of this holder is excellent and it does a superb job of holding your brush &amp; razor!!  </li>
+      <li>It is the perfect accessory for my brush and razor.</li>
+      <li>I am impressed with the quality of the razor &amp; brush stand.</li>
+      <li>The seller was also wonderful.</li>
+      <li>Looks great!</li>
+      <li>Perfect.  </li>
+      <li>Absolutely perfect!</li>
+      <li>Just about perfect.  </li>
+      <li>he absolutely loved it!!!</li>
+      <li>Fits perfectly.</li>
+      <li>It fits perfectly.  </li>
+      <li>Works perfectly, fits my Merkur long-handle safety razor and Escali badger hair brush.</li>
+      <li>Fits brush and razor perfectly, and weighted evenly.</li>
+      <li>I am truly impressed at how awesome this product is for the price point</li>
+      <li>Great product!</li>
+      <li>The product looks awesome on our bathroom shelf!</li>
+      <li>Fits my Merkur 34c and my TAOS brush perfectly.</li>
       <li>and it now fits perfect.</li>
+      <li>Perfect.</li>
+      <li>This the perfect way to have them on display while not needing to pay an arm and a leg at The Art of Shaving.</li>
+      <li>I&#x27;ve had this stand for about two month&#x27;s now and its doing its job perfectly.  </li>
+      <li>It hold my razor and brush perfectly.</li>
+      <li>Excellent razor stand!  </li>
+      <li>Sturdy stand and everything fits perfectly into it.</li>
+      <li>Excellent product, bought one for my husband and one for my brother</li>
+      <li>Well made and excellent design.</li>
+      <li>Matched the Merker DE razor perfectly!!</li>
+      <li>It is has the perfect weight and has never tipped over.  </li>
       <li>A great beginners brush!</li>
+      <li>This stand looks great and has a durable chrome finish!  </li>
+      <li>Excellent price for the quality!</li>
+      <li>This is a great stand!</li>
       <li>This stand is perfect.  </li>
+      <li>The stands holds both items perfectly.  </li>
+      <li>This stand is a great value!</li>
+      <li>Fits my Merkur 34C razor perfectly as well.</li>
+      <li>Excellent value for the price.  </li>
+      <li>I was really impressed and have recommended this razor to friends and coworkers.</li>
+      <li>Excellent stand.</li>
+      <li>Fits my Edwin Jagger DE89 Barley handle razor perfectly.</li>
+      <li>The stand fits my razor and brush perfectly.</li>
+      <li>This is perfect for my brush and razor.</li>
+      <li>The razor fits perfectly.</li>
+      <li>Great stand for the money!  </li>
+      <li>Perfect stand for perfect price.</li>
+      <li>Holds my shaving brush and Fusion razor perfect.  </li>
       <li>I think this is an excellent product at an excellent price.</li>
+      <li>Coupled with Shark blades makes for an excellent shave.</li>
+      <li>Very satisfied!!</li>
+      <li>Excellent!!</li>
+      <li>I&#x27;m very happy with the stand.</li>
       <li>We&#x27;ve been using this item for over a month now with no problems and are both very happy with this purchase!</li>
+      <li>A perfect way to keep things organized and prevent damage from occurring to your brush and razor.</li>
+      <li>The chrome is flawless</li>
+      <li>Great quality!</li>
       <li>Holds my brush, my razor, and looks great!  </li>
+      <li>Does its job wonderfully.</li>
+      <li>Impressed with the quality.  </li>
+      <li>Knurling matches my Merkur 180 perfectly.</li>
+      <li>Great value!</li>
+      <li>This stand works perfectly.</li>
+      <li>This stand is excellent.</li>
+      <li>Material quality is excellent.</li>
+      <li>Very happy with the purchase!!</li>
+      <li>They both rest perfectly on the stand.</li>
+      <li>This is an excellent well-made product.</li>
       <li>I purchased the Escali stand and it works perfectly!  </li>
       <li>A great, good-looking value-priced stand for your brush and razor!  </li>
-      <li>Holds my razor and brush perfectly.</li>
-      <li>Perfect for my Edwin Jagger DE89LBl razor and Escali shaving brush.  </li>
-      <li>Fits my brush and Merkur razor perfectly.</li>
-      <li>I am very very happy with the razor stand I purchased for my husband for Christmas.  </li>
-      <li>My husband is very happy with it.</li>
-      <li>I&#x27;m impressed.</li>
-      <li>Holds my Parker badger-bristle brush and Edwin Jagger DE89 perfectly.</li>
-      <li>I bought one for me and one for my son and he is very happy with his as well.</li>
-      <li>It holds the razor &amp; my brush in excellent position.</li>
-      <li>Very happy!</li>
-      <li>It holds my Escali brush and my Edwin Jagger razor excellently.  </li>
-      <li>Holds my de razor and brush perfectly.</li>
-      <li>So great!</li>
-      <li>Perfect stand for my mach 2 razor and brush</li>
-      <li>Perfect!</li>
-      <li>makes life easier very happy</li>
-      <li>The stand matches my great-grandfather&#x27;s safety razor from the 20s perfectly.</li>
-      <li>Awesome working with Perella.  </li>
-      <li>This is an excellent stand for holding my Edwin Jagger badger brush and my Harry&#x27;s razor.</li>
-      <li>The stand holds these two items perfectly.</li>
-      <li>Awesome product.</li>
-      <li>It is a perfect match.</li>
-      <li>Works great!</li>
-      <li>its sturdy and fits his razor and brush perfectly.  </li>
-      <li>I&#x27;m very proud of this stand.</li>
-      <li>Perfect product.</li>
-      <li>Great stand!</li>
-      <li>Perfect for my badger brush and razor.</li>
-      <li>Excellent.</li>
-      <li>Excellent gift for Father&#x27;s Day.  </li>
-      <li>This stand is great!</li>
-      <li>The finish was perfectly shiny.</li>
-      <li>Perfect for what I need.</li>
-      <li>this stand holds my shaving brush and razor perfect, adds class to the bathroom!!!  </li>
-      <li>what a great buy!</li>
-      <li>Excellent safety razor and brush stand.</li>
-      <li>Matches my vintage Gillette razor perfectly!</li>
-      <li>It holds my razor and brush perfectly.</li>
-      <li>Excellent stand.</li>
-      <li>quality and excellent service.</li>
-      <li>Great product, accomplishes what I needed to do for my safety razor and brush!</li>
-      <li>Bought it for my husband and he was very impressed with it.</li>
-      <li>This fits my escali shaving brush perfectly.</li>
-      <li>Great Stand!</li>
-      <li>great item, my shave brush and my razor organized !!</li>
-      <li>The razor fits perfectly on the stand.  </li>
-      <li>I purchased this stand to accompany a Merkur safety razor and the simplicity and pattern on the pole matches perfectly.  </li>
-      <li>Excellent product!</li>
-      <li>This is a wonderful product.  </li>
-      <li>For the price, it is AWESOME!</li>
-      <li>Awesome, fits my Merkur HD 34C and VDH brush perfectly</li>
-      <li>just perfect!</li>
-      <li>Perfect product for my razor and brush.  </li>
-      <li>Very happy.</li>
-      <li>This is an excellent stand.  </li>
-      <li>It is like it was perfectly designed as a match set.</li>
-      <li>Excellent razor/brsh stand.  </li>
-      <li>and this is the perfect way to store brushes.</li>
-      <li>Great job!</li>
-      <li>and I&#x27;m very happy with the quality of this stand.</li>
-      <li>Still very happy with my purchase.</li>
-      <li>Excellent product!</li>
-      <li>Both the razor and badger brush sit perfectly in the escali holder.</li>
-      <li>Perfect stand.</li>
-      <li>The finish is identical to my razor and matched perfectly.  </li>
-      <li>It fits perfectly on his counter in his RV bathroom.  </li>
-      <li>He is very happy with it as it allows him to organize his space</li>
-      <li>/&gt;The quality is superb.</li>
+      <li>I bought and Edwin Jagger 89 dbl razor and an EJ brush and both fits perfectly.</li>
       <li>This stand is the perfect accompaniment to my escali badger brush!!</li>
-      <li>This is an excellent well-made product.</li>
-      <li>Great value!</li>
-      <li>he absolutely loved it!!!</li>
-      <li>This is a very attractive and functional stand for my brush and razor.</li>
-      <li>This stand is perfect for my brush and DE razor.</li>
-      <li>Goes perfect with my Merkur razor and Escali Badger shaver brush!</li>
-      <li>Great product!</li>
-      <li>EXCELLENT VALUE!</li>
-      <li>EXCELLENT PRODUCT!</li>
-      <li>I also purchased perfectly.  </li>
-      <li>This is a perfect stand for shaving brush and razor.  </li>
-      <li>This is an excellent product</li>
-      <li>Excellent item.</li>
-      <li>Looks great in my medicine cabinet and saves room too!</li>
-      <li>and it works perfectly.</li>
-      <li>It also holds the Edwin Jagger De89lbl safety razor perfect.</li>
-      <li>It&#x27;s perfect!</li>
-      <li>Holds brush and razor perfectly well with no issues.  </li>
+      <li>It matches the safety razor perfectly.</li>
+      <li>Perfect stand to compliment  my Merkur razor and  badger brush.  </li>
+      <li>Excellent workmanship and style.</li>
+      <li>This stand is nearly perfect...</li>
+      <li>Fits my Gillette razor and brush perfectly.</li>
+      <li>I was really impressed with this stand.</li>
 </ol>
 
 
 <h2>Negative Reviews</h2>
 <ol>
+<li> I bought it for my muhle razor and it fits perfect.</li>
+<li> Perfect size and weight!  </li>
+<li> My Merkur long-handle DE razor fits the stand perfectly, as does my Escali shaving brush.  </li>
+<li> and I&#x27;m very happy with it.</li>
+<li> Price on this was great!  </li>
 <li> Great value!!</li>
+<li> Wonderful item</li>
+<li> He loved it!!!!  </li>
+<li> I am very happy with all three!</li>
+<li> I am very happy with this purchase.  </li>
+<li> This stand is perfect for my brush and DE razor.</li>
+<li> I&#x27;ve been very happy with it.</li>
+<li> It pairs perfectly with my Murkur safety razor and Tweezerman brush.</li>
+<li> He was very impressed with the quality.</li>
 <li> I am using Gillette Sensor Excel and fits perfectly on the stand.</li>
+<li> A great buy!</li>
+<li> This is a very attractive and functional stand for my brush and razor.</li>
+<li> stand is perfect addition!</li>
+<li> my son said this is great!</li>
 <li> It&#x27;s a great stand!</li>
 <li> I am very happy with it!</li>
+<li> Awesome !  </li>
+<li> Goes perfect with my Merkur razor and Escali Badger shaver brush!</li>
 <li> Fits my parker brush and futur razor perfectly.</li>
+<li> The quality of this holder is excellent and it does a superb job of holding your brush &amp; razor!!  </li>
+<li> It is the perfect accessory for my brush and razor.</li>
+<li> I am impressed with the quality of the razor &amp; brush stand.</li>
+<li> The seller was also wonderful.</li>
+<li> Looks great!</li>
+<li> Perfect.  </li>
+<li> Absolutely perfect!</li>
+<li> Just about perfect.  </li>
+<li> he absolutely loved it!!!</li>
+<li> Fits perfectly.</li>
+<li> It fits perfectly.  </li>
+<li> Works perfectly, fits my Merkur long-handle safety razor and Escali badger hair brush.</li>
+<li> Fits brush and razor perfectly, and weighted evenly.</li>
+<li> I am truly impressed at how awesome this product is for the price point</li>
+<li> Great product!</li>
+<li> The product looks awesome on our bathroom shelf!</li>
+<li> Fits my Merkur 34c and my TAOS brush perfectly.</li>
 <li> and it now fits perfect.</li>
+<li> Perfect.</li>
+<li> This the perfect way to have them on display while not needing to pay an arm and a leg at The Art of Shaving.</li>
+<li> I&#x27;ve had this stand for about two month&#x27;s now and its doing its job perfectly.  </li>
+<li> It hold my razor and brush perfectly.</li>
+<li> Excellent razor stand!  </li>
+<li> Sturdy stand and everything fits perfectly into it.</li>
+<li> Excellent product, bought one for my husband and one for my brother</li>
+<li> Well made and excellent design.</li>
+<li> Matched the Merker DE razor perfectly!!</li>
+<li> It is has the perfect weight and has never tipped over.  </li>
 <li> A great beginners brush!</li>
+<li> This stand looks great and has a durable chrome finish!  </li>
+<li> Excellent price for the quality!</li>
+<li> This is a great stand!</li>
 <li> This stand is perfect.  </li>
+<li> The stands holds both items perfectly.  </li>
+<li> This stand is a great value!</li>
+<li> Fits my Merkur 34C razor perfectly as well.</li>
+<li> Excellent value for the price.  </li>
+<li> I was really impressed and have recommended this razor to friends and coworkers.</li>
+<li> Excellent stand.</li>
+<li> Fits my Edwin Jagger DE89 Barley handle razor perfectly.</li>
+<li> The stand fits my razor and brush perfectly.</li>
+<li> This is perfect for my brush and razor.</li>
+<li> The razor fits perfectly.</li>
+<li> Great stand for the money!  </li>
+<li> Perfect stand for perfect price.</li>
+<li> Holds my shaving brush and Fusion razor perfect.  </li>
 <li> I think this is an excellent product at an excellent price.</li>
+<li> Coupled with Shark blades makes for an excellent shave.</li>
+<li> Very satisfied!!</li>
+<li> Excellent!!</li>
+<li> I&#x27;m very happy with the stand.</li>
 <li> We&#x27;ve been using this item for over a month now with no problems and are both very happy with this purchase!</li>
+<li> A perfect way to keep things organized and prevent damage from occurring to your brush and razor.</li>
+<li> The chrome is flawless</li>
+<li> Great quality!</li>
 <li> Holds my brush, my razor, and looks great!  </li>
+<li> Does its job wonderfully.</li>
+<li> Impressed with the quality.  </li>
+<li> Knurling matches my Merkur 180 perfectly.</li>
+<li> Great value!</li>
+<li> This stand works perfectly.</li>
+<li> This stand is excellent.</li>
+<li> Material quality is excellent.</li>
+<li> Very happy with the purchase!!</li>
+<li> They both rest perfectly on the stand.</li>
+<li> This is an excellent well-made product.</li>
 <li> I purchased the Escali stand and it works perfectly!  </li>
 <li> A great, good-looking value-priced stand for your brush and razor!  </li>
-<li> Holds my razor and brush perfectly.</li>
-<li> Perfect for my Edwin Jagger DE89LBl razor and Escali shaving brush.  </li>
-<li> Fits my brush and Merkur razor perfectly.</li>
-<li> I am very very happy with the razor stand I purchased for my husband for Christmas.  </li>
-<li> My husband is very happy with it.</li>
-<li> I&#x27;m impressed.</li>
-<li> Holds my Parker badger-bristle brush and Edwin Jagger DE89 perfectly.</li>
-<li> I bought one for me and one for my son and he is very happy with his as well.</li>
-<li> It holds the razor &amp; my brush in excellent position.</li>
-<li> Very happy!</li>
-<li> It holds my Escali brush and my Edwin Jagger razor excellently.  </li>
-<li> Holds my de razor and brush perfectly.</li>
-<li> So great!</li>
-<li> Perfect stand for my mach 2 razor and brush</li>
-<li> Perfect!</li>
-<li> makes life easier very happy</li>
-<li> The stand matches my great-grandfather&#x27;s safety razor from the 20s perfectly.</li>
-<li> Awesome working with Perella.  </li>
-<li> This is an excellent stand for holding my Edwin Jagger badger brush and my Harry&#x27;s razor.</li>
-<li> The stand holds these two items perfectly.</li>
-<li> Awesome product.</li>
-<li> It is a perfect match.</li>
-<li> Works great!</li>
-<li> its sturdy and fits his razor and brush perfectly.  </li>
-<li> I&#x27;m very proud of this stand.</li>
-<li> Perfect product.</li>
-<li> Great stand!</li>
-<li> Perfect for my badger brush and razor.</li>
-<li> Excellent.</li>
-<li> Excellent gift for Father&#x27;s Day.  </li>
-<li> This stand is great!</li>
-<li> The finish was perfectly shiny.</li>
-<li> Perfect for what I need.</li>
-<li> this stand holds my shaving brush and razor perfect, adds class to the bathroom!!!  </li>
-<li> what a great buy!</li>
-<li> Excellent safety razor and brush stand.</li>
-<li> Matches my vintage Gillette razor perfectly!</li>
-<li> It holds my razor and brush perfectly.</li>
-<li> Excellent stand.</li>
-<li> quality and excellent service.</li>
-<li> Great product, accomplishes what I needed to do for my safety razor and brush!</li>
-<li> Bought it for my husband and he was very impressed with it.</li>
-<li> This fits my escali shaving brush perfectly.</li>
-<li> Great Stand!</li>
-<li> great item, my shave brush and my razor organized !!</li>
-<li> The razor fits perfectly on the stand.  </li>
-<li> I purchased this stand to accompany a Merkur safety razor and the simplicity and pattern on the pole matches perfectly.  </li>
-<li> Excellent product!</li>
-<li> This is a wonderful product.  </li>
-<li> For the price, it is AWESOME!</li>
-<li> Awesome, fits my Merkur HD 34C and VDH brush perfectly</li>
-<li> just perfect!</li>
-<li> Perfect product for my razor and brush.  </li>
-<li> Very happy.</li>
-<li> This is an excellent stand.  </li>
-<li> It is like it was perfectly designed as a match set.</li>
-<li> Excellent razor/brsh stand.  </li>
-<li> and this is the perfect way to store brushes.</li>
-<li> Great job!</li>
-<li> and I&#x27;m very happy with the quality of this stand.</li>
-<li> Still very happy with my purchase.</li>
-<li> Excellent product!</li>
-<li> Both the razor and badger brush sit perfectly in the escali holder.</li>
-<li> Perfect stand.</li>
-<li> The finish is identical to my razor and matched perfectly.  </li>
-<li> It fits perfectly on his counter in his RV bathroom.  </li>
-<li> He is very happy with it as it allows him to organize his space</li>
-<li> /&gt;The quality is superb.</li>
+<li> I bought and Edwin Jagger 89 dbl razor and an EJ brush and both fits perfectly.</li>
 <li> This stand is the perfect accompaniment to my escali badger brush!!</li>
-<li> This is an excellent well-made product.</li>
-<li> Great value!</li>
-<li> he absolutely loved it!!!</li>
-<li> This is a very attractive and functional stand for my brush and razor.</li>
-<li> This stand is perfect for my brush and DE razor.</li>
-<li> Goes perfect with my Merkur razor and Escali Badger shaver brush!</li>
-<li> Great product!</li>
-<li> EXCELLENT VALUE!</li>
-<li> EXCELLENT PRODUCT!</li>
-<li> I also purchased perfectly.  </li>
-<li> This is a perfect stand for shaving brush and razor.  </li>
-<li> This is an excellent product</li>
-<li> Excellent item.</li>
-<li> Looks great in my medicine cabinet and saves room too!</li>
-<li> and it works perfectly.</li>
-<li> It also holds the Edwin Jagger De89lbl safety razor perfect.</li>
-<li> It&#x27;s perfect!</li>
-<li> Holds brush and razor perfectly well with no issues.  </li>
+<li> It matches the safety razor perfectly.</li>
+<li> Perfect stand to compliment  my Merkur razor and  badger brush.  </li>
+<li> Excellent workmanship and style.</li>
+<li> This stand is nearly perfect...</li>
+<li> Fits my Gillette razor and brush perfectly.</li>
+<li> I was really impressed with this stand.</li>
 </ol>
 
 <h2>All Reviews</h2>
@@ -2166,6 +2166,7 @@ modifiedAt: Thu Jan 09 2020 19:08:39 GMT+0530 (India Standard Time),
     <li> I cannot review how this product works since I bought it for my son who is discouraged with the price of blades.  He will be 42 in October and has very sensitive skin.  He has never shaved with a safety razor but has decided that the new razors are too expensive and not worth the price.  When he said that he would like to try the razor his father used when he first started to shave, I jumped on the suggestion and did some research.  This stand is part of a gift he will be getting in October on his birthday.  The rest of the gift consists of a Merkel safety razor, a soap and soap dish, and a combination package of blades offered by Amazon.&lt;br /&gt;&lt;br /&gt;I can say the stand looks beautiful and should help eliminate clutter on his sink.  Hopefully, he will be able to use this type of shaving system and not get a terrible rash on his face.  As his mother, I am grateful that I was able to purchase all the components of an \\&quot;old fashioned shave\\&quot; on Amazon.  I can say for certainty that the style of the stand looks elegant and will fit in with the decor of his WC.</li>
     <li> Quality product.  My Merkur long-handle DE razor fits the stand perfectly, as does my Escali shaving brush.  Perfect size and weight!  Recommended.</li>
 </ol>
+
 
 
 

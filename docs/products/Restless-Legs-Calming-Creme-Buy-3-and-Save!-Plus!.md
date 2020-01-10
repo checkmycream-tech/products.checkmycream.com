@@ -1,0 +1,116 @@
+---
+title: Restless Legs Calming Creme - Buy 3 and Save! Plus!,
+description: Restless Legs Calming Creme - Buy 3 and Save! Plus!,
+author: Suvojit Manna,
+tags: Restless Legs Calming Creme - Buy 3 and Save! Plus!,
+publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
+---
+
+# [Restless Legs Calming Creme - Buy 3 and Save! Plus!](https://products.checkmycream.com/products/Restless-Legs-Calming-Creme-Buy-3-and-Save!-Plus!.html)
+
+### Positive Reviews
+
+<ol>
+      <li>Smells wonderful too ,like a spa massage .</li>
+      <li>Excellent!....</li>
+      <li>Great product ! !</li>
+      <li>Great stuff!</li>
+      <li>This was also a very good buy!</li>
+      <li>Excellent product.</li>
+      <li>If you have achey legs, this is great for your legs!!</li>
+      <li>Works great!!</li>
+      <li>This is the best deal and the product works great, just wish they would take out the parabens.....</li>
+      <li>Very pleased with product and savings!</li>
+      <li>But I love the smell of this crème!!</li>
+      <li>Doesn&#x27;t help with my restless legs but smells good and a good lotion.</li>
+      <li>Delivery was very quick!!</li>
+      <li>This cream is amazing , leg cramps and rls symptoms are gone in a matter of.</li>
+      <li>Nice smell</li>
+      <li>Nice fragrance though.</li>
+      <li>Both are effective.  </li>
+      <li>I use it for a lot of thongs but most of all my Legs they hurt a lot</li>
+      <li>Fantastic!</li>
+      <li>Mi mom swears by them, the company delivered promptly and accurately , we will order again soon .</li>
+      <li>I really enjoy this creme.</li>
+      <li>Really works!!!  </li>
+      <li>Too early to know for sure.  </li>
+      <li>It really works!</li>
+      <li>This product really works,, will ease the restless legs in know time.</li>
+      <li>It is okay, but feels like a lotion with a little menthol in it.  </li>
+      <li>this is the only thing I found to calm them down.</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> Smells wonderful too ,like a spa massage .</li>
+<li> Excellent!....</li>
+<li> Great product ! !</li>
+<li> Great stuff!</li>
+<li> This was also a very good buy!</li>
+<li> Excellent product.</li>
+<li> If you have achey legs, this is great for your legs!!</li>
+<li> Works great!!</li>
+<li> This is the best deal and the product works great, just wish they would take out the parabens.....</li>
+<li> Very pleased with product and savings!</li>
+<li> But I love the smell of this crème!!</li>
+<li> Doesn&#x27;t help with my restless legs but smells good and a good lotion.</li>
+<li> Delivery was very quick!!</li>
+<li> This cream is amazing , leg cramps and rls symptoms are gone in a matter of.</li>
+<li> Nice smell</li>
+<li> Nice fragrance though.</li>
+<li> Both are effective.  </li>
+<li> I use it for a lot of thongs but most of all my Legs they hurt a lot</li>
+<li> Fantastic!</li>
+<li> Mi mom swears by them, the company delivered promptly and accurately , we will order again soon .</li>
+<li> I really enjoy this creme.</li>
+<li> Really works!!!  </li>
+<li> Too early to know for sure.  </li>
+<li> It really works!</li>
+<li> This product really works,, will ease the restless legs in know time.</li>
+<li> It is okay, but feels like a lotion with a little menthol in it.  </li>
+<li> this is the only thing I found to calm them down.</li>
+<li> I Bin using it for a long time and tell all my Friend all about it.  </li>
+<li> Works as expected, but I wish that I didn&#x27;t have to apply it several times a night.</li>
+<li> It has helped when other cremes don&#x27;t work.</li>
+<li> and I was skeptical at first.</li>
+<li> Don&#x27;t waste your money.</li>
+<li> I am very disappointed in this product.</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> If you SUFFER from RLS please give this a try. It may be a god send as this is the 3rd time we have ordered this from amazon. We will never be with this .</li>
+    <li> Mi mom swears by them, the company delivered promptly and accurately , we will order again soon .</li>
+    <li> Works great!! Have had RLS for quite a while and finally found something that helps to relieve my restless legs. This was also a very good buy! Delivery was very quick!!</li>
+    <li> I like it but sometimes the pump won&#x27;t work.  Wish it was in a jar.</li>
+    <li> It is okay, but feels like a lotion with a little menthol in it.  Doesn&#x27;t help with my restless legs but smells good and a good lotion.</li>
+    <li> Does the job  for me!!!!!</li>
+    <li> I use this every night on my husband&#x27;s legs and he said it helps him to sleep.</li>
+    <li> It does help and enable me to get back to sleep when my legs start acting up.</li>
+    <li> Fantastic! Does the trick to help with the pain with or without meds . If you have restless kegs it&#x27;s a MUST HAVE- and I was skeptical at first. Now I keep a constant supply. If you have tires legs, it should work too . Smells wonderful too ,like a spa massage .</li>
+    <li> Really works!!!  I have had this problem for years and finally found something to help me.  This and iron pills is the only answer to restless legs..</li>
+    <li> I am very disappointed in this product. I have had no results at all. Don&#x27;t waste your money. Nice fragrance though.</li>
+    <li> This is the best deal and the product works great, just wish they would take out the parabens.....</li>
+    <li> Product didnt work for my mom. Goodluck to others.</li>
+    <li> My husband has Fibromyalgia and his legs hurt a lot. My mother in law gave me some to try on him and now he won&#x27;t go to bed without it.</li>
+    <li> It really works! Very pleased with product and savings!</li>
+    <li> I use this during the evening and it works well, but in the middle of the night I use the Kerasal Neuro Cream.  Both are effective.  But I love the smell of this crème!!</li>
+    <li> This stuff does the trick!</li>
+    <li> Seems to be helping.  Too early to know for sure.  Nice smell</li>
+    <li> This product really works,, will ease the restless legs in know time.</li>
+    <li> I really enjoy this creme. It has helped when other cremes don&#x27;t work.</li>
+    <li> Stops leg cramp&#x27;s &amp; help&#x27;s with nerver pain in the legs.</li>
+    <li> This cream is amazing , leg cramps and rls symptoms are gone in a matter of. Minutes.  Great product ! !</li>
+    <li> Works as expected, but I wish that I didn&#x27;t have to apply it several times a night.</li>
+    <li> If you have achey legs, this is great for your legs!! I will buy again! Excellent product.</li>
+    <li> Still working for me!!!</li>
+    <li> I Bin using it for a long time and tell all my Friend all about it.  I use it for a lot of thongs but most of all my Legs they hurt a lot this is the only thing I found to calm them down.</li>
+    <li> Great stuff! Excellent!....EXCELLENT!&lt;br /&gt;Great service!</li>
+</ol>
+
+
+
+

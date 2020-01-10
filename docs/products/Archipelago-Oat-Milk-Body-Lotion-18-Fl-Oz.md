@@ -3,8 +3,8 @@ title: Archipelago  Oat Milk Body Lotion ,18 Fl Oz,
 description: Archipelago  Oat Milk Body Lotion ,18 Fl Oz,
 author: Suvojit Manna,
 tags: Archipelago  Oat Milk Body Lotion ,18 Fl Oz,
-publishedAt: Thu Jan 09 2020 19:08:26 GMT+0530 (India Standard Time),
-modifiedAt: Thu Jan 09 2020 19:08:26 GMT+0530 (India Standard Time),
+publishedAt: Fri Jan 10 2020 14:59:30 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:59:30 GMT+0530 (India Standard Time),
 ---
 
 # [Archipelago  Oat Milk Body Lotion ,18 Fl Oz](https://products.checkmycream.com/products/Archipelago-Oat-Milk-Body-Lotion-18-Fl-Oz.html)
@@ -12,84 +12,84 @@ modifiedAt: Thu Jan 09 2020 19:08:26 GMT+0530 (India Standard Time),
 ### Positive Reviews
 
 <ol>
-      <li>Best lotion I have ever used!</li>
       <li>Creamy awesome lotion, smells sooo fragerant &amp; awesome!</li>
       <li>This is a wonderful product.</li>
+      <li>Best lotion I have ever used!</li>
+      <li>awesome smelling</li>
       <li>Feels awesome without being greasy.  </li>
-      <li>best cream ever!</li>
       <li>This is the best lotion I have found.  </li>
+      <li>best cream ever!</li>
       <li>The scent is wonderful.</li>
       <li>Makes an excellent gift too!</li>
-      <li>awesome smelling</li>
       <li>This lotion is very good for moisturizing but smell is so so.&lt;br /&gt;I</li>
       <li>This product moisturizes great and the fragrance is very pleasant.</li>
       <li>great scent and very good.</li>
+      <li>Lotion is still great.</li>
       <li>It is a great moisturizer that works well and doesn&#x27;t feel greasy.</li>
       <li>Effective and smells wonderful.  </li>
       <li>Arrived promptly, well-packaged and is great stuff.</li>
       <li>The best body lotion - just amazing</li>
-      <li>Lotion is still great.</li>
       <li>I LOVE this lotion!!</li>
       <li>and I LOVE it!!</li>
       <li>smells amazing, doesnt leave your hands feeling greasy, but also works as great lotion.</li>
-      <li>; good price</li>
-      <li>Good delivery</li>
-      <li>Good moisturizer without being greasy or sticky.</li>
-      <li>and I will always smell good.</li>
-      <li>Sampled this (Oat Milk Body) lotion at my hair salon and loved it, but not the price they were asking for it.</li>
-      <li>and amazon is the best place to buy because of the free shipping.</li>
       <li>Good thing</li>
+      <li>Good moisturizer without being greasy or sticky.</li>
+      <li>Good delivery</li>
+      <li>; good price</li>
+      <li>and I will always smell good.</li>
+      <li>and amazon is the best place to buy because of the free shipping.</li>
+      <li>Sampled this (Oat Milk Body) lotion at my hair salon and loved it, but not the price they were asking for it.</li>
       <li>I love the smell and it was a great gift for my wife.</li>
       <li>Love the smell and love this product!!</li>
-      <li>My all-time favorite!</li>
+      <li>Love all the archipelago products!</li>
       <li>This is my favorite lotion ever!</li>
       <li>Absolutely love this lotion!</li>
-      <li>Love all the archipelago products!</li>
+      <li>My all-time favorite!</li>
       <li>The smell is amazing and it soaks in without a greasy feel.</li>
-      <li>People ask me all the time about what lotion I wear because it makes me smell so nice.</li>
       <li>Feels so nice on your skin</li>
       <li>And it softens your skin so nice.  </li>
       <li>The smell is wonderful and because of the thickness the lotion lasts much longer than you would think.</li>
+      <li>People ask me all the time about what lotion I wear because it makes me smell so nice.</li>
       <li>My favorite lotion--I love the feel and the aroma!</li>
       <li>This is by far the best lotion I&#x27;ve ever used!</li>
       <li>Am happy to be able to purchase it so easily and quickly.</li>
-      <li>and this loton does so much better moisturizing than the lotions I have now.</li>
-      <li>Amazon was excellent about getting back to me</li>
-      <li>I&#x27;ve been using this as a facial moisturizer, and it is perhaps the best I&#x27;ve ever used.  </li>
-      <li>Lotion was spilling out of the top of the bottle when I opened the package.  </li>
-      <li>Absolutely love this lotion&lt;br /&gt;I</li>
-      <li>I love this well made product.</li>
-      <li>Love this lotion.</li>
+      <li>Love the fragrance of this product.  </li>
       <li>It is one of my favorite scents and I am complimented on the scent all the time.</li>
+      <li>I LOVE IT, --</li>
       <li>My favorite lotion.  </li>
+      <li>Really feels good on my skin with a nice scent.</li>
+      <li>I&#x27;ve been using this as a facial moisturizer, and it is perhaps the best I&#x27;ve ever used.  </li>
+      <li>I love the scent; it stays with me all day.</li>
+      <li>and this loton does so much better moisturizing than the lotions I have now.</li>
       <li>Love this lotion.  </li>
+      <li>This is one of my favorite products.  </li>
+      <li>Love this lotion.</li>
+      <li>I am in love with all of the Archipelago products but this lotion has to be my favorite.</li>
       <li>Love it.</li>
+      <li>I buy this for all of the women in the family for Christmas and we all love it.  </li>
+      <li>Amazon was excellent about getting back to me</li>
       <li>but I love the fragrance,  </li>
+      <li>Lotion was spilling out of the top of the bottle when I opened the package.  </li>
+      <li>I tried this once many years ago and could never find it again.  </li>
       <li>friends love to receive this product as gifts.</li>
       <li>It is my favorite lotion..</li>
-      <li>Love the smell.  </li>
-      <li>Love the texture.  </li>
-      <li>Love that my favorite lotion comes in a gigantic bottle.  </li>
+      <li>I love this well made product.</li>
       <li>And I love that I can get it within two days with my prime membership.  </li>
-      <li>I love the scent; it stays with me all day.</li>
-      <li>Love the fragrance of this product.  </li>
+      <li>Love that my favorite lotion comes in a gigantic bottle.  </li>
+      <li>Absolutely love this lotion&lt;br /&gt;I</li>
+      <li>Love the texture.  </li>
       <li>and I love it....</li>
-      <li>I am in love with all of the Archipelago products but this lotion has to be my favorite.</li>
-      <li>Really feels good on my skin with a nice scent.</li>
-      <li>This is one of my favorite products.  </li>
-      <li>I buy this for all of the women in the family for Christmas and we all love it.  </li>
-      <li>I tried this once many years ago and could never find it again.  </li>
-      <li>I LOVE IT, --</li>
+      <li>Love the smell.  </li>
       <li>love the scent, love the feel, love &amp;#34;the work&amp;#34; it does, but with one caveat:  the pump never engages too easily.</li>
       <li>It is a little pricey, but if you are in need of a good lotion with a mild scent, this is the best I&#x27;ve found.</li>
       <li>It has a nice clean light fragrance that lasts all day.</li>
       <li>You will love the clean scent of this rich moisturizing lotion!  </li>
-      <li>It isn&#x27;t too greasy or too strong.</li>
       <li>like this strong  container.&lt;br</li>
       <li>The smell is strong if you dont like that I&#x27;d choose something else.</li>
+      <li>It isn&#x27;t too greasy or too strong.</li>
       <li>I love the scent, clean and fresh!</li>
-      <li>I remembered she had mentioned how much she liked it.</li>
       <li>I got it for my wife, but enjoy it myself.</li>
+      <li>I remembered she had mentioned how much she liked it.</li>
       <li>This is my absolute most favorite lotion ever.</li>
       <li>But it is so worth it!</li>
       <li>so does everyone one else who smells the clean essence</li>
@@ -98,103 +98,103 @@ modifiedAt: Thu Jan 09 2020 19:08:26 GMT+0530 (India Standard Time),
       <li>clean, fresh scent</li>
       <li>Apparently the Amazon deal is pretty good....</li>
       <li>Highly recommended :)</li>
-      <li>I would try to catch it when it first becomes available from the seller, as it tends to fluctuate in price quite a bit.</li>
       <li>An absolutely lovely lotion with a soft, unique scent..  </li>
+      <li>I would try to catch it when it first becomes available from the seller, as it tends to fluctuate in price quite a bit.</li>
       <li>So happy to find it; not widely available.</li>
-      <li>So worth the money..</li>
       <li>Either way it&#x27;s definitely worth the money</li>
+      <li>So worth the money..</li>
       <li>For what it&#x27;s worth, she&#x27;s really smart.</li>
       <li>Expensive, but smells and feels awesome.</li>
       <li>I liked the way it made you skin feel too without a sticky feeling like other lotions.</li>
       <li>The scent is amazingly clean, fresh, and light and it&#x27;s one of the few scented products I can use that doesn&#x27;t cause an allergic reaction or an asthma attack.  </li>
       <li>it comes in large bottles.</li>
       <li>I have used this lotion before and love the light feel and delicate smell.&lt;br /&gt;My</li>
-      <li>and she really likes it.</li>
-      <li>I am keeping the lotion as I really like it.  </li>
       <li>Just wish they would offer a bulk price so that I could buy for the whole family.</li>
+      <li>I am keeping the lotion as I really like it.  </li>
+      <li>i really like the fragrance of this lotion.</li>
 </ol>
 
 
 <h2>Negative Reviews</h2>
 <ol>
-<li> Best lotion I have ever used!</li>
 <li> Creamy awesome lotion, smells sooo fragerant &amp; awesome!</li>
 <li> This is a wonderful product.</li>
+<li> Best lotion I have ever used!</li>
+<li> awesome smelling</li>
 <li> Feels awesome without being greasy.  </li>
-<li> best cream ever!</li>
 <li> This is the best lotion I have found.  </li>
+<li> best cream ever!</li>
 <li> The scent is wonderful.</li>
 <li> Makes an excellent gift too!</li>
-<li> awesome smelling</li>
 <li> This lotion is very good for moisturizing but smell is so so.&lt;br /&gt;I</li>
 <li> This product moisturizes great and the fragrance is very pleasant.</li>
 <li> great scent and very good.</li>
+<li> Lotion is still great.</li>
 <li> It is a great moisturizer that works well and doesn&#x27;t feel greasy.</li>
 <li> Effective and smells wonderful.  </li>
 <li> Arrived promptly, well-packaged and is great stuff.</li>
 <li> The best body lotion - just amazing</li>
-<li> Lotion is still great.</li>
 <li> I LOVE this lotion!!</li>
 <li> and I LOVE it!!</li>
 <li> smells amazing, doesnt leave your hands feeling greasy, but also works as great lotion.</li>
-<li> ; good price</li>
-<li> Good delivery</li>
-<li> Good moisturizer without being greasy or sticky.</li>
-<li> and I will always smell good.</li>
-<li> Sampled this (Oat Milk Body) lotion at my hair salon and loved it, but not the price they were asking for it.</li>
-<li> and amazon is the best place to buy because of the free shipping.</li>
 <li> Good thing</li>
+<li> Good moisturizer without being greasy or sticky.</li>
+<li> Good delivery</li>
+<li> ; good price</li>
+<li> and I will always smell good.</li>
+<li> and amazon is the best place to buy because of the free shipping.</li>
+<li> Sampled this (Oat Milk Body) lotion at my hair salon and loved it, but not the price they were asking for it.</li>
 <li> I love the smell and it was a great gift for my wife.</li>
 <li> Love the smell and love this product!!</li>
-<li> My all-time favorite!</li>
+<li> Love all the archipelago products!</li>
 <li> This is my favorite lotion ever!</li>
 <li> Absolutely love this lotion!</li>
-<li> Love all the archipelago products!</li>
+<li> My all-time favorite!</li>
 <li> The smell is amazing and it soaks in without a greasy feel.</li>
-<li> People ask me all the time about what lotion I wear because it makes me smell so nice.</li>
 <li> Feels so nice on your skin</li>
 <li> And it softens your skin so nice.  </li>
 <li> The smell is wonderful and because of the thickness the lotion lasts much longer than you would think.</li>
+<li> People ask me all the time about what lotion I wear because it makes me smell so nice.</li>
 <li> My favorite lotion--I love the feel and the aroma!</li>
 <li> This is by far the best lotion I&#x27;ve ever used!</li>
 <li> Am happy to be able to purchase it so easily and quickly.</li>
-<li> and this loton does so much better moisturizing than the lotions I have now.</li>
-<li> Amazon was excellent about getting back to me</li>
-<li> I&#x27;ve been using this as a facial moisturizer, and it is perhaps the best I&#x27;ve ever used.  </li>
-<li> Lotion was spilling out of the top of the bottle when I opened the package.  </li>
-<li> Absolutely love this lotion&lt;br /&gt;I</li>
-<li> I love this well made product.</li>
-<li> Love this lotion.</li>
+<li> Love the fragrance of this product.  </li>
 <li> It is one of my favorite scents and I am complimented on the scent all the time.</li>
+<li> I LOVE IT, --</li>
 <li> My favorite lotion.  </li>
+<li> Really feels good on my skin with a nice scent.</li>
+<li> I&#x27;ve been using this as a facial moisturizer, and it is perhaps the best I&#x27;ve ever used.  </li>
+<li> I love the scent; it stays with me all day.</li>
+<li> and this loton does so much better moisturizing than the lotions I have now.</li>
 <li> Love this lotion.  </li>
+<li> This is one of my favorite products.  </li>
+<li> Love this lotion.</li>
+<li> I am in love with all of the Archipelago products but this lotion has to be my favorite.</li>
 <li> Love it.</li>
+<li> I buy this for all of the women in the family for Christmas and we all love it.  </li>
+<li> Amazon was excellent about getting back to me</li>
 <li> but I love the fragrance,  </li>
+<li> Lotion was spilling out of the top of the bottle when I opened the package.  </li>
+<li> I tried this once many years ago and could never find it again.  </li>
 <li> friends love to receive this product as gifts.</li>
 <li> It is my favorite lotion..</li>
-<li> Love the smell.  </li>
-<li> Love the texture.  </li>
-<li> Love that my favorite lotion comes in a gigantic bottle.  </li>
+<li> I love this well made product.</li>
 <li> And I love that I can get it within two days with my prime membership.  </li>
-<li> I love the scent; it stays with me all day.</li>
-<li> Love the fragrance of this product.  </li>
+<li> Love that my favorite lotion comes in a gigantic bottle.  </li>
+<li> Absolutely love this lotion&lt;br /&gt;I</li>
+<li> Love the texture.  </li>
 <li> and I love it....</li>
-<li> I am in love with all of the Archipelago products but this lotion has to be my favorite.</li>
-<li> Really feels good on my skin with a nice scent.</li>
-<li> This is one of my favorite products.  </li>
-<li> I buy this for all of the women in the family for Christmas and we all love it.  </li>
-<li> I tried this once many years ago and could never find it again.  </li>
-<li> I LOVE IT, --</li>
+<li> Love the smell.  </li>
 <li> love the scent, love the feel, love &amp;#34;the work&amp;#34; it does, but with one caveat:  the pump never engages too easily.</li>
 <li> It is a little pricey, but if you are in need of a good lotion with a mild scent, this is the best I&#x27;ve found.</li>
 <li> It has a nice clean light fragrance that lasts all day.</li>
 <li> You will love the clean scent of this rich moisturizing lotion!  </li>
-<li> It isn&#x27;t too greasy or too strong.</li>
 <li> like this strong  container.&lt;br</li>
 <li> The smell is strong if you dont like that I&#x27;d choose something else.</li>
+<li> It isn&#x27;t too greasy or too strong.</li>
 <li> I love the scent, clean and fresh!</li>
-<li> I remembered she had mentioned how much she liked it.</li>
 <li> I got it for my wife, but enjoy it myself.</li>
+<li> I remembered she had mentioned how much she liked it.</li>
 <li> This is my absolute most favorite lotion ever.</li>
 <li> But it is so worth it!</li>
 <li> so does everyone one else who smells the clean essence</li>
@@ -203,20 +203,20 @@ modifiedAt: Thu Jan 09 2020 19:08:26 GMT+0530 (India Standard Time),
 <li> clean, fresh scent</li>
 <li> Apparently the Amazon deal is pretty good....</li>
 <li> Highly recommended :)</li>
-<li> I would try to catch it when it first becomes available from the seller, as it tends to fluctuate in price quite a bit.</li>
 <li> An absolutely lovely lotion with a soft, unique scent..  </li>
+<li> I would try to catch it when it first becomes available from the seller, as it tends to fluctuate in price quite a bit.</li>
 <li> So happy to find it; not widely available.</li>
-<li> So worth the money..</li>
 <li> Either way it&#x27;s definitely worth the money</li>
+<li> So worth the money..</li>
 <li> For what it&#x27;s worth, she&#x27;s really smart.</li>
 <li> Expensive, but smells and feels awesome.</li>
 <li> I liked the way it made you skin feel too without a sticky feeling like other lotions.</li>
 <li> The scent is amazingly clean, fresh, and light and it&#x27;s one of the few scented products I can use that doesn&#x27;t cause an allergic reaction or an asthma attack.  </li>
 <li> it comes in large bottles.</li>
 <li> I have used this lotion before and love the light feel and delicate smell.&lt;br /&gt;My</li>
-<li> and she really likes it.</li>
-<li> I am keeping the lotion as I really like it.  </li>
 <li> Just wish they would offer a bulk price so that I could buy for the whole family.</li>
+<li> I am keeping the lotion as I really like it.  </li>
+<li> i really like the fragrance of this lotion.</li>
 </ol>
 
 <h2>All Reviews</h2>
@@ -292,6 +292,7 @@ modifiedAt: Thu Jan 09 2020 19:08:26 GMT+0530 (India Standard Time),
     <li> smells amazing, doesnt leave your hands feeling greasy, but also works as great lotion. Keep it at my desk at work, thinking of getting one for home.</li>
     <li> The item was received dented in multiple spots and also was open with lotion spilled all over the place.  Because of the dents I was unable to give the item as a gift as originally planned.</li>
 </ol>
+
 
 
 

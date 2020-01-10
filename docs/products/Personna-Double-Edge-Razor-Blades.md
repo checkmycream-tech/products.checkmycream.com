@@ -3,8 +3,8 @@ title: Personna Double Edge Razor Blades,
 description: Personna Double Edge Razor Blades,
 author: Suvojit Manna,
 tags: Personna Double Edge Razor Blades,
-publishedAt: Thu Jan 09 2020 19:08:36 GMT+0530 (India Standard Time),
-modifiedAt: Thu Jan 09 2020 19:08:36 GMT+0530 (India Standard Time),
+publishedAt: Fri Jan 10 2020 15:00:18 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:18 GMT+0530 (India Standard Time),
 ---
 
 # [Personna Double Edge Razor Blades](https://products.checkmycream.com/products/Personna-Double-Edge-Razor-Blades.html)
@@ -12,211 +12,211 @@ modifiedAt: Thu Jan 09 2020 19:08:36 GMT+0530 (India Standard Time),
 ### Positive Reviews
 
 <ol>
-      <li>/&gt;I&#x27;ve got no complaints on quality, the price is excellent, and it&#x27;s made in the USA.  </li>
-      <li>Excellent made in USA quality.</li>
-      <li>Excellent blade-Need</li>
-      <li>Excellent performance.  </li>
-      <li>From the razors I have tried these are the best.</li>
-      <li>Great razors!</li>
-      <li>These work perfectly.</li>
-      <li>Great buy!</li>
-      <li>Here are the blades I have used ranked from best to worst:&lt;br /&gt;Personna</li>
-      <li>Excellent value for money.</li>
-      <li>Best blades.</li>
-      <li>Great buy!!</li>
-      <li>These personna  blades are excellent.  </li>
-      <li>Best blade value for 100 count on the market.</li>
-      <li>This is the best deal I&#x27;ve gotten all year on anything this year.</li>
-      <li>Excellent blades.</li>
-      <li>C.O. Bigalow awesome stuff.</li>
-      <li>These are some of the best blades that I have ever used.  </li>
-      <li>Wonderful blades.</li>
-      <li>Paired with a Gillette SuperSpeed it is truly the best shave I have had in twenty five years.</li>
-      <li>Excellent blade.</li>
-      <li>They got the job done and are perfect for my needs.  </li>
-      <li>Excellent DE blade.</li>
-      <li>Excellent product!</li>
-      <li>These Personna \\&quot;blues\\&quot; are perfect!</li>
-      <li>But for the cost, their effectiveness on MY face...these blades are an excellent value.  </li>
-      <li>These ones worked perfectly on my face.</li>
-      <li>After 5 months of DE shaving I use them in aggressive razors, with superb results.</li>
-      <li>Personna blades are the perfect combination of speed and comfort.</li>
-      <li>Perfect for my head, did not work well for my face.</li>
-      <li>but hell those are legendary</li>
-      <li>Best shave ever.</li>
-      <li>These razor blades are, in my opinion, some of the best ones out there.&lt;br /&gt;&lt;br</li>
-      <li>I tend to throw it out when it tugs a bit to ensure the best shave every time.</li>
-      <li>I can&#x27;t tell any difference between the two quality-wise (both are excellent) but Personna is cheaper.</li>
-      <li>Best razor I&#x27;ve used</li>
-      <li>These blades are GREAT!</li>
-      <li>ONE OF THE BEST BLADES OUT THERE FOR ME</li>
-      <li>Excellent Shave!</li>
-      <li>Worked out perfectly.  </li>
-      <li>I have been very happy with the result and have no complaints with the razor or blades.  </li>
-      <li>Very happy with razor blades.</li>
-      <li>The product was perfectly packaged, and works well with our Shaveology handle!</li>
-      <li>These are great blades!</li>
-      <li>but I find these give an excellent shave</li>
-      <li>Great blades!!!</li>
-      <li>Great shave!</li>
-      <li>I found the best!</li>
-      <li>At about 13 cents per blade, these are about the best value out there.  </li>
-      <li>These are the best for me.</li>
-      <li>It is PERFECT.</li>
-      <li>Great product and prompt delivery!</li>
-      <li>I get some of the best shaves with these blades.  </li>
-      <li>and I have to say that I am VERY VERY happy with the shaves I&#x27;m getting .</li>
-      <li>Excellent razors.</li>
-      <li>Yes my husband  is very happy with these blades</li>
-      <li>These blades are excellent!</li>
-      <li>Great product!</li>
-      <li>Great price too!  </li>
-      <li>Best value for money for safety razors.</li>
-      <li>5 to 6 shaves from each blade, so they are an excellent value.</li>
-      <li>Great Blades!  </li>
-      <li>Excellent Shave!!</li>
-      <li>Excellent razors.</li>
-      <li>Great value!</li>
-      <li>The best I&#x27;ve tried....</li>
-      <li>Awesome blades at a great price!</li>
-      <li>The price is excellent.</li>
-      <li>Perfect!!</li>
-      <li>These blades are awesome!  </li>
-      <li>Excellent blades!</li>
-      <li>These are the best they made,</li>
-      <li>These are awesome!  </li>
-      <li>Just not the best.</li>
-      <li>These blades give a perfect shave.</li>
-      <li>Excellent blades.</li>
-      <li>Excellent product and seller!</li>
-      <li>These are about perfect</li>
       <li>, it&#x27;s the best, smoothest shave</li>
-      <li>Great value!</li>
-      <li>I am very happy with this and will buy again.</li>
-      <li>would (and do) recommend these blades to anyone wanting a great shave!</li>
-      <li>these Persona blades are just awesome.  </li>
-      <li>Great Price!</li>
-      <li>I would buy this product again … Very pleased!!!</li>
-      <li>They&#x27;re a wonderful value.</li>
-      <li>They give me the best shave out of all the blades I&#x27;ve tried.</li>
-      <li>Did not have best luck with these.</li>
-      <li>Nice!!!</li>
-      <li>Everything about these blades is absolutely awesome</li>
-      <li>I&#x27;m very happy with the Personna blades.  </li>
+      <li>Knew immediately these were the best blades for me, and I&#x27;ve tried them all.</li>
+      <li>That being said these blades work wonderfully for me.</li>
+      <li>Great price too!  </li>
+      <li>Great place to order from!</li>
+      <li>Excellent blades that are perfect for everday use.  </li>
       <li>Very happy that they are still made in the US.</li>
+      <li>Excellent for the price</li>
+      <li>Perfectly sharp,smooth like butter</li>
+      <li>These blades are perfect in my opinion.</li>
+      <li>And the coating is the best I have found  </li>
+      <li>Excellent quality and the price can&#x27;t be beat.</li>
+      <li>The best you can buy.&lt;br /&gt;A</li>
       <li>I switch them out every two or three days to get the best shave out of them.</li>
       <li>I&#x27;m very happy.</li>
+      <li>these blades are excellent.</li>
+      <li>Great product!</li>
+      <li>I am very happy to still find these blades.  </li>
+      <li>Best value that I&#x27;ve seen.</li>
+      <li>Great blade for the price!</li>
+      <li>These blades are great!</li>
+      <li>The product was perfectly packaged, and works well with our Shaveology handle!</li>
+      <li>I&#x27;m really, really happy with these blades!</li>
+      <li>i am very impressed with these.</li>
+      <li>/&gt;I&#x27;ve got no complaints on quality, the price is excellent, and it&#x27;s made in the USA.  </li>
+      <li>Excellent made in USA quality.</li>
+      <li>Excellent price</li>
+      <li>Excellent blade-Need</li>
+      <li>I&#x27;m very happy with the Personna blades.  </li>
+      <li>My husband thinks the blades are excellent.  </li>
+      <li>Apart from that, these are the best blades that I have found out of about 10 brands that I have used.</li>
+      <li>Best part they are made in the USA.</li>
+      <li>Excellent price, quality product.</li>
+      <li>These personas are the best ones</li>
+      <li>Great for the price!</li>
+      <li>Not the best shave</li>
+      <li>It was that impressive.</li>
+      <li>EXCELLENT BLADES --GIVE</li>
+      <li>These blades are excellent!</li>
+      <li>Everything about these blades is absolutely awesome</li>
+      <li>Excellent shave.</li>
+      <li>Very happy with razor blades.</li>
+      <li>Nice!!!</li>
+      <li>Yes my husband  is very happy with these blades</li>
+      <li>Best part is that they are made in America.  </li>
+      <li>Excellent shave with these.</li>
+      <li>I&#x27;m still in the search for the perfect blade.  </li>
+      <li>This is the best all around blade I&#x27;ve tried.</li>
+      <li>Excellent performance.  </li>
+      <li>I can speak for myself, however, and say that these are probably the best razors I have ever used.</li>
+      <li>very good deal!!!!</li>
+      <li>Perfect!!</li>
+      <li>From the razors I have tried these are the best.</li>
+      <li>Price was excellent.</li>
+      <li>Did not have best luck with these.</li>
+      <li>These are great blades!</li>
+      <li>The best blades I&#x27;ve used!!!!</li>
+      <li>Great razors!</li>
+      <li>These work perfectly.</li>
+      <li>Not the Best quality Blade</li>
+      <li>Great buy!</li>
+      <li>I have been very happy with the result and have no complaints with the razor or blades.  </li>
+      <li>Here are the blades I have used ranked from best to worst:&lt;br /&gt;Personna</li>
       <li>Feather is still the best blade in my opinion but for the price and sharpness</li>
+      <li>these are great!  </li>
+      <li>Excellent shave.</li>
+      <li>Excellent value for money.</li>
+      <li>Best shave I&#x27;ve had with my double-sided safety razor.</li>
       <li>they are the best for value.</li>
+      <li>These are some of the best razor blades I&#x27;ve ever used.  </li>
       <li>I think they are one of the best blades on the market.</li>
+      <li>Best value for money for safety razors.</li>
+      <li>Best blades.</li>
+      <li>They give me the best shave out of all the blades I&#x27;ve tried.</li>
+      <li>These are your best bargain for the price.</li>
+      <li>5 to 6 shaves from each blade, so they are an excellent value.</li>
+      <li>Great product !  </li>
+      <li>My husband is very happy with the blades.</li>
+      <li>I believe that every razor has a blade that works the best in it and on your face and whiskers.</li>
+      <li>Great buy!!</li>
+      <li>These personna  blades are excellent.  </li>
+      <li>I was reasonably impressed with the Personna blades.  </li>
+      <li>and if I&#x27;m impressed I&#x27;ll update the review to a 5.</li>
+      <li>An excellent value.  </li>
+      <li>Excellent razors.</li>
+      <li>Best blades for shaving!</li>
+      <li>Best blade value for 100 count on the market.</li>
+      <li>These are awesome blades.</li>
+      <li>Excellent blades.</li>
+      <li>This is the best deal I&#x27;ve gotten all year on anything this year.</li>
+      <li>I&#x27;m duely impressed.</li>
+      <li>Awesome blades for the price!</li>
+      <li>Excellent blades.</li>
+      <li>I got an Altoids Mini tin, works perfect.</li>
+      <li>They&#x27;re a wonderful value.</li>
       <li>Wonderful price too.</li>
-      <li>These are excellent blades.  </li>
-      <li>I am very impressed with these</li>
+      <li>thank you Amazon and persona for the perfect shave.</li>
+      <li>I would buy this product again … Very pleased!!!</li>
+      <li>Great razor blades!</li>
+      <li>These Personna blades are wonderful!</li>
 </ol>
 
 
 <h2>Negative Reviews</h2>
 <ol>
-<li> /&gt;I&#x27;ve got no complaints on quality, the price is excellent, and it&#x27;s made in the USA.  </li>
-<li> Excellent made in USA quality.</li>
-<li> Excellent blade-Need</li>
-<li> Excellent performance.  </li>
-<li> From the razors I have tried these are the best.</li>
-<li> Great razors!</li>
-<li> These work perfectly.</li>
-<li> Great buy!</li>
-<li> Here are the blades I have used ranked from best to worst:&lt;br /&gt;Personna</li>
-<li> Excellent value for money.</li>
-<li> Best blades.</li>
-<li> Great buy!!</li>
-<li> These personna  blades are excellent.  </li>
-<li> Best blade value for 100 count on the market.</li>
-<li> This is the best deal I&#x27;ve gotten all year on anything this year.</li>
-<li> Excellent blades.</li>
-<li> C.O. Bigalow awesome stuff.</li>
-<li> These are some of the best blades that I have ever used.  </li>
-<li> Wonderful blades.</li>
-<li> Paired with a Gillette SuperSpeed it is truly the best shave I have had in twenty five years.</li>
-<li> Excellent blade.</li>
-<li> They got the job done and are perfect for my needs.  </li>
-<li> Excellent DE blade.</li>
-<li> Excellent product!</li>
-<li> These Personna \\&quot;blues\\&quot; are perfect!</li>
-<li> But for the cost, their effectiveness on MY face...these blades are an excellent value.  </li>
-<li> These ones worked perfectly on my face.</li>
-<li> After 5 months of DE shaving I use them in aggressive razors, with superb results.</li>
-<li> Personna blades are the perfect combination of speed and comfort.</li>
-<li> Perfect for my head, did not work well for my face.</li>
-<li> but hell those are legendary</li>
-<li> Best shave ever.</li>
-<li> These razor blades are, in my opinion, some of the best ones out there.&lt;br /&gt;&lt;br</li>
-<li> I tend to throw it out when it tugs a bit to ensure the best shave every time.</li>
-<li> I can&#x27;t tell any difference between the two quality-wise (both are excellent) but Personna is cheaper.</li>
-<li> Best razor I&#x27;ve used</li>
-<li> These blades are GREAT!</li>
-<li> ONE OF THE BEST BLADES OUT THERE FOR ME</li>
-<li> Excellent Shave!</li>
-<li> Worked out perfectly.  </li>
-<li> I have been very happy with the result and have no complaints with the razor or blades.  </li>
-<li> Very happy with razor blades.</li>
-<li> The product was perfectly packaged, and works well with our Shaveology handle!</li>
-<li> These are great blades!</li>
-<li> but I find these give an excellent shave</li>
-<li> Great blades!!!</li>
-<li> Great shave!</li>
-<li> I found the best!</li>
-<li> At about 13 cents per blade, these are about the best value out there.  </li>
-<li> These are the best for me.</li>
-<li> It is PERFECT.</li>
-<li> Great product and prompt delivery!</li>
-<li> I get some of the best shaves with these blades.  </li>
-<li> and I have to say that I am VERY VERY happy with the shaves I&#x27;m getting .</li>
-<li> Excellent razors.</li>
-<li> Yes my husband  is very happy with these blades</li>
-<li> These blades are excellent!</li>
-<li> Great product!</li>
-<li> Great price too!  </li>
-<li> Best value for money for safety razors.</li>
-<li> 5 to 6 shaves from each blade, so they are an excellent value.</li>
-<li> Great Blades!  </li>
-<li> Excellent Shave!!</li>
-<li> Excellent razors.</li>
-<li> Great value!</li>
-<li> The best I&#x27;ve tried....</li>
-<li> Awesome blades at a great price!</li>
-<li> The price is excellent.</li>
-<li> Perfect!!</li>
-<li> These blades are awesome!  </li>
-<li> Excellent blades!</li>
-<li> These are the best they made,</li>
-<li> These are awesome!  </li>
-<li> Just not the best.</li>
-<li> These blades give a perfect shave.</li>
-<li> Excellent blades.</li>
-<li> Excellent product and seller!</li>
-<li> These are about perfect</li>
 <li> , it&#x27;s the best, smoothest shave</li>
-<li> Great value!</li>
-<li> I am very happy with this and will buy again.</li>
-<li> would (and do) recommend these blades to anyone wanting a great shave!</li>
-<li> these Persona blades are just awesome.  </li>
-<li> Great Price!</li>
-<li> I would buy this product again … Very pleased!!!</li>
-<li> They&#x27;re a wonderful value.</li>
-<li> They give me the best shave out of all the blades I&#x27;ve tried.</li>
-<li> Did not have best luck with these.</li>
-<li> Nice!!!</li>
-<li> Everything about these blades is absolutely awesome</li>
-<li> I&#x27;m very happy with the Personna blades.  </li>
+<li> Knew immediately these were the best blades for me, and I&#x27;ve tried them all.</li>
+<li> That being said these blades work wonderfully for me.</li>
+<li> Great price too!  </li>
+<li> Great place to order from!</li>
+<li> Excellent blades that are perfect for everday use.  </li>
 <li> Very happy that they are still made in the US.</li>
+<li> Excellent for the price</li>
+<li> Perfectly sharp,smooth like butter</li>
+<li> These blades are perfect in my opinion.</li>
+<li> And the coating is the best I have found  </li>
+<li> Excellent quality and the price can&#x27;t be beat.</li>
+<li> The best you can buy.&lt;br /&gt;A</li>
 <li> I switch them out every two or three days to get the best shave out of them.</li>
 <li> I&#x27;m very happy.</li>
+<li> these blades are excellent.</li>
+<li> Great product!</li>
+<li> I am very happy to still find these blades.  </li>
+<li> Best value that I&#x27;ve seen.</li>
+<li> Great blade for the price!</li>
+<li> These blades are great!</li>
+<li> The product was perfectly packaged, and works well with our Shaveology handle!</li>
+<li> I&#x27;m really, really happy with these blades!</li>
+<li> i am very impressed with these.</li>
+<li> /&gt;I&#x27;ve got no complaints on quality, the price is excellent, and it&#x27;s made in the USA.  </li>
+<li> Excellent made in USA quality.</li>
+<li> Excellent price</li>
+<li> Excellent blade-Need</li>
+<li> I&#x27;m very happy with the Personna blades.  </li>
+<li> My husband thinks the blades are excellent.  </li>
+<li> Apart from that, these are the best blades that I have found out of about 10 brands that I have used.</li>
+<li> Best part they are made in the USA.</li>
+<li> Excellent price, quality product.</li>
+<li> These personas are the best ones</li>
+<li> Great for the price!</li>
+<li> Not the best shave</li>
+<li> It was that impressive.</li>
+<li> EXCELLENT BLADES --GIVE</li>
+<li> These blades are excellent!</li>
+<li> Everything about these blades is absolutely awesome</li>
+<li> Excellent shave.</li>
+<li> Very happy with razor blades.</li>
+<li> Nice!!!</li>
+<li> Yes my husband  is very happy with these blades</li>
+<li> Best part is that they are made in America.  </li>
+<li> Excellent shave with these.</li>
+<li> I&#x27;m still in the search for the perfect blade.  </li>
+<li> This is the best all around blade I&#x27;ve tried.</li>
+<li> Excellent performance.  </li>
+<li> I can speak for myself, however, and say that these are probably the best razors I have ever used.</li>
+<li> very good deal!!!!</li>
+<li> Perfect!!</li>
+<li> From the razors I have tried these are the best.</li>
+<li> Price was excellent.</li>
+<li> Did not have best luck with these.</li>
+<li> These are great blades!</li>
+<li> The best blades I&#x27;ve used!!!!</li>
+<li> Great razors!</li>
+<li> These work perfectly.</li>
+<li> Not the Best quality Blade</li>
+<li> Great buy!</li>
+<li> I have been very happy with the result and have no complaints with the razor or blades.  </li>
+<li> Here are the blades I have used ranked from best to worst:&lt;br /&gt;Personna</li>
 <li> Feather is still the best blade in my opinion but for the price and sharpness</li>
+<li> these are great!  </li>
+<li> Excellent shave.</li>
+<li> Excellent value for money.</li>
+<li> Best shave I&#x27;ve had with my double-sided safety razor.</li>
 <li> they are the best for value.</li>
+<li> These are some of the best razor blades I&#x27;ve ever used.  </li>
 <li> I think they are one of the best blades on the market.</li>
+<li> Best value for money for safety razors.</li>
+<li> Best blades.</li>
+<li> They give me the best shave out of all the blades I&#x27;ve tried.</li>
+<li> These are your best bargain for the price.</li>
+<li> 5 to 6 shaves from each blade, so they are an excellent value.</li>
+<li> Great product !  </li>
+<li> My husband is very happy with the blades.</li>
+<li> I believe that every razor has a blade that works the best in it and on your face and whiskers.</li>
+<li> Great buy!!</li>
+<li> These personna  blades are excellent.  </li>
+<li> I was reasonably impressed with the Personna blades.  </li>
+<li> and if I&#x27;m impressed I&#x27;ll update the review to a 5.</li>
+<li> An excellent value.  </li>
+<li> Excellent razors.</li>
+<li> Best blades for shaving!</li>
+<li> Best blade value for 100 count on the market.</li>
+<li> These are awesome blades.</li>
+<li> Excellent blades.</li>
+<li> This is the best deal I&#x27;ve gotten all year on anything this year.</li>
+<li> I&#x27;m duely impressed.</li>
+<li> Awesome blades for the price!</li>
+<li> Excellent blades.</li>
+<li> I got an Altoids Mini tin, works perfect.</li>
+<li> They&#x27;re a wonderful value.</li>
 <li> Wonderful price too.</li>
-<li> These are excellent blades.  </li>
-<li> I am very impressed with these</li>
+<li> thank you Amazon and persona for the perfect shave.</li>
+<li> I would buy this product again … Very pleased!!!</li>
+<li> Great razor blades!</li>
+<li> These Personna blades are wonderful!</li>
 </ol>
 
 <h2>All Reviews</h2>
@@ -1907,6 +1907,7 @@ modifiedAt: Thu Jan 09 2020 19:08:36 GMT+0530 (India Standard Time),
     <li> I get about 3 good shaves off of each blade. I am saving soooooooo much money my using this method of shaving.</li>
     <li> Great safety blades. Sharp, reasonably priced and made in the USA.</li>
 </ol>
+
 
 
 

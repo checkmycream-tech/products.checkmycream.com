@@ -1,0 +1,98 @@
+---
+title: Redken Control Addict 28 - High Control, Strong Hairspray 11 Oz (New Packaging!),
+description: Redken Control Addict 28 - High Control, Strong Hairspray 11 Oz (New Packaging!),
+author: Suvojit Manna,
+tags: Redken Control Addict 28 - High Control, Strong Hairspray 11 Oz (New Packaging!),
+publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
+---
+
+# [Redken Control Addict 28 - High Control, Strong Hairspray 11 Oz (New Packaging!)](https://products.checkmycream.com/products/Redken-Control-Addict-28-High-Control-Strong-Hairspray-11-Oz-(New-Packaging!).html)
+
+### Positive Reviews
+
+<ol>
+      <li>This is the best hairspray ever!!</li>
+      <li>One of the best on the markets</li>
+      <li>My best friend&#x27;s favorite !</li>
+      <li>It seems to make her happy</li>
+      <li>Works great</li>
+      <li>Good value....nice product</li>
+      <li>What&#x27;s not to love?!?</li>
+      <li>Love it!</li>
+      <li>Love the price!</li>
+      <li>Holds great for my baby fine hair.</li>
+      <li>The hairspray is great for fine hair.</li>
+      <li>Love love love it!</li>
+      <li>This one is MUCH better.</li>
+      <li>Love free shipping with Prime!</li>
+      <li>This is my favorite hairspray.  </li>
+      <li>Love the strong hold.</li>
+      <li>Other than that, everything is great.</li>
+      <li>This is my favorite high control Redken hairspray.</li>
+      <li>Great hairspray, but don&#x27;t use too much or there may be build up, so a little goes a long way &amp; the price is so much better than an &amp;#34;in-store&amp;#34; purchase</li>
+      <li>The one I got from Amazon was in a silver can, and I wonder if it&#x27;s the older version.  </li>
+      <li>I received the old can (silver/grey).</li>
+      <li>The ingredients and wording on the can are exactly the same, and it works and smells the same, so I&#x27;m keeping it.</li>
+      <li>I got the silver edition (which is a complete different type of hairspray)</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> This is the best hairspray ever!!</li>
+<li> One of the best on the markets</li>
+<li> My best friend&#x27;s favorite !</li>
+<li> It seems to make her happy</li>
+<li> Works great</li>
+<li> Good value....nice product</li>
+<li> What&#x27;s not to love?!?</li>
+<li> Love it!</li>
+<li> Love the price!</li>
+<li> Holds great for my baby fine hair.</li>
+<li> The hairspray is great for fine hair.</li>
+<li> Love love love it!</li>
+<li> This one is MUCH better.</li>
+<li> Love free shipping with Prime!</li>
+<li> This is my favorite hairspray.  </li>
+<li> Love the strong hold.</li>
+<li> Other than that, everything is great.</li>
+<li> This is my favorite high control Redken hairspray.</li>
+<li> Great hairspray, but don&#x27;t use too much or there may be build up, so a little goes a long way &amp; the price is so much better than an &amp;#34;in-store&amp;#34; purchase</li>
+<li> The one I got from Amazon was in a silver can, and I wonder if it&#x27;s the older version.  </li>
+<li> I received the old can (silver/grey).</li>
+<li> The ingredients and wording on the can are exactly the same, and it works and smells the same, so I&#x27;m keeping it.</li>
+<li> I got the silver edition (which is a complete different type of hairspray)</li>
+<li> The picture of the product shows the new can (black), but that is not what I received.</li>
+<li> The same hairspray from Ulta is in a black can, and  I checked the Redken website, and their current can is also black.  </li>
+<li> Wife loves it for its extra firm hold.  </li>
+<li> Expensive but worth it.  </li>
+<li> It said it was the black edition, however when it arrived</li>
+<li> I have really thick hair and the spray</li>
+<li> Very slow too</li>
+<li> I tried 23 and hated it!</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> Not same can as pictured</li>
+    <li> Expensive but worth it.  Holds all day.</li>
+    <li> Works great my go to hairspray!</li>
+    <li> Wife loves it for its extra firm hold.  Whatever.  It seems to make her happy so there you go.</li>
+    <li> Great hairspray, but don&#x27;t use too much or there may be build up, so a little goes a long way &amp; the price is so much better than an &amp;#34;in-store&amp;#34; purchase</li>
+    <li> I will never change hairsprays after finding this one!  I have really thick hair and the spray holds my hair all day - even in the wind! Love love love it!</li>
+    <li> The hairspray is great for fine hair.</li>
+    <li> Good value....nice product</li>
+    <li> This is my favorite high control Redken hairspray. I tried 23 and hated it! This one is MUCH better. Longer hold without getting &amp;#34;crispy&amp;#34;.</li>
+    <li> It said it was the black edition, however when it arrived I got the silver edition (which is a complete different type of hairspray) Very slow too (I have premium and it was supposed to arrive 2 days after I bought it however it took a week or so).</li>
+    <li> My best friend&#x27;s favorite !</li>
+    <li> This is my favorite hairspray.  The one I got from Amazon was in a silver can, and I wonder if it&#x27;s the older version.  The same hairspray from Ulta is in a black can, and  I checked the Redken website, and their current can is also black.  The ingredients and wording on the can are exactly the same, and it works and smells the same, so I&#x27;m keeping it. Holds great for my baby fine hair.</li>
+    <li> Love the strong hold. One of the best on the markets</li>
+    <li> This is the best hairspray ever!! The picture of the product shows the new can (black), but that is not what I received. I received the old can (silver/grey). Other than that, everything is great.</li>
+    <li> Love it! Love the price! Love free shipping with Prime! What&#x27;s not to love?!?</li>
+</ol>
+
+
+
+

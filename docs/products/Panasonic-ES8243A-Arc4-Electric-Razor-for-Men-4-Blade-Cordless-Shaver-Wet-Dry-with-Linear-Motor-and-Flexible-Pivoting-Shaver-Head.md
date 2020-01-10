@@ -3,8 +3,8 @@ title: Panasonic ES8243A Arc4 Electric Razor for Men, 4-Blade Cordless Shaver, W
 description: Panasonic ES8243A Arc4 Electric Razor for Men, 4-Blade Cordless Shaver, Wet-Dry with Linear Motor and Flexible Pivoting Shaver Head,
 author: Suvojit Manna,
 tags: Panasonic ES8243A Arc4 Electric Razor for Men, 4-Blade Cordless Shaver, Wet-Dry with Linear Motor and Flexible Pivoting Shaver Head,
-publishedAt: Thu Jan 09 2020 19:08:25 GMT+0530 (India Standard Time),
-modifiedAt: Thu Jan 09 2020 19:08:25 GMT+0530 (India Standard Time),
+publishedAt: Fri Jan 10 2020 14:59:26 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:59:26 GMT+0530 (India Standard Time),
 ---
 
 # [Panasonic ES8243A Arc4 Electric Razor for Men, 4-Blade Cordless Shaver, Wet-Dry with Linear Motor and Flexible Pivoting Shaver Head](https://products.checkmycream.com/products/Panasonic-ES8243A-Arc4-Electric-Razor-for-Men-4-Blade-Cordless-Shaver-Wet-Dry-with-Linear-Motor-and-Flexible-Pivoting-Shaver-Head.html)
@@ -12,211 +12,211 @@ modifiedAt: Thu Jan 09 2020 19:08:25 GMT+0530 (India Standard Time),
 ### Positive Reviews
 
 <ol>
+      <li>Therefore, I&#x27;m reducing the rating to  4 1/2 stars for an othrewise superb shaver.</li>
+      <li>I&#x27;ve been through all the brands searching for the perfect electric shaver.</li>
+      <li>What a great deal!</li>
+      <li>This is the BEST I&#x27;ve ever used.</li>
       <li>The trimmer is excellent and use it to trim stray hairs wherever I need it.  </li>
+      <li>The best shaver I have ever used.</li>
+      <li>Best electric shave</li>
+      <li>Best razor I&#x27;ve ever owned.</li>
       <li>This is the best razor I have ever purchased.</li>
+      <li>and it is the best shaver</li>
+      <li>THIS PRODUCT WAS ALL IT CLAIMED TO BE AND MORE !!!!!!!!!!!</li>
+      <li>The best shaver I ever bought.</li>
       <li>Best there is.</li>
+      <li>Everythings is perfect</li>
+      <li>The Panasonic ES8243A Men&#x27;s 4-Blade (Arc 4) is an excellent electric shaver.</li>
+      <li>Best shaver I ever tried.</li>
       <li>For now, it&#x27;s awesome.</li>
-      <li>I was immediately impressed with the power of this thing.  </li>
-      <li>Thought this would be an awesome shaver after reading all the reviews.  </li>
-      <li>The Panasonic ES8243A is the best shaver I have ever used!!!  </li>
-      <li>This is the best and closest shaver I have ever bought.  </li>
-      <li>Wonderful shave and battery lasts weeks without charging.</li>
-      <li>I am very happy with the performance of the razor.  </li>
-      <li>Not quite the perfect shave</li>
-      <li>/&gt;I&#x27;ve been very happy with this razor and my father now owns one after I told him about my experience.</li>
-      <li>However, I am so impressed w/</li>
-      <li>I&#x27;m very happy with this purchase.</li>
-      <li>If you buy the Panasonic ES8243A razor, I hope you have as delightful a shaving experience</li>
-      <li>If you buy the Panasonic ES8243A razor, I hope you have as delightful a shaving experience as I did!</li>
-      <li>I received the best shave I ever received from an electric shaver.  </li>
-      <li>The shaver is, without a doubt, the best one I have ever owned.</li>
-      <li>that said, I still think it&#x27;s the best you can get in the price range.</li>
-      <li>that said, I still think it&#x27;s the best you can get in the price range.</li>
-      <li>always made me feel like I was sticking my face in a blender or at best rubbing my cheeks against an electric sander...</li>
-      <li>This is a neat feature for guys like me who are always trying to beat their best time...</li>
-      <li>&quot; my face for a while each morning -- feels great!</li>
-      <li>My wife is also impressed (trust me..</li>
-      <li>What a great shave!</li>
-      <li>This is the best electricI shaver I have owned.</li>
-      <li>This is one of the best electric razors I have ever had.</li>
-      <li>I got this model because it was the best price to quality ratio.</li>
-      <li>Its an awesome shaver.</li>
-      <li>This was a great purchase!  </li>
-      <li>and I must say that I&#x27;m very happy I did!  </li>
-      <li>and I am very happy I did.  </li>
-      <li>Fits the hand perfectly.</li>
-      <li>Best electric for the money.</li>
-      <li>Great!   </li>
-      <li>Btw, Panasonic must have the best shaver design division on the planet -- all their hair removal products, from epilator</li>
-      <li>This is the best.</li>
-      <li>Works great!!</li>
-      <li>This is the best shaver I have ever used.  </li>
-      <li>Great reliable shaver for the money!</li>
-      <li>I am very happy with my purchase.</li>
-      <li>, it&#x27;s an excellent buy.</li>
-      <li>I am very impressed with the lack of irritation and the closeness of the shave, the closest I have ever gotten from an electric.  </li>
-      <li>I am very happy I purchased the Panasonic ES8243A</li>
-      <li>I will have to say that I was impressed from the start, but I do have some recomendations though.</li>
-      <li>/&gt;For years Panasonic has made the best shavers I have found.</li>
-      <li>I paid $104 for it on Amazon, and  I bought it because one of the reviews I read claimed it to be the best value for the dollar, and I was not about to spend $250 on a shaver (Braun).</li>
-      <li>I have been very happy with my purchase.</li>
-      <li>Best feature is the waterproofness for wet-shaving and for cleaning.</li>
-      <li>Have owned this for about a month and this is the best shaver I have ever owned.  </li>
-      <li>/&gt;I&#x27;m impressed with the linear motor.  </li>
-      <li>I had a Braun shaver before this Panasonic - this thing is great!  </li>
-      <li>I can say this is the best shaver I have ever owned.</li>
-      <li>This shaver is great!</li>
-      <li>But Belief me if I say it is the best shaver i ever had.  </li>
-      <li>Great product!</li>
-      <li>The Panasonic ES8243A Arc IV is the best razor I have ever owned.  </li>
-      <li>None of them were very impressive</li>
-      <li>I have to say that this is the best shaver I have ever owned.</li>
-      <li>If you&#x27;ve tried it and weren&#x27;t impressed then the Panny might be what you&#x27;re looking for.</li>
-      <li>All around it is probably   the best electric shaver I have ever had.  </li>
-      <li>If you want the best shave use a razor.</li>
-      <li>I am very happy with this product.  </li>
-      <li>I am very happy with Panasonic&#x27;s service and products.  </li>
-      <li>The BEST RAZOR to date I have owned!</li>
-      <li>Great Product!</li>
-      <li>Best trimmer</li>
-      <li>The best shave out of all the electric razors I have used.</li>
-      <li>This shaver is excellent.</li>
-      <li>Excellent, panasonic rules</li>
-      <li>2013 still runs great!</li>
-      <li>This is the best shaver I have owned.</li>
-      <li>I bought this product for my husband for Christmas and he said it has been the best razor he has ever had.  </li>
-      <li>and this is the best one.</li>
-      <li>Charging, operation, and the displays work perfectly.</li>
-      <li>and I&#x27;m impressed with technology&#x27;s progress.</li>
-      <li>This is the best shaver I have ever owned.</li>
-      <li>This is the best shaver I have ever owned.</li>
-      <li>This is a wonderful electric shaver.</li>
-      <li>- it shaves great!</li>
-      <li>I was so impressed by it that I thought that I must spread the word........</li>
-      <li>Incredible product!</li>
-      <li>Best of all, it delights my wife.</li>
-      <li>I am very happy with my purchase.</li>
-      <li>Says it&#x27;s the best shave he ever had.</li>
-      <li>Is best electric shaver I have ever used.  </li>
-      <li>Best electric razor I have ever owned.</li>
-      <li>One thing remains, Panasonic makes the best shavers I ever tried.</li>
-      <li>But this Panasonic ES8243A Arc IV gives the best shave I have ever had.</li>
-      <li>and then we were NOT so impressed.  </li>
-      <li>THIS IS THE BEST SHAVE I&#x27;VE</li>
-      <li>This electric shaver is awesome.  </li>
-      <li>best electric razor I have ever used.</li>
-      <li>I&#x27;ve been suffering with a rotary(S) for 40+ years and this is perfect.  </li>
-      <li>Excellent quality, excellent size and excellent performance.</li>
-      <li>Excellent product.</li>
-      <li>Great razor!  </li>
-      <li>Been using electrics for 40 years and this is the best I&#x27;ve ever had.  </li>
-      <li>everybody else is happy with this product for me it is !!!!!!!!!</li>
       <li>Amazon did have the best price I could find.</li>
+      <li>best razor</li>
+      <li>I can say this is the best shaver I have ever owned.</li>
+      <li>This one is the best.</li>
+      <li>If I never picked up another blade the ARC 4 ES 8243A does a great job!</li>
+      <li>I was immediately impressed with the power of this thing.  </li>
+      <li>This is probably the best shaver I&#x27;ve ever had.  </li>
+      <li>/&gt;overall a great buy!</li>
+      <li>The Panasonic is the best.  </li>
+      <li>Because, the hair has to get inside the holes in order for the shaver to cut it, and the best way to get it there is when it is short.&lt;br /&gt;I</li>
+      <li>He tried lots of razors and this is the best.</li>
+      <li>Best shaver I have had yet.</li>
+      <li>This is the best shaver I ever had</li>
+      <li>Superb!</li>
+      <li>It is STILL the best shaver I&#x27;ve ever owned.  </li>
+      <li>Great shaver!</li>
+      <li>Panasonic ES8243 is THE BEST ever shaver introduced!</li>
+      <li>The best razors I have owned for this was an inexpensive ($40)</li>
+      <li>Researched all the reviews and this one looked the best.  </li>
+      <li>but this is the best backup I&#x27;ve ever used.</li>
+      <li>This is the best razor that I have shaved with.  </li>
+      <li>I recommend it wholeheartedly to anyone who appreciates great electric shavers!</li>
+      <li>This is the best electric razor I have ever used.</li>
+      <li>I ended up a very happy user.  </li>
+      <li>Excellent shaver.  </li>
+      <li>I must say I was very impressed with the closeness of my shave.  </li>
+      <li>This is the best electric razor I have owned and I feel it is a bargain for about $100</li>
+      <li>it&#x27;s a great shaver!!</li>
+      <li>Very happy with this purchase.</li>
+      <li>This seems to be an excellent shaver for me.  </li>
+      <li>I found the best deals to be had, was on Amazon...</li>
+      <li>Best shave ever.</li>
+      <li>An excellent value for the price.</li>
+      <li>Thought this would be an awesome shaver after reading all the reviews.  </li>
+      <li>Great!</li>
+      <li>I&#x27;m very very happy with this razor.</li>
+      <li>Best of luck to you.</li>
+      <li>it&#x27;s excellent</li>
+      <li>I am really impressed with the quality of the shave this provides.</li>
+      <li>I have always use panasonic shaver because they deliver the best shave.</li>
+      <li>Without  a doubt the best electric shaver I have used.  </li>
+      <li>My wife was also very impressed with the closeness of the shave.</li>
+      <li>Great shaver!</li>
+      <li>I have had this razor now for four months and man am I impressed.</li>
+      <li>To me it is the best shave ever.</li>
+      <li>So, I took it home and am very impressed with it.  </li>
+      <li>I find these Panasonic shavers to be the best either of us has  used, including Braun and Norelco.    </li>
+      <li>For years I&#x27;ve searched for the perfect electric shaver.  </li>
+      <li>It recharges perfectly and he gets a close shave.</li>
+      <li>Best I have ever used.  </li>
+      <li>This thing is awesome.  </li>
+      <li>Takes a week or two for your skin to adjust, but when it does this thing is awesome.</li>
+      <li>This shaver is great!</li>
+      <li>I&#x27;ve also googled best electric razor and this panasonic appears on every list as best in value.</li>
+      <li>I feel this is the very best electric shaver value around.  </li>
+      <li>Excellent razor.</li>
+      <li>This has to be the best I have tried.      </li>
+      <li>I was impressed with features of this Panasonic shaver and decided to give it a try.    </li>
+      <li>It is working excellently.</li>
+      <li>But Belief me if I say it is the best shaver i ever had.  </li>
+      <li>Use with Edge shave cream for best results.  </li>
+      <li>I waited a while to review this, it has turned out to be one of the best shavers I have ever owned.</li>
+      <li>This Panasonic is the best one yet.  </li>
+      <li>Excellent!</li>
+      <li>The manual does state that the battery is lithium-ion, which is awesome.</li>
+      <li>This is the best alternative for guys (Like me) who have bald heads.</li>
+      <li>The Panasonic ES8243A is the best shaver I have ever used!!!  </li>
+      <li>Im writing this review because reviews of this product was the deciding factor during my quest to find the best electric shaver.</li>
+      <li>Great product!</li>
+      <li>It is the best shaver that I have ever had.  </li>
+      <li>One of the best deals I&#x27;ve ever gotten.</li>
+      <li>Very happy with it.</li>
+      <li>Feels great to find something that works as described!!</li>
+      <li>My husband says this is the best one he&#x27;s ever had.</li>
+      <li>Very happy with this product.</li>
+      <li>This is the best and closest shaver I have ever bought.  </li>
+      <li>Perfect shaving, but is time consuming</li>
+      <li>This is , without any doubt,  the best electric razor I&#x27;ve ever used.  </li>
+      <li>everybody else is happy with this product for me it is !!!!!!!!!</li>
+      <li>Very impressed.  </li>
+      <li>This really is an impressive razor.</li>
+      <li>This is a marvelous shave!!</li>
+      <li>/&gt;This is the best shaving experience I have had in 25 years.</li>
 </ol>
 
 
 <h2>Negative Reviews</h2>
 <ol>
+<li> Therefore, I&#x27;m reducing the rating to  4 1/2 stars for an othrewise superb shaver.</li>
+<li> I&#x27;ve been through all the brands searching for the perfect electric shaver.</li>
+<li> What a great deal!</li>
+<li> This is the BEST I&#x27;ve ever used.</li>
 <li> The trimmer is excellent and use it to trim stray hairs wherever I need it.  </li>
+<li> The best shaver I have ever used.</li>
+<li> Best electric shave</li>
+<li> Best razor I&#x27;ve ever owned.</li>
 <li> This is the best razor I have ever purchased.</li>
+<li> and it is the best shaver</li>
+<li> THIS PRODUCT WAS ALL IT CLAIMED TO BE AND MORE !!!!!!!!!!!</li>
+<li> The best shaver I ever bought.</li>
 <li> Best there is.</li>
+<li> Everythings is perfect</li>
+<li> The Panasonic ES8243A Men&#x27;s 4-Blade (Arc 4) is an excellent electric shaver.</li>
+<li> Best shaver I ever tried.</li>
 <li> For now, it&#x27;s awesome.</li>
-<li> I was immediately impressed with the power of this thing.  </li>
-<li> Thought this would be an awesome shaver after reading all the reviews.  </li>
-<li> The Panasonic ES8243A is the best shaver I have ever used!!!  </li>
-<li> This is the best and closest shaver I have ever bought.  </li>
-<li> Wonderful shave and battery lasts weeks without charging.</li>
-<li> I am very happy with the performance of the razor.  </li>
-<li> Not quite the perfect shave</li>
-<li> /&gt;I&#x27;ve been very happy with this razor and my father now owns one after I told him about my experience.</li>
-<li> However, I am so impressed w/</li>
-<li> I&#x27;m very happy with this purchase.</li>
-<li> If you buy the Panasonic ES8243A razor, I hope you have as delightful a shaving experience</li>
-<li> If you buy the Panasonic ES8243A razor, I hope you have as delightful a shaving experience as I did!</li>
-<li> I received the best shave I ever received from an electric shaver.  </li>
-<li> The shaver is, without a doubt, the best one I have ever owned.</li>
-<li> that said, I still think it&#x27;s the best you can get in the price range.</li>
-<li> that said, I still think it&#x27;s the best you can get in the price range.</li>
-<li> always made me feel like I was sticking my face in a blender or at best rubbing my cheeks against an electric sander...</li>
-<li> This is a neat feature for guys like me who are always trying to beat their best time...</li>
-<li> &quot; my face for a while each morning -- feels great!</li>
-<li> My wife is also impressed (trust me..</li>
-<li> What a great shave!</li>
-<li> This is the best electricI shaver I have owned.</li>
-<li> This is one of the best electric razors I have ever had.</li>
-<li> I got this model because it was the best price to quality ratio.</li>
-<li> Its an awesome shaver.</li>
-<li> This was a great purchase!  </li>
-<li> and I must say that I&#x27;m very happy I did!  </li>
-<li> and I am very happy I did.  </li>
-<li> Fits the hand perfectly.</li>
-<li> Best electric for the money.</li>
-<li> Great!   </li>
-<li> Btw, Panasonic must have the best shaver design division on the planet -- all their hair removal products, from epilator</li>
-<li> This is the best.</li>
-<li> Works great!!</li>
-<li> This is the best shaver I have ever used.  </li>
-<li> Great reliable shaver for the money!</li>
-<li> I am very happy with my purchase.</li>
-<li> , it&#x27;s an excellent buy.</li>
-<li> I am very impressed with the lack of irritation and the closeness of the shave, the closest I have ever gotten from an electric.  </li>
-<li> I am very happy I purchased the Panasonic ES8243A</li>
-<li> I will have to say that I was impressed from the start, but I do have some recomendations though.</li>
-<li> /&gt;For years Panasonic has made the best shavers I have found.</li>
-<li> I paid $104 for it on Amazon, and  I bought it because one of the reviews I read claimed it to be the best value for the dollar, and I was not about to spend $250 on a shaver (Braun).</li>
-<li> I have been very happy with my purchase.</li>
-<li> Best feature is the waterproofness for wet-shaving and for cleaning.</li>
-<li> Have owned this for about a month and this is the best shaver I have ever owned.  </li>
-<li> /&gt;I&#x27;m impressed with the linear motor.  </li>
-<li> I had a Braun shaver before this Panasonic - this thing is great!  </li>
-<li> I can say this is the best shaver I have ever owned.</li>
-<li> This shaver is great!</li>
-<li> But Belief me if I say it is the best shaver i ever had.  </li>
-<li> Great product!</li>
-<li> The Panasonic ES8243A Arc IV is the best razor I have ever owned.  </li>
-<li> None of them were very impressive</li>
-<li> I have to say that this is the best shaver I have ever owned.</li>
-<li> If you&#x27;ve tried it and weren&#x27;t impressed then the Panny might be what you&#x27;re looking for.</li>
-<li> All around it is probably   the best electric shaver I have ever had.  </li>
-<li> If you want the best shave use a razor.</li>
-<li> I am very happy with this product.  </li>
-<li> I am very happy with Panasonic&#x27;s service and products.  </li>
-<li> The BEST RAZOR to date I have owned!</li>
-<li> Great Product!</li>
-<li> Best trimmer</li>
-<li> The best shave out of all the electric razors I have used.</li>
-<li> This shaver is excellent.</li>
-<li> Excellent, panasonic rules</li>
-<li> 2013 still runs great!</li>
-<li> This is the best shaver I have owned.</li>
-<li> I bought this product for my husband for Christmas and he said it has been the best razor he has ever had.  </li>
-<li> and this is the best one.</li>
-<li> Charging, operation, and the displays work perfectly.</li>
-<li> and I&#x27;m impressed with technology&#x27;s progress.</li>
-<li> This is the best shaver I have ever owned.</li>
-<li> This is the best shaver I have ever owned.</li>
-<li> This is a wonderful electric shaver.</li>
-<li> - it shaves great!</li>
-<li> I was so impressed by it that I thought that I must spread the word........</li>
-<li> Incredible product!</li>
-<li> Best of all, it delights my wife.</li>
-<li> I am very happy with my purchase.</li>
-<li> Says it&#x27;s the best shave he ever had.</li>
-<li> Is best electric shaver I have ever used.  </li>
-<li> Best electric razor I have ever owned.</li>
-<li> One thing remains, Panasonic makes the best shavers I ever tried.</li>
-<li> But this Panasonic ES8243A Arc IV gives the best shave I have ever had.</li>
-<li> and then we were NOT so impressed.  </li>
-<li> THIS IS THE BEST SHAVE I&#x27;VE</li>
-<li> This electric shaver is awesome.  </li>
-<li> best electric razor I have ever used.</li>
-<li> I&#x27;ve been suffering with a rotary(S) for 40+ years and this is perfect.  </li>
-<li> Excellent quality, excellent size and excellent performance.</li>
-<li> Excellent product.</li>
-<li> Great razor!  </li>
-<li> Been using electrics for 40 years and this is the best I&#x27;ve ever had.  </li>
-<li> everybody else is happy with this product for me it is !!!!!!!!!</li>
 <li> Amazon did have the best price I could find.</li>
+<li> best razor</li>
+<li> I can say this is the best shaver I have ever owned.</li>
+<li> This one is the best.</li>
+<li> If I never picked up another blade the ARC 4 ES 8243A does a great job!</li>
+<li> I was immediately impressed with the power of this thing.  </li>
+<li> This is probably the best shaver I&#x27;ve ever had.  </li>
+<li> /&gt;overall a great buy!</li>
+<li> The Panasonic is the best.  </li>
+<li> Because, the hair has to get inside the holes in order for the shaver to cut it, and the best way to get it there is when it is short.&lt;br /&gt;I</li>
+<li> He tried lots of razors and this is the best.</li>
+<li> Best shaver I have had yet.</li>
+<li> This is the best shaver I ever had</li>
+<li> Superb!</li>
+<li> It is STILL the best shaver I&#x27;ve ever owned.  </li>
+<li> Great shaver!</li>
+<li> Panasonic ES8243 is THE BEST ever shaver introduced!</li>
+<li> The best razors I have owned for this was an inexpensive ($40)</li>
+<li> Researched all the reviews and this one looked the best.  </li>
+<li> but this is the best backup I&#x27;ve ever used.</li>
+<li> This is the best razor that I have shaved with.  </li>
+<li> I recommend it wholeheartedly to anyone who appreciates great electric shavers!</li>
+<li> This is the best electric razor I have ever used.</li>
+<li> I ended up a very happy user.  </li>
+<li> Excellent shaver.  </li>
+<li> I must say I was very impressed with the closeness of my shave.  </li>
+<li> This is the best electric razor I have owned and I feel it is a bargain for about $100</li>
+<li> it&#x27;s a great shaver!!</li>
+<li> Very happy with this purchase.</li>
+<li> This seems to be an excellent shaver for me.  </li>
+<li> I found the best deals to be had, was on Amazon...</li>
+<li> Best shave ever.</li>
+<li> An excellent value for the price.</li>
+<li> Thought this would be an awesome shaver after reading all the reviews.  </li>
+<li> Great!</li>
+<li> I&#x27;m very very happy with this razor.</li>
+<li> Best of luck to you.</li>
+<li> it&#x27;s excellent</li>
+<li> I am really impressed with the quality of the shave this provides.</li>
+<li> I have always use panasonic shaver because they deliver the best shave.</li>
+<li> Without  a doubt the best electric shaver I have used.  </li>
+<li> My wife was also very impressed with the closeness of the shave.</li>
+<li> Great shaver!</li>
+<li> I have had this razor now for four months and man am I impressed.</li>
+<li> To me it is the best shave ever.</li>
+<li> So, I took it home and am very impressed with it.  </li>
+<li> I find these Panasonic shavers to be the best either of us has  used, including Braun and Norelco.    </li>
+<li> For years I&#x27;ve searched for the perfect electric shaver.  </li>
+<li> It recharges perfectly and he gets a close shave.</li>
+<li> Best I have ever used.  </li>
+<li> This thing is awesome.  </li>
+<li> Takes a week or two for your skin to adjust, but when it does this thing is awesome.</li>
+<li> This shaver is great!</li>
+<li> I&#x27;ve also googled best electric razor and this panasonic appears on every list as best in value.</li>
+<li> I feel this is the very best electric shaver value around.  </li>
+<li> Excellent razor.</li>
+<li> This has to be the best I have tried.      </li>
+<li> I was impressed with features of this Panasonic shaver and decided to give it a try.    </li>
+<li> It is working excellently.</li>
+<li> But Belief me if I say it is the best shaver i ever had.  </li>
+<li> Use with Edge shave cream for best results.  </li>
+<li> I waited a while to review this, it has turned out to be one of the best shavers I have ever owned.</li>
+<li> This Panasonic is the best one yet.  </li>
+<li> Excellent!</li>
+<li> The manual does state that the battery is lithium-ion, which is awesome.</li>
+<li> This is the best alternative for guys (Like me) who have bald heads.</li>
+<li> The Panasonic ES8243A is the best shaver I have ever used!!!  </li>
+<li> Im writing this review because reviews of this product was the deciding factor during my quest to find the best electric shaver.</li>
+<li> Great product!</li>
+<li> It is the best shaver that I have ever had.  </li>
+<li> One of the best deals I&#x27;ve ever gotten.</li>
+<li> Very happy with it.</li>
+<li> Feels great to find something that works as described!!</li>
+<li> My husband says this is the best one he&#x27;s ever had.</li>
+<li> Very happy with this product.</li>
+<li> This is the best and closest shaver I have ever bought.  </li>
+<li> Perfect shaving, but is time consuming</li>
+<li> This is , without any doubt,  the best electric razor I&#x27;ve ever used.  </li>
+<li> everybody else is happy with this product for me it is !!!!!!!!!</li>
+<li> Very impressed.  </li>
+<li> This really is an impressive razor.</li>
+<li> This is a marvelous shave!!</li>
+<li> /&gt;This is the best shaving experience I have had in 25 years.</li>
 </ol>
 
 <h2>All Reviews</h2>
@@ -1996,6 +1996,7 @@ modifiedAt: Thu Jan 09 2020 19:08:25 GMT+0530 (India Standard Time),
     <li> After reading the reviews which said this was a great razor for men with a fast-growing/heavy beard and sensitive skin I ordered his razor for my son.  Unless he let several days growth accumulate before shaving, the razor did NOT cut the hair on his face.  What good is a razor that cannot be used daily?  A complete dud!!</li>
     <li> MY OLD BRAUN IS BETTER, IT GIVES A CLOSER SMOOTHER SHAVE. NOT WORTH THE PRICE I PAID. BUY A BRAUN.</li>
 </ol>
+
 
 
 

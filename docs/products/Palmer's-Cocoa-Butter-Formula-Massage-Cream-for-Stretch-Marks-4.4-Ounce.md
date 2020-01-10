@@ -1,0 +1,404 @@
+---
+title: Palmer&#x27;s Cocoa Butter Formula Massage Cream for Stretch Marks, 4.4 Ounce,
+description: Palmer&#x27;s Cocoa Butter Formula Massage Cream for Stretch Marks, 4.4 Ounce,
+author: Suvojit Manna,
+tags: Palmer&#x27;s Cocoa Butter Formula Massage Cream for Stretch Marks, 4.4 Ounce,
+publishedAt: Fri Jan 10 2020 15:00:06 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:06 GMT+0530 (India Standard Time),
+---
+
+# [Palmer&#x27;s Cocoa Butter Formula Massage Cream for Stretch Marks, 4.4 Ounce](https://products.checkmycream.com/products/Palmer&#x27;s-Cocoa-Butter-Formula-Massage-Cream-for-Stretch-Marks-4.4-Ounce.html)
+
+### Positive Reviews
+
+<ol>
+      <li>it&#x27;s just perfect for the bellies are growing, the texture</li>
+      <li>That cream is Very Good!!!!</li>
+      <li>Excellent product.</li>
+      <li>Excellent seller.</li>
+      <li>It is perfect to use all over the body.  </li>
+      <li>Its the best scar cream I have ever used.</li>
+      <li>It also smells great!</li>
+      <li>Perfect to avoid scars</li>
+      <li>Smells delicious.</li>
+      <li>Best cream ever..</li>
+      <li>This product is awesome!!!</li>
+      <li>I&#x27;m very happy with this product!</li>
+      <li>Excellent product!!!</li>
+      <li>Having said that, it does smell wonderful and the sent lingers through the day.  </li>
+      <li>it&#x27;s perfect and</li>
+      <li>Also, it smells great!  </li>
+      <li>I was incredibly impressed by how well this worked.</li>
+      <li>It´s a great product!</li>
+      <li>This lotion is great!</li>
+      <li>very  good</li>
+      <li>Is very good.</li>
+      <li>I&#x27;m very fair skinned, have put on 40 lbs and by all estimates should have stretch marks.  </li>
+      <li>Good!It&#x27;s very good.</li>
+      <li>very good, say goodbay to stretch marks</li>
+      <li>it&#x27;s very good quality.</li>
+      <li>Good cream!</li>
+      <li>Something very good, the effect is good.</li>
+      <li>When I didn&#x27;t see any stretch marks until my 7th month, I was so happy, I thought I beat the system/ nature, as my mom and sister got stretch</li>
+      <li>Bought this cocoa butter lotion after reading all the great reviews.</li>
+      <li>Also, I just want to add that applying this product after a shower is great, but just a word of caution:</li>
+      <li>Smells great</li>
+      <li>I am so happy with this product all around.  </li>
+      <li>For starters the price was great for the amount of lotion I got.</li>
+      <li>This lotion is great</li>
+      <li>lol.</li>
+      <li>Still a great product, however.</li>
+      <li>your skin will look and feel great.</li>
+      <li>Also, I think it was completely cheap for a reason to me, BECAUSE IT DOESN&#x27;T WORK!!!</li>
+      <li>Love it!!</li>
+      <li>it&#x27;s very nice</li>
+      <li>:)  Very happy customer!</li>
+      <li>Want a discount.i will buy it once more.i love my baby and happy birthday for you!</li>
+      <li>Great quality and results for an amazing price.</li>
+      <li>really good products.</li>
+      <li>Good product for Palmer.</li>
+      <li>The smell isn&#x27;t wonderful but within a week of using it my marks already started to smooth out.</li>
+      <li>My wife told me  it works good</li>
+      <li>Good product.</li>
+      <li>I wasn&#x27;t as good about putting it on my breasts</li>
+      <li>It smells good.</li>
+      <li>it&#x27;s so good</li>
+      <li>It does smell really good though</li>
+      <li>it&#x27;s good.</li>
+      <li>Good, good,good , good ,good.</li>
+      <li>This product is very good, genuine goods at a fair price, use rise very comfortable, especially suitable for pregnant women, but also itching, with a good effect.</li>
+      <li>I love the smell and it feels great on my belly.</li>
+      <li>and I received even more post partum!</li>
+      <li>Love this product!</li>
+      <li>Been using this in combination with the Soothing Oil and it smells good and is a great formulation, but I haven&#x27;t noticed a significant reduction in the appearance of stretch marks yet after two weeks of use.</li>
+      <li>I ended up loving it both for the stretch marks and just as a gerneral lotion because of the results and also the amazing smell.</li>
+      <li>sometimes I forget and use it once), and I notice an amazing difference in my stretch marks.</li>
+      <li>It works amazingly.</li>
+      <li>this is an amazing product and its easier getting two bottles and cheaper</li>
+      <li>The smell is AMAZING.  </li>
+      <li>I&#x27;m writing this review based on my own experience.</li>
+      <li>I liked the smell and consistency of the product at that time.  </li>
+      <li>Smells nice too.</li>
+      <li>I bought this product for my wife and she is loving it.</li>
+      <li>This stuff is the absolute best.</li>
+      <li>But I&#x27;m sure it&#x27;s good for the skin.  </li>
+      <li>Life all creams though everyone will have their own experience.</li>
+      <li>Also it made my skin feel kind of rubbery and itchy somehow.</li>
+      <li>Reserved.&lt;br /&gt;&lt;br /&gt;You can draw your own conclusions here...</li>
+      <li>Honestly though( just between us women)</li>
+      <li>After 2 weeks, is effective.</li>
+      <li>The smell is very strong.  </li>
+      <li>the scent is very strong.</li>
+      <li>Best lotion by far!  </li>
+      <li>This cream goes on very smoothly, and absorbs nicely, does not stain and leaves my belly moisturized all day, but this did nothing to prevent my stretch marks.</li>
+      <li>the smell is so good, i like the smell, and my skin become smoothly after use it.</li>
+      <li>I liked the tummy butter better.</li>
+      <li>However, It smelled really nice and does not have that cocoa butter scent that many cocoa butter lotions have.</li>
+      <li>I LOVE LOVE LOVE this product!</li>
+      <li>It smells like chocolate but not an overwhelming sweet smell, just pleasant.  </li>
+      <li>The smell is very LIGHT</li>
+      <li>go through the bottle quite quickly, so its good that they sell it in packets of 2.</li>
+      <li>so lovely。i love it and will buy it again 。</li>
+      <li>Unlike most people who get this product, I am a guy.</li>
+      <li>I mostly focused on m belly area and sometimes my thighs.</li>
+      <li>Product is ok.</li>
+      <li>Love this stuff.</li>
+      <li>LOVE IT.</li>
+      <li>Believe Vit E lotion works better.</li>
+      <li>we shall see :)  </li>
+      <li>I can&#x27;t wait to see how it will look in a couple more months. :)</li>
+      <li>I like the butter form better but used this on my thighs.  </li>
+      <li>2 more tubes</li>
+      <li>but I might just need more time.</li>
+      <li>I am sure it&#x27;s because of this lotion.</li>
+      <li>I love this cream</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> it&#x27;s just perfect for the bellies are growing, the texture</li>
+<li> That cream is Very Good!!!!</li>
+<li> Excellent product.</li>
+<li> Excellent seller.</li>
+<li> It is perfect to use all over the body.  </li>
+<li> Its the best scar cream I have ever used.</li>
+<li> It also smells great!</li>
+<li> Perfect to avoid scars</li>
+<li> Smells delicious.</li>
+<li> Best cream ever..</li>
+<li> This product is awesome!!!</li>
+<li> I&#x27;m very happy with this product!</li>
+<li> Excellent product!!!</li>
+<li> Having said that, it does smell wonderful and the sent lingers through the day.  </li>
+<li> it&#x27;s perfect and</li>
+<li> Also, it smells great!  </li>
+<li> I was incredibly impressed by how well this worked.</li>
+<li> It´s a great product!</li>
+<li> This lotion is great!</li>
+<li> very  good</li>
+<li> Is very good.</li>
+<li> I&#x27;m very fair skinned, have put on 40 lbs and by all estimates should have stretch marks.  </li>
+<li> Good!It&#x27;s very good.</li>
+<li> very good, say goodbay to stretch marks</li>
+<li> it&#x27;s very good quality.</li>
+<li> Good cream!</li>
+<li> Something very good, the effect is good.</li>
+<li> When I didn&#x27;t see any stretch marks until my 7th month, I was so happy, I thought I beat the system/ nature, as my mom and sister got stretch</li>
+<li> Bought this cocoa butter lotion after reading all the great reviews.</li>
+<li> Also, I just want to add that applying this product after a shower is great, but just a word of caution:</li>
+<li> Smells great</li>
+<li> I am so happy with this product all around.  </li>
+<li> For starters the price was great for the amount of lotion I got.</li>
+<li> This lotion is great</li>
+<li> lol.</li>
+<li> Still a great product, however.</li>
+<li> your skin will look and feel great.</li>
+<li> Also, I think it was completely cheap for a reason to me, BECAUSE IT DOESN&#x27;T WORK!!!</li>
+<li> Love it!!</li>
+<li> it&#x27;s very nice</li>
+<li> :)  Very happy customer!</li>
+<li> Want a discount.i will buy it once more.i love my baby and happy birthday for you!</li>
+<li> Great quality and results for an amazing price.</li>
+<li> really good products.</li>
+<li> Good product for Palmer.</li>
+<li> The smell isn&#x27;t wonderful but within a week of using it my marks already started to smooth out.</li>
+<li> My wife told me  it works good</li>
+<li> Good product.</li>
+<li> I wasn&#x27;t as good about putting it on my breasts</li>
+<li> It smells good.</li>
+<li> it&#x27;s so good</li>
+<li> It does smell really good though</li>
+<li> it&#x27;s good.</li>
+<li> Good, good,good , good ,good.</li>
+<li> This product is very good, genuine goods at a fair price, use rise very comfortable, especially suitable for pregnant women, but also itching, with a good effect.</li>
+<li> I love the smell and it feels great on my belly.</li>
+<li> and I received even more post partum!</li>
+<li> Love this product!</li>
+<li> Been using this in combination with the Soothing Oil and it smells good and is a great formulation, but I haven&#x27;t noticed a significant reduction in the appearance of stretch marks yet after two weeks of use.</li>
+<li> I ended up loving it both for the stretch marks and just as a gerneral lotion because of the results and also the amazing smell.</li>
+<li> sometimes I forget and use it once), and I notice an amazing difference in my stretch marks.</li>
+<li> It works amazingly.</li>
+<li> this is an amazing product and its easier getting two bottles and cheaper</li>
+<li> The smell is AMAZING.  </li>
+<li> I&#x27;m writing this review based on my own experience.</li>
+<li> I liked the smell and consistency of the product at that time.  </li>
+<li> Smells nice too.</li>
+<li> I bought this product for my wife and she is loving it.</li>
+<li> This stuff is the absolute best.</li>
+<li> But I&#x27;m sure it&#x27;s good for the skin.  </li>
+<li> Life all creams though everyone will have their own experience.</li>
+<li> Also it made my skin feel kind of rubbery and itchy somehow.</li>
+<li> Reserved.&lt;br /&gt;&lt;br /&gt;You can draw your own conclusions here...</li>
+<li> Honestly though( just between us women)</li>
+<li> After 2 weeks, is effective.</li>
+<li> The smell is very strong.  </li>
+<li> the scent is very strong.</li>
+<li> Best lotion by far!  </li>
+<li> This cream goes on very smoothly, and absorbs nicely, does not stain and leaves my belly moisturized all day, but this did nothing to prevent my stretch marks.</li>
+<li> the smell is so good, i like the smell, and my skin become smoothly after use it.</li>
+<li> I liked the tummy butter better.</li>
+<li> However, It smelled really nice and does not have that cocoa butter scent that many cocoa butter lotions have.</li>
+<li> I LOVE LOVE LOVE this product!</li>
+<li> It smells like chocolate but not an overwhelming sweet smell, just pleasant.  </li>
+<li> The smell is very LIGHT</li>
+<li> go through the bottle quite quickly, so its good that they sell it in packets of 2.</li>
+<li> so lovely。i love it and will buy it again 。</li>
+<li> Unlike most people who get this product, I am a guy.</li>
+<li> I mostly focused on m belly area and sometimes my thighs.</li>
+<li> Product is ok.</li>
+<li> Love this stuff.</li>
+<li> LOVE IT.</li>
+<li> Believe Vit E lotion works better.</li>
+<li> we shall see :)  </li>
+<li> I can&#x27;t wait to see how it will look in a couple more months. :)</li>
+<li> I like the butter form better but used this on my thighs.  </li>
+<li> 2 more tubes</li>
+<li> but I might just need more time.</li>
+<li> I am sure it&#x27;s because of this lotion.</li>
+<li> I love this cream</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> I bought this product to help prevent stretch marks during my pregnancy. There a few things I like about this product, and a few things I don&#x27;t.&lt;br /&gt;Likes: smells awesome, feels great, and is super hydrating.&lt;br /&gt;Dislikes: I don&#x27;t think it really worked to prevent or lessen stretch marks, and if you rub too much it balls up. I don&#x27;t think I will be buying this product again. I might try to find something that doesn&#x27;t pill up so badly.</li>
+    <li> My daughter is in the last trimester and ran out, so she asked for another package of this great product.</li>
+    <li> Perfect to avoid scars</li>
+    <li> I&#x27;ve noticed no stretch marks thus far.  The creme is thick and doesn&#x27;t like to come off the palm of my hands very easily... but as long as it keeps doing it&#x27;s job, I&#x27;m fine with that.</li>
+    <li> Excellent product. Excellent seller. I recommend it to everyone .</li>
+    <li> I started using this when I was 7 weeks pregnant daily. I love the smell and it feels great on my belly. I am now 8 months pregnant and have no signs of stretch marks, love it. I highly recommend it.</li>
+    <li> I&#x27;ve been using it for almost a month now and I haven&#x27;t seen any changes in my stretch marks</li>
+    <li> I have been using the cream for my entire pregnancy; and now i am 35 weeks and have no stretch mark at all.</li>
+    <li> very good, say goodbay to stretch marks</li>
+    <li> I hardly got stretch marks but idk if it&#x27;s just my genes either.  But the lotion did feel like it helped. It was really thick and not like some lotions that you need to put on every hour</li>
+    <li> I use this every night and after every shower and so far not a single stretch mark. I&#x27;m 21 weeks pregnant and had a very flat stomach going into pregnancy. My mom has stretch marks, so I thought it was inevitable for me, but so far this cream seems to be working.</li>
+    <li> I have been using this cream on my face for many years after hearing about another VERY EXPENSIVE stretch cream women were using.  This is certainly not expensive but makes a nice face cream.  I don&#x27;t know if I look any younger (I&#x27;m 72) but people do seem to think so.</li>
+    <li> Its a good smell though it isnt enough for me because I use it 3 times a day. I bought 2 but it is a bit expensive for the product than the ones I can buy from Babies R Us.</li>
+    <li> I&#x27;m not sure is real or fake</li>
+    <li> My wife told me  it works good</li>
+    <li> I bought this lotion as soon as I got pregnant.  I&#x27;m 35 weeks now, ALL BELLY, and don&#x27;t have a single stretch mark.  I&#x27;m very fair skinned, have put on 40 lbs and by all estimates should have stretch marks.  But...I don&#x27;t.  Some is genetics, but I know I won&#x27;t go through a pregnancy without it.</li>
+    <li> he size is just right, the express service is in place, dress up and feel very handsome, next time will come to buy</li>
+    <li> I have been using it since 1 month but could not see any difference.</li>
+    <li> I don&#x27;t think its really doing anything to minimize the look of the stretch marks (maybe it hasen&#x27;t been long enough) but it smells nice.....</li>
+    <li> has been working so far I still noticed a few marks coming but as I have been applying it was been working</li>
+    <li> I don&#x27;t like the smell..</li>
+    <li> I have yet to see any improvements from the use of this product.  However, I can say that the stretch marks have not got any worse.</li>
+    <li> I didn&#x27;t believe it would work at first, but it definitely helped with lighten the stretch marks and it helped keep my stomach from feeling dry/itchy.</li>
+    <li> I know it will not prevent stretch marks.  Sorry ladies; it&#x27;s determined by genetics as the whether or not you get them.  It does however help with my dry itchy belly.  It absorbs nicely; is not at all greasy.  Also, it smells great!  I even use it on my arms!!</li>
+    <li> I&#x27;m not really sure if this product really works as I wasn&#x27;t a daily user of the product. I didn&#x27;t get stretch marks but that is not due to using the product. I was bad at applying any type of lotion during my pregnancy, something that I plan to improve on the next time. I did find when my skin felt tight that lotion made it feel better, but I used different types of lotion in addition to this lotion and they all seemed to work the same. A little bit goes a long way, so I now know I only needed one bottle not two...haha.</li>
+    <li> My babe is 20w, I start using Palmer&#x27;s when I am pregnant. So far no stretch marks and pray will not grow in the coming weeks.</li>
+    <li> I bought this cream when I was 3 months pregnant and started using it everyday morning and bed time but watch my belly now it is thousands of stretch marks on it! If I knew it doesn&#x27;t help at all I would try other brands instead of this! I&#x27;m so regret now when Im facing the mirror and see all these red marks on my belly!  So, please, try other brands instead of this!</li>
+    <li> This cream doesn&#x27;t work.</li>
+    <li> After going through Mama Mio belly oil and O-Mega cream, I still got stretch marks on my belly and butt. I was trying to stay natural but I think my skin is just to dry. My OB recommended Palmer&#x27;s cocoa butter, as it&#x27;s what she had used when she was pregnant. After only using it for a couple weeks, I&#x27;ve noticed my stretch marks are fading. I don&#x27;t know that this product will actually make them unnoticeable in the long run, but I&#x27;ll probably stick with it past my delivery. As many other reviewers have commented, the scent is a bit strong, but I don&#x27;t mind it.</li>
+    <li> I started using this product daily when I was 8 weeks pregnant. It worked until I was about 30 weeks and I started seeing minor marks on my thighs. I used a couple of different products on other areas of my body. I personally think the oil from Belli works much better on my skin.</li>
+    <li> I have existing stretch marks attained from weight gain when i was younger, and i used 2 tubes of this product regularly, with no results.</li>
+    <li> I apply it to my arms everyday and the stretch marks sometimes appear faded but other times appear dark. Furthermore, it hasn&#x27;t helped much at all in preventing new stretch marks from arising.</li>
+    <li> I strongly recommend this presentation of Palmers cocoa butter, it is easy to apply and if you can start using it right when you find out you are pregnant better for you.</li>
+    <li> I don&#x27;t think it helped my stretch marks, but I love how thick and creamy it is.  I&#x27;m going to use this all winter long to keep from getting dry and itchy on my torso.  I love the subtle smell of cocobutter!</li>
+    <li> This lotion is great I can&#x27;t believe that only after a few uses my stretch marks are already lighter in color.</li>
+    <li> Smells great and I can definitely tell that it moisturizes my skin! This along with the microneedle can make a huge difference on your stretch marks.</li>
+    <li> Excellent product!!! Useful specially for pregnant period.</li>
+    <li> i haven&#x27;t been using it 3 times a day like the instructions say but its been working great so far. I feel like it does a better job at masking the stretch marks more than fixing them, but again i only use it like once every day or two.&lt;br /&gt;&lt;br /&gt;I go through the bottle quite quickly, so its good that they sell it in packets of 2.</li>
+    <li> ibuy it the first time。 it&#x27;s so good so lovely。i love it and will buy it again 。 very  good</li>
+    <li> Very impressed with the ability of this to diminish the appearance of stretch marks, I had some very deep purple marks and this helped turn them into light white marks (barely visible).  I was incredibly impressed by how well this worked.</li>
+    <li> I started using this lotion at 2 or 3 months along I am almost 6 months and I have not had any problems out of this lotion, I use it everyday twice a day + the palmers tummy butter at night. The smell is very LIGHT so I don&#x27;t know why reviews on here have said it smells weird or it&#x27;s a thick cream which is FALSE! The lotion is really light &amp; keeps my entire body moisturized for hours! I use it on my face, hands, belly &amp; the rest of my body. If they had a body wash I&#x27;d use that too!! Love it!! So glad it&#x27;s working, I hope it continues to work with no problems!!</li>
+    <li> Seems to be working for my stretch marks from pregnancy. It&#x27;s no miracle cream and is taking a while though.</li>
+    <li> If you are looking for something that will get rid of your stretch marks that have already surfaced, I do not recommend this product. I used this product continuously on my stretch marks and it did not help them at all, and my stretch marks weren&#x27;t even too severe. If you are trying to prevent stretch marks, then this will work or you. Otherwise, this product will not work on stretch marks that you already have.</li>
+    <li> Used this almost everyday while I was pregnant. I mostly focused on m belly area and sometimes my thighs. I didn&#x27;t get stretch arms in those two areas but I did get some on my chest and my hips. My advice is to use this on every inch of your body while you&#x27;re pregnant since it seemed to work well on the areas it was applied!</li>
+    <li> i need it .because useful.Want a discount.i will buy it once more.i love my baby and happy birthday for you!</li>
+    <li> Good quality, it was as we expected and we can recommend it. I will buy again if we need anothe one.</li>
+    <li> good amount for price, easy to rub in, non greasy, does have a pretty strong scent though, better than others I tried</li>
+    <li> Love this product for the last few months of my pregnancy!  My biggest complaint is that the tube doesn&#x27;t last a long time.  I apply to my growing tummy twice a day and each tube lasts about a week and a half to 2 weeks.  Highly recommend the auto ship.  The cream does a great job at keeping my skin moisturized and allowing it to stretch with minimal tearing.  I didn&#x27;t start using this product until I was 31 weeks pregnant, so I had already several stretch marks, but since then (I&#x27;m 39 weeks pregnant now) the stretch marks have already started to fade and lighten up.  I have received a few more stretch marks in the last week as little one continues to grow, but they are not appearing at the same rate and are not as large or deep.  I would highly recommend this product to friends and will continue to use this product after little one arrives as my skin tightens back up.</li>
+    <li> Fast shipping, right on time. I guess i didn&#x27;t read the description clear enough because I was so surprised to open the box and find two!! I used Palmer&#x27;s Cocoa Butter before for stretch marks and it didn&#x27;t work at all so I was skeptical to buy this but it was such a great price that I couldn&#x27;t resist... but this definitely works! My scars appeared lighter after the first use, so after a long period of use I can only imagine how unnoticeable they&#x27;ll look! Definitely recommend!</li>
+    <li> I picked up couple of tubes of palmers cocoa butter at a local pharmacy during my first trimester. I was told the key to avoid stretch marks is to apply this before I get stretch marks. Other than couple of missed days here and there, I applied this twice a day during my pregnancy. When I didn&#x27;t see any stretch marks until my 7th month, I was so happy, I thought I beat the system/ nature, as my mom and sister got stretch marks.&lt;br /&gt;&lt;br /&gt;But in my 8th and 9th months, I got huge stretch marks and there was nothing I could do to prevent them. My frustration with this product is not just because of stretch marks, but also it&#x27;s failure to prevent the itch that comes from too much stretching of the skin. I had to resort to Lubriderm (my go to moisture for winter), to relieve the itch.&lt;br /&gt;&lt;br /&gt;I understand this product works for lot of others, but just want to say that it won&#x27;t work for every one. I do like the consistency of this cream, it is perfect for massage, too bad it didn&#x27;t work for me. Now that I had the baby and left with terrible stretch marks, I am trying bio-oil. I will give this product some time and see if it will do the trick for me.</li>
+    <li> It&#x27;s very good!i like it.I will use it in my life.Good!It&#x27;s very good.I like it . Good, good,good , good ,good.</li>
+    <li> I tried using this on some old stretch marks and it didn&#x27;t really do anything at all.  I used about one and half tubes with no noticeable improvement.</li>
+    <li> Smells like chocolate doughnuts and its thick and creamy so far so good hasn&#x27;t made my stretch marks go away yet but they are lighter.</li>
+    <li> it&#x27;s good. this is the second time to buy it.</li>
+    <li> It&#x27;s been six years since the birth of my youngest son. I&#x27;m 5 months pregnant now, and with all the other products on the market, I refused to buy anything but this. I used it for my other two pregnancies and I swear by it.</li>
+    <li> This stuff is the absolute best. I recently gained about 20 lbs and started getting stretch marks. I never had stretch marks before but I guess this was the amount my skin could stretch. Don&#x27;t just put this stuff on and not try to lose the weight  (if your stretch marks are from weight gain) because they&#x27;ll just keep getting worse. Lose the weight and continue to lotion everyday after you shower and before you go to bed. If you catch them early when they&#x27;re still pink/reddish like I did with mine you have a great chance of almost completely getting rid of them. With a lot of patience and daily lotioning, your stretch marks WILL disappear. I also combine this with pure vitamin E oil as well :-)</li>
+    <li> I&#x27;ve used it for two months, and it&#x27;s worked so far (no stretch marks). Still have another 6 months to go in the pregnancy, though.</li>
+    <li> While I&#x27;m still waiting to see how useful this will be on the stretch-mark front. The lotion feels great on my ever-expanding skin, and on dry patches on the rest of me where I&#x27;m not as concerned about stretch marks. I&#x27;ve been putting some on my face too, but I haven&#x27;t had any acne break outs from it.</li>
+    <li> I definitely suggest this product!  I&#x27;ve had stretch marks for awhile now, and I started using this last sunday so less than a week ago and I already see promising results! I&#x27;m very happy with this product! I also suggest taking before pictures to see the progress.</li>
+    <li> I love this cream and I always use it around my tummy, but and waistline.  I always have this cream everywhere I go.</li>
+    <li> I use this twice a day. The stretch marks on my belly look better, they have really faded.</li>
+    <li> This product is awesome!!!</li>
+    <li> Best lotion by far!  No stretch marks yet...</li>
+    <li> been using this for months hasn&#x27;t done one thing!!!</li>
+    <li> My wife used this throughout her pregnancy and had very minimal marks afterwards.  This appears to have worked well for her.  Life all creams though everyone will have their own experience.</li>
+    <li> Though the product itself seems fine, the fragrance is so overwhelming that I can&#x27;t help but wonder if I got a bad batch.  I used this product through my first pregnancy (no stretch marks, in case you are wondering) and do not remember such an overbearing smell.  For my second pregnancy, i used St. Ives Collagen Elastin Renewing lotion, which was a perfectly fine substitute (also no stretch marks).  I will be returning this item and going back to the St. Ives.</li>
+    <li> I use this on my tummy after giving birth, but only good as a moisturizer. didn&#x27;t do anything to my stretch marks.</li>
+    <li> I&#x27;ve used this lotion for years, during both of my pregnancies.  I gained 50 lbs with each pregnancy and I believe this helped limit the marks on my tummy.  That was my main concern...I lathered this stuff on probably 3-5 times a day.</li>
+    <li> is good.you can try it : )</li>
+    <li> I like this cream better than the lotion, I feel like it offers good coverage. I am in the 9th month of pregnancy&lt;br /&gt;and have gone through 4 1/2 tubes, so the price can add up quick though</li>
+    <li> My wife has been using this throughout her entire pregnancy. It doesn&#x27;t necessarily prevent stretch marks but it stops the itching and it has already helped some of them to start fading. She has tried other brands that different people have suggested or given her, but she won&#x27;t use anything else but this.</li>
+    <li> I know for a fact this cream works. A quick mention though, I always used it along with Palmer&#x27;s Itchy Skin Soothing Oil. The reason I can confidently say it works is because I unintentionally spot treated. I used it my whole pregnancy and saw new stretch marks slowly start fading but I wasn&#x27;t sure if it was Palmer&#x27;s or my just body healing itself quickly. Well right before parting and a couple weeks after I got new stretch marks in new areas but I stopped using it post-partum. 8 months later I realized my old ones were very faded but the more recent ones were still bright red. So I decided to start again since I still had some oil and cream left over anyway. Well within a week they started fading. Now, a month later they&#x27;re turning brown fading to silver. The older ones are nearly becoming invisible.&lt;br /&gt;I really just had to come and tell everyone to at least give it a chance. Not every body works the same but for the price it isn&#x27;t going to hurt to try.&lt;br /&gt;By the way my routine was and is after every shower:&lt;br /&gt;-massage in the oil first, then massage in the cream</li>
+    <li> I bought it for my wife from Amazon after she bought one tube at a local maternity store for price of two in comparison to the deal on Amazon. She likes it a lot. She has a big-big bump, and it&#x27;s only the seventh month. There are not any marks yet, and hopefully there will not</li>
+    <li> I purchased a few of palmers products to use during pregnancy because although I know stretch marks are hereditary I still wanted to try to reduce the amount or the intensity of the stretch marks I might get.I have used this cream along with palmers belly butter at night and palmers soothing oil and lotion. I didn&#x27;t use them religiously just maybe a few times a week when I felt I needed to moisturize. I use this cream and the oil more alot more now because I am 36 weeks pregnant. Luckily I don&#x27;t have any stretch marks yet and since I have 4 weeks left I will continue to use my palmers products and just pray that I don&#x27;t get any till I deliver.This product works great for me and I am prone to stretch marks and have sensitive skin</li>
+    <li> This lotion really feels great on my skin, you can tell right away it&#x27;s very good quality. The only thing I really don&#x27;t like about it is the smell. On the bottle it is described as a \\&quot;light scent\\&quot;, but I&#x27;m thinking \\&quot;a light scent for who?\\&quot; It&#x27;s almost like they didn&#x27;t keep a pregnant woman in mind when making this product, even though it&#x27;s MADE for treating stretch marks! It smells like they tried to cover up the cocoa butter smell with some weird citrus-y chemical smell, like those chocolate oranges you get around the holidays but extremely unappetizing. I&#x27;m in my second trimester now, and if I had started using this lotion a month earlier, it probably would&#x27;ve made me puke! It&#x27;s not so bad now that I&#x27;m not nauseous all the time, but goodness... if you&#x27;ve got a sensitive nose and a queasy stomach, you really should just skip right over this product until you can handle it. As far as treating the stretch marks, we&#x27;ll have to see about that. I&#x27;m not sure if I&#x27;m going to keep buying this though, just because of the smell.</li>
+    <li> I bought this product and I started to use it since week 13 and so far no new stretch marks. I didn&#x27;t like the smell, but I guess that is for the coconut. I also bought another stretch mark cream and I use this at morning and the other at night. I bought this cream because is cheaper and so far have done the work. I could comment at the end of the pregnancy to see if it worked.</li>
+    <li> Everything I needed. Thank you! It did its job. I don&#x27;t have any stretch marks thanks to this product. Just get it and apply according to the instructions and your skin will look and feel great.</li>
+    <li> It smells good. Recommend by my friend, but since my baby is not born yet, it is not used yet.</li>
+    <li> the cocoa butter it&#x27;s just perfect for the bellies are growing, the texture it&#x27;s perfect and the smell it&#x27;s very nice</li>
+    <li> I am not sure if its working but I haven&#x27;t gotten any stretch marks and Im 6.5 months pregnant. I use it religiously. It eliminates the itching that happens when the skin stretches and is dry. I would buy it again.</li>
+    <li> Unlike most people who get this product, I am a guy. A while back I really started to workout and have put on a lot of muscle, causing unsightly stretch on my arms, pecs, and other muscle. I just got this because it was cheapest, and it seems to be working. I&#x27;m sure there is stuff that is better, but for this price you can&#x27;t go wrong.</li>
+    <li> I used this product through my entire pregnancy and did not get one single stretch mark! I used this cream twice a day and really slathered it on and it helped a ton.  This was my first pregnancy and I was a little scared of how bad my stretch marks would get...I never thought I WOULDN&#x27;T get them! :)  Very happy customer!</li>
+    <li> I bought this product a month ago, and have been using it twice a day like it said,(though sometimes I forget and use it once), and I notice an amazing difference in my stretch marks. They were a bright red, and now they have faded to a light pink. I can&#x27;t wait to see how it will look in a couple more months. :)</li>
+    <li> I bought this product for my wife and she is loving it. Will be buying it again. Highly recommended. Good product. Fast delivery arrangement.</li>
+    <li> Half way through a twin pregnancy so we&#x27;ll know for sure if it worked in a few months.  I&#x27;m using along with Palmers tummy butter.  The smell bothered me a lot in the beginning, I think because of my hyper sensitive nose, but I&#x27;m used to it now.</li>
+    <li> It´s a great product!</li>
+    <li> This is very thick as it should be. I applied after showers daily. Works well. I did however switch to applying the massage lotion first and tummy butter after. I liked the tummy butter better. No stretch marks, I am currently 37 weeks pregnant.</li>
+    <li> This cream goes on very smoothly, and absorbs nicely, does not stain and leaves my belly moisturized all day, but this did nothing to prevent my stretch marks. I have been putting it on in the morning and at night since around week 12 and i got horribly bad stretch marks..</li>
+    <li> Good product for Palmer. Do not notice any stretch marks fading. But it is a good product that is thick and creamy and lathers on well. May or may not buy this product again. For the price</li>
+    <li> I&#x27;m writing this review based on my own experience. I bought this product because I wanted to get rid of stretch marks caused by intensive workouts. The area I was treating was the are of armpits and chest. But, instead of getting them less I started getting them more and more. After a month of use I stopped using the cream and my stretch marks have started going away, actually fading out. And I haven&#x27;t seen new stretch marks since I stopped using it. My personal assumption is that you shouldn&#x27;t use it if you work out.</li>
+    <li> Bought this cocoa butter lotion after reading all the great reviews. Can&#x27;t vouch for its efficacy against stretch marks because I haven&#x27;t seen any stretch marks  yet. However I use it because of a really irritating itch on my upper belly that I started noticing in my second trimester. After using this for about a week this itch is barely noticeable. I couldn&#x27;t be happier. We will see if I still develop stretch marks! I&#x27;ll update In a couple months!</li>
+    <li> I recently purchased this cream because I have horrible red stretch marks. I was so excited to try to make them less noticeable but after 2 weeks I still haven&#x27;t seen a difference. :| So I&#x27;m still on a search to find the right cream that actually works !</li>
+    <li> Use it everyday or you will not see a difference.</li>
+    <li> I used Palmer&#x27;s Cocoa Butter during my first pregnancy many years ago.  I liked the smell and consistency of the product at that time.  I also ended my pregnancy with minimum stretch marks.  Of course there is no proof that the cream worked, could&#x27;ve been luck or age or somethings else.&lt;br /&gt;&lt;br /&gt;I am currently pregnant with my second child and given my previous experience I ordered this cream again.  Well, it&#x27;s not how I remember it at all.  The smell is very strong.  The consistency is heavy.  I really did not enjoy having it on my body and started using a different product.</li>
+    <li> Although the use of this, but I still get stretch marks.</li>
+    <li> Like I said...it doesn&#x27;t work on old marks. I used both bottles I got and I didn&#x27;t notice a difference. After I ran out I began to lose weight tho thru dieting and I&#x27;m noticing a reduction in the redness of the marks. So dot waste your money n this, just diet and exercise.</li>
+    <li> I didn&#x27;t get any stretch marks during pregnancy and used this almost every day.  Not sure if this product is the reason why, but I&#x27;ll definitely use it again.</li>
+    <li> Listen. No one wants to hear this, they just hope with every fiber of their being that it isn&#x27;t true, but it is what it is... stretch marks are genetic. They begin to form below the surface of your skin, so if they&#x27;re going to happen, no amount of moisture on its surface is going to prevent that. That being said, this lotion does reduce the itching associated with the spread of stretch marks and helps to fade the appearance of them. It is great at keeping the skin moist and along with proper hydration (probably the real hero) can increase the elasticity of your skin. I used this product and still got stretch marks. I was expecting that. But I would not say that it prevents them, at least not for everyone. Every pregnancy is different and every person&#x27;s make up is different, so what may have worked for someone may not work for you. That was my experience. Also, I just want to add that applying this product after a shower is great, but just a word of caution: the scent is very strong. Please take your time after showering and make sure you have proper ventilation, especially with early pregnancy sensitivity to smells, because it actually caused me to faint for the first time in my life while I was in my first trimester. Since it was smeared all over my torso, I could not escape it when I began to feel nauseous. Still a great product, however. Its reputation speaks for itself. Just do not go into this purchase believing that you will come out of your pregnancy stretch mark free. My stretch marks did not appear until the end of my third trimester and I received even more post partum! Don&#x27;t work yourself up too much over it. They fade... Palmer&#x27;s helps.</li>
+    <li> I have always heard pregnant ladies rave about this cream. I am not pregnant, but gained 10 pounds while traveling this summer and ended up with bright red stretch marks on my stomach as a result. So I ordered 2 of these creams and it has helped, my stretch marks are shrinking and are not as noticeable, and no I haven&#x27;t lost the weight so its not that! It also smells yummy.</li>
+    <li> Did not work . . . I used both bottles they sent me &amp; it still did not work after four months</li>
+    <li> I got this after I had a baby in hopes to help some purple stretch marks and get my skin back to normal on my belly. The smell is ok and it does make your skin very soft, it&#x27;s thick, good quality lotion. But after 3 months, there&#x27;s been no change on stretch marks, nor on my skin. I still have 2 bottles left that I just continue to use for moisturizer.</li>
+    <li> Note this is a review of the product not the results:&lt;br /&gt;&lt;br /&gt;This product smells good [like cocoa] its easy to apply and last a long time, I am mainly giving it 5 stars for the fact that it seems to be doing the same thing as the old 80 dollar cream I used [Trilasitin SR] but because I can buy 16 tubes of this for every 1 tube of the other stuff I could use this cream for months or years and I have faith it will work.&lt;br /&gt;&lt;br /&gt;So if you are rich you may be more comfortable buying some more expensive cream but using it continuously at least for awhile is kind of the point of any of these products. So I feel better that for a low price I can use this cream for a long time.&lt;br /&gt;&lt;br /&gt;I am a guy and I use this for weight gain and lifting marks.</li>
+    <li> This worked really well with my skin I was surprised how well since other ppl made it seem like a waste! I&#x27;ve had some marks for about a year and I put some lotion on them... but I only noticed a difference with the palmers lotion! Used it for a week and I can tell there fading! I recommend this!</li>
+    <li> For starters the price was great for the amount of lotion I got. The smell isn&#x27;t wonderful but within a week of using it my marks already started to smooth out. On the red marks the color has already become lighter after a month. For the marks that were already light after a month you can barely see them. The only way you&#x27;d know they were there is if you ran your hands over the skin. Looking forward to getting a tan as the final touch and my marks will be well hidden away.</li>
+    <li> I&#x27;m on the 2nd tube n I&#x27;ve noticed super soft skin n slight &#x27;fullness&#x27; of the stretch marks. they&#x27;re still there but I might just need more time. plus I only apply when I get a chance which is once maybe twice a day. the instructions say 3 times. but my mom swears by this stuff so we&#x27;ll see. 2 more tubes n I&#x27;ll see where it stands</li>
+    <li> I used this for my pregnancy for my son and it totally saved my skin. Here I am a week away from 7 months in my 2nd pregnancy stretch mark free.</li>
+    <li> I bought this product because I have stretch marks on my inner thighs. I used it as recommended but I could never tell a difference. Also it made my skin feel kind of rubbery and itchy somehow. It might work better for people with a different kind of skin but it did not work for me. However, It smelled really nice and does not have that cocoa butter scent that many cocoa butter lotions have.</li>
+    <li> Well right before parting and a couple weeks after I got new stretch marks in new areas but I stopped using it post-partum. 8 months later I realized my old ones were very faded but the more recent ones were still bright red. So I decided to start again since I still had some oil and cream left over anyway. Well within a week they started fading. Now, a month later they&#x27;re turning brown fading to silver. The older ones are nearly becoming invisible.</li>
+    <li> I&#x27;ve used once a day during all my pregnancy, and even putting on 30lbs during the 8 months I&#x27;ve used,  I had no stretch marks.</li>
+    <li> It seems treat dry skin, although stretch marks might take a while or not at all. Overall, this product is worth what I paid for it.</li>
+    <li> I wouldn&#x27;t say this is a miracle product, I still had some stretch marks but I think I was a special case too. It worked perfectly everywhere except right around my belly button, where my son stretched me the most. He was breech and that was where he pushed on my belly the most. It got rid of the heavier stretch marks that I saw after birth- I kept using it for several months after. I think it would have been worse if I didn&#x27;t use it.</li>
+    <li> I have a month using the cream and not getting any results, i followed all instructions and still no change !!!</li>
+    <li> I hated my moderated strech marks which came from weight loss. They&#x27;re on front and back of my arms, lower tummy, across my hips. I have used Strivectin in the past which worked to diminish them, but I wanted something cheaper.&lt;br /&gt;&lt;br /&gt;Ta-da! Palmers to the rescue lol. In just two weeks they are almost invisible and I use the cream morning and night.&lt;br /&gt;I  would highly recommend this</li>
+    <li> 2 pregnancies with this stuff ( the only stuff I used on my belly and sides with both pregnancies). No stretch marks (and there is history of stretch marks in my family). Smells nice too.</li>
+    <li> I was a fan of palmer&#x27;s tummy butter which they produced in 2010, for some reason this product has completely different smell, which I do not like so much. It just acceptable.</li>
+    <li> Something very good, the effect is good.Every morning and evening each be used once.After 2 weeks, is effective.Would recommend friends and family to buy. Is very good.</li>
+    <li> I&#x27;m 15 and horrible stretchmarks on my inner thighs and I have been applying palmers lotion to them for MONTHS and they haven&#x27;t faded even a little bit. The only good thing about this lotion is that it smells like chocolate. I recommend a using oil instead of lotions to fade stretchmarks.</li>
+    <li> Perfect size to go inside my bag and perfect moist... not too thick, not to thin, just perfect. Best cream ever..</li>
+    <li> I LOVE LOVE LOVE this product! I am currently eight and a half months pregnant and I diligently put this stuff on my tummy from 4 months on. I have yet to get any stretch marks on my stomach. I am sure it&#x27;s because of this lotion. I usually just put it on once a day (sometimes twice) but definitely not three times a day as the directions recommend. I wasn&#x27;t as good about putting it on my breasts and I do have a few small stretch marks there, which leads me to believe even more that this lotion really helped. I only have about 2 weeks left (hopefully!) and will continue to use it until then. I highly recommend this product to anyone who is not sure which to go with!&lt;br /&gt;&lt;br /&gt;As far as how much I expected to use, I went through about a tube of it per month. Like I said, I put it on at least once a day, sometimes twice, but three times would have been a little excessive. It has a light cocoa butter scent and it is a little sticky, but it isn&#x27;t bad. My husband didn&#x27;t like how it smelled at all, so it&#x27;s probably not best to put it on if you&#x27;re planning on getting freaky...let&#x27;s face it though, once you are in the 6 month point, you probably aren&#x27;t doing it a lot anyway!</li>
+    <li> smells really sweet but doesn&#x27;t bother my too much.  a tube last me quite a while.  Doesn&#x27;t exactly prevent stretch mark but still help each the pain while my skin is stretching...</li>
+    <li> So far so good, only 15 weeks pregnant though.  Easy to use.  I will use it till i have the baby</li>
+    <li> i love this, it instantly makes them feel like there gone. i dont use it as i should but i use it when i remember, there still disappearing slowly. but if i did use it like i should they would defiantly go away alot faster. this is an amazing product and its easier getting two bottles and cheaper</li>
+    <li> That cream is Very Good!!!! My body stay very hidrated. I used during the pregnant and after. I really recommend.</li>
+    <li> I used it occasionally, maybe once a day especially when belly is itchy.  I don&#x27;t use it so diligently or put it on so thoroughly like others.  Anyway, I didn&#x27;t have any stretch mark.  Not sure if this was helped by the cream or not.&lt;br /&gt;&lt;br /&gt;Btw, I didn&#x27;t even finish one tube, so u could tell I didn&#x27;t use \\&quot;that\\&quot; much each time.</li>
+    <li> I have been using this for about 2 months and I must say it does work. I was a bit spectacle since I have tried so many different products but this one really does work and the price isn&#x27;t bad either.</li>
+    <li> I can&#x27;t stand my stretch marks. I was contemplating buying cream that was $100 plus. I saw the reviews of this and while I admit the other palmers formula did nothing for me, this one rocked!!&lt;br /&gt;&lt;br /&gt;In less than 2 weeks using once a day they have lightened up drastically and so much smoother. I can actually fathom being able to wear a bikini again someday. So excited to see how it is a few months from now. I&#x27;m kicking myself for not taking before and after pics for you.&lt;br /&gt;&lt;br /&gt;Get it!!</li>
+    <li> It works amazingly. Its the best scar cream I have ever used. I noticed a huge difference in my skin the first few days!</li>
+    <li> Yesterday I started to use it, but the smell of the product is totally different from the one I bought from walmart and the smell is not cocoa butter smell, though the product is the exactly the same one.</li>
+    <li> I bought this for my daughter as she is 6 months pregnant she says it works so when she runs out I will get her more</li>
+    <li> didnt work in the first week but i kept using it cause i had no other choice ,noted significant lighteing of the stratch marks during the second week,,althought they have not dispappeared compeltely may be becoz they are old..but  i think they will in a few weeks.</li>
+    <li> I&#x27;m pretty satisfied with this product, it&#x27;s been about 2 weeks since i started using it and my marks are slowly beginning to fade away :)</li>
+    <li> This was given to me as a gift while I was pregnant by my co-worker who swore it prevented her from getting stretch marks. I started using this while I was four months pregnant and lotioned up my belly, breasts, and behind every morning after shower and once I got home from work. This lotion is great! Keeps my skins super soft and no itching!</li>
+    <li> 5 stars for starting to fade wife&#x27;s stretch marks in under 2 weeks. It was not in the product description but the 2 tubes I received were \\&quot;expired\\&quot;. The only thing there was a problem with was the smell, it wasnt gut wrenching it just smelled like really old lotion. After my purchase they increased the price, we will be buying the same thing at walmart for $1 less. If you get it before its expired it smells like melted chocolate.</li>
+    <li> This product is very good, genuine goods at a fair price, use rise very comfortable, especially suitable for pregnant women, but also itching, with a good effect. Worth having.</li>
+    <li> I&#x27;m 38 weeks pregnant and have used Palmer&#x27;s every single day of my pregnancy, and yet I already have some pretty rough looking stretch marks! This is my first pregnancy and I&#x27;m nearing the end, so I&#x27;m not sure how much worse they&#x27;ll get or if they&#x27;ll fade any time soon, but as for now the stretch marks have definitely made an appearance! I know part of it is just plain genetics, but a girl can wish that some lotion would help, yeah? I&#x27;d like to think this lotion helped at least somewhat because doing nothing probably would have been worse, but who knows.&lt;br /&gt;&lt;br /&gt;I would also say I really don&#x27;t like the smell of this lotion. I was extremely adverse to strong smells in the first trimester, and the cocoa smell of this lotion was extremely off putting. I eventually got used to it, but for something that doesn&#x27;t appear to be a magic solution for preventing stretch marks and isn&#x27;t particularly delightful smelling, I will probably not buy or use this again in future pregnancies.</li>
+    <li> the smell is so good, i like the smell, and my skin become smoothly after use it. really good products.</li>
+    <li> if there is acutally something on the market that would prevent or decrease stretch marks, then no one would have them</li>
+    <li> (From the wife) This is a nice lotion for pregnancy; it&#x27;s thick and has a rich cocoa butter smell without being overpowering.  I tend to have sensitive skin when it comes to lotions, but this one hasn&#x27;t given me any problems. The only downside is that I go through this stuff pretty fast since it is a thicker cream, and it is hard to get the last bits out due to tube design.  However, at this point in the pregnancy, I don&#x27;t care how much I use so long as I don&#x27;t itch.</li>
+    <li> I HATE THIS PRODUCT!!!! It didn&#x27;t do anything to clear away any stretch marks for me. Also, I think it was completely cheap for a reason to me, BECAUSE IT DOESN&#x27;T WORK!!!</li>
+    <li> I haven&#x27;t gotten any stretchmarks yet so I can&#x27;t comment on that but so far this lotion has been a godsend for itchy skin.  I also purchased the soothing oil for dry itchy skin but because of this haven&#x27;t needed it yet. But it&#x27;s nice to know I have another &#x27;line of fire&#x27; against itchy skin since my skin is so sensitive.</li>
+    <li> Palmers didn&#x27;t heal the stretch marks.  But I&#x27;m sure it&#x27;s good for the skin.  Believe Vit E lotion works better.</li>
+    <li> My daughter is 6 months pregnant and swears this has keep her from any streech marks and plans to continue its use</li>
+    <li> Can&#x27;t stand the smell! Maybe it&#x27;s just because of the pregnancy but I just can&#x27;t! I use organic oils and that has worked just fine at preventing stretch marks so far! Fingers crossed!!</li>
+    <li> I received the product today and the first thing I noticed was that the boxes looked REALLY old. I looked for the expiration date or the manufacturing date, but could find neither.&lt;br /&gt;&lt;br /&gt;So I looked at the copyright information and it said (C) 1996 All Rights Reserved. That did not seem right so I went to Wallmart to check what they have on the shelves. Easy enough: (C) 2011 All Rights Reserved.&lt;br /&gt;&lt;br /&gt;You can draw your own conclusions here... (according to the online info the Palmer&#x27;s Cocoa Butter Formula has 3 years shelf life, or 12 months after opened).</li>
+    <li> My wife used this stuff when she was pregnant morning and night from the time she started having a small belly show. Our baby was born and my wife has no stretch marks on her. Love this stuff. I&#x27;d give it 10 stars because of how well it works.</li>
+    <li> almost 8 months pregnant and haven&#x27;t gotten any new stretch marks!</li>
+    <li> Love this product! Used it very liberally and didn&#x27;t get a single stretch mark during or after my pregnancy!</li>
+    <li> I bought this for stretch marks I got from weight lifting. I ended up loving it both for the stretch marks and just as a gerneral lotion because of the results and also the amazing smell. The stretch marks faded some cause of this lotion!</li>
+    <li> Brought it for my pregnant girlfriend and she loves it no extra stretch marks!!!</li>
+    <li> at first the smell is nice, but with hormones, fed up will the smell of cocoa and late pregnancy is a martyrdom :(</li>
+    <li> I LOVE this product.  I have purchased previous lotions and creams to get rid of stretch marks on my hips and thighs and have always been disappointed it the smell or the results.  I am so happy with this product all around.  The smell is AMAZING.  It smells like chocolate but not an overwhelming sweet smell, just pleasant.  It also works really well.  I have been using it for almost a month now and the marks on the thighs are gone and the ones on my hips are decreasing and aren&#x27;t nearly as bright red as they originally were.  I don&#x27;t know if when you apply it makes a different by I applied it to the two areas right after taking a shower and then proceeded to put my regular body lotion on afterwards, in some spots they overlapped.</li>
+    <li> I vigorously used this product for months and it did nothing for me..but waste time I could have been using a product that actually helpes</li>
+    <li> i have been using this cocoa butter for about two weeks now. I use it twice daily. I haven&#x27;t really noticed any difference. My daughter will be 1 in a few weeks so these are no fresh/new stretch marks that I&#x27;m using the cream on. It does smell really good though, that&#x27;s a plus. Will keep using it and come back to update in a few months.</li>
+    <li> The lotion is really thick- which I like, but the smell is really strong. I still use it, but I won&#x27;t buy it again.</li>
+    <li> First day &amp; already working</li>
+    <li> This stuff smells good, goes on thick and makes my skin feel great. I doesn&#x27;t really do anything for my stretch marks though, it was worth a try.</li>
+    <li> Good cream! Smells strong of cocoa.</li>
+    <li> Been using this in combination with the Soothing Oil and it smells good and is a great formulation, but I haven&#x27;t noticed a significant reduction in the appearance of stretch marks yet after two weeks of use. I&#x27;ll keep trying and re-post if I notice any difference.</li>
+    <li> It significantly reduced the appearance of my stretch marks. They aren&#x27;t as raised and are closer to my skin tone now. Only am at the end of my first 4.4 ounce bottle, so with continued use, it should keep looking better.</li>
+    <li> The smell is strong and sticks to your clothes.  Would rather wear this at night before going to bed.  Product is ok.</li>
+    <li> This product worked out for me because I didn&#x27;t go in with huge expectations. It smells good and makes my skin feel soft, and I think it&#x27;s helping the stretch marks but I can&#x27;t really tell. I wouldn&#x27;t go around raving about it, but it isn&#x27;t a useless product either.</li>
+    <li> I like the butter form better but used this on my thighs.  Not sure if it works skin doesn&#x27;t feel tight from it.  Just feels like lotion.</li>
+    <li> I developed pretty bad stretch marks in the last month of my pregnancy (after I thought I wasn&#x27;t going to get any!). I bought this stuff based on the price and reviews. I used it during the last month of pregnancy and after birth. Now, after almost 6 weeks postpartum, I can notice them fading from a deep red to a pink color. Very encouraging to this new mommy! I will keep using it in the following months and, hopefully, they will fade even more!!</li>
+    <li> I use it on my belly during my pregnancy and I didn&#x27;t get any stretch marks but b4  I started using it I already got some and didnt fade them</li>
+    <li> This product has saved my tummy,  I did follow up with TRILASTIN MATERNITY stretch mark prevention and I have only three stretch marks. A must have for expecting mommy&#x27;s!</li>
+    <li> I have been using this since the early stages of pregnancy. I have gained a lot of weight (hey, we all love the eating for two excuse, right???), and at 32 weeks, I have NO stretch marks!&lt;br /&gt;I apply after showers and before bed.&lt;br /&gt;I ordered more from Amazon to replenish my supply for the final two months and found the price to be good.</li>
+    <li> I used this product during my first pregnancy starting on the fourth month and I didn&#x27;t get any stretch marks. I don&#x27;t like the smell very much, but I loved the result. Now I bought it again for my second pregnancy.</li>
+    <li> Has been in use, there is no significant effect</li>
+    <li> At first, I thought the cream was too thick and greasy, but not anymore. I got used to it, I put it on once a day, right after a shower and let it dry before putting any clothes on. It takes a minute but it&#x27;s so worth it. I started using at 20 weeks and it absolutely resolved the intense itching in my growing belly. i also apply it on my breasts and hips. Smells delicious. I am now 31 weeks and I don&#x27;t have any stretch marks yet, so this cream must work. I ordered some more for my sister-in-law who just found out she&#x27;s pregnant. So I highly recommend it. Great quality and results for an amazing price. I wish I had started using it earlier on for the itching.</li>
+    <li> This is a thick cream, which seems to last throughout the day! I am only 17 weeks pregnant, but use this product daily as stretch mark prevention. It also smells great!</li>
+    <li> I&#x27;m 4 1/2 months pregnant. My breasts grew significantly in a very short period of time and I ended up with a few stretch marks before ordering this product. I&#x27;ve been applying regularly and have aquired no new stretch marks (though I continue to grow), but it hasn&#x27;t seemed to do much for the ones I already have (that were fresh).</li>
+    <li> I works in fading my stretch marks but you can still see and feel them. I will continue to use it because I like it and I like the result it has given me. Hopefully, by next year I see almost complete invisibility.</li>
+    <li> Other creams are much more expensive than this, but this works just about as effectively as 20 dollar creams like Barmons.  The only downside is the cocoa butter scent.  However, you eventually get used to the smell and it is not a deal breaker.  Cocoa butter is also one of the best ingredients for nasty stretch marks.  The product claims that with regular use, skin elasticity improved in 97% of test subjects. The key word here is regular use.  You have to use this at least once or twice a day to actually see results in your marks fading.  For the value, you should not be afraid to at least try it yourself.  It worked for me and seems to work better with regular use.</li>
+    <li> It is perfect to use all over the body.  Especially on really dry skin and stretch marks.  I&#x27;m not a mother yet, but my sister is and uses this lotion on her stomach, legs, chest etc.  LOVE IT.</li>
+    <li> I purchased this cream to help with my post pregnancy stretch marks across my stomach, under my breasts and hip/thigh area.  After two boys, I had a few marks I hoped to at least fade in appearance.  The jury is still out on the results, as I have just been using the cream 2 x&#x27;s/day for the past week.  Having said that, it does smell wonderful and the sent lingers through the day.  Also - a nice consistency - thick, but not overly so.  I will post an update after I have used the product for several months.  Honestly though( just between us women) I&#x27;m not expecting the stretch marks to fade.  Not sure any product out there can really make a visible difference.....we shall see :)  I may also try Bio-Oil, which is also purported to help out with stretch marks.</li>
+</ol>
+
+
+
+

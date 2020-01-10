@@ -1,0 +1,126 @@
+---
+title: Maybelline New York Cover Stick Concealer, 0.16 Ounce,
+description: Maybelline New York Cover Stick Concealer, 0.16 Ounce,
+author: Suvojit Manna,
+tags: Maybelline New York Cover Stick Concealer, 0.16 Ounce,
+publishedAt: Fri Jan 10 2020 14:59:30 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:59:30 GMT+0530 (India Standard Time),
+---
+
+# [Maybelline New York Cover Stick Concealer, 0.16 Ounce](https://products.checkmycream.com/products/Maybelline-New-York-Cover-Stick-Concealer-0.16-Ounce.html)
+
+### Positive Reviews
+
+<ol>
+      <li>I love this concealer, but I can no longer find it in stores!!!</li>
+      <li>Works Great.  </li>
+      <li>Good product.</li>
+      <li>This concealer is very easy to use and is a wonderful match for my light skin color.  </li>
+      <li>I am very pleased with this product.</li>
+      <li>It doesn&#x27;t cover them perfectly and tends to crease on fine lines, but it&#x27;s the best product I&#x27;ve found by far.</li>
+      <li>I&#x27;m using Light 2 now, but it&#x27;s still not as good as whatever their lightest used to be.</li>
+      <li>I&#x27;ve used this product since my early 20s, mostly to help cover under eye circles, but always has worked great for me!</li>
+      <li>It goes on nice and creamy, blends out wonderfully, and is actually full-coverage.</li>
+      <li>however it&#x27;s very light coverage, so</li>
+      <li>Blends well and stays put for hours :)</li>
+      <li>An added plus is that it contains fore product than many concealers.</li>
+      <li>It&#x27;s okay</li>
+      <li>I tried many brands before finding this one.</li>
+      <li>then you will love this one, because all of us girls like different things, and one thing may work perfect for one of us may not work at all for someone else, ya know!</li>
+      <li>it&#x27;s a good product if you don&#x27;t plan on using it very often.</li>
+      <li>this concealer is good, I gave it 3 stars because first and foremost it&#x27;s real sticky creamy consistency,</li>
+      <li>if your looking for medium or full coverage look elsewhere.</li>
+      <li>This is a great product and covers extremely well.</li>
+      <li>It is better used by younger women as it will cover much more.</li>
+      <li>It also is great for covering up little imperfections on your face.</li>
+      <li>I&#x27;ve even checked other stores to make sure I hadn&#x27;t just encountered a mis-marked batch, but Light 2 has been lighter than Light 1 everywhere I&#x27;ve looked.</li>
+      <li>They don&#x27;t give very much product, I&#x27;ve had mine for a month</li>
+      <li>well most all day long.  </li>
+      <li>I do like their Dream Matte Mousse concealers, but the appeal of their cover sticks has always been that I don&#x27;t get nearly as much of the product all over my hands.</li>
+      <li>I have used Maybelline&#x27;s cover sticks for years, so when they changed the names of their shades, I didn&#x27;t think much of it and bought the lightest option as always (now called \\&quot;fair\\&quot;).</li>
+      <li>then use bronzer down each side - blend well), and around the creases of my mouth (keeps my lip liner/lipstick from spreading like the joker :)</li>
+      <li>This cover stick has a tendency to drag and not cover smoothly.</li>
+      <li>I normally apply it on a blemish in the morning and it seems to cover it</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> I love this concealer, but I can no longer find it in stores!!!</li>
+<li> Works Great.  </li>
+<li> Good product.</li>
+<li> This concealer is very easy to use and is a wonderful match for my light skin color.  </li>
+<li> I am very pleased with this product.</li>
+<li> It doesn&#x27;t cover them perfectly and tends to crease on fine lines, but it&#x27;s the best product I&#x27;ve found by far.</li>
+<li> I&#x27;m using Light 2 now, but it&#x27;s still not as good as whatever their lightest used to be.</li>
+<li> I&#x27;ve used this product since my early 20s, mostly to help cover under eye circles, but always has worked great for me!</li>
+<li> It goes on nice and creamy, blends out wonderfully, and is actually full-coverage.</li>
+<li> however it&#x27;s very light coverage, so</li>
+<li> Blends well and stays put for hours :)</li>
+<li> An added plus is that it contains fore product than many concealers.</li>
+<li> It&#x27;s okay</li>
+<li> I tried many brands before finding this one.</li>
+<li> then you will love this one, because all of us girls like different things, and one thing may work perfect for one of us may not work at all for someone else, ya know!</li>
+<li> it&#x27;s a good product if you don&#x27;t plan on using it very often.</li>
+<li> this concealer is good, I gave it 3 stars because first and foremost it&#x27;s real sticky creamy consistency,</li>
+<li> if your looking for medium or full coverage look elsewhere.</li>
+<li> This is a great product and covers extremely well.</li>
+<li> It is better used by younger women as it will cover much more.</li>
+<li> It also is great for covering up little imperfections on your face.</li>
+<li> I&#x27;ve even checked other stores to make sure I hadn&#x27;t just encountered a mis-marked batch, but Light 2 has been lighter than Light 1 everywhere I&#x27;ve looked.</li>
+<li> They don&#x27;t give very much product, I&#x27;ve had mine for a month</li>
+<li> well most all day long.  </li>
+<li> I do like their Dream Matte Mousse concealers, but the appeal of their cover sticks has always been that I don&#x27;t get nearly as much of the product all over my hands.</li>
+<li> I have used Maybelline&#x27;s cover sticks for years, so when they changed the names of their shades, I didn&#x27;t think much of it and bought the lightest option as always (now called \\&quot;fair\\&quot;).</li>
+<li> then use bronzer down each side - blend well), and around the creases of my mouth (keeps my lip liner/lipstick from spreading like the joker :)</li>
+<li> This cover stick has a tendency to drag and not cover smoothly.</li>
+<li> I normally apply it on a blemish in the morning and it seems to cover it</li>
+<li> Do not buy this product, it is so dry and goes on like</li>
+<li> this is to cover blemishes NOT for under eyes unless u want to look dry and chalky...use a liquid concealer for under eyes..</li>
+<li> I could not live without it.....</li>
+<li> after I applied it, it kept this wet sticky texture,</li>
+<li> I try other brands once in a while to change it up -- but I always end up back on this one after a few days.</li>
+<li> Way too dark.</li>
+<li> I like the ones that don&#x27;t stay wet like and sticky, plus it made me have a few pimples,  if your looking for a concealer that stays</li>
+<li> I like to use this under my eyes (to make them brighter), down the tip of my nose (to make my nose thinner looking...</li>
+<li> I&#x27;m always a little bit skeptical on cutting costs to buy drugstore brands, but this is actually nice quality.</li>
+<li> It&#x27;s not for someone who has a few crows feet or wrinkles.</li>
+<li> a dried up crayon----thought</li>
+<li> I have tried literally EVERYTHING to cover my annoying dark under eye circles, but I always come back to this.</li>
+<li> Im not happy at all.</li>
+<li> If Maybelline ever stops making it, I&#x27;m seriously screwed!</li>
+<li> but I was wrong.  </li>
+<li> I wanted to be blown away by this concealer, but sadly I wasn&#x27;t; don&#x27;t get me wrong</li>
+<li> This product arrived broken at the base of the concealer. ..</li>
+<li> Too bad</li>
+<li> Disappointed.  </li>
+<li> Very disappointing.</li>
+<li> It&#x27;s AWFUL.</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> This is a great product and covers extremely well. An added plus is that it contains fore product than many concealers. I tried many brands before finding this one.</li>
+    <li> I buy this item often. It is one of my subscribe and save items. Works Great.  Too bad I DIDNT RECIEVE IT!!!  Im not happy at all.</li>
+    <li> Covers up those darker age spots on hands and face.  Good product.</li>
+    <li> I have used Maybelline&#x27;s cover sticks for years, so when they changed the names of their shades, I didn&#x27;t think much of it and bought the lightest option as always (now called \\&quot;fair\\&quot;). It&#x27;s AWFUL. Way too dark. It&#x27;s actually darker than the shade that&#x27;s supposed to be one darker! I&#x27;ve even checked other stores to make sure I hadn&#x27;t just encountered a mis-marked batch, but Light 2 has been lighter than Light 1 everywhere I&#x27;ve looked. Very disappointing. I&#x27;m using Light 2 now, but it&#x27;s still not as good as whatever their lightest used to be. I do like their Dream Matte Mousse concealers, but the appeal of their cover sticks has always been that I don&#x27;t get nearly as much of the product all over my hands. Here&#x27;s hoping they go back to whatever they were doing before.</li>
+    <li> I wanted to be blown away by this concealer, but sadly I wasn&#x27;t; don&#x27;t get me wrong this concealer is good, I gave it 3 stars because first and foremost it&#x27;s real sticky creamy consistency, after I applied it, it kept this wet sticky texture, I like the ones that don&#x27;t stay wet like and sticky, plus it made me have a few pimples,  if your looking for a concealer that stays kinda damp then you will love this one, because all of us girls like different things, and one thing may work perfect for one of us may not work at all for someone else, ya know!</li>
+    <li> I love this concealer, but I can no longer find it in stores!!!</li>
+    <li> It helps some.  It is better used by younger women as it will cover much more.</li>
+    <li> I&#x27;m always a little bit skeptical on cutting costs to buy drugstore brands, but this is actually nice quality. It goes on nice and creamy, blends out wonderfully, and is actually full-coverage.</li>
+    <li> This is the ONLY concealer I have used over the last 21 years. I try other brands once in a while to change it up -- but I always end up back on this one after a few days.</li>
+    <li> This concealer is very easy to use and is a wonderful match for my light skin color.  I normally apply it on a blemish in the morning and it seems to cover it well most all day long.  I am very pleased with this product.</li>
+    <li> It&#x27;s okay however it&#x27;s very light coverage, so if your looking for medium or full coverage look elsewhere. They don&#x27;t give very much product, I&#x27;ve had mine for a month and it&#x27;s almost gone. I only do my makeup 2-3 times a week, so it&#x27;s a good product if you don&#x27;t plan on using it very often.</li>
+    <li> I have been using this product for years. It covers under eyes and makes your eyes look a lot bigger.  It also is great for covering up little imperfections on your face. I could not live without it.....</li>
+    <li> This product arrived broken at the base of the concealer. ..PLEASE NOTE ladies this is to cover blemishes NOT for under eyes unless u want to look dry and chalky...use a liquid concealer for under eyes..</li>
+    <li> I&#x27;ve used this product since my early 20s, mostly to help cover under eye circles, but always has worked great for me! Blends well and stays put for hours :)</li>
+    <li> Do not buy this product, it is so dry and goes on like a dried up crayon----thought it would be easier than the one I was using  but I was wrong.  Disappointed.  Oh had moisturizer on and it did not help</li>
+    <li> I like to use this under my eyes (to make them brighter), down the tip of my nose (to make my nose thinner looking...then use bronzer down each side - blend well), and around the creases of my mouth (keeps my lip liner/lipstick from spreading like the joker :)</li>
+    <li> I have tried literally EVERYTHING to cover my annoying dark under eye circles, but I always come back to this. It doesn&#x27;t cover them perfectly and tends to crease on fine lines, but it&#x27;s the best product I&#x27;ve found by far. If Maybelline ever stops making it, I&#x27;m seriously screwed!</li>
+    <li> This cover stick has a tendency to drag and not cover smoothly. It&#x27;s not for someone who has a few crows feet or wrinkles.</li>
+</ol>
+
+
+
+

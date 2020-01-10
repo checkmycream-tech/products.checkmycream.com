@@ -1,0 +1,95 @@
+---
+title: Feather No.50/55 Replacement Blade,
+description: Feather No.50/55 Replacement Blade,
+author: Suvojit Manna,
+tags: Feather No.50/55 Replacement Blade,
+publishedAt: Fri Jan 10 2020 15:00:03 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:03 GMT+0530 (India Standard Time),
+---
+
+# [Feather No.50/55 Replacement Blade](https://products.checkmycream.com/products/Feather-No.5055-Replacement-Blade.html)
+
+### Positive Reviews
+
+<ol>
+      <li>Best sheers I have !</li>
+      <li>Excellent quality an price!</li>
+      <li>great shear for price</li>
+      <li>They were great.</li>
+      <li>Good product and got here on time.</li>
+      <li>Gotta love a pair of scissors with replaceable blades!</li>
+      <li>I love replaceable blades, its great for using on clients who refuse to have clean hair when getting a haircut</li>
+      <li>Great price and fast delivery.</li>
+      <li>I use these more than a $500.00 pair</li>
+      <li>I quess that is the case with most things these days.</li>
+      <li>Had my scissors for over 25 years and love the way that they cut.</li>
+      <li>I am glad I was still able to order these replacement for my scissors.</li>
+      <li>---will order more</li>
+      <li>Great blades, very sharp</li>
+      <li>Exactly what I was looking for</li>
+      <li>Stylist spend way to much on shears and sharpening.</li>
+      <li>Now my scissors are brand new again.  </li>
+      <li>This system has been used by my wife for about ten years, and is the most practical way to have sharp scissors without sending them out for sharpening.</li>
+      <li>I grabbed an oven mit and pulled off my old, chipped blades (dropped on ceramic tile floor) and threw on the new pair...</li>
+      <li>I have had the same pair of Feather replaceable blade scissors since the early 1980s and have just bought my first replacement blades.</li>
+      <li>THEY WORK VERY WELL LAST</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> Best sheers I have !</li>
+<li> Excellent quality an price!</li>
+<li> great shear for price</li>
+<li> They were great.</li>
+<li> Good product and got here on time.</li>
+<li> Gotta love a pair of scissors with replaceable blades!</li>
+<li> I love replaceable blades, its great for using on clients who refuse to have clean hair when getting a haircut</li>
+<li> Great price and fast delivery.</li>
+<li> I use these more than a $500.00 pair</li>
+<li> I quess that is the case with most things these days.</li>
+<li> Had my scissors for over 25 years and love the way that they cut.</li>
+<li> I am glad I was still able to order these replacement for my scissors.</li>
+<li> ---will order more</li>
+<li> Great blades, very sharp</li>
+<li> Exactly what I was looking for</li>
+<li> Stylist spend way to much on shears and sharpening.</li>
+<li> Now my scissors are brand new again.  </li>
+<li> This system has been used by my wife for about ten years, and is the most practical way to have sharp scissors without sending them out for sharpening.</li>
+<li> I grabbed an oven mit and pulled off my old, chipped blades (dropped on ceramic tile floor) and threw on the new pair...</li>
+<li> I have had the same pair of Feather replaceable blade scissors since the early 1980s and have just bought my first replacement blades.</li>
+<li> THEY WORK VERY WELL LAST</li>
+<li> PAIR LASTED YEARS JUST CUTTING HAIR FOR THE FAMILY NOT PROFESSIONAL VERY EASY TO CHANGE OUT</li>
+<li> I was afraid they wouldn&#x27;t be available.</li>
+<li> what I expected ....</li>
+<li> Buy these and no more big expense.</li>
+<li> They are SHARP, but you have to work at it to hurt yourself with them.</li>
+<li> Very sharp replacement blades, but not the sturdy quality and feel of the originals from the late 70s.</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> Good product and got here on time. They were great. I will buy them from you again.</li>
+    <li> Stylist spend way to much on shears and sharpening. Buy these and no more big expense. I use these more than a $500.00 pair</li>
+    <li> This system has been used by my wife for about ten years, and is the most practical way to have sharp scissors without sending them out for sharpening. I keep her stocked up on spares including two extra pair of scissors.</li>
+    <li> THEY WORK VERY WELL LAST PAIR LASTED YEARS JUST CUTTING HAIR FOR THE FAMILY NOT PROFESSIONAL VERY EASY TO CHANGE OUT</li>
+    <li> Gotta love a pair of scissors with replaceable blades!</li>
+    <li> Excellent quality an price!</li>
+    <li> I grabbed an oven mit and pulled off my old, chipped blades (dropped on ceramic tile floor) and threw on the new pair...Now my scissors are brand new again.  They are SHARP, but you have to work at it to hurt yourself with them.</li>
+    <li> Had a pair of these for years - replace blades ~ once/year.  Always get them here</li>
+    <li> Exactly what I was looking for</li>
+    <li> I am glad I was still able to order these replacement for my scissors. Had my scissors for over 25 years and love the way that they cut.</li>
+    <li> Great blades, very sharp</li>
+    <li> what I expected .... Best sheers I have !</li>
+    <li> I love replaceable blades, its great for using on clients who refuse to have clean hair when getting a haircut and you have to cut thru gels</li>
+    <li> I have had the same pair of Feather replaceable blade scissors since the early 1980s and have just bought my first replacement blades. I would not hesitate to buy them again!</li>
+    <li> Very sharp replacement blades, but not the sturdy quality and feel of the originals from the late 70s. I quess that is the case with most things these days.</li>
+    <li> I have had my scissors for over 30 years and even tho I no longer do hair I still wanted to replace my blades. I was afraid they wouldn&#x27;t be available. Great price and fast delivery. Thank you!</li>
+    <li> great shear for price ---will order more</li>
+    <li> Received item as described. Thank you. AAAAAAAAAA++++++++++++</li>
+</ol>
+
+
+
+

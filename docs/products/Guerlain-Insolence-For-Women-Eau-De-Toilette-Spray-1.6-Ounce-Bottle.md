@@ -1,0 +1,122 @@
+---
+title: Guerlain Insolence For Women, Eau De Toilette Spray, 1.6-Ounce Bottle,
+description: Guerlain Insolence For Women, Eau De Toilette Spray, 1.6-Ounce Bottle,
+author: Suvojit Manna,
+tags: Guerlain Insolence For Women, Eau De Toilette Spray, 1.6-Ounce Bottle,
+publishedAt: Fri Jan 10 2020 14:59:16 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:59:16 GMT+0530 (India Standard Time),
+---
+
+# [Guerlain Insolence For Women, Eau De Toilette Spray, 1.6-Ounce Bottle](https://products.checkmycream.com/products/Guerlain-Insolence-For-Women-Eau-De-Toilette-Spray-1.6-Ounce-Bottle.html)
+
+### Positive Reviews
+
+<ol>
+      <li>Was so thrilled to find on Amazon!!</li>
+      <li>Great packing, excellent choice.</li>
+      <li>This fragrance smells sooo freaking good!</li>
+      <li>I can&#x27;t explain it, but this perfume makes my brain happy</li>
+      <li>It wasn&#x27;t perfume but was good</li>
+      <li>As soon as I spritz it on I feel good.</li>
+      <li>It was a gift and loved by recipient.</li>
+      <li>This is my favorite perfume, Great price for the size I purchased.</li>
+      <li>I love this perfume!</li>
+      <li>Love the fragrance, wish it lasted longer!</li>
+      <li>So amazing.</li>
+      <li>This was priced great and came rather quickly.  </li>
+      <li>I get more compliments when I&#x27;m wearing Insolence by Guerlain.  </li>
+      <li>I love the smell of this perfume.  </li>
+      <li>Sephora no longer carries and I absolutely love it...</li>
+      <li>and I love wearing it.</li>
+      <li>I am glad I put it on auto notification</li>
+      <li>My favorite scent since I was introduced in Sydney, Australia at Myer Department Store.  </li>
+      <li>My wife first discovered this scent on a cruise ship &amp; loved it.</li>
+      <li>have used for a long time and is the best</li>
+      <li>but like everything I enjoy it seems, they no longer do.</li>
+      <li>Thank you Amazon for giving me my happy back!!!!</li>
+      <li>rich</li>
+      <li>Absolutely beautiful fragrance sweet and charming violet very long lasting aroma.</li>
+      <li>so I do go through it quickly.  </li>
+      <li>Quick shipping from this merchant.</li>
+      <li>widely recommended and you get nice</li>
+      <li>I have used Insolence before and this is the first time this has happened.  </li>
+      <li>you want a scent that they&#x27;ll really notice, buy Insolence!</li>
+      <li>Totally different smell from the original perfume I purchased at Macys!</li>
+      <li>A very fruity, flowery scent.</li>
+      <li>it is very feminine.</li>
+      <li>Highly recommend</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> Was so thrilled to find on Amazon!!</li>
+<li> Great packing, excellent choice.</li>
+<li> This fragrance smells sooo freaking good!</li>
+<li> I can&#x27;t explain it, but this perfume makes my brain happy</li>
+<li> It wasn&#x27;t perfume but was good</li>
+<li> As soon as I spritz it on I feel good.</li>
+<li> It was a gift and loved by recipient.</li>
+<li> This is my favorite perfume, Great price for the size I purchased.</li>
+<li> I love this perfume!</li>
+<li> Love the fragrance, wish it lasted longer!</li>
+<li> So amazing.</li>
+<li> This was priced great and came rather quickly.  </li>
+<li> I get more compliments when I&#x27;m wearing Insolence by Guerlain.  </li>
+<li> I love the smell of this perfume.  </li>
+<li> Sephora no longer carries and I absolutely love it...</li>
+<li> and I love wearing it.</li>
+<li> I am glad I put it on auto notification</li>
+<li> My favorite scent since I was introduced in Sydney, Australia at Myer Department Store.  </li>
+<li> My wife first discovered this scent on a cruise ship &amp; loved it.</li>
+<li> have used for a long time and is the best</li>
+<li> but like everything I enjoy it seems, they no longer do.</li>
+<li> Thank you Amazon for giving me my happy back!!!!</li>
+<li> rich</li>
+<li> Absolutely beautiful fragrance sweet and charming violet very long lasting aroma.</li>
+<li> so I do go through it quickly.  </li>
+<li> Quick shipping from this merchant.</li>
+<li> widely recommended and you get nice</li>
+<li> I have used Insolence before and this is the first time this has happened.  </li>
+<li> you want a scent that they&#x27;ll really notice, buy Insolence!</li>
+<li> Totally different smell from the original perfume I purchased at Macys!</li>
+<li> A very fruity, flowery scent.</li>
+<li> it is very feminine.</li>
+<li> Highly recommend</li>
+<li> This bottle smelled a little lighter than normal and didn&#x27;t last as long the ones I buy at the perfume store.</li>
+<li> Use perfume GUERLAIN more than 10 years and to receive realized that it is not ORIGINAL, it is FAKE.</li>
+<li> /o cheaper than any other place we have seen it.</li>
+<li> This is my everyday perfume</li>
+<li> I must have gotten a bad (old?)</li>
+<li> I was very disappointed in this purchase, because after just a few minutes it totally loses its scent.  </li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> This is my favorite perfume, Great price for the size I purchased.</li>
+    <li> I love this perfume! Prompt delivery!</li>
+    <li> I was very disappointed in this purchase, because after just a few minutes it totally loses its scent.  I have used Insolence before and this is the first time this has happened.  I must have gotten a bad (old?) bottle this time.</li>
+    <li> A very fruity, flowery scent. Quick shipping from this merchant. Cheaper than several perfume stores I went to.</li>
+    <li> This was priced great and came rather quickly.  This is my everyday perfume so I do go through it quickly.  This bottle smelled a little lighter than normal and didn&#x27;t last as long the ones I buy at the perfume store.</li>
+    <li> This fragrance smells sooo freaking good! I hope they never discontinue because it is my signature scent. I like to mix it with Midnight Fantasy by Britney Spears.</li>
+    <li> I get more compliments when I&#x27;m wearing Insolence by Guerlain.  It&#x27;s wonderful!&lt;br /&gt;If you want a scent that they&#x27;ll really notice, buy Insolence!</li>
+    <li> I can&#x27;t explain it, but this perfume makes my brain happy and I love wearing it. As soon as I spritz it on I feel good. Used to buy at Macy&#x27;s but like everything I enjoy it seems, they no longer do. Was so thrilled to find on Amazon!! Hubby likes it too!!!!&lt;br /&gt; Thank you Amazon for giving me my happy back!!!!</li>
+    <li> Insolence 100%.&lt;br /&gt;&lt;br /&gt;number 1. rich fragrance.&lt;br /&gt;&lt;br /&gt;is widely recommended and you get nice experience.&lt;br /&gt;&lt;br /&gt;I have used for a long time and is the best</li>
+    <li> My wife first discovered this scent on a cruise ship &amp; loved it. So do I. The price at Amazon was about 30 o/o cheaper than any other place we have seen it.</li>
+    <li> It wasn&#x27;t perfume but was good</li>
+    <li> Absolutely beautiful fragrance sweet and charming violet very long lasting aroma. Price and service vas exsellent. !!!</li>
+    <li> Great packing, excellent choice. Highly recommend</li>
+    <li> NOT the same perfume as MY Insolence.  Totally different smell from the original perfume I purchased at Macys!</li>
+    <li> I love the smell of this perfume.  it is very feminine.</li>
+    <li> It was a gift and loved by recipient.</li>
+    <li> Love the fragrance, wish it lasted longer!</li>
+    <li> My wife loves this scent. She loves this Perfume!</li>
+    <li> Use perfume GUERLAIN more than 10 years and to receive realized that it is not ORIGINAL, it is FAKE. and i want my money back.</li>
+    <li> My favorite scent since I was introduced in Sydney, Australia at Myer Department Store.  So amazing.</li>
+    <li> Sephora no longer carries and I absolutely love it...I get a lot of compliments when I wear it!  I am glad I put it on auto notification</li>
+</ol>
+
+
+
+

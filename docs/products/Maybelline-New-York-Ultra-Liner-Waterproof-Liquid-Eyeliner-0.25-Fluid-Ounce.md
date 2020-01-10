@@ -1,0 +1,256 @@
+---
+title: Maybelline New York Ultra Liner Waterproof Liquid Eyeliner, 0.25 Fluid Ounce,
+description: Maybelline New York Ultra Liner Waterproof Liquid Eyeliner, 0.25 Fluid Ounce,
+author: Suvojit Manna,
+tags: Maybelline New York Ultra Liner Waterproof Liquid Eyeliner, 0.25 Fluid Ounce,
+publishedAt: Fri Jan 10 2020 14:59:16 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:59:16 GMT+0530 (India Standard Time),
+---
+
+# [Maybelline New York Ultra Liner Waterproof Liquid Eyeliner, 0.25 Fluid Ounce](https://products.checkmycream.com/products/Maybelline-New-York-Ultra-Liner-Waterproof-Liquid-Eyeliner-0.25-Fluid-Ounce.html)
+
+### Positive Reviews
+
+<ol>
+      <li>This is is the best price ever on this eyeliner that i have seen.</li>
+      <li>Goes are great!</li>
+      <li>Very good.  </li>
+      <li>I realize how good this one is!</li>
+      <li>Amazon&#x27;s price is great.</li>
+      <li>That was great.</li>
+      <li>it works great in the eyes</li>
+      <li>have looked for a good option to pencils and crayons, and THIS item fits the bill.  </li>
+      <li>Good color.  </li>
+      <li>Good price.</li>
+      <li>Maybe good for blondes, and in the day time.&lt;br /&gt;&lt;br</li>
+      <li>I used this eyeliner for many years!</li>
+      <li>My favorite for years!</li>
+      <li>I&#x27;m sure!</li>
+      <li>Nice Brown color too.</li>
+      <li>I will say nice color</li>
+      <li>I&#x27;m so glad to have found good ole maybelline ultra liner on line.</li>
+      <li>It takes some doing to get it all off, but that is the cost of having it stay on nicely.</li>
+      <li>Good product, easy to use.</li>
+      <li>It is to remove very easy and don´t endure all the day</li>
+      <li>It seems to come off very easily, or maybe I have oily eye lids...</li>
+      <li>The brush isn&#x27;t very precise and it gets clumpy...</li>
+      <li>I have very light hair</li>
+      <li>One of my favorite eye liners</li>
+      <li>but i love the brown color.</li>
+      <li>Will always be my favorite</li>
+      <li>This is my favorite eye liner.</li>
+      <li>This product is okay.</li>
+      <li>I love it.  </li>
+      <li>When I first started using it, I loved it.</li>
+      <li>I have had several comments on how nice my make-up looks!!</li>
+      <li>I think of this as more of a daytime product to be worn when I want light eye-makeup.</li>
+      <li>I was looking for an eyeliner that was waterproof in addition to being easy to apply.</li>
+      <li>This eyeliner is easy to apply and it lasts all day.  </li>
+      <li>It is easy to apply, but within an hour it starts to peel off and the clumps get into my eyes causing irritation.  </li>
+      <li>easy to apply and to fix and remove with eye makeup remover.</li>
+      <li>not bad but not my favorite</li>
+      <li>It also separates and does not create a smooth line as well as dissipates very quickly.</li>
+      <li>Everything was fine with this until I went to remove it.  </li>
+      <li>I get the brown and it always gives me the perfect soft, natural liner.  </li>
+      <li>and I&#x27;m not allergic to it, which is a huge point.</li>
+      <li>The brown is rather light.</li>
+      <li>Goes on smoothly and stays on all day.</li>
+      <li>okay product, it will fall into pieces even right after i apply it.</li>
+      <li>I have to say I love Maybelline&#x27;s New York Eye Studio Master Precise Liquid Eyeliner more than this one.</li>
+      <li>The almay intense i-color liquid eyeliner is much better.</li>
+      <li>it dries from the bottle quickly.</li>
+      <li>Not bad for my first liquid line - flakes a bit if you rub your eyes though...</li>
+      <li>This product is waterproof but very easy to take off with non-soap facial cleanser.</li>
+      <li>With the facial cleanser it comes off very easily.</li>
+      <li>It was OK for the first few times and then it started building up around the top of the bottle and the wand part,  just getting clumpy.  </li>
+      <li>The price is very reasonable.</li>
+      <li>This was the first waterproof liquid eyeliner that I used.</li>
+      <li>/&gt;It was not even HOT out either.&lt;br /&gt;Now</li>
+      <li>I love this eyeliner has been my makeup bag staple for several years.</li>
+      <li>The brush is exceptional; thin for a good line but large enough to control and leave a mark.  </li>
+      <li>This works ok but does not last the whole day on the eyes.</li>
+      <li>From far away it looks nice when applied, but up close it looks dry and clumpy.</li>
+      <li>It performs well on top of the lids, but if you want clean, precise wings extending from the corners of your eyes, this won&#x27;t hold up for more than a couple hours before the definition is lost and you simply have some dark makeup at the corners of your eyes in dried globs.</li>
+      <li>The liquid blends well with the eyelashes, but dries really fast.  </li>
+      <li>The good thing is that the brush is short, and it is easier to maneuver it to paint a sharp line.</li>
+      <li>For you who still wear eyeliner, I can recommend it highly after much trial and error.</li>
+      <li>Color is perfect; dark enough to emphasize eyes but not so dark as to look fierce....</li>
+      <li>So glad Amazon had this - becoming difficult to find in retail stores for some reason.  </li>
+      <li>Good application brush for thin or thicker lines.  </li>
+      <li>I purchased the Maybelline New York Ultra Liner Waterproof Liquid Eyeliner, in Dark Brown, as well as the Maybelline New York Eye Studio Master Precise Liquid Eyeliner (it is a felt pen liquid eyeliner) and</li>
+      <li>It&#x27;s way too dark for my light coloring.</li>
+      <li>I suppose it is old stock.</li>
+      <li>and I wear it nearly every day.  </li>
+      <li>I only use this occasionally, when I want to look extra special in the evening.</li>
+      <li>brand new, it chips off in short tubes, onto your cheek.&lt;br</li>
+      <li>For me the brush was a bit to big as I like a nice thin line.  </li>
+      <li>It is clumpy and not long wearing.</li>
+      <li>Not particularly long lasting.</li>
+      <li>As good, if not better, than &amp;#34;designer&amp;#34; eyeliners--at less than half the price!!</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> This is is the best price ever on this eyeliner that i have seen.</li>
+<li> Goes are great!</li>
+<li> Very good.  </li>
+<li> I realize how good this one is!</li>
+<li> Amazon&#x27;s price is great.</li>
+<li> That was great.</li>
+<li> it works great in the eyes</li>
+<li> have looked for a good option to pencils and crayons, and THIS item fits the bill.  </li>
+<li> Good color.  </li>
+<li> Good price.</li>
+<li> Maybe good for blondes, and in the day time.&lt;br /&gt;&lt;br</li>
+<li> I used this eyeliner for many years!</li>
+<li> My favorite for years!</li>
+<li> I&#x27;m sure!</li>
+<li> Nice Brown color too.</li>
+<li> I will say nice color</li>
+<li> I&#x27;m so glad to have found good ole maybelline ultra liner on line.</li>
+<li> It takes some doing to get it all off, but that is the cost of having it stay on nicely.</li>
+<li> Good product, easy to use.</li>
+<li> It is to remove very easy and don´t endure all the day</li>
+<li> It seems to come off very easily, or maybe I have oily eye lids...</li>
+<li> The brush isn&#x27;t very precise and it gets clumpy...</li>
+<li> I have very light hair</li>
+<li> One of my favorite eye liners</li>
+<li> but i love the brown color.</li>
+<li> Will always be my favorite</li>
+<li> This is my favorite eye liner.</li>
+<li> This product is okay.</li>
+<li> I love it.  </li>
+<li> When I first started using it, I loved it.</li>
+<li> I have had several comments on how nice my make-up looks!!</li>
+<li> I think of this as more of a daytime product to be worn when I want light eye-makeup.</li>
+<li> I was looking for an eyeliner that was waterproof in addition to being easy to apply.</li>
+<li> This eyeliner is easy to apply and it lasts all day.  </li>
+<li> It is easy to apply, but within an hour it starts to peel off and the clumps get into my eyes causing irritation.  </li>
+<li> easy to apply and to fix and remove with eye makeup remover.</li>
+<li> not bad but not my favorite</li>
+<li> It also separates and does not create a smooth line as well as dissipates very quickly.</li>
+<li> Everything was fine with this until I went to remove it.  </li>
+<li> I get the brown and it always gives me the perfect soft, natural liner.  </li>
+<li> and I&#x27;m not allergic to it, which is a huge point.</li>
+<li> The brown is rather light.</li>
+<li> Goes on smoothly and stays on all day.</li>
+<li> okay product, it will fall into pieces even right after i apply it.</li>
+<li> I have to say I love Maybelline&#x27;s New York Eye Studio Master Precise Liquid Eyeliner more than this one.</li>
+<li> The almay intense i-color liquid eyeliner is much better.</li>
+<li> it dries from the bottle quickly.</li>
+<li> Not bad for my first liquid line - flakes a bit if you rub your eyes though...</li>
+<li> This product is waterproof but very easy to take off with non-soap facial cleanser.</li>
+<li> With the facial cleanser it comes off very easily.</li>
+<li> It was OK for the first few times and then it started building up around the top of the bottle and the wand part,  just getting clumpy.  </li>
+<li> The price is very reasonable.</li>
+<li> This was the first waterproof liquid eyeliner that I used.</li>
+<li> /&gt;It was not even HOT out either.&lt;br /&gt;Now</li>
+<li> I love this eyeliner has been my makeup bag staple for several years.</li>
+<li> The brush is exceptional; thin for a good line but large enough to control and leave a mark.  </li>
+<li> This works ok but does not last the whole day on the eyes.</li>
+<li> From far away it looks nice when applied, but up close it looks dry and clumpy.</li>
+<li> It performs well on top of the lids, but if you want clean, precise wings extending from the corners of your eyes, this won&#x27;t hold up for more than a couple hours before the definition is lost and you simply have some dark makeup at the corners of your eyes in dried globs.</li>
+<li> The liquid blends well with the eyelashes, but dries really fast.  </li>
+<li> The good thing is that the brush is short, and it is easier to maneuver it to paint a sharp line.</li>
+<li> For you who still wear eyeliner, I can recommend it highly after much trial and error.</li>
+<li> Color is perfect; dark enough to emphasize eyes but not so dark as to look fierce....</li>
+<li> So glad Amazon had this - becoming difficult to find in retail stores for some reason.  </li>
+<li> Good application brush for thin or thicker lines.  </li>
+<li> I purchased the Maybelline New York Ultra Liner Waterproof Liquid Eyeliner, in Dark Brown, as well as the Maybelline New York Eye Studio Master Precise Liquid Eyeliner (it is a felt pen liquid eyeliner) and</li>
+<li> It&#x27;s way too dark for my light coloring.</li>
+<li> I suppose it is old stock.</li>
+<li> and I wear it nearly every day.  </li>
+<li> I only use this occasionally, when I want to look extra special in the evening.</li>
+<li> brand new, it chips off in short tubes, onto your cheek.&lt;br</li>
+<li> For me the brush was a bit to big as I like a nice thin line.  </li>
+<li> It is clumpy and not long wearing.</li>
+<li> Not particularly long lasting.</li>
+<li> As good, if not better, than &amp;#34;designer&amp;#34; eyeliners--at less than half the price!!</li>
+<li> Hard to apply smoothly, doesn&#x27;t look natural, and began flaking off after only a couple of hours, leaving little dark brown bits all around my eyes.  </li>
+<li> It doesn&#x27;t look as natural being as dark as it is.  </li>
+<li> I needed a waterproof liner because my eyes are so watery and pencil liner just doesn&#x27;t stay on long enough.</li>
+<li> I like the color - not harsh like black.</li>
+<li> This happens all day long</li>
+<li> I sometimes bring the product out with me if it&#x27;s going to be a long night and reapply a couple times.</li>
+<li> and I don&#x27;t know why it took me so long to give up on this product!  </li>
+<li> It never flakes unlike other liquids.  </li>
+<li> But when it drys, it&#x27;s a lot dark than expected.</li>
+<li> The brush was hard to control and a smooth line was difficult to get.&lt;br /&gt;It</li>
+<li> It is not worth returning to Amazon.</li>
+<li> I bought it because I thought the reviews were decent and it wasn&#x27;t too expensive.  </li>
+<li> Product was really dark and started flaking off within a few hours.</li>
+<li> color (for a little while)&lt;br /&gt;*Dries</li>
+<li> Lately, all the liners I buy in the grocery store have that hard, stiff brush and the liner barely shows up on my eyelid.  </li>
+<li> It dries up and flakes off in a few hours.</li>
+<li> Don&#x27;t waste your money.</li>
+<li> I wanted a small line of eyeliner</li>
+<li> It goes on thin, and the dark brown is not too harsh.</li>
+<li> Since, I&#x27;ve used different drug store brands of liquid eyeliner and this one sort of fails in comparison.</li>
+<li> I like this eye liner but it needs to be re-applied at least once a day.</li>
+<li> so you can layer for depth as you apply and don&#x27;t have to deal with thick lines and problem of mess-ups.</li>
+<li> It&#x27;s also not very fun to take off and it can be difficult to fix.</li>
+<li> The brush and handle are very small.</li>
+<li> Don&#x27;t get me wrong, it isn&#x27;t horrible, but there are others out there that are better.</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> One of my favorite eye liners</li>
+    <li> Flaked off my eyes onto my face. Not happy.</li>
+    <li> it dries from the bottle quickly. it works great in the eyes</li>
+    <li> Very good.  The only problem I have is the fact that it has a tendency to peel from time to time.</li>
+    <li> So glad Amazon had this - becoming difficult to find in retail stores for some reason.  I like the color - not harsh like black.</li>
+    <li> Not bad for my first liquid line - flakes a bit if you rub your eyes though...easy to apply and to fix and remove with eye makeup remover.</li>
+    <li> Everything was fine with this until I went to remove it.  It comes off in clumps, which got stuck to my eyelashes.  While trying to remove the clumps, my eyelashes came with it!</li>
+    <li> I only use this occasionally, when I want to look extra special in the evening. It goes on thin, and the dark brown is not too harsh. It takes some doing to get it all off, but that is the cost of having it stay on nicely.</li>
+    <li> This works ok but does not last the whole day on the eyes. I wish I could still get the cake eyeliner.</li>
+    <li> It&#x27;s a very weird consistency and it &amp;#34;cracks&amp;#34; on the lid. It&#x27;s very weird. The only thing I do like about it, is the color. But when it drys, it&#x27;s a lot dark than expected.</li>
+    <li> I get the brown and it always gives me the perfect soft, natural liner.  Unlike powders, it gives the definition to make the eyelashes stand out.  The liquid blends well with the eyelashes, but dries really fast.  It never flakes unlike other liquids.  The brush is exceptional; thin for a good line but large enough to control and leave a mark.  You do not need another brush.</li>
+    <li> The brush isn&#x27;t very precise and it gets clumpy...not bad but not my favorite</li>
+    <li> I love this eyeliner has been my makeup bag staple for several years.</li>
+    <li> The product is watery and lacking color upon application. I suppose it is old stock. I will not buy on-line again. It is not worth returning to Amazon.</li>
+    <li> You put it on and it stays</li>
+    <li> It&#x27;s way too dark for my light coloring. I like my make-up to be fairly subtle, but this made me look like a panda. Maybe it&#x27;d work as stage make-up but it looked too fake for me to want to use it.</li>
+    <li> I love it.  I have had several comments on how nice my make-up looks!!</li>
+    <li> I like the ease of the application - it&#x27;s fairly sheer so you can layer for depth as you apply and don&#x27;t have to deal with thick lines and problem of mess-ups. However, it sort of crumbles and peels after a short time. It performs well on top of the lids, but if you want clean, precise wings extending from the corners of your eyes, this won&#x27;t hold up for more than a couple hours before the definition is lost and you simply have some dark makeup at the corners of your eyes in dried globs. I sometimes bring the product out with me if it&#x27;s going to be a long night and reapply a couple times. I think of this as more of a daytime product to be worn when I want light eye-makeup. No problems. But a heavier line or anything extending beyond your outer corner, and this will be disappointing.</li>
+    <li> The brush was hard to control and a smooth line was difficult to get.&lt;br /&gt;It clumped a lot as well.</li>
+    <li> This product is okay. From far away it looks nice when applied, but up close it looks dry and clumpy. It&#x27;s also not very fun to take off and it can be difficult to fix.</li>
+    <li> The brown is rather light. Maybe good for blondes, and in the day time.&lt;br /&gt;&lt;br /&gt;For the night time, it does not show much.&lt;br /&gt;&lt;br /&gt;I do not know about being waterproof... It seems to come off very easily, or maybe I have oily eye lids...</li>
+    <li> I have very light hair and I wished this product still came in a brown shade.  It doesn&#x27;t look as natural being as dark as it is.  I think Madeline should think about the needs of women with lighter hair.</li>
+    <li> This eyeliner is easy to apply and it lasts all day.  Good color.  Good application brush for thin or thicker lines.  Seems to last forever and I wear it nearly every day.  Good price.</li>
+    <li> It&#x27;s always served me well!...and I&#x27;m not allergic to it, which is a huge point. For you who still wear eyeliner, I can recommend it highly after much trial and error.</li>
+    <li> Goes on smoothly and stays on all day.</li>
+    <li> It was OK for the first few times and then it started building up around the top of the bottle and the wand part,  just getting clumpy.  When I was taking it off with make-up remover cloth it would flake/chunk off and be on the rest of my face.  For me the brush was a bit to big as I like a nice thin line.  I will not buy again.  I will say nice color and it does not smear or smudge.</li>
+    <li> I&#x27;ve been using this for years and don&#x27;t think I&#x27;ll ever change!  Saw my Mom using this and she showed me so this is what I&#x27;ve stuck with.  Amazon&#x27;s price is great.</li>
+    <li> My favorite for years!</li>
+    <li> I was looking for an eyeliner that was waterproof in addition to being easy to apply. I wanted a small line of eyeliner and I found with the solid tip of this product I could vary the thickness of the eyeliner. I needed a waterproof liner because my eyes are so watery and pencil liner just doesn&#x27;t stay on long enough. This product is waterproof but very easy to take off with non-soap facial cleanser. That was great. I didn&#x27;t want to scrub my eyes to get the liner off and I didn&#x27;t have to at all. With the facial cleanser it comes off very easily. I have this product on subscribe and save.</li>
+    <li> At the end of the day it peals a bit like a plastic line. The good thing is that the brush is short, and it is easier to maneuver it to paint a sharp line.</li>
+    <li> This eyeliner USE to be waterproof, and my favorite.&lt;br /&gt;Something changed, so now my review must reflect how it is now.&lt;br /&gt;Even brand new, it chips off in short tubes, onto your cheek.&lt;br /&gt;It does not stay on well at all. WHAT DID YOU CHANGE about the formula?&lt;br /&gt;The corner of my eye was red so I removed all of it.&lt;br /&gt;I do not use it on the inner eye either, so that is not good.&lt;br /&gt;Literally 3 hours after applying, I looked in the mirror, to eyeliner, sitting on my cheek.&lt;br /&gt;It was not even HOT out either.&lt;br /&gt;Now I have to find something else as we are going to JAMAICA for all of June.&lt;br /&gt;I do not want to keep checking for raccoon eyes.</li>
+    <li> I wanted to try this product because it was noted as being waterproof, but this was not the case for me. It is clumpy and not long wearing. As another buyer noted, the product peels off in a number of hours. It also separates and does not create a smooth line as well as dissipates very quickly. The brush and handle are very small.</li>
+    <li> Goes are great! Unfortunately, the tip isn&#x27;t a felt tip, its more like a mini-paint brush, so it tends to get all over if you&#x27;re not careful.&lt;br /&gt;&lt;br /&gt;Pros:&lt;br /&gt;*Great color (for a little while)&lt;br /&gt;*Dries Quickly&lt;br /&gt;&lt;br /&gt;Cons:&lt;br /&gt;*Smudges&lt;br /&gt;*Rubs off easily&lt;br /&gt;*Don&#x27;t recommend with OILY eyelids</li>
+    <li> I like this eye liner but it needs to be re-applied at least once a day.</li>
+    <li> I bought it because I thought the reviews were decent and it wasn&#x27;t too expensive.  Well, it is awful.  Hard to apply smoothly, doesn&#x27;t look natural, and began flaking off after only a couple of hours, leaving little dark brown bits all around my eyes.  The almay intense i-color liquid eyeliner is much better.</li>
+    <li> This is is the best price ever on this eyeliner that i have seen. I used this eyeliner for many years!</li>
+    <li> As good, if not better, than &amp;#34;designer&amp;#34; eyeliners--at less than half the price!! Color is perfect; dark enough to emphasize eyes but not so dark as to look fierce....</li>
+    <li> I don´t like. It is to remove very easy and don´t endure all the day</li>
+    <li> This is my favorite eye liner. Now that I have used others I realize how good this one is! Nice Brown color too.</li>
+    <li> Lately, all the liners I buy in the grocery store have that hard, stiff brush and the liner barely shows up on my eyelid.  I&#x27;m so glad to have found good ole maybelline ultra liner on line.</li>
+    <li> I purchased the Maybelline New York Ultra Liner Waterproof Liquid Eyeliner, in Dark Brown, as well as the Maybelline New York Eye Studio Master Precise Liquid Eyeliner (it is a felt pen liquid eyeliner) and I have to say I love Maybelline&#x27;s New York Eye Studio Master Precise Liquid Eyeliner more than this one. Compare the two while shopping and you&#x27;ll see the difference I&#x27;m sure!</li>
+    <li> Good product, easy to use.</li>
+    <li> Waterproof a definite plus.</li>
+    <li> I have used this product for years and have periodically tried other&lt;br /&gt;brands but always go back to this.  The price is very reasonable.</li>
+    <li> Product was really dark and started flaking off within a few hours. Wouldn&#x27;t buy again and don&#x27;t recommend.</li>
+    <li> I have been wearing this eyeliner for years, but have found that over the last year it is much different.  It is easy to apply, but within an hour it starts to peel off and the clumps get into my eyes causing irritation.  This happens all day long and I don&#x27;t know why it took me so long to give up on this product!  Plus, having to constantly &#x27;touch it up&#x27; is a pain.  I will no longer use this product.  I am writing this review to warn people that this eyeliner is not what it used to be.  Don&#x27;t waste your money.</li>
+    <li> have looked for a good option to pencils and crayons, and THIS item fits the bill.  would recommend it without hesitation.</li>
+    <li> This is a dependable, waterproof liner that can take the heat (Phoenix), survive swimming, has opaque coverage and is a cinch to apply. Like any waterproof liner, it requires a remover made for the eye area. Recommend!</li>
+    <li> This was the first waterproof liquid eyeliner that I used. When I first started using it, I loved it. However, I had nothing to compare it to. Since, I&#x27;ve used different drug store brands of liquid eyeliner and this one sort of fails in comparison. Don&#x27;t get me wrong, it isn&#x27;t horrible, but there are others out there that are better. It is waterproof, but it isn&#x27;t air proof. It dries, cracks an then flakes off throughout the day. As it dries, it feels as if it tightens and shrinks (which causes the cracking). While it does this, IT ITCHES SOMETHING FIERCE! After a while, the brush starts to get weird and application gets messy. I wouldn&#x27;t recommend it.</li>
+    <li> Been Using this stuff ofr 20+ years.  Will always be my favorite</li>
+    <li> Not particularly long lasting. It dries up and flakes off in a few hours.</li>
+    <li> okay product, it will fall into pieces even right after i apply it. awkward moments happened. but i love the brown color.</li>
+</ol>
+
+
+
+

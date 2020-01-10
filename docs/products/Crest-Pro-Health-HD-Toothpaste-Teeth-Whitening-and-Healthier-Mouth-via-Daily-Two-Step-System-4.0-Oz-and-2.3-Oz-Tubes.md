@@ -3,8 +3,8 @@ title: Crest Pro-Health HD Toothpaste, Teeth Whitening and Healthier Mouth via D
 description: Crest Pro-Health HD Toothpaste, Teeth Whitening and Healthier Mouth via Daily Two-Step System - 4.0 Oz and 2.3 Oz Tubes,
 author: Suvojit Manna,
 tags: Crest Pro-Health HD Toothpaste, Teeth Whitening and Healthier Mouth via Daily Two-Step System - 4.0 Oz and 2.3 Oz Tubes,
-publishedAt: Thu Jan 09 2020 19:08:41 GMT+0530 (India Standard Time),
-modifiedAt: Thu Jan 09 2020 19:08:41 GMT+0530 (India Standard Time),
+publishedAt: Fri Jan 10 2020 15:01:06 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:01:06 GMT+0530 (India Standard Time),
 ---
 
 # [Crest Pro-Health HD Toothpaste, Teeth Whitening and Healthier Mouth via Daily Two-Step System - 4.0 Oz and 2.3 Oz Tubes](https://products.checkmycream.com/products/Crest-Pro-Health-HD-Toothpaste-Teeth-Whitening-and-Healthier-Mouth-via-Daily-Two-Step-System-4.0-Oz-and-2.3-Oz-Tubes.html)
@@ -12,211 +12,211 @@ modifiedAt: Thu Jan 09 2020 19:08:41 GMT+0530 (India Standard Time),
 ### Positive Reviews
 
 <ol>
-      <li>It tastes great!</li>
-      <li>I was very, very impressed with step 1.</li>
-      <li>I didn&#x27;t have the best results with this product.</li>
-      <li>i the best of those two worlds.</li>
-      <li>And it makes me feel real good about my dental</li>
-      <li>/&gt;It is recommended that this product be used twice a day for the best results.</li>
-      <li>Here&#x27;s the scoop: the purifying cleanser is probably one of the best toothpastes I&#x27;ve ever used.</li>
-      <li>This stuff is awesome</li>
-      <li>Amazing product!!!</li>
-      <li>As an ex-smoker, I am very happy to reverse the damage I did!</li>
-      <li>Within a week you won&#x27;t even recognize your beautiful teeth!</li>
-      <li>Very satisfied!!</li>
-      <li>Crest Pro Health HD is awesome!</li>
-      <li>I was very happy with the results from this toothpaste.</li>
-      <li>it does a really great job!</li>
-      <li>I am really really impressed with this product.</li>
-      <li>Great deal !!!</li>
-      <li>I have to say that I am somewhat impressed.  </li>
-      <li>I&#x27;m impressed!</li>
-      <li>so this is a wonderful thing!  </li>
-      <li>so I wasn&#x27;t overly impressed.</li>
-      <li>I found this to be a really great product!  </li>
-      <li>Work wonderful.</li>
-      <li>I am very impressed by.  </li>
-      <li>and I especially LOVE that after just a couple of days I could see my teeth were whiter even from a distance looking in my bathroom</li>
-      <li>this is the best product for whiting your teeth.</li>
-      <li>I tried the product courtesy of BzzAgent, and was relatively impressed but did have a reservation or two.</li>
-      <li>Great product!</li>
-      <li>Now go try this product, it really is great!</li>
-      <li>I am really impressed by this product.  </li>
-      <li>She started steeling my toothpaste because she was so impressed with the results.</li>
-      <li>so I gave it a shot I have to say this is the best I have ever tried.  </li>
-      <li>The taste of the toothpaste was great!</li>
-      <li>It is definitely a great option for me!</li>
-      <li>I&#x27;m very happy</li>
-      <li>This product was great!</li>
-      <li>and I am very happy with the product.  </li>
-      <li>Crest in the best</li>
-      <li>I have been concerned about plaque build-up and its impact on my teeth and gums, so the product arrived in the mail at a perfect time for me.  </li>
-      <li>Perfect timing for my wedding.</li>
-      <li>Excellent!</li>
-      <li>My two criticisms would be that the sensitivity gel does not have the best taste.</li>
-      <li>It is really great!  </li>
-      <li>I started using it just over a week ago, and I&#x27;ve been very happy with the way my teeth have felt.</li>
-      <li>I was part of a panel to review the product with Bzz Agents at no cost and was very happy to be part of this project.  </li>
-      <li>&#x27;s the best of both worlds...</li>
-      <li>It&#x27;s a great product!</li>
-      <li>so I was very happy to receive!!</li>
-      <li>The Crest HD has done a great job at maintaining my whitening!</li>
-      <li>/&gt;We are about to leave on a cruise and when we received our sample, we figured it would be a great time to try it out and make a change!  </li>
-      <li>And best of all, no sensitivity!  </li>
-      <li>I am very impressed with this two-step whitening system.  </li>
-      <li>All in all, I am very impressed!</li>
-      <li>so that makes me very happy.</li>
-      <li>Awesome toothpaste.</li>
-      <li>This is an excellent product.</li>
-      <li>Great product by Crest!</li>
       <li>Who ever expects teeth whitener to taste pleasant?!!!!!  </li>
+      <li>/&gt;Either way I&#x27;m very happy with the product, and the whitening part may be a &amp;#34;your</li>
+      <li>I was very impressed with the results.  </li>
+      <li>This is an excellent product.</li>
+      <li>Great product!</li>
+      <li>Crest Pro Health HD is awesome.  </li>
+      <li>I’m not known to be the greatest brusher</li>
+      <li>I tried the product courtesy of BzzAgent, and was relatively impressed but did have a reservation or two.</li>
+      <li>This is the best stuff ever!  </li>
+      <li>Very great toothpaste.</li>
+      <li>The best thing about it is that it forces me to brush my teeth for 2 minutes, because you use each tube for a minute.</li>
+      <li>Now go try this product, it really is great!</li>
+      <li>this is the best product for whiting your teeth.</li>
+      <li>This is the perfect alternative for me than to go get my teeth whitened at the dentist office.</li>
+      <li>I am really impressed by this product.  </li>
       <li>I have been very happy with this toothpaste.</li>
+      <li>So, even though I haven&#x27;t been to the dentist since using this toothpaste, it feels like I have, which is so awesome!  </li>
+      <li>Great job!</li>
+      <li>Whatever the case, I can&#x27;t recommend this whitening toothpaste for its whitening properties - though it still does an impressive job of cleaning teeth.</li>
+      <li>: This toothpaste is just awesome.</li>
+      <li>My teeth literally felt like perfectly buffed pearls in my mouth.</li>
+      <li>Awesome toothpaste.</li>
       <li>I&#x27;m very impressed.  </li>
+      <li>But still the results are impressive!</li>
+      <li>Once you get over the expectation that this should be a minty toothpaste and try it for a week or so, you will be impressed with the results!  </li>
+      <li>EXCELLENT!!!</li>
+      <li>It&#x27;s a great product!</li>
+      <li>It was a great touch up for my teeth for spring!</li>
+      <li>After my niece who is a dentist recommended this,  I have used it ever since with excellent immediate visible results!</li>
+      <li>Good Stuff!!!!!</li>
+      <li>so that makes me very happy.</li>
+      <li>I am very impressed with the quality of the product</li>
       <li>this stuff is awesome!  </li>
       <li>I have to say it is wonderful.  </li>
-      <li>This is some awesome stuff.</li>
-      <li>I am really happy with the results!</li>
-      <li>I took a great stride and even scheduled a dental appointment for me t week because I am encouraged that there is hope!</li>
-      <li>I&#x27;m really impressed by how well it works!</li>
-      <li>I&#x27;ve been relatively impressed with Crest Pro Health HD.  </li>
-      <li>and I&#x27;m so happy that I did!</li>
-      <li>but I&#x27;m actually very impressed after using it for just over a couple weeks!</li>
-      <li>I am so happy with the results!  </li>
-      <li>This toothpaste is great!</li>
-      <li>Best of all, no plastic beads!</li>
-      <li>This toothpaste is AMAZING!!!!</li>
-      <li>/&gt;Either way I&#x27;m very happy with the product, and the whitening part may be a &amp;#34;your</li>
-      <li>The best thing about it is that it forces me to brush my teeth for 2 minutes, because you use each tube for a minute.</li>
-      <li>This is the perfect alternative for me than to go get my teeth whitened at the dentist office.</li>
-      <li>this is perfect for that.  </li>
-      <li>In fact it is no issue at all; Incredibly convenient!</li>
-      <li>My teeth were incredibly shiny - like beauty queen with Vaseline on her teeth shiny!  </li>
-      <li>If you can get over that, then this is probably the best toothpaste I’ve used.</li>
-      <li>this is literally the best toothpaste ever.</li>
-      <li>Both of these products (fluoride anti-plaque toothpaste and whitening gel) have a wonderful, &amp;#34;peppy&amp;#34; taste and the whitening is awesome!!nO would recommend these products to anyone wanting whiter, protected teeth!!</li>
-      <li>This product is great!</li>
-      <li>Excellent job Crest I will continue to use this</li>
-      <li>If they could could combine this into one paste or have the gel and the paste come out side by side a la Mentadent toothpaste that would be delightful.</li>
-      <li>I think it works great!</li>
-      <li>I was given this to try as a BzzAgent and have been really impressed with the results.</li>
-      <li>I am very impressed with the quality of the product</li>
+      <li>and I especially LOVE that after just a couple of days I could see my teeth were whiter even from a distance looking in my bathroom</li>
+      <li>She started steeling my toothpaste because she was so impressed with the results.</li>
+      <li>So, thats obviously a win!</li>
       <li>My mouth feels great!</li>
-      <li>and I must say I am impressed.</li>
-      <li>Great method Crest!</li>
-      <li>I saw a difference and the price is great!</li>
-      <li>and I think I am going to get a great report!</li>
-      <li>My husband was so impressed he took my kit &amp; now I have to stock up again!</li>
-      <li>My mouth feels great!  </li>
-      <li>awesome.  </li>
-      <li>After using the Crest Pro Health HD I was very impressed with how it managed to whiten my teeth.</li>
-      <li>This would be perfect for someone maintaining a whitening.</li>
-      <li>I received the product as part of a promotion from Crest, and was very happy to try it out.</li>
+      <li>so I gave it a shot I have to say this is the best I have ever tried.  </li>
+      <li>This toothpaste is AMAZING!!!!</li>
+      <li>Happy whitening!!</li>
+      <li>All in all, I am very impressed!</li>
+      <li>I even bought it and brought it to my dad for him to try because I knew how impressed he would be with this.  </li>
+      <li>This stuff is AMAZING!!!</li>
+      <li>Best product out there.</li>
+      <li>This is the best toothpaste I have EVER used!</li>
+      <li>AWESOME product.  </li>
+      <li>Suffice it to say I&#x27;ve been very happy with the product.</li>
+      <li>My dentist was impressed by the change in my tooth color.  </li>
+      <li>I&#x27;m so impressed with the results I have had.</li>
+      <li>3 weeks on HD and happy as can be!</li>
+      <li>The taste is a great too!</li>
+      <li>And I have to say I am impressed.</li>
+      <li>This stuff is great!</li>
+      <li>:-D</li>
+      <li>I am very impressed with this two-step whitening system.  </li>
+      <li>/&gt;Finally, the flavor is not all that great!</li>
+      <li>Being a coffee drinker, this was a great feeling!</li>
+      <li>The taste of the toothpaste was great!</li>
+      <li>Best of all, no plastic beads!</li>
+      <li>It is definitely a great option for me!</li>
+      <li>this is perfect for that.  </li>
+      <li>so this product is perfect for me!</li>
+      <li>And, I also have done the crest whitening strips, which worked wonderful but at what point in my day do I have time to put strips on my teeth and let them sit for an extended period of time?</li>
+      <li>This is one of the best tooth paste&#x27;s I have tried.</li>
+      <li>I&#x27;m very happy</li>
+      <li>I was impressed.  </li>
+      <li>This product was great!</li>
+      <li>I think this is the peroxide which is excellent for preventing gum disease.</li>
+      <li>The step one paste does an excellent job of cleaning and removing plaque.</li>
+      <li>so this works perfect with that.</li>
+      <li>and I am very happy with the product.  </li>
       <li>The toothpaste (Step 1) cleans my teeth the best of any toothpaste I&#x27;ve used.</li>
+      <li>I have been using Crest Pro Health HD for over a week now and am very impressed with the results!</li>
+      <li>This is some awesome stuff.</li>
+      <li>And I have to say, it is amazing!!!</li>
+      <li>I was really impressed and did not have the sensitivity issues I have had with the whitening strips.  </li>
+      <li>I am very impressed by.  </li>
+      <li>This toothpaste is great!</li>
+      <li>and I must say I am impressed.</li>
+      <li>Very impressed.</li>
+      <li>I have been VERY pleased and have suffered NO sensitivity!!  </li>
+      <li>I received the product as part of a promotion from Crest, and was very happy to try it out.</li>
+      <li>Not the best..</li>
+      <li>Crest in the best</li>
+      <li>My teeth  looked incredible!  </li>
+      <li>I am so happy with the results!  </li>
+      <li>I was immediately impressed with the two-step system.</li>
+      <li>It tastes great!</li>
+      <li>Great method Crest!</li>
+      <li>In fact it is no issue at all; Incredibly convenient!</li>
+      <li>I was very happy to try this toothpaste.&lt;br /&gt;&lt;br</li>
+      <li>And best of all, no sensitivity!  </li>
+      <li>I have to say I am very impressed with the results.</li>
+      <li>Work wonderful.</li>
+      <li>/&gt;We are about to leave on a cruise and when we received our sample, we figured it would be a great time to try it out and make a change!  </li>
+      <li>I have to say I am impressed.  </li>
+      <li>This toothpaste is great!</li>
+      <li>I&#x27;m impressed.</li>
+      <li>I saw a difference and the price is great!</li>
 </ol>
 
 
 <h2>Negative Reviews</h2>
 <ol>
-<li> It tastes great!</li>
-<li> I was very, very impressed with step 1.</li>
-<li> I didn&#x27;t have the best results with this product.</li>
-<li> i the best of those two worlds.</li>
-<li> And it makes me feel real good about my dental</li>
-<li> /&gt;It is recommended that this product be used twice a day for the best results.</li>
-<li> Here&#x27;s the scoop: the purifying cleanser is probably one of the best toothpastes I&#x27;ve ever used.</li>
-<li> This stuff is awesome</li>
-<li> Amazing product!!!</li>
-<li> As an ex-smoker, I am very happy to reverse the damage I did!</li>
-<li> Within a week you won&#x27;t even recognize your beautiful teeth!</li>
-<li> Very satisfied!!</li>
-<li> Crest Pro Health HD is awesome!</li>
-<li> I was very happy with the results from this toothpaste.</li>
-<li> it does a really great job!</li>
-<li> I am really really impressed with this product.</li>
-<li> Great deal !!!</li>
-<li> I have to say that I am somewhat impressed.  </li>
-<li> I&#x27;m impressed!</li>
-<li> so this is a wonderful thing!  </li>
-<li> so I wasn&#x27;t overly impressed.</li>
-<li> I found this to be a really great product!  </li>
-<li> Work wonderful.</li>
-<li> I am very impressed by.  </li>
-<li> and I especially LOVE that after just a couple of days I could see my teeth were whiter even from a distance looking in my bathroom</li>
-<li> this is the best product for whiting your teeth.</li>
-<li> I tried the product courtesy of BzzAgent, and was relatively impressed but did have a reservation or two.</li>
-<li> Great product!</li>
-<li> Now go try this product, it really is great!</li>
-<li> I am really impressed by this product.  </li>
-<li> She started steeling my toothpaste because she was so impressed with the results.</li>
-<li> so I gave it a shot I have to say this is the best I have ever tried.  </li>
-<li> The taste of the toothpaste was great!</li>
-<li> It is definitely a great option for me!</li>
-<li> I&#x27;m very happy</li>
-<li> This product was great!</li>
-<li> and I am very happy with the product.  </li>
-<li> Crest in the best</li>
-<li> I have been concerned about plaque build-up and its impact on my teeth and gums, so the product arrived in the mail at a perfect time for me.  </li>
-<li> Perfect timing for my wedding.</li>
-<li> Excellent!</li>
-<li> My two criticisms would be that the sensitivity gel does not have the best taste.</li>
-<li> It is really great!  </li>
-<li> I started using it just over a week ago, and I&#x27;ve been very happy with the way my teeth have felt.</li>
-<li> I was part of a panel to review the product with Bzz Agents at no cost and was very happy to be part of this project.  </li>
-<li> &#x27;s the best of both worlds...</li>
-<li> It&#x27;s a great product!</li>
-<li> so I was very happy to receive!!</li>
-<li> The Crest HD has done a great job at maintaining my whitening!</li>
-<li> /&gt;We are about to leave on a cruise and when we received our sample, we figured it would be a great time to try it out and make a change!  </li>
-<li> And best of all, no sensitivity!  </li>
-<li> I am very impressed with this two-step whitening system.  </li>
-<li> All in all, I am very impressed!</li>
-<li> so that makes me very happy.</li>
-<li> Awesome toothpaste.</li>
-<li> This is an excellent product.</li>
-<li> Great product by Crest!</li>
 <li> Who ever expects teeth whitener to taste pleasant?!!!!!  </li>
+<li> /&gt;Either way I&#x27;m very happy with the product, and the whitening part may be a &amp;#34;your</li>
+<li> I was very impressed with the results.  </li>
+<li> This is an excellent product.</li>
+<li> Great product!</li>
+<li> Crest Pro Health HD is awesome.  </li>
+<li> I’m not known to be the greatest brusher</li>
+<li> I tried the product courtesy of BzzAgent, and was relatively impressed but did have a reservation or two.</li>
+<li> This is the best stuff ever!  </li>
+<li> Very great toothpaste.</li>
+<li> The best thing about it is that it forces me to brush my teeth for 2 minutes, because you use each tube for a minute.</li>
+<li> Now go try this product, it really is great!</li>
+<li> this is the best product for whiting your teeth.</li>
+<li> This is the perfect alternative for me than to go get my teeth whitened at the dentist office.</li>
+<li> I am really impressed by this product.  </li>
 <li> I have been very happy with this toothpaste.</li>
+<li> So, even though I haven&#x27;t been to the dentist since using this toothpaste, it feels like I have, which is so awesome!  </li>
+<li> Great job!</li>
+<li> Whatever the case, I can&#x27;t recommend this whitening toothpaste for its whitening properties - though it still does an impressive job of cleaning teeth.</li>
+<li> : This toothpaste is just awesome.</li>
+<li> My teeth literally felt like perfectly buffed pearls in my mouth.</li>
+<li> Awesome toothpaste.</li>
 <li> I&#x27;m very impressed.  </li>
+<li> But still the results are impressive!</li>
+<li> Once you get over the expectation that this should be a minty toothpaste and try it for a week or so, you will be impressed with the results!  </li>
+<li> EXCELLENT!!!</li>
+<li> It&#x27;s a great product!</li>
+<li> It was a great touch up for my teeth for spring!</li>
+<li> After my niece who is a dentist recommended this,  I have used it ever since with excellent immediate visible results!</li>
+<li> Good Stuff!!!!!</li>
+<li> so that makes me very happy.</li>
+<li> I am very impressed with the quality of the product</li>
 <li> this stuff is awesome!  </li>
 <li> I have to say it is wonderful.  </li>
-<li> This is some awesome stuff.</li>
-<li> I am really happy with the results!</li>
-<li> I took a great stride and even scheduled a dental appointment for me t week because I am encouraged that there is hope!</li>
-<li> I&#x27;m really impressed by how well it works!</li>
-<li> I&#x27;ve been relatively impressed with Crest Pro Health HD.  </li>
-<li> and I&#x27;m so happy that I did!</li>
-<li> but I&#x27;m actually very impressed after using it for just over a couple weeks!</li>
-<li> I am so happy with the results!  </li>
-<li> This toothpaste is great!</li>
-<li> Best of all, no plastic beads!</li>
-<li> This toothpaste is AMAZING!!!!</li>
-<li> /&gt;Either way I&#x27;m very happy with the product, and the whitening part may be a &amp;#34;your</li>
-<li> The best thing about it is that it forces me to brush my teeth for 2 minutes, because you use each tube for a minute.</li>
-<li> This is the perfect alternative for me than to go get my teeth whitened at the dentist office.</li>
-<li> this is perfect for that.  </li>
-<li> In fact it is no issue at all; Incredibly convenient!</li>
-<li> My teeth were incredibly shiny - like beauty queen with Vaseline on her teeth shiny!  </li>
-<li> If you can get over that, then this is probably the best toothpaste I’ve used.</li>
-<li> this is literally the best toothpaste ever.</li>
-<li> Both of these products (fluoride anti-plaque toothpaste and whitening gel) have a wonderful, &amp;#34;peppy&amp;#34; taste and the whitening is awesome!!nO would recommend these products to anyone wanting whiter, protected teeth!!</li>
-<li> This product is great!</li>
-<li> Excellent job Crest I will continue to use this</li>
-<li> If they could could combine this into one paste or have the gel and the paste come out side by side a la Mentadent toothpaste that would be delightful.</li>
-<li> I think it works great!</li>
-<li> I was given this to try as a BzzAgent and have been really impressed with the results.</li>
-<li> I am very impressed with the quality of the product</li>
+<li> and I especially LOVE that after just a couple of days I could see my teeth were whiter even from a distance looking in my bathroom</li>
+<li> She started steeling my toothpaste because she was so impressed with the results.</li>
+<li> So, thats obviously a win!</li>
 <li> My mouth feels great!</li>
-<li> and I must say I am impressed.</li>
-<li> Great method Crest!</li>
-<li> I saw a difference and the price is great!</li>
-<li> and I think I am going to get a great report!</li>
-<li> My husband was so impressed he took my kit &amp; now I have to stock up again!</li>
-<li> My mouth feels great!  </li>
-<li> awesome.  </li>
-<li> After using the Crest Pro Health HD I was very impressed with how it managed to whiten my teeth.</li>
-<li> This would be perfect for someone maintaining a whitening.</li>
-<li> I received the product as part of a promotion from Crest, and was very happy to try it out.</li>
+<li> so I gave it a shot I have to say this is the best I have ever tried.  </li>
+<li> This toothpaste is AMAZING!!!!</li>
+<li> Happy whitening!!</li>
+<li> All in all, I am very impressed!</li>
+<li> I even bought it and brought it to my dad for him to try because I knew how impressed he would be with this.  </li>
+<li> This stuff is AMAZING!!!</li>
+<li> Best product out there.</li>
+<li> This is the best toothpaste I have EVER used!</li>
+<li> AWESOME product.  </li>
+<li> Suffice it to say I&#x27;ve been very happy with the product.</li>
+<li> My dentist was impressed by the change in my tooth color.  </li>
+<li> I&#x27;m so impressed with the results I have had.</li>
+<li> 3 weeks on HD and happy as can be!</li>
+<li> The taste is a great too!</li>
+<li> And I have to say I am impressed.</li>
+<li> This stuff is great!</li>
+<li> :-D</li>
+<li> I am very impressed with this two-step whitening system.  </li>
+<li> /&gt;Finally, the flavor is not all that great!</li>
+<li> Being a coffee drinker, this was a great feeling!</li>
+<li> The taste of the toothpaste was great!</li>
+<li> Best of all, no plastic beads!</li>
+<li> It is definitely a great option for me!</li>
+<li> this is perfect for that.  </li>
+<li> so this product is perfect for me!</li>
+<li> And, I also have done the crest whitening strips, which worked wonderful but at what point in my day do I have time to put strips on my teeth and let them sit for an extended period of time?</li>
+<li> This is one of the best tooth paste&#x27;s I have tried.</li>
+<li> I&#x27;m very happy</li>
+<li> I was impressed.  </li>
+<li> This product was great!</li>
+<li> I think this is the peroxide which is excellent for preventing gum disease.</li>
+<li> The step one paste does an excellent job of cleaning and removing plaque.</li>
+<li> so this works perfect with that.</li>
+<li> and I am very happy with the product.  </li>
 <li> The toothpaste (Step 1) cleans my teeth the best of any toothpaste I&#x27;ve used.</li>
+<li> I have been using Crest Pro Health HD for over a week now and am very impressed with the results!</li>
+<li> This is some awesome stuff.</li>
+<li> And I have to say, it is amazing!!!</li>
+<li> I was really impressed and did not have the sensitivity issues I have had with the whitening strips.  </li>
+<li> I am very impressed by.  </li>
+<li> This toothpaste is great!</li>
+<li> and I must say I am impressed.</li>
+<li> Very impressed.</li>
+<li> I have been VERY pleased and have suffered NO sensitivity!!  </li>
+<li> I received the product as part of a promotion from Crest, and was very happy to try it out.</li>
+<li> Not the best..</li>
+<li> Crest in the best</li>
+<li> My teeth  looked incredible!  </li>
+<li> I am so happy with the results!  </li>
+<li> I was immediately impressed with the two-step system.</li>
+<li> It tastes great!</li>
+<li> Great method Crest!</li>
+<li> In fact it is no issue at all; Incredibly convenient!</li>
+<li> I was very happy to try this toothpaste.&lt;br /&gt;&lt;br</li>
+<li> And best of all, no sensitivity!  </li>
+<li> I have to say I am very impressed with the results.</li>
+<li> Work wonderful.</li>
+<li> /&gt;We are about to leave on a cruise and when we received our sample, we figured it would be a great time to try it out and make a change!  </li>
+<li> I have to say I am impressed.  </li>
+<li> This toothpaste is great!</li>
+<li> I&#x27;m impressed.</li>
+<li> I saw a difference and the price is great!</li>
 </ol>
 
 <h2>All Reviews</h2>
@@ -2036,6 +2036,7 @@ modifiedAt: Thu Jan 09 2020 19:08:41 GMT+0530 (India Standard Time),
     <li> Once  I received free Crest Pro Health® HD™ to try through BzzAgent, I was really excited to use it. I waited for almost a month before writing a review to see the improvement and consistency  on the results. Here it goes.&lt;br /&gt;1.) packing -&lt;br /&gt;It contains two pieces with clear and easy to understand instructions. It has step1- for cleaning and step2- for whitening. When you are using it, there is no confusion on which one is 1st and second. It is clearly written on the package and tubes are made differently which eliminates any confusion.&lt;br /&gt;2.) product-&lt;br /&gt;Once I started using once a day in the morning, I was very curious to see the results. And After a week or so I started seeing improvements. By the time it was two weeks, it was prominent difference. It cleans your teeth and freshens your breath as well as improves the whitening.&lt;br /&gt;I was little worried too that it might make my teeth sensitive after using step2-whitening piece every day but I have not seen any problem with sensitivity.&lt;br /&gt;&lt;br /&gt;This item truly deserves full 5 stars and serves up to the expectations.</li>
     <li> I have tried to use teeth whitening products off and on for years. I say off and on, because usually the only ones that I have really seen work are the products that require you to pour some really nasty tasting gel into a plastic tray and put it in your mouth every day. Between work, being a single dad and all the things that requires, trying to remember to add in an extra step in my daily routine to deal with those trays meant I never completed a regimen. Crest Pro-Heath HD solves this problem by creating a system which can whiten my teeth without adding any extra steps to my daily routine. That&#x27;s a big winner in my book. When I saw the opportunity to try this out thanks to BzzAgent, I couldn&#x27;t wait. Crest Pro-Health HD doesn&#x27;t taste bad, and does what it says in regards to whitening my teeth. The time requirements (a min for step 1 and then for step 2) could be a bit tricky as most people don&#x27;t really have a timer for their teeth brushing. Fortunately, my Sonicare toothbrush handled that for me. My mouth also felt fresh afterwards which again was a HUGE win for me over other products. Still not sure if I got six shades whiter in two weeks, but I definitely noticed a difference and can see myself using this as my new Crest toothpaste.</li>
 </ol>
+
 
 
 

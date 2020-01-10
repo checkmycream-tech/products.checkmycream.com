@@ -1,0 +1,100 @@
+---
+title: Nairobi Exquisite Hydrating Detangling Shampoo for Unisex,
+description: Nairobi Exquisite Hydrating Detangling Shampoo for Unisex,
+author: Suvojit Manna,
+tags: Nairobi Exquisite Hydrating Detangling Shampoo for Unisex,
+publishedAt: Fri Jan 10 2020 14:59:44 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:59:44 GMT+0530 (India Standard Time),
+---
+
+# [Nairobi Exquisite Hydrating Detangling Shampoo for Unisex](https://products.checkmycream.com/products/Nairobi-Exquisite-Hydrating-Detangling-Shampoo-for-Unisex.html)
+
+### Positive Reviews
+
+<ol>
+      <li>Excellent hair product.</li>
+      <li>The product works awesome.  </li>
+      <li>This is really good stuff!!!</li>
+      <li>It arrived as said and works great!  </li>
+      <li>This detangling shampoo is really great.</li>
+      <li>Keep my hair moisturizer and tangle free.smells great too.</li>
+      <li>It was a great combo for my hair.</li>
+      <li>It&#x27;s good meant my needs.</li>
+      <li>love, love, love..product is awesome...</li>
+      <li>I love Nairobi hair products!  </li>
+      <li>it smells nice.</li>
+      <li>Great received quickly</li>
+      <li>It is a great smelling shampoo that lathers up really well.  </li>
+      <li>Love it...</li>
+      <li>just wish it had more fragrance to it.</li>
+      <li>Love the way it makes my hair feel, and love the</li>
+      <li>Glad I found and tried this product.</li>
+      <li>It has a nice clean smell and rinsed well.</li>
+      <li>Made my hair feel squeaky clean.</li>
+      <li>Love this shampoo, it lathers and cleanses gently.</li>
+      <li>Smells amazing, and actually does what it&#x27;s supposed to do do!</li>
+      <li>nothing special really.</li>
+      <li>This shampoo lathers and cleans really well.</li>
+      <li>Came as stated it was also double wrapped so it would not waste.</li>
+      <li>My hair stays soft all day long .</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> Excellent hair product.</li>
+<li> The product works awesome.  </li>
+<li> This is really good stuff!!!</li>
+<li> It arrived as said and works great!  </li>
+<li> This detangling shampoo is really great.</li>
+<li> Keep my hair moisturizer and tangle free.smells great too.</li>
+<li> It was a great combo for my hair.</li>
+<li> It&#x27;s good meant my needs.</li>
+<li> love, love, love..product is awesome...</li>
+<li> I love Nairobi hair products!  </li>
+<li> it smells nice.</li>
+<li> Great received quickly</li>
+<li> It is a great smelling shampoo that lathers up really well.  </li>
+<li> Love it...</li>
+<li> just wish it had more fragrance to it.</li>
+<li> Love the way it makes my hair feel, and love the</li>
+<li> Glad I found and tried this product.</li>
+<li> It has a nice clean smell and rinsed well.</li>
+<li> Made my hair feel squeaky clean.</li>
+<li> Love this shampoo, it lathers and cleanses gently.</li>
+<li> Smells amazing, and actually does what it&#x27;s supposed to do do!</li>
+<li> nothing special really.</li>
+<li> This shampoo lathers and cleans really well.</li>
+<li> Came as stated it was also double wrapped so it would not waste.</li>
+<li> My hair stays soft all day long .</li>
+<li> It&#x27;s rather expensive but so worth the money for the results you get!  </li>
+<li> and it definitely de-tangled my thin dry ends without a lot of manipulation.  </li>
+<li> It dried out my hair.</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> It dried out my hair. I will not buy again.</li>
+    <li> I washed my hair with this and it definitely de-tangled my thin dry ends without a lot of manipulation.  It has a nice clean smell and rinsed well.</li>
+    <li> Came as stated it was also double wrapped so it would not waste.</li>
+    <li> Great received quickly</li>
+    <li> It&#x27;s good meant my needs. Made my hair feel squeaky clean. Would recommend this product. Glad I found and tried this product.</li>
+    <li> Smells amazing, and actually does what it&#x27;s supposed to do do! Cleans and detangles! What a novel idea. I&#x27;ve searched for detangling shampoos which actually work since tcb and cream of nature changed their formulas and don&#x27;t work anymore. My search is over. Don&#x27;t change Nairobi! If it ain&#x27;t broke don&#x27;t fix it!</li>
+    <li> love, love, love..product is awesome... Love the way it makes my hair feel, and love the scent.&lt;br /&gt;I&#x27;m a believer of this product!</li>
+    <li> I love Nairobi hair products!  It&#x27;s rather expensive but so worth the money for the results you get!  It arrived as said and works great!  Thank you!</li>
+    <li> Excellent hair product. My hair stays soft all day long . Keep my hair moisturizer and tangle free.smells great too.</li>
+    <li> This detangling shampoo is really great. I use it every time I wash my hair.</li>
+    <li> Recommend all nairobi products</li>
+    <li> This is really good stuff!!!</li>
+    <li> nothing special really. it smells nice. but i can find cheaper ones and bigger bottles that does the same thing.</li>
+    <li> This shampoo lathers and cleans really well. It&#x27;s a staple in my house for women and men both.</li>
+    <li> The product works awesome.  just wish it had more fragrance to it.</li>
+    <li> Love this shampoo, it lathers and cleanses gently. Hair does not feel stripped afterwards. Will buy again.</li>
+    <li> Love it... no complaints</li>
+    <li> I read the reviews about the shampoo and decided to give it a try.  It is a great smelling shampoo that lathers up really well.  I paired it with the conditioner and the wrapping lotion.  It was a great combo for my hair.</li>
+</ol>
+
+
+
+

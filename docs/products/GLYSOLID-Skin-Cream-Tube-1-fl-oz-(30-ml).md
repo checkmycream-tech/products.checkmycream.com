@@ -1,0 +1,108 @@
+---
+title: GLYSOLID Skin Cream, Tube 1 fl oz (30 ml),
+description: GLYSOLID Skin Cream, Tube 1 fl oz (30 ml),
+author: Suvojit Manna,
+tags: GLYSOLID Skin Cream, Tube 1 fl oz (30 ml),
+publishedAt: Fri Jan 10 2020 14:59:06 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:59:06 GMT+0530 (India Standard Time),
+---
+
+# [GLYSOLID Skin Cream, Tube 1 fl oz (30 ml)](https://products.checkmycream.com/products/GLYSOLID-Skin-Cream-Tube-1-fl-oz-(30-ml).html)
+
+### Positive Reviews
+
+<ol>
+      <li>The one ounce tube is perfect for travel.</li>
+      <li>THE BEST CREAM EVER</li>
+      <li>The tube is excellent for carrying in your pocket or purse.  </li>
+      <li>I use this for my eczema and it works marvelously.</li>
+      <li>Works great and very effective.</li>
+      <li>It&#x27;s good.  </li>
+      <li>Arrive in good condition.</li>
+      <li>Use it on cuticles and elbows and am very satisfied with it.</li>
+      <li>I&#x27;m very pleased to have found it and have it in this size.</li>
+      <li>Love it!</li>
+      <li>The smell is a bit medicinal, but very faint.&lt;br /&gt;The best travel cream ever.</li>
+      <li>This by far the best cream i used.&lt;br /&gt;I</li>
+      <li>Great product -- no scent, very effective in dealing with dry skin.</li>
+      <li>It does a wonderful job of softening  dry skin.  </li>
+      <li>Excellent cream for dry hands.</li>
+      <li>Works very well,  received quickly!!!</li>
+      <li>This glycerin cream is fantastic.  </li>
+      <li>Have tried many other products and I like this the best of all of them so far, not very thick like vaseline.</li>
+      <li>Will likely buy more.  </li>
+      <li>and I can feel the difference, makes my skin smooth and soft.</li>
+      <li>I really like this stuff.</li>
+      <li>The fastest absorbing cream out there.</li>
+      <li>night, my hands look really chapped.  </li>
+      <li>Just recently arrived, tried right away</li>
+      <li>Glysolid was exactly what I expected it to be.</li>
+      <li>do a lot of manual work and need a cream that keep my hands and arm skin in a good shape.&lt;br /&gt;Glysolid cream is a bit thick however adding a small amount of water to it in the palm of the hand and rubbing it against the skin</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> The one ounce tube is perfect for travel.</li>
+<li> THE BEST CREAM EVER</li>
+<li> The tube is excellent for carrying in your pocket or purse.  </li>
+<li> I use this for my eczema and it works marvelously.</li>
+<li> Works great and very effective.</li>
+<li> It&#x27;s good.  </li>
+<li> Arrive in good condition.</li>
+<li> Use it on cuticles and elbows and am very satisfied with it.</li>
+<li> I&#x27;m very pleased to have found it and have it in this size.</li>
+<li> Love it!</li>
+<li> The smell is a bit medicinal, but very faint.&lt;br /&gt;The best travel cream ever.</li>
+<li> This by far the best cream i used.&lt;br /&gt;I</li>
+<li> Great product -- no scent, very effective in dealing with dry skin.</li>
+<li> It does a wonderful job of softening  dry skin.  </li>
+<li> Excellent cream for dry hands.</li>
+<li> Works very well,  received quickly!!!</li>
+<li> This glycerin cream is fantastic.  </li>
+<li> Have tried many other products and I like this the best of all of them so far, not very thick like vaseline.</li>
+<li> Will likely buy more.  </li>
+<li> and I can feel the difference, makes my skin smooth and soft.</li>
+<li> I really like this stuff.</li>
+<li> The fastest absorbing cream out there.</li>
+<li> night, my hands look really chapped.  </li>
+<li> Just recently arrived, tried right away</li>
+<li> Glysolid was exactly what I expected it to be.</li>
+<li> do a lot of manual work and need a cream that keep my hands and arm skin in a good shape.&lt;br /&gt;Glysolid cream is a bit thick however adding a small amount of water to it in the palm of the hand and rubbing it against the skin</li>
+<li> Takes a long time for it to absorb, but definitely not greasy formula.  </li>
+<li> I had been looking a long time for Glysolid.  </li>
+<li> &lt;br /&gt;&lt;br /&gt;Ive had skin issues for years and really dry skin</li>
+<li> The cream is the same as that in the round container.</li>
+<li> I can put it on, no matter where I am &amp; because it&#x27;s small enough to keep it in my purse.</li>
+<li> Not like the other stuff I use for my hands.</li>
+<li> however, the price is too expensive for the size of the tube, this is why I&#x27;m not giving it 5 stars</li>
+<li> I am disappointed with this product.  </li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> It&#x27;s good.  Takes a long time for it to absorb, but definitely not greasy formula.  Will likely buy more.  I apply overnight because I put medication on my hands in the daytime.  Without the Glysolid @ night, my hands look really chapped.  My hairdresser got me started on this product.</li>
+    <li> Works great and very effective. Have tried many other products and I like this the best of all of them so far, not very thick like vaseline.</li>
+    <li> Glysolid was exactly what I expected it to be. It softens my fingertips and allow me to shuffle cards again.</li>
+    <li> Excellent cream for dry hands.</li>
+    <li> Just recently arrived, tried right away and I can feel the difference, makes my skin smooth and soft. Arrive in good condition.</li>
+    <li> I like the glysolid in the tube. I can carry it in my purse and use it on the go.</li>
+    <li> I use this for my eczema and it works marvelously. however, the price is too expensive for the size of the tube, this is why I&#x27;m not giving it 5 stars</li>
+    <li> I really like this stuff. I can put it on, no matter where I am &amp; because it&#x27;s small enough to keep it in my purse. Not like the other stuff I use for my hands. I will deninately re-order this product.</li>
+    <li> Great product -- no scent, very effective in dealing with dry skin. The one ounce tube is perfect for travel.</li>
+    <li> This glycerin cream is fantastic.  It does a wonderful job of softening  dry skin.  Use it on cuticles and elbows and am very satisfied with it.</li>
+    <li> Love it! It is a convenient size to carry</li>
+    <li> The tube is excellent for carrying in your pocket or purse.  The cream is the same as that in the round container.</li>
+    <li> Ive been using and selling this for ages&lt;br /&gt;&lt;br /&gt;Ive had skin issues for years and really dry skin&lt;br /&gt;&lt;br /&gt;one application and It fixes the situation&lt;br /&gt;&lt;br /&gt;ItS THE BEST CREAM EVER</li>
+    <li> I had been looking a long time for Glysolid.  I&#x27;m very pleased to have found it and have it in this size.</li>
+    <li> suggested by manicurist for cracked heels-really works</li>
+    <li> The fastest absorbing cream out there. This stuff just penetrates the skin yet provides an outer coating to repel the outside elements. I don&#x27;t know how they do it! The smell is a bit medicinal, but very faint.&lt;br /&gt;The best travel cream ever. I have this in my purse and use it all the time, especially in the winter time.&lt;br /&gt;Thank you for supplying this!</li>
+    <li> I am disappointed with this product.  It is too solid for what I needed it for.  I am keeping it just in case.</li>
+    <li> This by far the best cream i used.&lt;br /&gt;I do a lot of manual work and need a cream that keep my hands and arm skin in a good shape.&lt;br /&gt;Glysolid cream is a bit thick however adding a small amount of water to it in the palm of the hand and rubbing it against the skin ease the spreading of the cream.</li>
+    <li> Works very well,  received quickly!!!</li>
+</ol>
+
+
+
+

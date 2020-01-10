@@ -1,0 +1,265 @@
+---
+title: OPI Skyfall Bond-ettes,
+description: OPI Skyfall Bond-ettes,
+author: Suvojit Manna,
+tags: OPI Skyfall Bond-ettes,
+publishedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
+---
+
+# [OPI Skyfall Bond-ettes](https://products.checkmycream.com/products/OPI-Skyfall-Bond-ettes.html)
+
+### Positive Reviews
+
+<ol>
+      <li>Very great customer service, arrived on time.</li>
+      <li>It was best price that I found for this set.</li>
+      <li>Perfect for party-going.</li>
+      <li>Great for the holidays!  </li>
+      <li>The price and shipping was great!</li>
+      <li>The Polish is excellent quality and the colors are beautiful.</li>
+      <li>OPI is a great brand of nail polish, and these are beautiful colors!  </li>
+      <li>Yeah i&#x27;m a dude, but she loved having them in her stocking this year!</li>
+      <li>but I would have loved seeing the dashing Daniel Craig, ooh la la!</li>
+      <li>Quality of the product was superb, and I am very satisfied with the purchase.</li>
+      <li>Great product, great price, great customer service.</li>
+      <li>It still makes a great stocking stuffer.</li>
+      <li>This polish goes on nicely, lasts, and looks great!</li>
+      <li>Great colors for fall AND winter.</li>
+      <li>So happy to get these as gifts.</li>
+      <li>The colors are great winter shades.</li>
+      <li>Great bargain.</li>
+      <li>My manicurist put one coat of GoldenEye over 2 coats of Skyfall and it looks amazing!  </li>
+      <li>Loved the colors and it made a great stocking stuffer.</li>
+      <li>The colors are beautiful on their own and there is no need for nail art nor a rhinestone.</li>
+      <li>No disrespect to the gorgeous \\&quot;Bondette\\&quot; on the packaging</li>
+      <li>Was a gift so can&#x27;t rate it fairly</li>
+      <li>Bought this for my daughter and she loved it.</li>
+      <li>They are gorgeous colors that sparkle and shine.  </li>
+      <li>The spy who loved me is a jelly polish, I&#x27;m in love!</li>
+      <li>Definitely a great choice. :)</li>
+      <li>Instead of blind-buying the Spy who Loved Me, I decided to buy the mini set to see what I liked.</li>
+      <li>Colors are beautiful, bright bold and metallic.</li>
+      <li>The names are all Bond movies (I love Bond!)</li>
+      <li>all four shades go on smoothly and are just really beautiful.  </li>
+      <li>As for the colors; they are stunning!</li>
+      <li>The colors are gorgeous in this collection but they do seem to chip easily.</li>
+      <li>/&gt;This would be five stars if it weren&#x27;t for the fact that this nail polish chips VERY easily.</li>
+      <li>The gold and metallic/gold rose is more of a glitter polish that is better used as a top coat.</li>
+      <li>A good collection of minis from the full collection.</li>
+      <li>great style, small size is perfect as a gift and for using without having to have the nail polish for a life time.</li>
+      <li>The gold one, &amp;#34;Golden Eye&amp;#34; is really bright and bold, perfect for a summer night out, especially when I get some tan on the skin....</li>
+      <li>but i love the color and of course any OPI nail polish.</li>
+      <li>customers Love this so much!!!&lt;br /&gt;Will</li>
+      <li>I LOVE the colors and the size.  </li>
+      <li>Love the colors and it OPI</li>
+      <li>I&#x27;m sure it says it, but these are not 1/2 fl.</li>
+      <li>:) Enjoy!</li>
+      <li>The gold and silver colors work best as topcoats, however; they are very sheer.</li>
+      <li>:) Love the colors and its the perfect size since most people don&#x27;t use the same color repeatedly anyway.</li>
+      <li>I wanted minis because I have so many polishes</li>
+      <li>The colors are cute and I&#x27;m a James Bond fan, but the nail polishes are lackluster from what I&#x27;ve seen.</li>
+      <li>I can&#x27;t tell you how much I loved the red one, &amp;#34;The spy who loved me&amp;#34;...</li>
+      <li>I&#x27;m usually not a glitter person, but this is great.</li>
+      <li>It&#x27;s high quality nail polish, good packaging, goes on very smooth.</li>
+      <li>and I never go through them, the size is great for a bottle and you can definitely get many usages out of them.</li>
+      <li>These are pretty nice.</li>
+      <li>which I like because I wasn&#x27;t sure if I wanted to spend the money on the full sized collection because these are colors</li>
+      <li>Awesome shade of pure red, plus</li>
+      <li>The nice colors don&#x27;t really make up for the huge tendency of the polishes to chip.</li>
+      <li>A great look a red nail with a gold tip!  </li>
+      <li>The nail polish included gold, red, just very popular in colors for now.  </li>
+      <li>I love that they are named after different 007 films throughout the years, a very cute idea.  </li>
+      <li>Worth the price!</li>
+      <li>either way I probably will not be buying the full sized bottles.</li>
+      <li>Good sample, but perhaps buy the bigger ones instead.</li>
+      <li>Overall it&#x27;s a good color sample product.</li>
+      <li>The whole bottle is quite a bit of money, so I was pleased to get this mini one in the pack.&lt;br /&gt;I</li>
+      <li>Colors fairly true to picture shown.</li>
+      <li>and it&#x27;s a bold true gold glitter</li>
+      <li>so 2-3 quick coats depending on how opaque you like your polish to be will do.</li>
+      <li>They came quickly....</li>
+      <li>Goldeneye is a pretty cute color with nicely sized golden glitters, but it&#x27;s definitely not all it&#x27;s hyped up to be in my opinion.&lt;br /&gt;&lt;br</li>
+      <li>I think it would look great over any dark color.  </li>
+      <li>Love the new Bond series from Opi.</li>
+      <li>After receiving the OPI Skyfall nail polish I realized just how pretty the colors were!  </li>
+      <li>The red is the most beautiful and vibrant red ever and</li>
+      <li>I&#x27;ve only tried the Spy who Loved Me and Goldeneye, but the colors so far are good enough for their price.</li>
+      <li>The Spy who Loved Me is a glittery classic red, and Goldeneye is a shimmery transparent gold.</li>
+      <li>They are just the right size to try out</li>
+      <li>This is a great little set!  </li>
+      <li>I would use these for a quick, on the go, simple and elegant result.</li>
+      <li>This a great collectible set of nail polishes from the latest James Bond film.</li>
+      <li>I rarely use up a whole bottle of nail polish, so I end up throwing it away before it&#x27;s used up.  </li>
+      <li>Nail polish usually dries up before I finish it so the smaller bottles are great!  </li>
+      <li>be buying more next time.&lt;br /&gt;</li>
+      <li>Youre better off buying the larger ones.</li>
+      <li>It&#x27;s actually more like black with a hint of green, which makes it the more interesting.</li>
+      <li>All the new fashion colors!!</li>
+      <li>I love all of these and feel lucky to get them as they are not available in stores.</li>
+      <li>This gift was a real winner.</li>
+      <li>All of the colors are very shinny and glamorous.</li>
+      <li>/&gt;Maybe it&#x27;s just this particular set... but</li>
+      <li>Box was a little crunched, but could have been mail service, packaging was appropriate.</li>
+      <li>These colors are very festive, yet conservative and classy.  </li>
+      <li>At last you have Golden Eye</li>
+      <li>You can use the gold and metallic/gold rose as is but will require at least three coats to get the color to show.</li>
+      <li>A wedding prize for our raffle, very sought after by the ladies present.</li>
+      <li>I got them for my kids to give to my wife and she loves the wild colors.</li>
+      <li>also liked the dark green one, too.</li>
+      <li>I did not apply a protective nail polish, so two coats of the Spy who Loved Me and Goldneye have already chipped badly in two days.</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> Very great customer service, arrived on time.</li>
+<li> It was best price that I found for this set.</li>
+<li> Perfect for party-going.</li>
+<li> Great for the holidays!  </li>
+<li> The price and shipping was great!</li>
+<li> The Polish is excellent quality and the colors are beautiful.</li>
+<li> OPI is a great brand of nail polish, and these are beautiful colors!  </li>
+<li> Yeah i&#x27;m a dude, but she loved having them in her stocking this year!</li>
+<li> but I would have loved seeing the dashing Daniel Craig, ooh la la!</li>
+<li> Quality of the product was superb, and I am very satisfied with the purchase.</li>
+<li> Great product, great price, great customer service.</li>
+<li> It still makes a great stocking stuffer.</li>
+<li> This polish goes on nicely, lasts, and looks great!</li>
+<li> Great colors for fall AND winter.</li>
+<li> So happy to get these as gifts.</li>
+<li> The colors are great winter shades.</li>
+<li> Great bargain.</li>
+<li> My manicurist put one coat of GoldenEye over 2 coats of Skyfall and it looks amazing!  </li>
+<li> Loved the colors and it made a great stocking stuffer.</li>
+<li> The colors are beautiful on their own and there is no need for nail art nor a rhinestone.</li>
+<li> No disrespect to the gorgeous \\&quot;Bondette\\&quot; on the packaging</li>
+<li> Was a gift so can&#x27;t rate it fairly</li>
+<li> Bought this for my daughter and she loved it.</li>
+<li> They are gorgeous colors that sparkle and shine.  </li>
+<li> The spy who loved me is a jelly polish, I&#x27;m in love!</li>
+<li> Definitely a great choice. :)</li>
+<li> Instead of blind-buying the Spy who Loved Me, I decided to buy the mini set to see what I liked.</li>
+<li> Colors are beautiful, bright bold and metallic.</li>
+<li> The names are all Bond movies (I love Bond!)</li>
+<li> all four shades go on smoothly and are just really beautiful.  </li>
+<li> As for the colors; they are stunning!</li>
+<li> The colors are gorgeous in this collection but they do seem to chip easily.</li>
+<li> /&gt;This would be five stars if it weren&#x27;t for the fact that this nail polish chips VERY easily.</li>
+<li> The gold and metallic/gold rose is more of a glitter polish that is better used as a top coat.</li>
+<li> A good collection of minis from the full collection.</li>
+<li> great style, small size is perfect as a gift and for using without having to have the nail polish for a life time.</li>
+<li> The gold one, &amp;#34;Golden Eye&amp;#34; is really bright and bold, perfect for a summer night out, especially when I get some tan on the skin....</li>
+<li> but i love the color and of course any OPI nail polish.</li>
+<li> customers Love this so much!!!&lt;br /&gt;Will</li>
+<li> I LOVE the colors and the size.  </li>
+<li> Love the colors and it OPI</li>
+<li> I&#x27;m sure it says it, but these are not 1/2 fl.</li>
+<li> :) Enjoy!</li>
+<li> The gold and silver colors work best as topcoats, however; they are very sheer.</li>
+<li> :) Love the colors and its the perfect size since most people don&#x27;t use the same color repeatedly anyway.</li>
+<li> I wanted minis because I have so many polishes</li>
+<li> The colors are cute and I&#x27;m a James Bond fan, but the nail polishes are lackluster from what I&#x27;ve seen.</li>
+<li> I can&#x27;t tell you how much I loved the red one, &amp;#34;The spy who loved me&amp;#34;...</li>
+<li> I&#x27;m usually not a glitter person, but this is great.</li>
+<li> It&#x27;s high quality nail polish, good packaging, goes on very smooth.</li>
+<li> and I never go through them, the size is great for a bottle and you can definitely get many usages out of them.</li>
+<li> These are pretty nice.</li>
+<li> which I like because I wasn&#x27;t sure if I wanted to spend the money on the full sized collection because these are colors</li>
+<li> Awesome shade of pure red, plus</li>
+<li> The nice colors don&#x27;t really make up for the huge tendency of the polishes to chip.</li>
+<li> A great look a red nail with a gold tip!  </li>
+<li> The nail polish included gold, red, just very popular in colors for now.  </li>
+<li> I love that they are named after different 007 films throughout the years, a very cute idea.  </li>
+<li> Worth the price!</li>
+<li> either way I probably will not be buying the full sized bottles.</li>
+<li> Good sample, but perhaps buy the bigger ones instead.</li>
+<li> Overall it&#x27;s a good color sample product.</li>
+<li> The whole bottle is quite a bit of money, so I was pleased to get this mini one in the pack.&lt;br /&gt;I</li>
+<li> Colors fairly true to picture shown.</li>
+<li> and it&#x27;s a bold true gold glitter</li>
+<li> so 2-3 quick coats depending on how opaque you like your polish to be will do.</li>
+<li> They came quickly....</li>
+<li> Goldeneye is a pretty cute color with nicely sized golden glitters, but it&#x27;s definitely not all it&#x27;s hyped up to be in my opinion.&lt;br /&gt;&lt;br</li>
+<li> I think it would look great over any dark color.  </li>
+<li> Love the new Bond series from Opi.</li>
+<li> After receiving the OPI Skyfall nail polish I realized just how pretty the colors were!  </li>
+<li> The red is the most beautiful and vibrant red ever and</li>
+<li> I&#x27;ve only tried the Spy who Loved Me and Goldeneye, but the colors so far are good enough for their price.</li>
+<li> The Spy who Loved Me is a glittery classic red, and Goldeneye is a shimmery transparent gold.</li>
+<li> They are just the right size to try out</li>
+<li> This is a great little set!  </li>
+<li> I would use these for a quick, on the go, simple and elegant result.</li>
+<li> This a great collectible set of nail polishes from the latest James Bond film.</li>
+<li> I rarely use up a whole bottle of nail polish, so I end up throwing it away before it&#x27;s used up.  </li>
+<li> Nail polish usually dries up before I finish it so the smaller bottles are great!  </li>
+<li> be buying more next time.&lt;br /&gt;</li>
+<li> Youre better off buying the larger ones.</li>
+<li> It&#x27;s actually more like black with a hint of green, which makes it the more interesting.</li>
+<li> All the new fashion colors!!</li>
+<li> I love all of these and feel lucky to get them as they are not available in stores.</li>
+<li> This gift was a real winner.</li>
+<li> All of the colors are very shinny and glamorous.</li>
+<li> /&gt;Maybe it&#x27;s just this particular set... but</li>
+<li> Box was a little crunched, but could have been mail service, packaging was appropriate.</li>
+<li> These colors are very festive, yet conservative and classy.  </li>
+<li> At last you have Golden Eye</li>
+<li> You can use the gold and metallic/gold rose as is but will require at least three coats to get the color to show.</li>
+<li> A wedding prize for our raffle, very sought after by the ladies present.</li>
+<li> I got them for my kids to give to my wife and she loves the wild colors.</li>
+<li> also liked the dark green one, too.</li>
+<li> I did not apply a protective nail polish, so two coats of the Spy who Loved Me and Goldneye have already chipped badly in two days.</li>
+<li> My Forever 21 nail polish, which cost me $2 (which is less than half the price of an OPI bottle), does not chip half as quick as these nail polishes.&lt;br /&gt;&lt;br</li>
+<li> The red and dark blue polish has a shimmer finish and requires two coats for an even color look.</li>
+<li> The World Is Not Enough is a taupy gray with pink sparkle.  </li>
+<li> Deep red and black, shimmering gold</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> I can&#x27;t tell you how much I loved the red one, &amp;#34;The spy who loved me&amp;#34;...it can&#x27;t get sexier than that. Awesome shade of pure red, plus it&#x27;s a gel color, which is expensive. The whole bottle is quite a bit of money, so I was pleased to get this mini one in the pack.&lt;br /&gt;I also liked the dark green one, too. It&#x27;s actually more like black with a hint of green, which makes it the more interesting. The gold one, &amp;#34;Golden Eye&amp;#34; is really bright and bold, perfect for a summer night out, especially when I get some tan on the skin....can&#x27;t wait to wear it.</li>
+    <li> Overall it&#x27;s a good color sample product. The red and dark blue polish has a shimmer finish and requires two coats for an even color look. The gold and metallic/gold rose is more of a glitter polish that is better used as a top coat. You can use the gold and metallic/gold rose as is but will require at least three coats to get the color to show. All the bottles are about the size of a quarter but will probably last for a while imo.</li>
+    <li> The product arrived as expected.  Quality of the product was superb, and I am very satisfied with the purchase.</li>
+    <li> These are pretty nice. But it is difficult to tell what the last color is based on the photo.</li>
+    <li> Was a gift so can&#x27;t rate it fairly</li>
+    <li> Glitter and shinny nail polish. Worth the price!</li>
+    <li> OPI is a great brand of nail polish, and these are beautiful colors!  This polish goes on nicely, lasts, and looks great!</li>
+    <li> I love all of these and feel lucky to get them as they are not available in stores. They came quickly....in time for the party I wanted to wear one of the colors.</li>
+    <li> Love the colors and it OPI so I know that the nailpolish is a going to last. It was best price that I found for this set.</li>
+    <li> This a great collectible set of nail polishes from the latest James Bond film. Colors are beautiful, bright bold and metallic.</li>
+    <li> Great bargain. So happy to get these as gifts. All the new fashion colors!! Love the new Bond series from Opi.</li>
+    <li> Good sample, but perhaps buy the bigger ones instead. They are cheaper at this point than the small collection. The colors are great winter shades.</li>
+    <li> My manicurist put one coat of GoldenEye over 2 coats of Skyfall and it looks amazing!  It adds just a shimmer of gold flecks.  I have received  a ton of compliments!  I think it would look great over any dark color.  Great for the holidays!  Unfortunately, Skyfall isn&#x27;t one of the colors in this collection, but check it out.</li>
+    <li> A good collection of minis from the full collection. The gold and silver colors work best as topcoats, however; they are very sheer. The dark one is practically identical to the dark grey color in the Ger-minis collection.</li>
+    <li> After receiving the OPI Skyfall nail polish I realized just how pretty the colors were!  I LOVE the colors and the size.  Nail polish usually dries up before I finish it so the smaller bottles are great!  Definitely a great choice. :)</li>
+    <li> A wedding prize for our raffle, very sought after by the ladies present.</li>
+    <li> Everything was as advertised. In case you didn&#x27;t notice though, the bottles are minis! It still makes a great stocking stuffer.</li>
+    <li> The nail polish included gold, red, just very popular in colors for now.  Loved the colors and it made a great stocking stuffer.</li>
+    <li> This was everything i thought I would be. Very great customer service, arrived on time. I would work with this company again.</li>
+    <li> Well I bought these as a gift and ALMOST kept it for myself :) Love the colors and its the perfect size since most people don&#x27;t use the same color repeatedly anyway.</li>
+    <li> I&#x27;ve only tried the Spy who Loved Me and Goldeneye, but the colors so far are good enough for their price. Instead of blind-buying the Spy who Loved Me, I decided to buy the mini set to see what I liked. The Spy who Loved Me is a glittery classic red, and Goldeneye is a shimmery transparent gold. Before buying a mini set, I watched a few youtube videos on sample swatches and looked up some swatch images. Goldeneye is a pretty cute color with nicely sized golden glitters, but it&#x27;s definitely not all it&#x27;s hyped up to be in my opinion.&lt;br /&gt;&lt;br /&gt;This would be five stars if it weren&#x27;t for the fact that this nail polish chips VERY easily. Out of my entire box of nail polish, these chip the worst. I did not apply a protective nail polish, so two coats of the Spy who Loved Me and Goldneye have already chipped badly in two days. My Forever 21 nail polish, which cost me $2 (which is less than half the price of an OPI bottle), does not chip half as quick as these nail polishes.&lt;br /&gt;&lt;br /&gt;Maybe it&#x27;s just this particular set... but either way I probably will not be buying the full sized bottles. The colors are cute and I&#x27;m a James Bond fan, but the nail polishes are lackluster from what I&#x27;ve seen. The nice colors don&#x27;t really make up for the huge tendency of the polishes to chip.</li>
+    <li> Haven&#x27;t heard.  Was a gift.</li>
+    <li> I luv this set of nail polish. It goes on smooth and all you need is two thin coats to do the job. I&#x27;m usually not a glitter person, but this is great. I would recommend this set to anyone.</li>
+    <li> 。☆。。☆ 。&lt;br /&gt;★。＼\｜/／。★&lt;br /&gt;  I used this for my nail Spa. customers Love this so much!!!&lt;br /&gt;Will be buying more next time.&lt;br /&gt;★。／/｜\＼。★&lt;br /&gt;。☆。。☆</li>
+    <li> I got the set today. The bottles are small but i love the color and of course any OPI nail polish. The price and shipping was great!</li>
+    <li> I got them for my kids to give to my wife and she loves the wild colors. The polish lasts a few weeks w/o chipping and/or cracking</li>
+    <li> Wife loves these sky fall nail polish thingies! Yeah i&#x27;m a dude, but she loved having them in her stocking this year!</li>
+    <li> Great product, great price, great customer service.</li>
+    <li> Just received this set. I wanted minis because I have so many polishes and I never go through them, the size is great for a bottle and you can definitely get many usages out of them. As for the colors; they are stunning! Great colors for fall AND winter. The names are all Bond movies (I love Bond!) and they are all shimmery so 2-3 quick coats depending on how opaque you like your polish to be will do. The spy who loved me is a jelly polish, I&#x27;m in love! The World Is Not Enough is a taupy gray with pink sparkle.  Live and Let Die is a dark green forest with gold and green sparkle. At last you have Golden Eye and it&#x27;s a bold true gold glitter :) Enjoy!</li>
+    <li> Deep red and black, shimmering gold I purchased this set on the heels of the movie release as a present for my daughter. The Polish is excellent quality and the colors are beautiful. I would buy OPI exclusively if my pocketbook would allow.</li>
+    <li> The colors are gorgeous in this collection but they do seem to chip easily. I use Butter&#x27;s base and top coat and my other OPI colors work well with it. I would recommend this for the colors alone but be warned that it chips.</li>
+    <li> The red is the most beautiful and vibrant red ever and all four shades go on smoothly and are just really beautiful.  I&#x27;m sure it says it, but these are not 1/2 fl. oz.  They are 1/8th of an oz and VERY small; which I like because I wasn&#x27;t sure if I wanted to spend the money on the full sized collection because these are colors I am not normally drawn too. So that was my only complaint/problem I guess.  Just the size being misleading.</li>
+    <li> It&#x27;s high quality nail polish, good packaging, goes on very smooth. great style, small size is perfect as a gift and for using without having to have the nail polish for a life time.</li>
+    <li> Box was a little crunched, but could have been mail service, packaging was appropriate. Colors fairly true to picture shown.</li>
+    <li> This is a great little set!  I rarely use up a whole bottle of nail polish, so I end up throwing it away before it&#x27;s used up.  These colors are very festive, yet conservative and classy.  OPI did not disappoint either.  All four bottles held up to wear and tear as can be expected from any product from OPI.  Polishes all include glitter, so I would recommend a coat of clear as a base to allow easy color changes.  You&#x27;ll want to wear all four!  A great look a red nail with a gold tip!  Perfect for party-going.</li>
+    <li> All of the colors are very shinny and glamorous. I would use these for a quick, on the go, simple and elegant result. The colors are beautiful on their own and there is no need for nail art nor a rhinestone.</li>
+    <li> Bottles are tiny and I wasn&#x27;t too crazy about the actual colors.&lt;br /&gt;However, metallic polish lovers might like this.  colors are too dark for me &amp; difficult to remove with regular polish remover.</li>
+    <li> The colors are nice, but was not impressed to see that it was too expensive for the amount we got. Youre better off buying the larger ones.</li>
+    <li> I&#x27;m a James Bond fan and saw these mini polishes and had to have them.  They are gorgeous colors that sparkle and shine.  I love that they are named after different 007 films throughout the years, a very cute idea.  They are just the right size to try out and you can&#x27;t beat the price.  No disrespect to the gorgeous \\&quot;Bondette\\&quot; on the packaging but I would have loved seeing the dashing Daniel Craig, ooh la la!</li>
+    <li> Bought this for my daughter and she loved it. She is one of those girls that have always been hard to please. This gift was a real winner.</li>
+</ol>
+
+
+
+

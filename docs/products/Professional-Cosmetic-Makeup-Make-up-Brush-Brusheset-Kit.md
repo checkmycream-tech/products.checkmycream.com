@@ -1,0 +1,334 @@
+---
+title: Professional Cosmetic Makeup Make up Brush Brushe/set Kit,
+description: Professional Cosmetic Makeup Make up Brush Brushe/set Kit,
+author: Suvojit Manna,
+tags: Professional Cosmetic Makeup Make up Brush Brushe/set Kit,
+publishedAt: Fri Jan 10 2020 15:00:31 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:31 GMT+0530 (India Standard Time),
+---
+
+# [Professional Cosmetic Makeup Make up Brush Brushe/set Kit](https://products.checkmycream.com/products/Professional-Cosmetic-Makeup-Make-up-Brush-Brusheset-Kit.html)
+
+### Positive Reviews
+
+<ol>
+      <li>, I decided to get a set for myself. :D</li>
+      <li>the rest of the brushes are great!!!!</li>
+      <li>Color is great, works well for her!</li>
+      <li>They are not the best but there useable</li>
+      <li>NOT THE BEST !</li>
+      <li>Great!</li>
+      <li>Product is perfect.  </li>
+      <li>an they worked great!</li>
+      <li>Love the brushes that came in this kit!!!!</li>
+      <li>it&#x27;s perfect.</li>
+      <li>My wife was looking for a makeup brushes and  I found this ones for her, perfect gift, and was a excelente price</li>
+      <li>Very nice set!!</li>
+      <li>I was very happy with my purchase .</li>
+      <li>I have had them for a while and still in perfect condition!</li>
+      <li>I was very happy with their prompt response and</li>
+      <li>also the bag that they come in is very good to carry anywhere</li>
+      <li>Very good deal</li>
+      <li>i loved it, it was a perfect gift for my best friend because she was a beauty guru</li>
+      <li>I use them every day and the work incredibly.</li>
+      <li>My daughter requested a brush set for Christmas and she loved it!</li>
+      <li>It&#x27;s good quality!</li>
+      <li>The travel case was great quality all the brushes look great.</li>
+      <li>Im happy</li>
+      <li>These are great.</li>
+      <li>Great brushes for the cost.</li>
+      <li>I thought they looked really great.</li>
+      <li>Great gift for teens.</li>
+      <li>i am so happy with this product</li>
+      <li>She loves them and all the brushes work so great.</li>
+      <li>And was a great bridal shower gift.</li>
+      <li>The quality of the cosmetic brushes was great.  </li>
+      <li>JUST CUTE DONT DO THE JOB!!</li>
+      <li>These brushes are very nice.</li>
+      <li>These brushes are very nice.</li>
+      <li>It is good for beginners and are great for getting used to using brushes.</li>
+      <li>Good for a beginner.</li>
+      <li>Maybe this is the reason it&#x27;s not that good.</li>
+      <li>Good for a beginner.  </li>
+      <li>Looks good though</li>
+      <li>They look great and nice selection</li>
+      <li>and they really loved it.</li>
+      <li>The are good but feel kinda scratchy on the skin.</li>
+      <li>the service was good.</li>
+      <li>If your looking for a set of good brushes these are the way to go good price for good brushes.</li>
+      <li>It works ok with blush and eye shadow, still not that great.</li>
+      <li>Very pleased with these.</li>
+      <li>It&#x27;s stylish and works great.</li>
+      <li>It came with a lot of stuff and a nice case and good price.</li>
+      <li>good quality for the prize!&lt;br /&gt;Ive washed them so many times and are still in really good shape, Really good in blending my makeup and doing my eyebrows,</li>
+      <li>Her makeup has never looked better!</li>
+      <li>Love these!</li>
+      <li>I love them!</li>
+      <li>I love these brushes!</li>
+      <li>Love these brushes!</li>
+      <li>Works amazing however over time some of the bristles come out.</li>
+      <li>These brushes are amazing.</li>
+      <li>Case is made well and the brushes are amazing.</li>
+      <li>Eye brushes are nice.  </li>
+      <li>Everything seemed nice.</li>
+      <li>and I wasn&#x27;t sure how good quality they were.</li>
+      <li>It came very fast and is very good quality.</li>
+      <li>The company did a great job in shipping it out quickly and packing it.</li>
+      <li>The case is perfect, the brushes are soft and in pristine condition!</li>
+      <li>Pretty good brushes for the price, they do shed, but for the price and the quanity, I can&#x27;t complain!</li>
+      <li>Buy Shany brushes ir ELF proffesional line if you want good cheap brush sets.  </li>
+      <li>My friend loves these, soft, and there was no smell or scent to this...do a great job!</li>
+      <li>These were so cute, they come with a nice leather case but the bristles fall out to easily!</li>
+      <li>And the color is very accurate to the picture.</li>
+      <li>Very cheap material.</li>
+      <li>This product was very cheap and as I was using the foundation brush some of the hairs came off and stuck to my face.</li>
+      <li>Very cheap material.</li>
+      <li>Most brushes work great except the large ones because they she&#x27;s a lot.</li>
+      <li>The case that they are in is very soft and the brushes feel good in your hand!</li>
+      <li>I thought this brush set would be more better</li>
+      <li>I love this product.</li>
+      <li>Most brush sets dont include one for some reason.</li>
+      <li>but its really not that great- they are worth it for the cheep price but your not getting awesome</li>
+      <li>Love em</li>
+      <li>it&#x27;s an okay starter pack</li>
+      <li>I&#x27;ve had the brushes for about a 2 years now, the brushes are okay quality.</li>
+      <li>I made this purchase because the folding case would cost a lot more if bought separate somewhere else</li>
+      <li>I could rate like an ok product if the brushes didnt start loosing their &amp;#34;hairs&amp;#34;.</li>
+      <li>but that mostly always happens with makeup brushes like these&lt;br /&gt;REALLY</li>
+      <li>This product is just okay</li>
+      <li>I love the brushes.  </li>
+      <li>i like much more than that</li>
+      <li>I love these brushes.</li>
+      <li>Absolutely love the carrying case.</li>
+      <li>But the others worked okay.</li>
+      <li>I just wish i could have been able to use all the brushes though.</li>
+      <li>Love the color.</li>
+      <li>I love it</li>
+      <li>but for that price is not bad, you can afford this brush set, and case is good for this price, but hair fell off really easy</li>
+      <li>When I got this i was very excited.</li>
+      <li>Good quality brushes are the key to nice looking makeup!</li>
+      <li>love pink as advertised still have great price good quality</li>
+      <li>i love how soft the brushes are  and they are great quality for the price.</li>
+      <li>They were better than expected for the excellent price.</li>
+      <li>Ok, it&#x27;s cheap.</li>
+      <li>But, for the price that is expected and it&#x27;s a great deal for the price!</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> , I decided to get a set for myself. :D</li>
+<li> the rest of the brushes are great!!!!</li>
+<li> Color is great, works well for her!</li>
+<li> They are not the best but there useable</li>
+<li> NOT THE BEST !</li>
+<li> Great!</li>
+<li> Product is perfect.  </li>
+<li> an they worked great!</li>
+<li> Love the brushes that came in this kit!!!!</li>
+<li> it&#x27;s perfect.</li>
+<li> My wife was looking for a makeup brushes and  I found this ones for her, perfect gift, and was a excelente price</li>
+<li> Very nice set!!</li>
+<li> I was very happy with my purchase .</li>
+<li> I have had them for a while and still in perfect condition!</li>
+<li> I was very happy with their prompt response and</li>
+<li> also the bag that they come in is very good to carry anywhere</li>
+<li> Very good deal</li>
+<li> i loved it, it was a perfect gift for my best friend because she was a beauty guru</li>
+<li> I use them every day and the work incredibly.</li>
+<li> My daughter requested a brush set for Christmas and she loved it!</li>
+<li> It&#x27;s good quality!</li>
+<li> The travel case was great quality all the brushes look great.</li>
+<li> Im happy</li>
+<li> These are great.</li>
+<li> Great brushes for the cost.</li>
+<li> I thought they looked really great.</li>
+<li> Great gift for teens.</li>
+<li> i am so happy with this product</li>
+<li> She loves them and all the brushes work so great.</li>
+<li> And was a great bridal shower gift.</li>
+<li> The quality of the cosmetic brushes was great.  </li>
+<li> JUST CUTE DONT DO THE JOB!!</li>
+<li> These brushes are very nice.</li>
+<li> These brushes are very nice.</li>
+<li> It is good for beginners and are great for getting used to using brushes.</li>
+<li> Good for a beginner.</li>
+<li> Maybe this is the reason it&#x27;s not that good.</li>
+<li> Good for a beginner.  </li>
+<li> Looks good though</li>
+<li> They look great and nice selection</li>
+<li> and they really loved it.</li>
+<li> The are good but feel kinda scratchy on the skin.</li>
+<li> the service was good.</li>
+<li> If your looking for a set of good brushes these are the way to go good price for good brushes.</li>
+<li> It works ok with blush and eye shadow, still not that great.</li>
+<li> Very pleased with these.</li>
+<li> It&#x27;s stylish and works great.</li>
+<li> It came with a lot of stuff and a nice case and good price.</li>
+<li> good quality for the prize!&lt;br /&gt;Ive washed them so many times and are still in really good shape, Really good in blending my makeup and doing my eyebrows,</li>
+<li> Her makeup has never looked better!</li>
+<li> Love these!</li>
+<li> I love them!</li>
+<li> I love these brushes!</li>
+<li> Love these brushes!</li>
+<li> Works amazing however over time some of the bristles come out.</li>
+<li> These brushes are amazing.</li>
+<li> Case is made well and the brushes are amazing.</li>
+<li> Eye brushes are nice.  </li>
+<li> Everything seemed nice.</li>
+<li> and I wasn&#x27;t sure how good quality they were.</li>
+<li> It came very fast and is very good quality.</li>
+<li> The company did a great job in shipping it out quickly and packing it.</li>
+<li> The case is perfect, the brushes are soft and in pristine condition!</li>
+<li> Pretty good brushes for the price, they do shed, but for the price and the quanity, I can&#x27;t complain!</li>
+<li> Buy Shany brushes ir ELF proffesional line if you want good cheap brush sets.  </li>
+<li> My friend loves these, soft, and there was no smell or scent to this...do a great job!</li>
+<li> These were so cute, they come with a nice leather case but the bristles fall out to easily!</li>
+<li> And the color is very accurate to the picture.</li>
+<li> Very cheap material.</li>
+<li> This product was very cheap and as I was using the foundation brush some of the hairs came off and stuck to my face.</li>
+<li> Very cheap material.</li>
+<li> Most brushes work great except the large ones because they she&#x27;s a lot.</li>
+<li> The case that they are in is very soft and the brushes feel good in your hand!</li>
+<li> I thought this brush set would be more better</li>
+<li> I love this product.</li>
+<li> Most brush sets dont include one for some reason.</li>
+<li> but its really not that great- they are worth it for the cheep price but your not getting awesome</li>
+<li> Love em</li>
+<li> it&#x27;s an okay starter pack</li>
+<li> I&#x27;ve had the brushes for about a 2 years now, the brushes are okay quality.</li>
+<li> I made this purchase because the folding case would cost a lot more if bought separate somewhere else</li>
+<li> I could rate like an ok product if the brushes didnt start loosing their &amp;#34;hairs&amp;#34;.</li>
+<li> but that mostly always happens with makeup brushes like these&lt;br /&gt;REALLY</li>
+<li> This product is just okay</li>
+<li> I love the brushes.  </li>
+<li> i like much more than that</li>
+<li> I love these brushes.</li>
+<li> Absolutely love the carrying case.</li>
+<li> But the others worked okay.</li>
+<li> I just wish i could have been able to use all the brushes though.</li>
+<li> Love the color.</li>
+<li> I love it</li>
+<li> but for that price is not bad, you can afford this brush set, and case is good for this price, but hair fell off really easy</li>
+<li> When I got this i was very excited.</li>
+<li> Good quality brushes are the key to nice looking makeup!</li>
+<li> love pink as advertised still have great price good quality</li>
+<li> i love how soft the brushes are  and they are great quality for the price.</li>
+<li> They were better than expected for the excellent price.</li>
+<li> Ok, it&#x27;s cheap.</li>
+<li> But, for the price that is expected and it&#x27;s a great deal for the price!</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> Works amazing however over time some of the bristles come out. That is just from usual wear and tear.</li>
+    <li> A brush for everything you can possibly do!</li>
+    <li> Highly recommended! Very committed seller</li>
+    <li> I&#x27;ve had the brushes for about a 2 years now, the brushes are okay quality. Remember you are getting what you paid for. after a while the glue started to come off and my brushes ended up being headless.</li>
+    <li> These are great. They sed a little at first but for the price they are great. I use them every day and the work incredibly.</li>
+    <li> The are good but feel kinda scratchy on the skin. But for the price it is worth it</li>
+    <li> I thought this brush set would be more better then it is, but the brush bristles are very coarse and did not do very well with liquid makeup. It works ok with blush and eye shadow, still not that great. It came with a lot of stuff and a nice case and good price. I guess in order to get what you really want, you have to pay a lot more for it. The company did a great job in shipping it out quickly and packing it. I just wish i could have been able to use all the brushes though.</li>
+    <li> Very nice set!! A brush for every need &amp; crafted well!!</li>
+    <li> but for that price is not bad, you can afford this brush set, and case is good for this price, but hair fell off really easy</li>
+    <li> this product is good for someone just learning but they have an awful smell to them and aren&#x27;t very soft.</li>
+    <li> Absolutely loveeee these makeup brushes, only detail on the big ones some fall off but that mostly always happens with makeup brushes like these&lt;br /&gt;REALLY good quality for the prize!&lt;br /&gt;Ive washed them so many times and are still in really good shape, Really good in blending my makeup and doing my eyebrows, well everything. 5 stars</li>
+    <li> I got it for my co worker for her b.day and she loves it...</li>
+    <li> My daughter wanted this set for Christmas. They look great and nice selection but she won&#x27;t use them because the bristles shed constantly. Big disappointment.</li>
+    <li> I love these brushes. Theyre not really  pro which is the only reason for a 4 star. The shipping was really fast.  The brown tipped eyeshadow/ blending brushes are soft and work well, a bit firm but after breaking them in a bit they hold product really well. There is a mascara applicator I brush... which I dont really know why youd need that if this is going to be your personal kit. The fan brush is alright I wish it was a little wider, it is a bit delicate too so you shpuld keep the plastuc protector to avoid shedding. The face brushes are the downside. Theyre a cheaper black synthetic that dosen&#x27;t hold powder well. But considering all the other fine brushes you get and the fast free shipping with prime  and a case its worth buying and investing in 2 good face brushes.</li>
+    <li> I have owned these brushes for a long time they are amazing. The only thing wrong is occasional shedding from the bigger brushes but not the little one. If your looking for a set of good brushes these are the way to go good price for good brushes.</li>
+    <li> I ordered this set for my niece for her starting 9th grade gift. She loves them and all the brushes work so great. Her makeup has never looked better!</li>
+    <li> The brush part separated from the handle after several uses. The brush quality is not bad for such a cheap set, so with a little hot glue the set is good as new and works well.</li>
+    <li> The description says new but is clearly used! Not happy at all!</li>
+    <li> Its coo for the price...I just wish brushes had labels for beginners like myself... but just OK.. also like the pink bag..</li>
+    <li> very pretty brushes holds eye shadow well no complainimg here! also the bag that they come in is very good to carry anywhere</li>
+    <li> Unfortunately, the hair on the brushes are falling off.</li>
+    <li> i bought these for my daughter. She loves them. They&#x27;re so pretty, I decided to get a set for myself. :D</li>
+    <li> The smaller brushes were okay. The bigger ones smelled like mold. The bristles don&#x27;t hold or apply makeup well. You get what you pay for.</li>
+    <li> the brushes sheds instantly.&lt;br /&gt;The set is really pretty; however, you get what you pay for&lt;br /&gt;Threw away after the first use.</li>
+    <li> Arrived earlier then I thought. And was a great bridal shower gift.</li>
+    <li> The case is nice and its a pretty Barbie pink color. The smaller brushes with the brown bristles are nice and soft and blend colors well but the ones with the black bristles are stiff and pokey and don&#x27;t pick up color very well at all. As for that fan shaped brush I don&#x27;t really know what its good for other than looking pretty, I tried to blend my highlighter/ bronzer with it but it didn&#x27;t really do anything. Im happy I made this purchase because the folding case would cost a lot more if bought separate somewhere else but seeing as some of the brushes are not a very good quality, I will probably just replace them with my old favorite brushes and stick them in the case. Honestly I would not purchase this again because the case will probably last a long time and the brushes are not that good. Haha, Case and little brown brushes &#x3D; good. Pokey black brushes &#x3D; bad!</li>
+    <li> but its really not that great- they are worth it for the cheep price but your not getting awesome brushes- they have come apart at the base of the wood- easy fix but lame for sure... Looks good though</li>
+    <li> These brushes are very nice. They&#x27;re soft and they hold the product well. Very good deal I got more than my monies worth.</li>
+    <li> I liked the color however there was alot if shedding in the big brushes. Ok if your beginning but wouldn&#x27;t use on my regular clients.</li>
+    <li> These brushes shed like crazy. I dont like them at all. I wouldn&#x27;t recommend anyone to get these. 😤</li>
+    <li> I thought they looked really great. They smelled a little like plastic.But it was in pristine condition.I had no problem with shipping. I got it right away</li>
+    <li> Good quality brushes are the key to nice looking makeup! If you dont kno how to use them, learn! Doesnt come with a kabuki so youll need to buy one separate. Most brush sets dont include one for some reason. I ditched the case that came with these and put them in the center of my makeup holder thing. Love em</li>
+    <li> When I got this i was very excited. Everything seemed nice. The travel case was great quality all the brushes look great. I recently noticed the fan looking brush wasn&#x27;t the blonde color in the picture, it was shriveled and black. I dont even used that brush. I clean my brushes every two weeks and they SHED like crazy. They scratch my face and its really annoying. The eye brushes work fine. BUT the black half detaches from the pink half on almost all the brushes. NOT THE BEST !</li>
+    <li> Bought as a gift.  Product is perfect.  Shopped quickly and brushes are very soft.  Case is made well and the brushes are amazing.</li>
+    <li> Bag ripped within minutes of opening, brushes are too short in length and don&#x27;t pick up product (eye shadow,blush) very well. Waste of money if you ask me!!</li>
+    <li> This product was very cheap and as I was using the foundation brush some of the hairs came off and stuck to my face. EEW!!! Also, they were very rough and coarse.</li>
+    <li> I love my pink professional set,it was delivered on time.....the service was good. I would recommend everyone to buy it. I ove the case it came in.</li>
+    <li> there was no false advertisement at all! i loved it, it was a perfect gift for my best friend because she was a beauty guru</li>
+    <li> The quality of the cosmetic brushes was great.  I will recommend my friends and family to shop at this store in the future.</li>
+    <li> They were ok not really good they shed a lot not very happy</li>
+    <li> This is the worst product ever order online. Dont waste your money on this IT JUST CUTE DONT DO THE JOB!!</li>
+    <li> Pretty good brushes for the price, they do shed, but for the price and the quanity, I can&#x27;t complain! Shipping was a week early</li>
+    <li> I was very happy with my purchase . Thank you</li>
+    <li> I love this product. It&#x27;s stylish and works great. Doesn&#x27;t give me any problems. And I love it comes in it&#x27;s own little case.</li>
+    <li> My wife was looking for a makeup brushes and  I found this ones for her, perfect gift, and was a excelente price</li>
+    <li> more then what i expected ,,,  the shipping was super fast and with no problems.....</li>
+    <li> Love these brushes! The case that they are in is very soft and the brushes feel good in your hand! I have had no problems with the bristles and are soft to me! I will be buying these again to give as gifts!!!!</li>
+    <li> They are not the best but there useable</li>
+    <li> I use them everyday and have no problem with them I love all of my brushes and have used most of them they hold the makeup really well</li>
+    <li> My daughter requested a brush set for Christmas and she loved it! It&#x27;s good quality! I highly recommend it. Great gift for teens.</li>
+    <li> I had one brush that had some bristles falling out and I emailed the company and they gave me a full refund and said I could keep the item! I was very happy with their prompt response and the rest of the brushes are great!!!! I love it</li>
+    <li> These brushes are very nice. Unfortunately, some of them were falling apart within minutes of my opening the package. I really was not expecting that. Other than that, they work really well.</li>
+    <li> Ordered 2-3 months ago. I threw away my face brushes that come in this beside the fan brush. Very cheap material. I love all the other  brushes but I hated the face ones. Recommend if you need eye brushes etc. and already have face brush.</li>
+    <li> love pink as advertised still have great price good quality +++ l o v e  t h a n x</li>
+    <li> the quality is good only down side the case smelled bad at beginning subsided a bit after... overall i loved it</li>
+    <li> Love these! They had a funny smell to them at first but, it went within a week. They work well, and are durable! (i have three girls who have snuck some of them to use them) They arrived when they said they would, and the packaging wasnt at all damaged!</li>
+    <li> Purchased these for my daughter and she uses them for everyday use and takes them with her to apply her make up when she is performing.  She loves them!  Pink is her favorite color...</li>
+    <li> The worst brushes ever i really rather spend $20 for each one of those brushes at target, they dont even apply any makeup and the hair on the brushes falls off. The WORST product ever! I dont recommend it.</li>
+    <li> The pink color on the brushes is super cute, plus the package is really nice quality material. I love them!</li>
+    <li> cant go wrong on this one</li>
+    <li> I guess I shouldn&#x27;t complain because of the price, but every time I do my makeup I&#x27;m left with stray hairs from the bristles of the brush. Very cheap material.</li>
+    <li> I got what I paid for 😕</li>
+    <li> Ordered this set for my oldest daughter. Received them in mail on date it said they would. Made her day when I gave them to her.&lt;br /&gt;I had read reviews about case smelling. It did when I took out of the package but went away by next day.&lt;br /&gt;Great job</li>
+    <li> Ordered these for my daughter. They were just what she wanted. Absolutely love the carrying case. They were better than expected for the excellent price. Package arrived on time.</li>
+    <li> I love these brushes! 22 for only 13 dollars is such a good deal. I got them earlier than it said and when I got them, I instantly pulled at the bristles to see if it would shed. AND IT DOESN&#x27;T! And the color is very accurate to the picture. I gave some to my mom and she loves them as well! i would definitely recommend this!</li>
+    <li> I love the brushes.  They are very soft.  Good for a beginner.  I wish the fan brush was bigger.  Shipment came fast.</li>
+    <li> This product is just okay if you are just learning how to apply your makeup. 2 of my brushes have already broke and I barely even used them.</li>
+    <li> Got for my daughter for Christmas...she loves it!!</li>
+    <li> I did not receive the smudge brush that is listed in the package.</li>
+    <li> brushes came so quick, none were missing and there was no odor.. i love how soft the brushes are  and they are great quality for the price. i am so happy with this product and i would definitely buy again</li>
+    <li> Ok, it&#x27;s cheap. Maybe this is the reason it&#x27;s not that good. I could rate like an ok product if the brushes didnt start loosing their &amp;#34;hairs&amp;#34;.</li>
+    <li> Great! except there was a brush that  had something on it . Not sure what it is. When I used it there was blue deep in the brush. But besides that one I like it for the price.</li>
+    <li> I purchased this set for my girls, who are just starting to get into makeup and I really do not want them to use my expensive brushes.  This set has a lot of brushes, but many, many of them are the same with only difference in size. The majority look like eye shadow brush.  Grant it, the bigger eye shadow brush can be used as a blending brush, but there is a lot missing.  The quality is ok, and they are soft enough, but they do not pick up much product.  It is good for beginners and are great for getting used to using brushes.</li>
+    <li> Fine for beginners or children however they shed,  i had to glue three heads back on the handle right after first use.  Eye brushes are nice.  Face brushes stiffen and are scratchy.  Buy Shany brushes ir ELF proffesional line if you want good cheap brush sets.  Stay away from these</li>
+    <li> These brushes are amazing. The case is perfect, the brushes are soft and in pristine condition! Such a great purchase. &amp;#60;3</li>
+    <li> Previously purchased expensive brushes and have regreted, this set i like much more than that, it turned out to be a waste of money, 100% recomended! Color is pretty, very soft brushes, cheap, so many brushes is such a good deal.</li>
+    <li> The bigger brushes suck but the little ones are great! would recommend this only because there aren&#x27;t many big brushes and most of them are the better tiny ones.</li>
+    <li> The brushes feel like plastic on my face</li>
+    <li> Definitely would recommend these brushes because there is a brush for everything you may need to do makeup. Also it comes in a cute pink case.</li>
+    <li> The different brush sizes make is easy to apply make up. I have had them for a while and still in perfect condition!</li>
+    <li> The brushes are soft and pretty in pink..the one star off is because they are super fragile and might come apart..but overall a new buy!</li>
+    <li> I ABSOLUTELY HATE THESE BRUSHES!!!! PLEASE DO NOT BE FOOLED BY THE COMMENTS LIKE I WAS. THE BRUSHES SHED LIKE CRAZY, EVEN AT FIRST SIGHT YOU CAN ALREADY SEE STRANDS IN THE INSIDE OF THE CASE. I HAD TO THROW SOME OF MY MAKE UP AWAY BECAUSE IT WAS SO MUCH HAIR IN IT. BEWARE</li>
+    <li> These brushes shed and leave black hairs on your face while applying makeup, but I suppose you get what you pay for. They were a reasonable price but took over Four weeks to get to me.</li>
+    <li> Not soft at all &amp; they break easy</li>
+    <li> Great brushes for the cost.</li>
+    <li> I only use the small ones because the bristles come out the large one with one use. They have about five of the same brush in the pack. All in all it&#x27;s an okay starter pack but I wouldn&#x27;t recommend it.</li>
+    <li> Love the color. Most brushes work great except the large ones because they she&#x27;s a lot. But, for the price that is expected and it&#x27;s a great deal for the price!</li>
+    <li> My friend loves these, soft, and there was no smell or scent to this...do a great job! Very pleased with these.</li>
+    <li> Love the brushes that came in this kit!!!! They are durable and apply the makeup evenly. I would recommend this product to other people definently:)</li>
+    <li> These were so cute, they come with a nice leather case but the bristles fall out to easily! They don&#x27;t hold product hardly at all! They don&#x27;t blend makeup very well either! The brush heads are not glued to the handles they have all popped off and I&#x27;ve used them once! Don&#x27;t buy your brushes cheap spend the extra money and get some quality brushes! if you&#x27;re looking for beginners brushes these will do. I used Eco tools brushes before I bought these I had them for 5 years an they worked great!</li>
+    <li> Hated them were no good the fall apatr</li>
+    <li> The bigger brushes shed some  what. I give them 3 out of 5 on picking up. 2.8 of 5 on blending. The small brushes arent that small. They have like 3-4 brushes for each size. Something i really dont like. Good for a beginner. But not considered professional for me.</li>
+    <li> Cheap and wasteful I wish I could return them</li>
+    <li> Very disappointed, the bristle from the big brushes shed terribly. But the others worked okay.</li>
+    <li> Brushes are cheap and the hairs fall out when using and it&#x27;s multiple hairs per brush per use that fall out! Should have stuck with Merle Norman!</li>
+    <li> Bristles do not hold and apply make up well at all. U get what u pay for. I made a mistake on this one.</li>
+    <li> Bought them for my mom and 2 sisters and they use them all the time!</li>
+    <li> I never got these brushes after I ordered them.  Their are plenty of other brushes to chose from so I would save your time and order some different ones.</li>
+    <li> I was skeptical when I first bought these because they were SO cheap and I wasn&#x27;t sure how good quality they were. I&#x27;ve been using them about a week now and no complaints, except they shed a little and they smell plasticy when they arrived. But that can be fixed by leaving them out over night to air out. They work great overall. I would definitely repurchase.</li>
+    <li> These were for my daughter and she loves them!</li>
+    <li> I got these for my sister as a Christmas present! She absolutely LOVES them! Color is great, works well for her! I would definitely recommend this product to others!</li>
+    <li> They&#x27;re so pretty and so many brushes for so many different things eyeshadows it&#x27;s perfect. Except the big ones their a little ruff but I already have good big ones so no big deal. :)</li>
+    <li> It came very fast and is very good quality. I bought it as a gift and they really loved it.</li>
+    <li> Super low quality on the brushes. Disappointed</li>
+    <li> A few of the heads have detached. Approximately 5 of the brushes are usable, the ones in the smaller size. I properly dry my brushes with brush guards and still these come apart. Would not repurchase or buy again.</li>
+</ol>
+
+
+
+

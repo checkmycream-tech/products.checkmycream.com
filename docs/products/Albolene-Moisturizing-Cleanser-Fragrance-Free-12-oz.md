@@ -1,0 +1,327 @@
+---
+title: Albolene Moisturizing Cleanser Fragrance Free 12 oz,
+description: Albolene Moisturizing Cleanser Fragrance Free 12 oz,
+author: Suvojit Manna,
+tags: Albolene Moisturizing Cleanser Fragrance Free 12 oz,
+publishedAt: Fri Jan 10 2020 14:59:17 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:59:17 GMT+0530 (India Standard Time),
+---
+
+# [Albolene Moisturizing Cleanser Fragrance Free 12 oz](https://products.checkmycream.com/products/Albolene-Moisturizing-Cleanser-Fragrance-Free-12-oz.html)
+
+### Positive Reviews
+
+<ol>
+      <li>Wonderful on the skin.  </li>
+      <li>Arrived perfectly and in a timely manner</li>
+      <li>Awesome!</li>
+      <li>BY THE WAY, IT IS ONE OF THE MOST INEXPENSIVE CLEANSERS ON THE PLANET.!!!!!!!!!!  </li>
+      <li>Great product!</li>
+      <li>Best Product Ever!!!!</li>
+      <li>Excellent product.  </li>
+      <li>It&#x27;s wonderful for my skin.  </li>
+      <li>Perfect.</li>
+      <li>Excellent product for the price.</li>
+      <li>Very happy customer</li>
+      <li>Still awesome and has never changed!</li>
+      <li>This is an excellent product and I use it every time before I get on my bike trainer.</li>
+      <li>Also very good price!!  </li>
+      <li>I love this stuff!!!</li>
+      <li>It is very very good to use and to recommend to others.</li>
+      <li>The price was very good also.</li>
+      <li>This cleanser is a very good moisturizer and cleanser.  </li>
+      <li>It covers beautifully and practically melts</li>
+      <li>This is a great body moisturizer as well as make-up remover.</li>
+      <li>Great overnight moisturizer.</li>
+      <li>Effective and great!</li>
+      <li>This stuff is great.</li>
+      <li>works great while working out</li>
+      <li>It&#x27;s great.  </li>
+      <li>and it&#x27;s great for taking off make-up and mascara.</li>
+      <li>Great make up remover.</li>
+      <li>This stuff works great to make you sweat during a workout.</li>
+      <li>It&#x27;s great as a makeup remover and moisturizer.  </li>
+      <li>great product.</li>
+      <li>Lol</li>
+      <li>I am so happy inches just sweating off</li>
+      <li>I also use it in the sauna it does help me sweat and eliminates the &amp;#34;itchy scratchy&amp;#34;  Great product.  </li>
+      <li>also discovered it is a great moisturizer.</li>
+      <li>Great to use while working out to get the sweat flowing</li>
+      <li>and I love using it!!</li>
+      <li>Buying it on Amazon was great and it was a good price.</li>
+      <li>Wonderful product, glad I purchased it in a 2 pack...</li>
+      <li>but then you see how well it takes off make up and realize it&#x27;s not just vaseline :) great product!</li>
+      <li>have been using this to take off make-up for many many years (my grandmother told me about albolene!!!)</li>
+      <li>Good purchase.  </li>
+      <li>But it&#x27;s a good moisturizer.</li>
+      <li>Not recommended for face, but good for the belly and waistline.</li>
+      <li>Good stuff</li>
+      <li>I can get I feel good like really good I have tons of energy</li>
+      <li>Albolene works great with a nice waist cincher during your workout.</li>
+      <li>Great moisturizer..removes makeup very well leaving your skin feeling Awesome.</li>
+      <li>I read that this stuff is great for more than moisturizing.  </li>
+      <li>I am happy to see it is still available!</li>
+      <li>It&#x27;s great at removing makeup, even stubborn mascara, although it may take more than one</li>
+      <li>It works great and leaves your skin very clean and moist.</li>
+      <li>Very good and useful.</li>
+      <li>Amazing skin in about a week.  </li>
+      <li>This product is amazing.  </li>
+      <li>Love this product,  does an amazing good for your skin.</li>
+      <li>It really is one of the best I&#x27;ve ever used.  </li>
+      <li>AMAZON HAS A REAL WINNER WITH THIS MARVELOUS PRODUCT.&lt;br /&gt;&lt;br /&gt;WALTON</li>
+      <li>I love this product and am pleased with my purchase!</li>
+      <li>It leaves skin very smooth and well hydrated.</li>
+      <li>It works as well as, or better than any pricey make up remover</li>
+      <li>I have used this product since my teens, I have never found a better makesup remover or moisturizer.  </li>
+      <li>Takes my makeup off immediately and I love the quickness and the way my skin feels afterwards.</li>
+      <li>Nothing takes makeup off better and it also hydrates too.  </li>
+      <li>It does make you sweat more</li>
+      <li>It works and it is cheap!</li>
+      <li>Love it.</li>
+      <li>Love it</li>
+      <li>I have used this product for many years and will continue to use it.</li>
+      <li>I love this stuff.  </li>
+      <li>Love this product.</li>
+      <li>I recieve many compliments about my skin since using this product.</li>
+      <li>in all I am I am beyond satisfied with this product.</li>
+      <li>I just ordered 8 more from amazon</li>
+      <li>they love it and the price was better than the stores.</li>
+      <li>This prdduct works well for so many things.  </li>
+      <li>Better than anything I&#x27;ve tried.  </li>
+      <li>Love this stuff, makes me sweat a lot in the gym.</li>
+      <li>Glad they have it</li>
+      <li>My grand parents used Abolene and so do I for 40 plus years.&lt;br /&gt;I will continue to use it</li>
+      <li>BECAUSE IT WORKS AND IS COMPLETELY SAFE.  </li>
+      <li>I use it at night to take off makeup and in the morning before applying makeup to get that more moisturized look/feeling.  </li>
+      <li>I sweat more</li>
+      <li>Love it.</li>
+      <li>love this works well for the reason i bought it for so great product and thanks for selling it will buy again soon when i run out keep up the good work thanks once more...</li>
+      <li>Works pretty good, would recommend for my friends.</li>
+      <li>Awesome for dry skin!</li>
+      <li>So far it has worked great</li>
+      <li>Strongly recommend.</li>
+      <li>Albolene and Oil of Olay have been perfectly fine, and they don&#x27;t cost an arm and a leg.</li>
+      <li>Try it, it runs about $11-$13 for a huge container.  </li>
+      <li>even if its only temporary lol</li>
+      <li>It leaves my skin smooth and moisturized.  </li>
+      <li>It leaves your skin feeling smooth but not greasy.</li>
+      <li>And i don&#x27;t buy cheap products.</li>
+      <li>i have been using this for a few diffrent things lotion for my son with exzema and it works great and keeps his skin nice and smooth  and to remove my make up</li>
+      <li>When I am done the sweat is just pouring off and my stomach feels so smooth and moisturized.  </li>
+      <li>( many years ;)</li>
+      <li>Fast shipping:)</li>
+      <li>I have used Albolene for over 8 years for many things.&lt;br /&gt;You don&#x27;t have to use to much</li>
+      <li>This product is a good replacement for Mary Kay Extra Emollient Cleansing Cream.  </li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> Wonderful on the skin.  </li>
+<li> Arrived perfectly and in a timely manner</li>
+<li> Awesome!</li>
+<li> BY THE WAY, IT IS ONE OF THE MOST INEXPENSIVE CLEANSERS ON THE PLANET.!!!!!!!!!!  </li>
+<li> Great product!</li>
+<li> Best Product Ever!!!!</li>
+<li> Excellent product.  </li>
+<li> It&#x27;s wonderful for my skin.  </li>
+<li> Perfect.</li>
+<li> Excellent product for the price.</li>
+<li> Very happy customer</li>
+<li> Still awesome and has never changed!</li>
+<li> This is an excellent product and I use it every time before I get on my bike trainer.</li>
+<li> Also very good price!!  </li>
+<li> I love this stuff!!!</li>
+<li> It is very very good to use and to recommend to others.</li>
+<li> The price was very good also.</li>
+<li> This cleanser is a very good moisturizer and cleanser.  </li>
+<li> It covers beautifully and practically melts</li>
+<li> This is a great body moisturizer as well as make-up remover.</li>
+<li> Great overnight moisturizer.</li>
+<li> Effective and great!</li>
+<li> This stuff is great.</li>
+<li> works great while working out</li>
+<li> It&#x27;s great.  </li>
+<li> and it&#x27;s great for taking off make-up and mascara.</li>
+<li> Great make up remover.</li>
+<li> This stuff works great to make you sweat during a workout.</li>
+<li> It&#x27;s great as a makeup remover and moisturizer.  </li>
+<li> great product.</li>
+<li> Lol</li>
+<li> I am so happy inches just sweating off</li>
+<li> I also use it in the sauna it does help me sweat and eliminates the &amp;#34;itchy scratchy&amp;#34;  Great product.  </li>
+<li> also discovered it is a great moisturizer.</li>
+<li> Great to use while working out to get the sweat flowing</li>
+<li> and I love using it!!</li>
+<li> Buying it on Amazon was great and it was a good price.</li>
+<li> Wonderful product, glad I purchased it in a 2 pack...</li>
+<li> but then you see how well it takes off make up and realize it&#x27;s not just vaseline :) great product!</li>
+<li> have been using this to take off make-up for many many years (my grandmother told me about albolene!!!)</li>
+<li> Good purchase.  </li>
+<li> But it&#x27;s a good moisturizer.</li>
+<li> Not recommended for face, but good for the belly and waistline.</li>
+<li> Good stuff</li>
+<li> I can get I feel good like really good I have tons of energy</li>
+<li> Albolene works great with a nice waist cincher during your workout.</li>
+<li> Great moisturizer..removes makeup very well leaving your skin feeling Awesome.</li>
+<li> I read that this stuff is great for more than moisturizing.  </li>
+<li> I am happy to see it is still available!</li>
+<li> It&#x27;s great at removing makeup, even stubborn mascara, although it may take more than one</li>
+<li> It works great and leaves your skin very clean and moist.</li>
+<li> Very good and useful.</li>
+<li> Amazing skin in about a week.  </li>
+<li> This product is amazing.  </li>
+<li> Love this product,  does an amazing good for your skin.</li>
+<li> It really is one of the best I&#x27;ve ever used.  </li>
+<li> AMAZON HAS A REAL WINNER WITH THIS MARVELOUS PRODUCT.&lt;br /&gt;&lt;br /&gt;WALTON</li>
+<li> I love this product and am pleased with my purchase!</li>
+<li> It leaves skin very smooth and well hydrated.</li>
+<li> It works as well as, or better than any pricey make up remover</li>
+<li> I have used this product since my teens, I have never found a better makesup remover or moisturizer.  </li>
+<li> Takes my makeup off immediately and I love the quickness and the way my skin feels afterwards.</li>
+<li> Nothing takes makeup off better and it also hydrates too.  </li>
+<li> It does make you sweat more</li>
+<li> It works and it is cheap!</li>
+<li> Love it.</li>
+<li> Love it</li>
+<li> I have used this product for many years and will continue to use it.</li>
+<li> I love this stuff.  </li>
+<li> Love this product.</li>
+<li> I recieve many compliments about my skin since using this product.</li>
+<li> in all I am I am beyond satisfied with this product.</li>
+<li> I just ordered 8 more from amazon</li>
+<li> they love it and the price was better than the stores.</li>
+<li> This prdduct works well for so many things.  </li>
+<li> Better than anything I&#x27;ve tried.  </li>
+<li> Love this stuff, makes me sweat a lot in the gym.</li>
+<li> Glad they have it</li>
+<li> My grand parents used Abolene and so do I for 40 plus years.&lt;br /&gt;I will continue to use it</li>
+<li> BECAUSE IT WORKS AND IS COMPLETELY SAFE.  </li>
+<li> I use it at night to take off makeup and in the morning before applying makeup to get that more moisturized look/feeling.  </li>
+<li> I sweat more</li>
+<li> Love it.</li>
+<li> love this works well for the reason i bought it for so great product and thanks for selling it will buy again soon when i run out keep up the good work thanks once more...</li>
+<li> Works pretty good, would recommend for my friends.</li>
+<li> Awesome for dry skin!</li>
+<li> So far it has worked great</li>
+<li> Strongly recommend.</li>
+<li> Albolene and Oil of Olay have been perfectly fine, and they don&#x27;t cost an arm and a leg.</li>
+<li> Try it, it runs about $11-$13 for a huge container.  </li>
+<li> even if its only temporary lol</li>
+<li> It leaves my skin smooth and moisturized.  </li>
+<li> It leaves your skin feeling smooth but not greasy.</li>
+<li> And i don&#x27;t buy cheap products.</li>
+<li> i have been using this for a few diffrent things lotion for my son with exzema and it works great and keeps his skin nice and smooth  and to remove my make up</li>
+<li> When I am done the sweat is just pouring off and my stomach feels so smooth and moisturized.  </li>
+<li> ( many years ;)</li>
+<li> Fast shipping:)</li>
+<li> I have used Albolene for over 8 years for many things.&lt;br /&gt;You don&#x27;t have to use to much</li>
+<li> This product is a good replacement for Mary Kay Extra Emollient Cleansing Cream.  </li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> There is nothing better for removing make-up or black heads</li>
+    <li> Awesome for cutting weight</li>
+    <li> Skin feels so soft I am using as a moisturizer on my upper body and arms as well.  Love it</li>
+    <li> Love this product,  does an amazing good for your skin. Very happy customer</li>
+    <li> My mother lives in the high desert and just loves this product! She&#x27;s used it for years and swears by it!</li>
+    <li> I use this with my waist wrap to help trim my middle. So far it has worked great has a product, plus I use it to remove my makeup two for the price of one. It was delivered on time and the package was easy to open. I would recommend this product it really does help with the waist trimming.</li>
+    <li> It leaves skin very smooth and well hydrated. I have eve used it on my small children for their eczema.</li>
+    <li> This product is amazing.  I put a little on my stomach before my wrap and then exercise.  When I am done the sweat is just pouring off and my stomach feels so smooth and moisturized.  I will be using this product for a long time. Love it.</li>
+    <li> Can&#x27;t tell yet just start using it</li>
+    <li> My grand parents used Abolene and so do I for 40 plus years.&lt;br /&gt;I will continue to use it and it is less expensive than what is on the market.</li>
+    <li> This product truly make you sweat extra.  I don&#x27;t use it every day, but on my Zumba days, and Walk/Jog days, I do use it.  Excellent product for the price.</li>
+    <li> I use this cream to work out, sweat and lose weight.  It works better than other weight loss creams, but I tried it on my face, and it made my skin puff up for 2 days.  Not recommended for face, but good for the belly and waistline.</li>
+    <li> weight loss miracle even if its only temporary lol</li>
+    <li> I like this product a lot and use it to cleanse my face. It looks and feels like Vaseline. I have very dry skin so I appreciate the heavy moisturizing effects.</li>
+    <li> Loves this product can not be without it</li>
+    <li> Good purchase.  Thank you!</li>
+    <li> This stuff removes makeup but it hard to get off skin, even with soap!!! Definetly going to go back to using Ponds or other forms of makeup removers.  Also tried using this as a weight loss aid with my waist trimmer belt, which was a bad idea!</li>
+    <li> works great while working out</li>
+    <li> This product works well for makeup removal. My daughter uses it for stage makeup also and it works very well.</li>
+    <li> This cleanser is a very good moisturizer and cleanser.  It is very very good to use and to recommend to others.</li>
+    <li> Great moisturizer..removes makeup very well leaving your skin feeling Awesome. Will purchase again. Also very good price!!  Can also buy from your local CVS.</li>
+    <li> This prdduct works well for so many things.  I can use it as a make up remover or for feet, elbows etc. It is priced right and works.</li>
+    <li> Awesome for dry skin! My mom has been using it for her face for years and has kept her young.  People think she&#x27;s my sister. Great product!</li>
+    <li> thanks so much. Arrived perfectly and in a timely manner</li>
+    <li> This works. Fast shipping:)</li>
+    <li> I chose this product because I seen people using it to help with weight loss.  It really does make me sweat a WHOLE LOT more than I do without it.  A plus to this is that a little bit goes a LONG way.  Another plus is it doesn&#x27;t leave a greasy/sticky film after you apply it.  If you are looking for a product to help boost your sweat while working out, I definitely would recommend it.</li>
+    <li> I use the albolene for working out.  so far, I am sweating more than usual.  I have not used it to remove make-up.</li>
+    <li> Great to use while working out to get the sweat flowing</li>
+    <li> Excellent product.  Wonderful on the skin.  My neighbor used it modt of ger life and at 85 had skin softvwith mo wrinkles.</li>
+    <li> It really makes me sweat</li>
+    <li> I have used Albolene for years and had gotten so that I could not find it locally. Buying it on Amazon was great and it was a good price. Keeps my skin clean and soft without causing blemishes. People say I look ten years younger than I am.</li>
+    <li> My husband uses it with a waist band to exercise and it makes that area sweat buckets. Very good and useful.</li>
+    <li> This has been around for a long time but until a friend suggested it, I never tried it. It works as well as, or better than any pricey make up remover I&#x27;ve ever used. It leaves your skin feeling smooth but not greasy.</li>
+    <li> Definitely not the same as Vaseline!! I did not give it a 5 star because it is still a bit sticky.  But it&#x27;s a good moisturizer.</li>
+    <li> This product does allow me to literally sweat off my belly fat.  I put it on and use a ab belt to sweat off the fat fast.</li>
+    <li> I purchased this for waist training in addition to an Ann Chery sport cincher. I do not notice increased perspiration in the midsection after applying this product as I did to using the cincher alone.</li>
+    <li> great product. I&#x27;ve been using it on my stomach when I workout. I make you sweat a lot and I&#x27;ve even lost of inch around my waist. I wrap my stomach in saran wrap.</li>
+    <li> I read that this stuff is great for more than moisturizing.  truth be told it is....try it you will like it!!</li>
+    <li> Wonderful product, glad I purchased it in a 2 pack...</li>
+    <li> love this works well for the reason i bought it for so great product and thanks for selling it will buy again soon when i run out keep up the good work thanks once more...</li>
+    <li> Received promptly.  Have used this in the past to remove eye makeup and couldn&#x27;t find it in the store.  Not greasy and works really well- gentle, but still removes waterproof mascara.</li>
+    <li> Been using for 40 years. Still awesome and has never changed! Simple. Does the job.  It works and it is cheap!</li>
+    <li> After a workout at the local gym I came across a couple of young kids in the sauna with a jar of this stuff. They were cutting weight for an upcoming combatives tournament. The young man told me he lost 7 pounds that morning (all water weight of course). I decided it was worth a try.&lt;br /&gt;I picked it up at a local drug store (price around $15 so amazon is cheaper) and gave it a go. It makes you sweat, and when used with a waist trimmer it works wonderfully.&lt;br /&gt;I also discovered it is a great moisturizer. I use it on my 6 year olds legs after her baths and it has helped calm her eczema. I also put it on my feet in the evening with a pair of socks to help keep my feet stay pedicure soft.&lt;br /&gt;All in all I am I am beyond satisfied with this product.</li>
+    <li> Works pretty good, would recommend for my friends.</li>
+    <li> have been using this to take off make-up for many many years (my grandmother told me about albolene!!!)</li>
+    <li> For my acne prone, dry skin, this product is amazing, no more break outs and it moisturizes better than any other product I&#x27;ve tried.  I&#x27;ve had problem skin since I was a teen (now 33) and this product makes me look like I am still in my 20&#x27;s.  It&#x27;s great as a makeup remover and moisturizer.  IT DOES NOT BURN THE EYES, it does not have harsh chemicals and my skin feels amazing.  Proactive (and many other brands) have all the expensive marketing in the world and just irritated me more, but Albolene does not do that.  It&#x27;s wonderful for my skin.  Try it, it runs about $11-$13 for a huge container.  I use it at night to take off makeup and in the morning before applying makeup to get that more moisturized look/feeling.  TRY IT!</li>
+    <li> You&#x27;ll pay the same in drug stores or grocery stores for one jar when you get two jars for the praice of one here on Amazon.com.Purchased for my daughter&#x27;s birthday present she uses this all the time to remove makeup.She was very happy to get two jars because she knows how expensive one jar is in the stores.</li>
+    <li> I used this cleanser for when I wrap. Sweat pours out when I take my wrap off!</li>
+    <li> This stuff is great. I use it on my abdomen and back before I work out! I sweat more and I love using it!!</li>
+    <li> This product removes my make up without leaving my skin feeling stripped of my natural oil. I use this also under my waist trimming belt and believe it is acting as a heat receptor during my work outs. I will continue to use this product. It seems like it&#x27;s just Vaseline but then you see how well it takes off make up and realize it&#x27;s not just vaseline :) great product!</li>
+    <li> Best Product Ever!!!!</li>
+    <li> Love this stuff, makes me sweat a lot in the gym.</li>
+    <li> Not sure what&#x27;s it supposed to do.</li>
+    <li> I love this stuff!!! It makes my face feel so soft and it cleanse very well. Definitely would recommend this!! You won&#x27;t be disappointed.</li>
+    <li> I am usually lazy when it comes to taking off makeup. Abolene makes quick work of it.  It leaves my skin smooth and moisturized.  I also use it in the sauna it does help me sweat and eliminates the &amp;#34;itchy scratchy&amp;#34;  Great product.  A little goes a long way.</li>
+    <li> This stuff works great to make you sweat during a workout. Awesome!</li>
+    <li> Quality, Economical, Instant Shipping~!  AAA+++</li>
+    <li> Used to use this long time ago and then forgot about it.  Good stuff</li>
+    <li> I have used this product since my teens, I have never found a better makesup remover or moisturizer.  I use it sparingly as it has been hard to find, I am happy to have found it.</li>
+    <li> I love this stuff.  It liquefies cosmetics on contact and leaves skin clean and soft.  Have been using it since I discovered it in esthetician school ( many years ;)</li>
+    <li> Better than anything I&#x27;ve tried.  Clean and natural.  Amazing skin in about a week.  Helped a bad course of eczema get better much faster.  Very few ingredients so less chance of allergic reactions.</li>
+    <li> Great make up remover. Great overnight moisturizer.</li>
+    <li> This product is a good replacement for Mary Kay Extra Emollient Cleansing Cream.  I like it.  It melts away your eye makeup and moisturizes your skin.</li>
+    <li> I used it on my stomach, to make me sweat. When I work out. My stomach drips with sweat and it feels like it&#x27;s shrinking. My sister just purchased hers and I&#x27;ll update talk on a few months</li>
+    <li> this works it really works I will be order there biggest case I can get I feel good like really good I have tons of energy .. I feel like I  have energy its really werid ..... this stuff works  I sweated so much I use this stuff everyday now , I but it all over me body ,</li>
+    <li> After seeing the recommendation on someone&#x27;s blog, I followed their tip and got this for an &amp;#34;off label&amp;#34; use...as a personal lubricant for myself.  It really is one of the best I&#x27;ve ever used.  It&#x27;s much lighter and melts quicker against warm skin than other things like vaseline.  It also doesn&#x27;t dry out like water-based lubricants.  However, it is greasy obviously...so you have to be aware/careful of that.</li>
+    <li> Have used this for years to take off my makeup.  Wouldn&#x27;t go without it.</li>
+    <li> It does make you sweat more and it&#x27;s great for taking off make-up and mascara.</li>
+    <li> A staple cosmetic and moisturizing lube around our abode</li>
+    <li> Love this product. No wear in stores!</li>
+    <li> I&#x27;ve tried everything under the rainbow for my starving dry, crackling alligator skin during the winter months (my whole body).....I&#x27;ve only been using this product for about 2 weeks right after my morning shower while my skin is still damp....I can&#x27;t began to tell you the difference &amp; transformation  on my skin ...I just ordered 8 more from amazon so I can have supply....by the way it works very well as a make up remover</li>
+    <li> this was for my wife and her sister. it has been around a long time and it does what it is supposed to do. they love it and the price was better than the stores.</li>
+    <li> I&#x27;ve been using Albolene for over 30 years. My dermatologist recommended it as a non-drying face cleanser. It would liquefy as soon as it touched skin, but it wasn&#x27;t drippy.&lt;br /&gt;&lt;br /&gt;It has never failed to clean thoroughly, and it leaves skin moisturized.  It&#x27;s great at removing makeup, even stubborn mascara, although it may take more than one application.&lt;br /&gt;&lt;br /&gt;I started using this when I was young, because I have a skin condition I had to be mindful of.  All these years later I&#x27;m still using it and have pretty good looking skin for my age.  I think the formula has changed somewhat, as the product doesn&#x27;t liquefy so quickly as it used to, but it still does the job.&lt;br /&gt;&lt;br /&gt;The only other moisturizer I use is Oil of Olay with SPF protection.  I&#x27;ve been using that for over 30 years as well, although initially it didn&#x27;t have SPF.  Glad they have it now.&lt;br /&gt;&lt;br /&gt;I&#x27;ve never used any kind of expensive department store face lotions or creams.  I never had to.  Albolene and Oil of Olay have been perfectly fine, and they don&#x27;t cost an arm and a leg.</li>
+    <li> I sweated so much weight off I am so happy inches just sweating off</li>
+    <li> I have used this product for many years and will continue to use it. It works great and leaves your skin very clean and moist.</li>
+    <li> This is working for me, but slowly.</li>
+    <li> My mother used this product all her life and lived to be 98!  I use it as a moisturizer.  Love it.</li>
+    <li> I have been using it for at least ten years, and I love it!&lt;br /&gt;A small amount is all you need to use. It covers beautifully and practically melts&lt;br /&gt;your makeup off, without any tugging or pulling on your skin, and leaves your skin&lt;br /&gt;feeling soft and hydrated!</li>
+    <li> I apply this to my midsection to lose weight.  You sweat alot with this stuff on you!</li>
+    <li> FINALLY, I found something that works! It works, it works, it works, it works! It itches a lil but it works!</li>
+    <li> I use this to wrap my midsection while working out.  It&#x27;s great.  Just waiting on my order from Amazon to arrive.  (I picked mine up at the local drugstore)</li>
+    <li> Albolene works great with a nice waist cincher during your workout. It really does make you sweat a ton and you only need a small amount.&lt;br /&gt;&lt;br /&gt;Pros: Easy to apply, only requires a tiny amount so this size will last more than one year even if applied daily and it makes you sweat up a storm in the area you apply and wrap to. I use the Albolene directly on my skin with my wrap over it (I have the Everlast adjustable wrap), and don&#x27;t use any plastic wrap at all. Plastic wrap is horrible because it collects sweat like crazy and has you walking around like a waterfall, plus it constantly rolls up and is useless. My Everlast holds everything in very well until my workout is complete. I also recommend removing your wrap in a shower or tub! Yes, there will be that much sweat! Lol&lt;br /&gt;&lt;br /&gt;Cons: This texture is almost like vasoline so it&#x27;s hell to get off of your hands if you apply it without gloves on. I used warm water and a small amount of makeup remover by Neutrogena to get it off. Hahaha I have since purchased gloves from the dollar store and only need one to apply each time to reduce the fuss of greasy hands during my workout.</li>
+    <li> I like this cleanser very much and have been using it for quite awhile.  It really gets rid of all your makeup without to much trouble.  The price was very good also.</li>
+    <li> I used to use this to remove make-up during my Theatre days. I am happy to see it is still available! Effective and great! Thanks!</li>
+    <li> I use this to remove makeup but I don&#x27;t wear makeup often. My main purpose for this product is for weight loss. I rub on my stomach and back fat areas as well as thighs and cover with plastic. I use a waist trainer and sweat off inches. I love this product and am pleased with my purchase!</li>
+    <li> This is an excellent product and I use it every time before I get on my bike trainer. It helps me to sweat a lot and it actually doesn&#x27;t feel as greasy afterwards as I thought it would. The product seems to just melt and glide as soon as it is applied to the skin as opposed to other petroleum based products that I&#x27;ve used, like Vaseline. Surprisingly, I&#x27;ve noticed that the pores on my face and the small wrinkles around my eyes have actually become smaller or disappeared when I used it on my face so now I try to apply it to my face and around my eyes as often as I can. I&#x27;m reviewing this product after 9 months of continuous use because a few weeks ago someone guessed my age as like 7 years younger! I&#x27;ve never had that happen to me before! Usually when people guess my age, it&#x27;s spot on (or, sadly, older) so to hear it now all I could guess is that it must be Albolene. I didn&#x27;t tell anyone that because what if I&#x27;m wrong and it may not work for them? Everyone has a different blood type and body chemistry (hence why food and drugs affect people differently) and it could be just one of those products that fits my blood type and chemistry...and it&#x27;s making me younger looking! Thank god for that! In any case, I really love this product so overall, I definitely highly recommend it and would stock up on it if I could. I give it a solid 5.0/5.0. -08/31/2014</li>
+    <li> Takes my makeup off immediately and I love the quickness and the way my skin feels afterwards.</li>
+    <li> Have been using this product for 40 years.  Nothing takes makeup off better and it also hydrates too.  Strongly recommend.</li>
+    <li> This is a great body moisturizer as well as make-up remover. I actually use it when I work out to help me sweat more. And in a super crunch I&#x27;ve I&#x27;ve used it as a scalp moisturizer.  It is definitely a multipurpose product.  Now I understand how it has managed to span decades of use.</li>
+    <li> Can wait to start using this, r r r r r r r r r r r r r r r</li>
+    <li> Yesterday was my first day using it, when putting it on it feels like vicks. I only apply a thing layer on my problem areas, washes off nicely. Been using it for working out and it leaves my body sweating; I wear it with a workout belt.</li>
+    <li> Using this to shed water weight with a neoprene waist belt...working so far for this purpose, helps me to sweat.</li>
+    <li> I think this does what it is supposed to do. Unfortunately it made my skin itch. I won&#x27;t be using the bottles I have purhased. Not happy, but not worth the irritation.</li>
+    <li> I have used Albolene for over 8 years for many things.&lt;br /&gt;You don&#x27;t have to use to much so it lasts a very long time.</li>
+    <li> Perfect. Exactly what I ordered.</li>
+    <li> I HAVE BEEN USING ALBOLENE MOISTURIZING FOR OVER 35 YEARS.  I DISCOVERED EARLY ON THAT THIS CLEANSER COULD GET INTO YOUR EYES AND NEVER CAUSE ONE MOMENT OF IRRITATION.&lt;br /&gt;EVENTUALLY, I FOUND OUT THAT SHOW BIZ PERSONALITIES WERE USING IT TO REMOVE THEIR HEAVY MAKEUP WITHOUT CAUSING ONE IOTA OF SKIN PROBLEMS.&lt;br /&gt;WITH ALL THE NEW PRODUCTS ON THE MARKET, I HAVE STAYED WITH ALBOLENE BECAUSE IT WORKS AND IS COMPLETELY SAFE.  I HAVE VERY FAIR, THIN SKIN, AND HAVE NEVER EXERIENCED A MOMENT OF ITCHING OR REDNESS.  I CAN COME HOME FROM A &#x27;FANCY AFFAIR&#x27; AT 3:00 A.M. AND JUST SLAP THIS MOSTURIZER ON, INCLUDING HEAVY MASCARA AND LINER, AND IN A MINUTE, HAVE EVERYTHING OFF THE FACE WITH NO PROBLEM.&lt;br /&gt;AND BY THE WAY, IT IS ONE OF THE MOST INEXPENSIVE CLEANSERS ON THE PLANET.!!!!!!!!!!  AMAZON HAS A REAL WINNER WITH THIS MARVELOUS PRODUCT.&lt;br /&gt;&lt;br /&gt;WALTON</li>
+    <li> i have been using this for a few diffrent things lotion for my son with exzema and it works great and keeps his skin nice and smooth  and to remove my make up and i also rub this on my stomach and wrap with plastic wrap and it helps burn the fat as i work out</li>
+    <li> Great product for very dry and sensitive skin. I don&#x27;t use any other facial cleaner anymore. My skin is very sensitive to every face cleaner I&#x27;ve tried. And i don&#x27;t buy cheap products. My skin was red, irritated, over dried and flaky. I saw and felt a big difference just after few days of using abolene. My skin is clean and soft, no more red and irritated. I recieve many compliments about my skin since using this product. I give this product 4 stars only because I found it cheaper at local walgreens.</li>
+</ol>
+
+
+
+

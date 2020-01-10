@@ -3,8 +3,8 @@ title: Aztec Secret Indian Healing Clay Deep Pore Cleansing,
 description: Aztec Secret Indian Healing Clay Deep Pore Cleansing,
 author: Suvojit Manna,
 tags: Aztec Secret Indian Healing Clay Deep Pore Cleansing,
-publishedAt: Thu Jan 09 2020 19:08:23 GMT+0530 (India Standard Time),
-modifiedAt: Thu Jan 09 2020 19:08:23 GMT+0530 (India Standard Time),
+publishedAt: Fri Jan 10 2020 14:59:22 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:59:22 GMT+0530 (India Standard Time),
 ---
 
 # [Aztec Secret Indian Healing Clay Deep Pore Cleansing](https://products.checkmycream.com/products/Aztec-Secret-Indian-Healing-Clay-Deep-Pore-Cleansing.html)
@@ -12,211 +12,211 @@ modifiedAt: Thu Jan 09 2020 19:08:23 GMT+0530 (India Standard Time),
 ### Positive Reviews
 
 <ol>
-      <li>This stuff is seriously incredible!</li>
+      <li>This is an excellent product that I have been using for over two years.</li>
+      <li>Best product ever...</li>
+      <li>but it is awesome.</li>
+      <li>Great Product!</li>
+      <li>and you pores shrink, its awesome.</li>
+      <li>And since this will clog your pipes, using a wipe would be your best option.</li>
+      <li>Very good product!</li>
+      <li>Excellent product!</li>
+      <li>mix with brags apple cider vinegar  for the best results...</li>
+      <li>its awesome.</li>
+      <li>I&#x27;m really impressed with this clay.</li>
+      <li>I applied a thinner layer this time and got excellent results.</li>
+      <li>Excellent skin care!</li>
+      <li>This cleared up my acne and pimples and now I have beautiful skin.!</li>
+      <li>Works perfectly!</li>
+      <li>After washing this off, my skin looked so good!!  </li>
+      <li>so I do use it for my hair and will say that it is very excellent in cleaning my hear.</li>
+      <li>incredible!!</li>
       <li>After using this mask ONE TIME my skin was practically flawless!</li>
+      <li>AMAZING!!!!</li>
+      <li>My skin feels wonderful after I use it.</li>
       <li>I am one happy customer!!!!!!!!!!</li>
+      <li>Best mask I&#x27;ve ever used!</li>
+      <li>mask is probably wonderful for people who don&#x27;t have an acne problem.</li>
+      <li>Great!</li>
+      <li>My oldest, best friend in Texas is using this as an auto-immune detox on skin, and passed on the tip.</li>
+      <li>Excellent price as well!</li>
+      <li>Works great!</li>
+      <li>Love this stuff!!!! :D</li>
+      <li>This is the best mud mask I have ever used and for the price you can&#x27;t beat it.!</li>
+      <li>Best clay mask ever!</li>
+      <li>This is an awesome buy!</li>
+      <li>Let me just say this is the best stuff in the world</li>
+      <li>This clay is great!</li>
       <li>Good one, loooooooove it!!</li>
       <li>we all looked great!)  </li>
-      <li>The clay is simply brilliant!</li>
-      <li>the best part, ripping the strip off to see the forest of pore clogging stuff stuck to it.  </li>
-      <li>This clay is a great addition to my weekly skin care regiment!</li>
-      <li>So incredible!  </li>
-      <li>can you let me know what way is best to help me</li>
-      <li>/&gt;It works best with oily or combination skin.</li>
-      <li>Works great!!!</li>
-      <li>this is the best...</li>
-      <li>Great for itchy eczema skin !</li>
-      <li>Best mask that I have ever used.  </li>
-      <li>Wonderful product, does the job!</li>
-      <li>best cleaning mask ever.</li>
-      <li>One of the best face masks on the market.</li>
-      <li>Excellent product.</li>
-      <li>awesome.</li>
-      <li>It makes me very happy.</li>
-      <li>and dang i love this stuff!!!!</li>
-      <li>/&gt;Overall I think this is the best mud mask out there.</li>
-      <li>Great for getting everything out of your face!</li>
-      <li>It mixes best with the Apple Cider Vinegar.</li>
-      <li>I have been using this product 20 years and am very happy with it.  </li>
-      <li>Probably the best purchase I have ever made for my skin.</li>
-      <li>This is an excellent product that I have been using for over two years.</li>
-      <li>My skin feels incredible!</li>
-      <li>This stuff is great!  </li>
-      <li>I&#x27;m very happy with this product</li>
-      <li>I am so happy!</li>
-      <li>I washed it off in the shower, and wasn&#x27;t particularly impressed.  </li>
-      <li>Wonderful, has cleared my skin, and evened out my skin tone.</li>
-      <li>After a week of use and my skin was the best it&#x27;s been since I was 14!</li>
-      <li>Excellent mask for home use</li>
-      <li>LOVE THIS PRODUCT!!!!!!!</li>
-      <li>I wanted to get the best effect.  </li>
-      <li>Wonderful experience.</li>
-      <li>this mask works great!</li>
-      <li>is the best i ever used.  </li>
-      <li>the blackheads though. :D</li>
-      <li>This works perfectly for that.</li>
-      <li>Excellent.</li>
-      <li>To my surprise it was indeed great!</li>
-      <li>I&#x27;m one happy consumer!!!</li>
-      <li>This stuff is awesome.</li>
+      <li>GREAT FACE MASK!</li>
+      <li>The product is some of the best bentonite clay out there (and without the sodium added to it).</li>
+      <li>Awesome face mask!</li>
+      <li>It&#x27;s the best thing my face has ever felt!</li>
+      <li>THANK YOU AZTECS! :D</li>
+      <li>/&gt;Follow the excellent reviews detailing application tips and tricks and you will experience the pulling and tightening sensation promised by this product.  </li>
+      <li>Great mask!  </li>
+      <li>AWESOME</li>
       <li>best combo...</li>
+      <li>Cleans out your pores real good and haves your feeling renewed and cleansed.</li>
+      <li>The clay is simply brilliant!</li>
+      <li>Great for my skin!</li>
+      <li>Best product i&#x27;ve ever used &amp;</li>
+      <li>This product is wonderful.  </li>
+      <li>This is the best mask I have ever used.</li>
+      <li>I&#x27;m very happy with this!</li>
+      <li>/&gt;This is the best clay mask you can get, it works well</li>
+      <li>BEST PRODUCT EVER.</li>
+      <li>Bentonite clay is the best thing i have found to draw the toxins out of my skin.</li>
+      <li>It&#x27;s wonderful!  </li>
+      <li>It cleans my skin wonderfully and&lt;br /&gt;seems to tighten it up a lot.  </li>
+      <li>Awesome mud mask.</li>
+      <li>This stuff is great!</li>
+      <li>We now use the mask together! :D</li>
+      <li>This stuff is awesome.</li>
+      <li>/&gt;This is excellent for treating acne and drawing dirt/oils out of your pores.</li>
+      <li>The day after, my face was at my best.</li>
+      <li>what I do know is this healing clay feels great for a mask!</li>
+      <li>This stuff is awesome!</li>
+      <li>but if used as a spot treatment it works wonderfully.</li>
+      <li>I read all of the wonderful reviews</li>
+      <li>I&#x27;ve been using it once a week for about a month now, and I will never stop using this product even if I have to fly from Pennsylvania to California to pick it up myself!  </li>
+      <li>All in all though, it was the best blackhead remover I&#x27;ve tried yet.</li>
+      <li>It&#x27;s great for stings and bites too!</li>
+      <li>And the price is great!</li>
+      <li>Excellent Product, works great!</li>
+      <li>Its beautiful!  </li>
+      <li>It keeps my skin flawless</li>
+      <li>But this stuff is wonderful.</li>
+      <li>Does the job perfectly well</li>
+      <li>I have a routine now where I use it about once a week, maybe twice during a stressful week, and it has been awesome.  </li>
+      <li>I have used this for years, and always get great results with this combo!</li>
       <li>Best mask ever</li>
-      <li>THE BEST!!</li>
-      <li>It&#x27;s the best</li>
-      <li>This is te best face mask I have tried!</li>
-      <li>My skin felt amazing!!!</li>
-      <li>This stuff is wonderful.</li>
-      <li>It showed up and was in perfect condition.</li>
-      <li>My skin looks awesome!</li>
-      <li>My skin looks awesome!</li>
-      <li>Works wonderfully!</li>
-      <li>of all it is a perfect dupe for glam glow mud mask!</li>
-      <li>Love this product!!!!</li>
-      <li>Feels great on too!!!</li>
-      <li>Great to have in your skin care routine!</li>
-      <li>and I&#x27;m so happy i did !</li>
-      <li>This product is amazing!!!!</li>
-      <li>I tried it and just like everyone has said, its wonderful product.</li>
-      <li>This works great!  </li>
-      <li>Best part?</li>
-      <li>This stuff is seriously amazing !!!</li>
-      <li>I&#x27;m honestly REALLY impressed.</li>
-      <li>I&#x27;m really impressed!</li>
-      <li>/&gt;Overall, very happy I purchased this!</li>
-      <li>The best (and cleanest) way I have discovered to do this is to make a bunch of mud and store it in a tupperware.</li>
-      <li>BUT I FOUND OUT THAT THE WORM WATER WORKS BEST</li>
-      <li>STRONG!!!!!!, stuff.</li>
-      <li>Works great!!!!!</li>
-      <li>I am very happy with this clay mask.  </li>
-      <li>It is the BEST mask ever!</li>
-      <li>Great weekly treatment!</li>
+      <li>All I know is that if you have oily skin, this will be PERFECT for you!  </li>
+      <li>This stuff is awesome .</li>
+      <li>the best part, ripping the strip off to see the forest of pore clogging stuff stuck to it.  </li>
+      <li>it&#x27;s price, this is great!</li>
+      <li>Great product!</li>
+      <li>Awesome product.</li>
       <li>Excellent product!</li>
-      <li>I&#x27;m impressed.</li>
-      <li>It worked great!  </li>
-      <li>Great!!!!</li>
-      <li>The best mask in the world working awesome</li>
-      <li>I used it with ACV since it the best mixture.</li>
-      <li>Awesome :D</li>
-      <li>My skin looks clearer and more even than it has in years!!!!</li>
-      <li>wonderful stuff</li>
-      <li>Works Great!</li>
-      <li>u will fall in love!!!!!!</li>
-      <li>Great to mix with Apple cider vinegar!</li>
-      <li>the best i&#x27;ve ever used.</li>
-      <li>and i think it is doing something great!</li>
-      <li>This mask is seriously awesome.  </li>
-      <li>packaging of the product was perfect as well.</li>
-      <li>I will keep buying this awesome and inexpensive product!</li>
-      <li>It is amazing!!!!</li>
-      <li>My face isn&#x27;t flawless though , I do see improvement.</li>
-      <li>I just was looking for something that will make my skin flawless - porcelain.&lt;br /&gt;&lt;br</li>
-      <li>For me it&#x27;s the best blackhead remover for my nose that I&#x27;ve ever come across.</li>
-      <li>The best cleanser ever.</li>
+      <li>It gives you absoulely beautiful skin!!</li>
+      <li>This clay is a great addition to my weekly skin care regiment!</li>
+      <li>THE BEST!!</li>
+      <li>This stuff is impressive.</li>
+      <li>So incredible!  </li>
+      <li>my pores were flawless &amp; reduced in size.</li>
+      <li>this product is the best.</li>
+      <li>Skin feels and looks flawless.</li>
+      <li>can you let me know what way is best to help me</li>
+      <li>Very happy with the product.</li>
+      <li>and it works amazing!!!</li>
+      <li>This is perfect!</li>
+      <li>I&#x27;ve been using it about 2 times a week and my skin is flawless.</li>
+      <li>Honestly I&#x27;m very impressed and will make this part of my weekly skin routine.</li>
 </ol>
 
 
 <h2>Negative Reviews</h2>
 <ol>
-<li> This stuff is seriously incredible!</li>
+<li> This is an excellent product that I have been using for over two years.</li>
+<li> Best product ever...</li>
+<li> but it is awesome.</li>
+<li> Great Product!</li>
+<li> and you pores shrink, its awesome.</li>
+<li> And since this will clog your pipes, using a wipe would be your best option.</li>
+<li> Very good product!</li>
+<li> Excellent product!</li>
+<li> mix with brags apple cider vinegar  for the best results...</li>
+<li> its awesome.</li>
+<li> I&#x27;m really impressed with this clay.</li>
+<li> I applied a thinner layer this time and got excellent results.</li>
+<li> Excellent skin care!</li>
+<li> This cleared up my acne and pimples and now I have beautiful skin.!</li>
+<li> Works perfectly!</li>
+<li> After washing this off, my skin looked so good!!  </li>
+<li> so I do use it for my hair and will say that it is very excellent in cleaning my hear.</li>
+<li> incredible!!</li>
 <li> After using this mask ONE TIME my skin was practically flawless!</li>
+<li> AMAZING!!!!</li>
+<li> My skin feels wonderful after I use it.</li>
 <li> I am one happy customer!!!!!!!!!!</li>
+<li> Best mask I&#x27;ve ever used!</li>
+<li> mask is probably wonderful for people who don&#x27;t have an acne problem.</li>
+<li> Great!</li>
+<li> My oldest, best friend in Texas is using this as an auto-immune detox on skin, and passed on the tip.</li>
+<li> Excellent price as well!</li>
+<li> Works great!</li>
+<li> Love this stuff!!!! :D</li>
+<li> This is the best mud mask I have ever used and for the price you can&#x27;t beat it.!</li>
+<li> Best clay mask ever!</li>
+<li> This is an awesome buy!</li>
+<li> Let me just say this is the best stuff in the world</li>
+<li> This clay is great!</li>
 <li> Good one, loooooooove it!!</li>
 <li> we all looked great!)  </li>
-<li> The clay is simply brilliant!</li>
-<li> the best part, ripping the strip off to see the forest of pore clogging stuff stuck to it.  </li>
-<li> This clay is a great addition to my weekly skin care regiment!</li>
-<li> So incredible!  </li>
-<li> can you let me know what way is best to help me</li>
-<li> /&gt;It works best with oily or combination skin.</li>
-<li> Works great!!!</li>
-<li> this is the best...</li>
-<li> Great for itchy eczema skin !</li>
-<li> Best mask that I have ever used.  </li>
-<li> Wonderful product, does the job!</li>
-<li> best cleaning mask ever.</li>
-<li> One of the best face masks on the market.</li>
-<li> Excellent product.</li>
-<li> awesome.</li>
-<li> It makes me very happy.</li>
-<li> and dang i love this stuff!!!!</li>
-<li> /&gt;Overall I think this is the best mud mask out there.</li>
-<li> Great for getting everything out of your face!</li>
-<li> It mixes best with the Apple Cider Vinegar.</li>
-<li> I have been using this product 20 years and am very happy with it.  </li>
-<li> Probably the best purchase I have ever made for my skin.</li>
-<li> This is an excellent product that I have been using for over two years.</li>
-<li> My skin feels incredible!</li>
-<li> This stuff is great!  </li>
-<li> I&#x27;m very happy with this product</li>
-<li> I am so happy!</li>
-<li> I washed it off in the shower, and wasn&#x27;t particularly impressed.  </li>
-<li> Wonderful, has cleared my skin, and evened out my skin tone.</li>
-<li> After a week of use and my skin was the best it&#x27;s been since I was 14!</li>
-<li> Excellent mask for home use</li>
-<li> LOVE THIS PRODUCT!!!!!!!</li>
-<li> I wanted to get the best effect.  </li>
-<li> Wonderful experience.</li>
-<li> this mask works great!</li>
-<li> is the best i ever used.  </li>
-<li> the blackheads though. :D</li>
-<li> This works perfectly for that.</li>
-<li> Excellent.</li>
-<li> To my surprise it was indeed great!</li>
-<li> I&#x27;m one happy consumer!!!</li>
-<li> This stuff is awesome.</li>
+<li> GREAT FACE MASK!</li>
+<li> The product is some of the best bentonite clay out there (and without the sodium added to it).</li>
+<li> Awesome face mask!</li>
+<li> It&#x27;s the best thing my face has ever felt!</li>
+<li> THANK YOU AZTECS! :D</li>
+<li> /&gt;Follow the excellent reviews detailing application tips and tricks and you will experience the pulling and tightening sensation promised by this product.  </li>
+<li> Great mask!  </li>
+<li> AWESOME</li>
 <li> best combo...</li>
+<li> Cleans out your pores real good and haves your feeling renewed and cleansed.</li>
+<li> The clay is simply brilliant!</li>
+<li> Great for my skin!</li>
+<li> Best product i&#x27;ve ever used &amp;</li>
+<li> This product is wonderful.  </li>
+<li> This is the best mask I have ever used.</li>
+<li> I&#x27;m very happy with this!</li>
+<li> /&gt;This is the best clay mask you can get, it works well</li>
+<li> BEST PRODUCT EVER.</li>
+<li> Bentonite clay is the best thing i have found to draw the toxins out of my skin.</li>
+<li> It&#x27;s wonderful!  </li>
+<li> It cleans my skin wonderfully and&lt;br /&gt;seems to tighten it up a lot.  </li>
+<li> Awesome mud mask.</li>
+<li> This stuff is great!</li>
+<li> We now use the mask together! :D</li>
+<li> This stuff is awesome.</li>
+<li> /&gt;This is excellent for treating acne and drawing dirt/oils out of your pores.</li>
+<li> The day after, my face was at my best.</li>
+<li> what I do know is this healing clay feels great for a mask!</li>
+<li> This stuff is awesome!</li>
+<li> but if used as a spot treatment it works wonderfully.</li>
+<li> I read all of the wonderful reviews</li>
+<li> I&#x27;ve been using it once a week for about a month now, and I will never stop using this product even if I have to fly from Pennsylvania to California to pick it up myself!  </li>
+<li> All in all though, it was the best blackhead remover I&#x27;ve tried yet.</li>
+<li> It&#x27;s great for stings and bites too!</li>
+<li> And the price is great!</li>
+<li> Excellent Product, works great!</li>
+<li> Its beautiful!  </li>
+<li> It keeps my skin flawless</li>
+<li> But this stuff is wonderful.</li>
+<li> Does the job perfectly well</li>
+<li> I have a routine now where I use it about once a week, maybe twice during a stressful week, and it has been awesome.  </li>
+<li> I have used this for years, and always get great results with this combo!</li>
 <li> Best mask ever</li>
-<li> THE BEST!!</li>
-<li> It&#x27;s the best</li>
-<li> This is te best face mask I have tried!</li>
-<li> My skin felt amazing!!!</li>
-<li> This stuff is wonderful.</li>
-<li> It showed up and was in perfect condition.</li>
-<li> My skin looks awesome!</li>
-<li> My skin looks awesome!</li>
-<li> Works wonderfully!</li>
-<li> of all it is a perfect dupe for glam glow mud mask!</li>
-<li> Love this product!!!!</li>
-<li> Feels great on too!!!</li>
-<li> Great to have in your skin care routine!</li>
-<li> and I&#x27;m so happy i did !</li>
-<li> This product is amazing!!!!</li>
-<li> I tried it and just like everyone has said, its wonderful product.</li>
-<li> This works great!  </li>
-<li> Best part?</li>
-<li> This stuff is seriously amazing !!!</li>
-<li> I&#x27;m honestly REALLY impressed.</li>
-<li> I&#x27;m really impressed!</li>
-<li> /&gt;Overall, very happy I purchased this!</li>
-<li> The best (and cleanest) way I have discovered to do this is to make a bunch of mud and store it in a tupperware.</li>
-<li> BUT I FOUND OUT THAT THE WORM WATER WORKS BEST</li>
-<li> STRONG!!!!!!, stuff.</li>
-<li> Works great!!!!!</li>
-<li> I am very happy with this clay mask.  </li>
-<li> It is the BEST mask ever!</li>
-<li> Great weekly treatment!</li>
+<li> All I know is that if you have oily skin, this will be PERFECT for you!  </li>
+<li> This stuff is awesome .</li>
+<li> the best part, ripping the strip off to see the forest of pore clogging stuff stuck to it.  </li>
+<li> it&#x27;s price, this is great!</li>
+<li> Great product!</li>
+<li> Awesome product.</li>
 <li> Excellent product!</li>
-<li> I&#x27;m impressed.</li>
-<li> It worked great!  </li>
-<li> Great!!!!</li>
-<li> The best mask in the world working awesome</li>
-<li> I used it with ACV since it the best mixture.</li>
-<li> Awesome :D</li>
-<li> My skin looks clearer and more even than it has in years!!!!</li>
-<li> wonderful stuff</li>
-<li> Works Great!</li>
-<li> u will fall in love!!!!!!</li>
-<li> Great to mix with Apple cider vinegar!</li>
-<li> the best i&#x27;ve ever used.</li>
-<li> and i think it is doing something great!</li>
-<li> This mask is seriously awesome.  </li>
-<li> packaging of the product was perfect as well.</li>
-<li> I will keep buying this awesome and inexpensive product!</li>
-<li> It is amazing!!!!</li>
-<li> My face isn&#x27;t flawless though , I do see improvement.</li>
-<li> I just was looking for something that will make my skin flawless - porcelain.&lt;br /&gt;&lt;br</li>
-<li> For me it&#x27;s the best blackhead remover for my nose that I&#x27;ve ever come across.</li>
-<li> The best cleanser ever.</li>
+<li> It gives you absoulely beautiful skin!!</li>
+<li> This clay is a great addition to my weekly skin care regiment!</li>
+<li> THE BEST!!</li>
+<li> This stuff is impressive.</li>
+<li> So incredible!  </li>
+<li> my pores were flawless &amp; reduced in size.</li>
+<li> this product is the best.</li>
+<li> Skin feels and looks flawless.</li>
+<li> can you let me know what way is best to help me</li>
+<li> Very happy with the product.</li>
+<li> and it works amazing!!!</li>
+<li> This is perfect!</li>
+<li> I&#x27;ve been using it about 2 times a week and my skin is flawless.</li>
+<li> Honestly I&#x27;m very impressed and will make this part of my weekly skin routine.</li>
 </ol>
 
 <h2>All Reviews</h2>
@@ -3868,6 +3868,7 @@ modifiedAt: Thu Jan 09 2020 19:08:23 GMT+0530 (India Standard Time),
     <li> it works good on me~ although it cost time to stir, I still apply it three times a week~ you can see the change of your face after washed the mask~ it makes your skin more bright and humid~</li>
     <li> I took another person&#x27;s advice from here about the ziploc bag method of application and it worked like a charm. A little bit of product goes a long way and I can tell the container I bought will last me a long time. Can&#x27;t wait to see the results!</li>
 </ol>
+
 
 
 

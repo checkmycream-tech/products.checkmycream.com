@@ -1,0 +1,121 @@
+---
+title: uxcell® 110 Pairs Breathable Invisible Dual Eyelid Sticker Tape,
+description: uxcell® 110 Pairs Breathable Invisible Dual Eyelid Sticker Tape,
+author: Suvojit Manna,
+tags: uxcell® 110 Pairs Breathable Invisible Dual Eyelid Sticker Tape,
+publishedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
+---
+
+# [uxcell® 110 Pairs Breathable Invisible Dual Eyelid Sticker Tape](https://products.checkmycream.com/products/uxcell(r)-110-Pairs-Breathable-Invisible-Dual-Eyelid-Sticker-Tape.html)
+
+### Positive Reviews
+
+<ol>
+      <li>But its a great product.</li>
+      <li>Good prices but u can see the tape.</li>
+      <li>and I&#x27;m pleased about what I&#x27;ve gotten for the price!</li>
+      <li>it literally glows and you can see a bright strip on top of the lid.</li>
+      <li>&lt;br /&gt;and dress up my eyes more dramatically.</li>
+      <li>It&#x27;S really useful and good</li>
+      <li>I inherited droopy lids from my Mom :) and I use these tapes when I am</li>
+      <li>Thank you for making my friends birthday a success. :)</li>
+      <li>First off, the seller was great and the item came 34 days early, well packaged and everything was as described.&lt;br</li>
+      <li>out to an event or somewhere special when I like to wear eyeshadow</li>
+      <li>I say it&#x27;s good to only wear at night.</li>
+      <li>Love it soo much works so well</li>
+      <li>and when I got my amazon account for the first time I made sure to buy her gift right away.</li>
+      <li>I usually receive the right product and am very happy with it</li>
+      <li>and it&#x27;s pretty cheap too.</li>
+      <li>The strips are very comfortable and they do not cause any eye irritation and I have sensitive eyes....</li>
+      <li>so I guess it&#x27;s worth</li>
+      <li>, it rarely stays and</li>
+      <li>but it was definitely worth the wait.</li>
+      <li>This is my first time ever used this.</li>
+      <li>Easy to use , not so expensive , and most important quality!</li>
+      <li>This product really works.</li>
+      <li>Go to my other review for Eye Charm Magic.</li>
+      <li>I actually like it, even though it&#x27;s kinda difficult to peel the tape off the sheet, but the effect was pretty good</li>
+      <li>but, overall it&#x27;s still works if you don&#x27;t want your eyelid to change as much.</li>
+      <li>Do not waste your money on this product.</li>
+      <li>granted I only get them to enhance my natural double eyelid!&lt;br /&gt;&lt;br</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> But its a great product.</li>
+<li> Good prices but u can see the tape.</li>
+<li> and I&#x27;m pleased about what I&#x27;ve gotten for the price!</li>
+<li> it literally glows and you can see a bright strip on top of the lid.</li>
+<li> &lt;br /&gt;and dress up my eyes more dramatically.</li>
+<li> It&#x27;S really useful and good</li>
+<li> I inherited droopy lids from my Mom :) and I use these tapes when I am</li>
+<li> Thank you for making my friends birthday a success. :)</li>
+<li> First off, the seller was great and the item came 34 days early, well packaged and everything was as described.&lt;br</li>
+<li> out to an event or somewhere special when I like to wear eyeshadow</li>
+<li> I say it&#x27;s good to only wear at night.</li>
+<li> Love it soo much works so well</li>
+<li> and when I got my amazon account for the first time I made sure to buy her gift right away.</li>
+<li> I usually receive the right product and am very happy with it</li>
+<li> and it&#x27;s pretty cheap too.</li>
+<li> The strips are very comfortable and they do not cause any eye irritation and I have sensitive eyes....</li>
+<li> so I guess it&#x27;s worth</li>
+<li> , it rarely stays and</li>
+<li> but it was definitely worth the wait.</li>
+<li> This is my first time ever used this.</li>
+<li> Easy to use , not so expensive , and most important quality!</li>
+<li> This product really works.</li>
+<li> Go to my other review for Eye Charm Magic.</li>
+<li> I actually like it, even though it&#x27;s kinda difficult to peel the tape off the sheet, but the effect was pretty good</li>
+<li> but, overall it&#x27;s still works if you don&#x27;t want your eyelid to change as much.</li>
+<li> Do not waste your money on this product.</li>
+<li> granted I only get them to enhance my natural double eyelid!&lt;br /&gt;&lt;br</li>
+<li> but this time they somehow sent me a product that is super thin and frail and it&#x27;s not even double sided!</li>
+<li> It came pretty late.</li>
+<li> She&#x27;s been talking about eyelid stickers for so long</li>
+<li> They really do not stick well.  </li>
+<li> They aren&#x27;t as sticky as the other brand I ordered.</li>
+<li> too small for semi Asian eyes</li>
+<li> Just patient and use the directions on my other review.</li>
+<li> the strips are too narrow for one thing,  plus once its on - eye shadow does not cover it.</li>
+<li> If and when I finally get it off it is all crinkle and useless.</li>
+<li> The strips are too small so they did not lift my lids.</li>
+<li> I seriously regret purchasing them.</li>
+<li> They are also really thin, you could not see any difference.</li>
+<li> The tapes are shaped too thin and too small.&lt;br</li>
+<li> If I can ill return it .</li>
+<li> I am so disappointed.</li>
+<li> I hate it ...</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> too small for semi Asian eyes</li>
+    <li> It wasn&#x27;t double sided like it said it would be but, overall it&#x27;s still works if you don&#x27;t want your eyelid to change as much.</li>
+    <li> I could not get them off of the plastic sheet that it was on.  If and when I finally get it off it is all crinkle and useless. They are also really thin, you could not see any difference.</li>
+    <li> The strips are too small so they did not lift my lids. I have been using another product and decided to try these. They did nothing.</li>
+    <li> It&#x27;S really useful and good</li>
+    <li> First off, the seller was great and the item came 34 days early, well packaged and everything was as described.&lt;br /&gt;&lt;br /&gt;The item works well, granted I only get them to enhance my natural double eyelid!&lt;br /&gt;&lt;br /&gt;I think they work quite well and I&#x27;m pleased about what I&#x27;ve gotten for the price!</li>
+    <li> I finally received these and they came with no instructions.  They really do not stick well.  I guess for the price it was not a total loss.</li>
+    <li> I am so disappointed. I usually receive the right product and am very happy with it but this time they somehow sent me a product that is super thin and frail and it&#x27;s not even double sided!</li>
+    <li> You cannot beat the price. They aren&#x27;t as sticky as the other brand I ordered. But, if you haven&#x27;t tried this technique. Go to my other review for Eye Charm Magic. These do work! Just patient and use the directions on my other review. I hope it will help the trial and errors I made.</li>
+    <li> Good prices but u can see the tape.</li>
+    <li> Do not waste your money on this product. The tapes are shaped too thin and too small.&lt;br /&gt;They just won&#x27;t stay on. I seriously regret purchasing them.</li>
+    <li> I inherited droopy lids from my Mom :) and I use these tapes when I am&lt;br /&gt;going out to an event or somewhere special when I like to wear eyeshadow&lt;br /&gt;and dress up my eyes more dramatically. These allow me to do that.</li>
+    <li> It came pretty late. But its a great product. Easy to use , not so expensive , and most important quality!</li>
+    <li> This is my first time ever used this. I do have double eyelids, but they weren&#x27;t have noticeable, in order to get a bigger eyes looking, i decided to give this a try. I actually like it, even though it&#x27;s kinda difficult to peel the tape off the sheet, but the effect was pretty good and it&#x27;s pretty cheap too.</li>
+    <li> There wasn&#x27;t 110, it was just 100 and in fact I don&#x27;t think it was even this brand??&lt;br /&gt;Well, it rarely stays and it&#x27;s gooey sometimes, it&#x27;s only 2 bucks so I guess it&#x27;s worth that compared to others and their prices. I say it&#x27;s good to only wear at night.</li>
+    <li> I got the eyelid stickers for my friend, she is Chinese and has mono-lids. She&#x27;s been talking about eyelid stickers for so long and when I got my amazon account for the first time I made sure to buy her gift right away. Yes the shipping does take awhile but it was definitely worth the wait. Thank you for making my friends birthday a success. :)</li>
+    <li> The product doenst function properly ... It&#x27;s not double sided! I hate it ... If I can ill return it .</li>
+    <li> they do not work well.</li>
+    <li> This product really works. The strips are very comfortable and they do not cause any eye irritation and I have sensitive eyes....</li>
+    <li> Love it soo much works so well but u might want to practice it for a while and you&#x27;ll get the hang of it</li>
+    <li> Demorou pra chegar mas valeu esperar, este produto tinha uma grande diferença de de preço em comparação aos outros produtos. E a qualidade era boa.</li>
+    <li> the strips are too narrow for one thing,  plus once its on - eye shadow does not cover it. it literally glows and you can see a bright strip on top of the lid.</li>
+</ol>
+
+
+
+

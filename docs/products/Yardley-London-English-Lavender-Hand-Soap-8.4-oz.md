@@ -1,0 +1,140 @@
+---
+title: Yardley London English Lavender Hand Soap, 8.4 oz,
+description: Yardley London English Lavender Hand Soap, 8.4 oz,
+author: Suvojit Manna,
+tags: Yardley London English Lavender Hand Soap, 8.4 oz,
+publishedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
+---
+
+# [Yardley London English Lavender Hand Soap, 8.4 oz](https://products.checkmycream.com/products/Yardley-London-English-Lavender-Hand-Soap-8.4-oz.html)
+
+### Positive Reviews
+
+<ol>
+      <li>Wonderful fragrance!  </li>
+      <li>Best smelling soap on the market!</li>
+      <li>Smells great!  </li>
+      <li>Excellent product, been looking for this item!</li>
+      <li>Excellent seller!</li>
+      <li>Very nice, elegent and economical.&lt;br /&gt;Feels and smells great!</li>
+      <li>Great product, leaves hands smelling like lavender.</li>
+      <li>Great product and scent.</li>
+      <li>Great product and arrived in the stated time.</li>
+      <li>and the scent was pleasant.</li>
+      <li>The smell is wonderful and rinses off easily.</li>
+      <li>Wonderful product, great price, delivered quickly.</li>
+      <li>Packaging good and product not damaged.</li>
+      <li>Smells good.</li>
+      <li>good product</li>
+      <li>Love the smell!  </li>
+      <li>Great product, fast shipping and a good price.</li>
+      <li>Wonderful fragrance that lightly scents the whole bathroom.</li>
+      <li>Love this product, I&#x27;ve used it for years.</li>
+      <li>Once I use this up and am sure to purchase again.</li>
+      <li>Cleans and Moisturizes, Love the smell.</li>
+      <li>Since using it, I have purchased more to use throughout the house.</li>
+      <li>love the soap and the scent</li>
+      <li>The soap arrived very quickly and I have enjoyed using it.</li>
+      <li>The suds are rich, makes you feel clean.</li>
+      <li>Product arrived as ordered and was as we expected and experienced</li>
+      <li>I love the smell and texture so much that I looked it up on Amazon and picked some up.</li>
+      <li>Been hooked since my first trip to Carabbas!</li>
+      <li>Great product, shipping way to slow.</li>
+      <li>Love the English lavender!</li>
+      <li>I was so pleased I ordered the soap a 2nd time and received very rapidly.  </li>
+      <li>We receive a lot of compliments from visitors and is more of a unique (not available at just any big box) product.  </li>
+      <li>Highly recommend</li>
+      <li>Love the long lasting smell!!!  </li>
+      <li>I live having this is my home now.</li>
+      <li>I first used this soap at a local Carrabbas restaurant.</li>
+      <li>Feel Soft.</li>
+      <li>Love the smell, thick lather</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> Wonderful fragrance!  </li>
+<li> Best smelling soap on the market!</li>
+<li> Smells great!  </li>
+<li> Excellent product, been looking for this item!</li>
+<li> Excellent seller!</li>
+<li> Very nice, elegent and economical.&lt;br /&gt;Feels and smells great!</li>
+<li> Great product, leaves hands smelling like lavender.</li>
+<li> Great product and scent.</li>
+<li> Great product and arrived in the stated time.</li>
+<li> and the scent was pleasant.</li>
+<li> The smell is wonderful and rinses off easily.</li>
+<li> Wonderful product, great price, delivered quickly.</li>
+<li> Packaging good and product not damaged.</li>
+<li> Smells good.</li>
+<li> good product</li>
+<li> Love the smell!  </li>
+<li> Great product, fast shipping and a good price.</li>
+<li> Wonderful fragrance that lightly scents the whole bathroom.</li>
+<li> Love this product, I&#x27;ve used it for years.</li>
+<li> Once I use this up and am sure to purchase again.</li>
+<li> Cleans and Moisturizes, Love the smell.</li>
+<li> Since using it, I have purchased more to use throughout the house.</li>
+<li> love the soap and the scent</li>
+<li> The soap arrived very quickly and I have enjoyed using it.</li>
+<li> The suds are rich, makes you feel clean.</li>
+<li> Product arrived as ordered and was as we expected and experienced</li>
+<li> I love the smell and texture so much that I looked it up on Amazon and picked some up.</li>
+<li> Been hooked since my first trip to Carabbas!</li>
+<li> Great product, shipping way to slow.</li>
+<li> Love the English lavender!</li>
+<li> I was so pleased I ordered the soap a 2nd time and received very rapidly.  </li>
+<li> We receive a lot of compliments from visitors and is more of a unique (not available at just any big box) product.  </li>
+<li> Highly recommend</li>
+<li> Love the long lasting smell!!!  </li>
+<li> I live having this is my home now.</li>
+<li> I first used this soap at a local Carrabbas restaurant.</li>
+<li> Feel Soft.</li>
+<li> Love the smell, thick lather</li>
+<li> but, I noticed it didn&#x27;t leave my hands dry</li>
+<li> It doesn&#x27;t dry out your hands and it isn&#x27;t slimy.</li>
+<li> I am usually not particular about hand soap</li>
+<li> one bottle leaked half of the soap out and the other bottles were a mess</li>
+<li> AND I lost a half bottle of wonderfulness.</li>
+<li> :/  </li>
+<li> On the sad side, packaging was not great....</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> Wonderful fragrance!  Love the English lavender!</li>
+    <li> The smell is wonderful and rinses off easily. It doesn&#x27;t dry out your hands and it isn&#x27;t slimy.</li>
+    <li> I first used this soap at a local Carrabbas restaurant. I love the smell and texture so much that I looked it up on Amazon and picked some up. I live having this is my home now.</li>
+    <li> Love the smell!  We receive a lot of compliments from visitors and is more of a unique (not available at just any big box) product.  Highly recommend</li>
+    <li> My husband loves this!  (It is the same soap Outback uses)</li>
+    <li> Love the long lasting smell!!!  On the sad side, packaging was not great....one bottle leaked half of the soap out and the other bottles were a mess :/  AND I lost a half bottle of wonderfulness.</li>
+    <li> Wonderful fragrance that lightly scents the whole bathroom.</li>
+    <li> Great product and scent.</li>
+    <li> love the soap and the scent</li>
+    <li> Wonderful product, great price, delivered quickly. Excellent seller!</li>
+    <li> The soap arrived very quickly and I have enjoyed using it.</li>
+    <li> I am usually not particular about hand soap but, I noticed it didn&#x27;t leave my hands dry and the scent was pleasant. Everyone in the house enjoys it, including the kids and guests. Since using it, I have purchased more to use throughout the house.</li>
+    <li> Excellent product, been looking for this item!</li>
+    <li> Great product, shipping way to slow.</li>
+    <li> Great product, fast shipping and a good price.</li>
+    <li> Smells good. Feel Soft. good product</li>
+    <li> Great product and arrived in the stated time. Packaging good and product not damaged.</li>
+    <li> Love this product, I&#x27;ve used it for years.</li>
+    <li> My husband loves this hand soap.</li>
+    <li> Very nice, elegent and economical.&lt;br /&gt;Feels and smells great!</li>
+    <li> The fragrance is outstanding,,infectious. The suds are rich, makes you feel clean.</li>
+    <li> Product arrived as ordered and was as we expected and experienced</li>
+    <li> Great product, leaves hands smelling like lavender.</li>
+    <li> Smells great!  Been hooked since my first trip to Carabbas!</li>
+    <li> I was so pleased I ordered the soap a 2nd time and received very rapidly.  Once I use this up and am sure to purchase again.</li>
+    <li> Love the smell, thick lather</li>
+    <li> Cleans and Moisturizes, Love the smell.</li>
+    <li> Best smelling soap on the market!</li>
+</ol>
+
+
+
+

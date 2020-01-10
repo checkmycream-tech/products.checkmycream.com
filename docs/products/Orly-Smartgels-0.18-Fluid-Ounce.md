@@ -1,0 +1,258 @@
+---
+title: Orly Smartgels, 0.18 Fluid Ounce,
+description: Orly Smartgels, 0.18 Fluid Ounce,
+author: Suvojit Manna,
+tags: Orly Smartgels, 0.18 Fluid Ounce,
+publishedAt: Fri Jan 10 2020 15:00:32 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:32 GMT+0530 (India Standard Time),
+---
+
+# [Orly Smartgels, 0.18 Fluid Ounce](https://products.checkmycream.com/products/Orly-Smartgels-0.18-Fluid-Ounce.html)
+
+### Positive Reviews
+
+<ol>
+      <li>I have no idea where these great reviews are coming from!?!?!  </li>
+      <li>This LED lamp is awesome!</li>
+      <li>I m happy with the lamp, does the job perfectly</li>
+      <li>My nails stay beautifully polished and do not chip.</li>
+      <li>Have been using it for over a year and still works great.  </li>
+      <li>It works really great with my gelish nail polish.</li>
+      <li>Works great</li>
+      <li>This is a GREAT buy for your money....</li>
+      <li>It worked just as advertised and now my wife is happy.</li>
+      <li>so this is perfect for doing my own gel nails at home.</li>
+      <li>Works fine, no problems - and for the price, I am very happy.  </li>
+      <li>This light is awesome, requires no setup just plug it in</li>
+      <li>Good product.</li>
+      <li>Love it!</li>
+      <li>Also, DO NOT look at UV or LED light while you are curing your nails!!</li>
+      <li>Nice size for travel, tho.  </li>
+      <li>Feels cheap (lightweight) but it does the job and was a good deal @ $40.  </li>
+      <li>Great product, glad I bought it instead of a full size lamp that you have to replace the bulbs in.</li>
+      <li>and then the top coat for 60 seconds and never have an issue.  </li>
+      <li>Four fingers fit into it nicely.  </li>
+      <li>I don&#x27;t think that this will fit your fingers in nicely.  </li>
+      <li>and it&#x27;s ready works great with the orly fx gel starter kit.</li>
+      <li>Although my dust buster cord does fit into it, i returned it for the fact they did not tell me i&#x27;d need to supply my own.</li>
+      <li>this lamp is okay.  </li>
+      <li>It works well every time :)</li>
+      <li>it isn&#x27;t easy to polish with your non-dominant hand :)</li>
+      <li>and it feels like it could break easily.  </li>
+      <li>its easy to use and work with..</li>
+      <li>I will say the return process was easy though.</li>
+      <li>This light works much better for CND Shellac than my UV light which causes bubbles in Shellac.  </li>
+      <li>This LED light will cure both Gelish and CND Shellac products just fine.  </li>
+      <li>The plug itself is oversized, so make sure you have room on your power strip or outlet, I was kind of surprised by this set up, (removable power cord), since there is not a battery/wireless powering option.</li>
+      <li>recently started doing my friend&#x27;s nails for them as well and have had great results.  </li>
+      <li>/&gt;That said, this LED light is a fantastic value for the size and the price.</li>
+      <li>with a gel coat/polish, after you cure it, you need to wipe the nail with a lint free cloth with alcohol to remove the residue or it will feel sticky.&lt;br /&gt;I</li>
+      <li>I easily fit 4 fingers in at a time, and thumbs separately.  </li>
+      <li>It is light, and feels almost toy like, but don&#x27;t let that fool you.</li>
+      <li>Overall, I&#x27;m happy with the results.</li>
+      <li>The color range is okay, and the coverage of the colors has proven to be consistent.</li>
+      <li>Consistently leaves an oily finish at the top of the polish</li>
+      <li>My wife was excited to get this product</li>
+      <li>Super quick and easy to use.  </li>
+      <li>I also have the full size UV lamp and comparing the 2</li>
+      <li>I can hold it up with my hands comfortably rested on the table and then my thumbs sit at the right angle and are cured quickly.&lt;br /&gt;Mine</li>
+      <li>It isn&#x27;t super small, but it works best to do the four fingers first and thumb separately.</li>
+      <li>I work at a spa that uses Orly as well and have had my nails done there (by the professionals) and at other locations (with other gel brands) and my at-home results are just as good and definitely more cost effective, if anything it just takes me a bit longer as I am a perfectionist and</li>
+      <li>It does fit my four fingers in very well.  </li>
+      <li>Definitely worth the price</li>
+      <li>my lights worked, and have worked just fine after so far about a hundred full manicures.</li>
+      <li>but when it came it didn&#x27;t have the power adapter to plug it in.. when I got one that was right it still didn&#x27;t work..</li>
+      <li>You can&#x27;t really fit your thumbs in, but because of how fast it works that doesn&#x27;t even really matter.</li>
+      <li>I like the quick drying, making the steps much shorter.</li>
+      <li>, dries my nails super fast.  </li>
+      <li>- it is kind of a tight fit for the whole hand.  </li>
+      <li>The first one was a defective unit...</li>
+      <li>Works exactly as described.</li>
+      <li>The timer also works well, it will emit a beep when you first turn the unit on.</li>
+      <li>I tried the process exactly as described.  </li>
+      <li>Instructions say to cure fingers first,</li>
+      <li>I am a licensed professional, and I am mentioning that first because it does play a huge part in my rating of this Orly smart gel system.</li>
+      <li>Not a huge problem though, since the led light unit is so very light weight</li>
+      <li>instructions for the system are easy to follow, even if you&#x27;ve never done your own before.&lt;br /&gt;For a small, inexpensive investment, I highly recommend this for home use.  </li>
+      <li>instructions for the system are easy to follow, even if you&#x27;ve never done your own before.&lt;br /&gt;For a small, inexpensive investment, I highly recommend this for home use.  </li>
+      <li>I liked it because I could fit both hands in it, but it was large and hard to store.  </li>
+      <li>It has a single bar button on top that is set for 60 seconds, but after the first 30 it emits a beep</li>
+      <li>I love that I can dry my gel polish in one minute.</li>
+      <li>The first time I noticed that the light was getting dimmer and the second time lights did not switch off after the timer.</li>
+      <li>Nice little lamp for the price.  </li>
+      <li>It only fits four fingers at a time, with thumbs done separate, that&#x27;s fine except that it&#x27;s not really the right shape or height for both thumbs to sit comfortably inside.</li>
+      <li>Delivered fast.</li>
+      <li>I highly recommend it!</li>
+      <li>The colors are light and streaky even after several coats.  </li>
+      <li>This is an LED lamp, not UV, which makes it a really Greta value.  </li>
+      <li>It cures a variety of gel polishes but on the darker shades it really doesn&#x27;t do well</li>
+      <li>I&#x27;m still working on really liking this lamp.  </li>
+      <li>This LED lamp really works.</li>
+      <li>It really packs a gel curing punch.</li>
+      <li>It&#x27;s pretty small and is very easy to store.</li>
+      <li>Plugged it in for a third time, turned it on, and pressed the timer button, lit right up!  </li>
+      <li>Also it was making strange sound.</li>
+      <li>I applied the ph bond and then the gel nail polish (light color) and used the lamp for a minute but didn&#x27;t dry.</li>
+      <li>I have had this kit for over a year and a half now and absolutely love it.  </li>
+      <li>Overall worth it.</li>
+      <li>But, if it&#x27;s your first time definitely get the full system setup that includes the entire &#x27;kit&#x27;, it will go a long way in making for a positive experience.</li>
+      <li>I really don&#x27;t do the gel nail polish, I use regular nail polish with a quick dry top coat &amp; it helps cure it quicker &amp; seems to make the polish last a little longer.</li>
+      <li>Please do NOT waste your money.  </li>
+      <li>I have used about 5-8 times so far with NO problems</li>
+      <li>Really like this unit but wish it was bigger.  </li>
+      <li>It&#x27;s small and easy to store.  </li>
+      <li>But, if it&#x27;s your first time definitely get the full system setup that includes the entire &#x27;kit&#x27;, it will go a long way in making for a positive experience.there is any lifting, (this is average, mind</li>
+      <li>when it comes to gel nails in general, I do a lot of them for clients, and on myself.&lt;br</li>
+      <li>The wear time was consistent, about 16 days before there is any lifting, (this is average, mind you, sometimes it&#x27;s worn longer and sometimes less).&lt;br /&gt;The</li>
+      <li>I purchased the system through Hautelook and it is a colossal waste of money and time.  </li>
+      <li>I have heard mixed reviews about mixing gel brands in general and don&#x27;t want to take the financial &amp;#34;risk&amp;#34</li>
+      <li>I must have kept my nails under for 15 mins in total but still didn&#x27;t dry completely.</li>
+      <li>I really like this little lamp.</li>
+      <li>I really like this little</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> I have no idea where these great reviews are coming from!?!?!  </li>
+<li> This LED lamp is awesome!</li>
+<li> I m happy with the lamp, does the job perfectly</li>
+<li> My nails stay beautifully polished and do not chip.</li>
+<li> Have been using it for over a year and still works great.  </li>
+<li> It works really great with my gelish nail polish.</li>
+<li> Works great</li>
+<li> This is a GREAT buy for your money....</li>
+<li> It worked just as advertised and now my wife is happy.</li>
+<li> so this is perfect for doing my own gel nails at home.</li>
+<li> Works fine, no problems - and for the price, I am very happy.  </li>
+<li> This light is awesome, requires no setup just plug it in</li>
+<li> Good product.</li>
+<li> Love it!</li>
+<li> Also, DO NOT look at UV or LED light while you are curing your nails!!</li>
+<li> Nice size for travel, tho.  </li>
+<li> Feels cheap (lightweight) but it does the job and was a good deal @ $40.  </li>
+<li> Great product, glad I bought it instead of a full size lamp that you have to replace the bulbs in.</li>
+<li> and then the top coat for 60 seconds and never have an issue.  </li>
+<li> Four fingers fit into it nicely.  </li>
+<li> I don&#x27;t think that this will fit your fingers in nicely.  </li>
+<li> and it&#x27;s ready works great with the orly fx gel starter kit.</li>
+<li> Although my dust buster cord does fit into it, i returned it for the fact they did not tell me i&#x27;d need to supply my own.</li>
+<li> this lamp is okay.  </li>
+<li> It works well every time :)</li>
+<li> it isn&#x27;t easy to polish with your non-dominant hand :)</li>
+<li> and it feels like it could break easily.  </li>
+<li> its easy to use and work with..</li>
+<li> I will say the return process was easy though.</li>
+<li> This light works much better for CND Shellac than my UV light which causes bubbles in Shellac.  </li>
+<li> This LED light will cure both Gelish and CND Shellac products just fine.  </li>
+<li> The plug itself is oversized, so make sure you have room on your power strip or outlet, I was kind of surprised by this set up, (removable power cord), since there is not a battery/wireless powering option.</li>
+<li> recently started doing my friend&#x27;s nails for them as well and have had great results.  </li>
+<li> /&gt;That said, this LED light is a fantastic value for the size and the price.</li>
+<li> with a gel coat/polish, after you cure it, you need to wipe the nail with a lint free cloth with alcohol to remove the residue or it will feel sticky.&lt;br /&gt;I</li>
+<li> I easily fit 4 fingers in at a time, and thumbs separately.  </li>
+<li> It is light, and feels almost toy like, but don&#x27;t let that fool you.</li>
+<li> Overall, I&#x27;m happy with the results.</li>
+<li> The color range is okay, and the coverage of the colors has proven to be consistent.</li>
+<li> Consistently leaves an oily finish at the top of the polish</li>
+<li> My wife was excited to get this product</li>
+<li> Super quick and easy to use.  </li>
+<li> I also have the full size UV lamp and comparing the 2</li>
+<li> I can hold it up with my hands comfortably rested on the table and then my thumbs sit at the right angle and are cured quickly.&lt;br /&gt;Mine</li>
+<li> It isn&#x27;t super small, but it works best to do the four fingers first and thumb separately.</li>
+<li> I work at a spa that uses Orly as well and have had my nails done there (by the professionals) and at other locations (with other gel brands) and my at-home results are just as good and definitely more cost effective, if anything it just takes me a bit longer as I am a perfectionist and</li>
+<li> It does fit my four fingers in very well.  </li>
+<li> Definitely worth the price</li>
+<li> my lights worked, and have worked just fine after so far about a hundred full manicures.</li>
+<li> but when it came it didn&#x27;t have the power adapter to plug it in.. when I got one that was right it still didn&#x27;t work..</li>
+<li> You can&#x27;t really fit your thumbs in, but because of how fast it works that doesn&#x27;t even really matter.</li>
+<li> I like the quick drying, making the steps much shorter.</li>
+<li> , dries my nails super fast.  </li>
+<li> - it is kind of a tight fit for the whole hand.  </li>
+<li> The first one was a defective unit...</li>
+<li> Works exactly as described.</li>
+<li> The timer also works well, it will emit a beep when you first turn the unit on.</li>
+<li> I tried the process exactly as described.  </li>
+<li> Instructions say to cure fingers first,</li>
+<li> I am a licensed professional, and I am mentioning that first because it does play a huge part in my rating of this Orly smart gel system.</li>
+<li> Not a huge problem though, since the led light unit is so very light weight</li>
+<li> instructions for the system are easy to follow, even if you&#x27;ve never done your own before.&lt;br /&gt;For a small, inexpensive investment, I highly recommend this for home use.  </li>
+<li> instructions for the system are easy to follow, even if you&#x27;ve never done your own before.&lt;br /&gt;For a small, inexpensive investment, I highly recommend this for home use.  </li>
+<li> I liked it because I could fit both hands in it, but it was large and hard to store.  </li>
+<li> It has a single bar button on top that is set for 60 seconds, but after the first 30 it emits a beep</li>
+<li> I love that I can dry my gel polish in one minute.</li>
+<li> The first time I noticed that the light was getting dimmer and the second time lights did not switch off after the timer.</li>
+<li> Nice little lamp for the price.  </li>
+<li> It only fits four fingers at a time, with thumbs done separate, that&#x27;s fine except that it&#x27;s not really the right shape or height for both thumbs to sit comfortably inside.</li>
+<li> Delivered fast.</li>
+<li> I highly recommend it!</li>
+<li> The colors are light and streaky even after several coats.  </li>
+<li> This is an LED lamp, not UV, which makes it a really Greta value.  </li>
+<li> It cures a variety of gel polishes but on the darker shades it really doesn&#x27;t do well</li>
+<li> I&#x27;m still working on really liking this lamp.  </li>
+<li> This LED lamp really works.</li>
+<li> It really packs a gel curing punch.</li>
+<li> It&#x27;s pretty small and is very easy to store.</li>
+<li> Plugged it in for a third time, turned it on, and pressed the timer button, lit right up!  </li>
+<li> Also it was making strange sound.</li>
+<li> I applied the ph bond and then the gel nail polish (light color) and used the lamp for a minute but didn&#x27;t dry.</li>
+<li> I have had this kit for over a year and a half now and absolutely love it.  </li>
+<li> Overall worth it.</li>
+<li> But, if it&#x27;s your first time definitely get the full system setup that includes the entire &#x27;kit&#x27;, it will go a long way in making for a positive experience.</li>
+<li> I really don&#x27;t do the gel nail polish, I use regular nail polish with a quick dry top coat &amp; it helps cure it quicker &amp; seems to make the polish last a little longer.</li>
+<li> Please do NOT waste your money.  </li>
+<li> I have used about 5-8 times so far with NO problems</li>
+<li> Really like this unit but wish it was bigger.  </li>
+<li> It&#x27;s small and easy to store.  </li>
+<li> But, if it&#x27;s your first time definitely get the full system setup that includes the entire &#x27;kit&#x27;, it will go a long way in making for a positive experience.there is any lifting, (this is average, mind</li>
+<li> when it comes to gel nails in general, I do a lot of them for clients, and on myself.&lt;br</li>
+<li> The wear time was consistent, about 16 days before there is any lifting, (this is average, mind you, sometimes it&#x27;s worn longer and sometimes less).&lt;br /&gt;The</li>
+<li> I purchased the system through Hautelook and it is a colossal waste of money and time.  </li>
+<li> I have heard mixed reviews about mixing gel brands in general and don&#x27;t want to take the financial &amp;#34;risk&amp;#34</li>
+<li> I must have kept my nails under for 15 mins in total but still didn&#x27;t dry completely.</li>
+<li> I really like this little lamp.</li>
+<li> I really like this little</li>
+<li> ; (I&#x27;m cheap and don&#x27;t like to waste money) on buying a gel polish that won&#x27;t work with my Orly base and top coats.  </li>
+<li> It also took 2 minutes to dry gel polish, where the Orly Smartgels Led Lamp only takes 15 to 30 seconds.</li>
+<li> it was definitely NOT what I expected , very tiny ,&lt;br /&gt;does</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> Really like this unit but wish it was bigger.  Nice size for travel, tho.  I like the quick drying, making the steps much shorter.</li>
+    <li> I really like this little lamp. Cures my nails in seconds and doesn&#x27;t sunburn my fingers like UV lamps do.</li>
+    <li> Can this be used to cure Shellac and Opi gel polishes?</li>
+    <li> I really don&#x27;t do the gel nail polish, I use regular nail polish with a quick dry top coat &amp; it helps cure it quicker &amp; seems to make the polish last a little longer. Overall, I&#x27;m happy with the results.</li>
+    <li> This LED lamp really works. My nails stay beautifully polished and do not chip. It&#x27;s pretty small and is very easy to store.</li>
+    <li> Nice little lamp for the price.  This is an LED lamp, not UV, which makes it a really Greta value.  Works great, dries my nails super fast.  Love it!</li>
+    <li> This LED light will cure both Gelish and CND Shellac products just fine.  Four fingers fit into it nicely.  I do my thumbs separately.  This light works much better for CND Shellac than my UV light which causes bubbles in Shellac.  It also cures faster than regular UV lights do.  You don&#x27;t need anything fancier... this will do the trick.  Also, DO NOT look at UV or LED light while you are curing your nails!! It&#x27;s very hard on your eyes!!</li>
+    <li> This LED lamp is awesome! Definitely worth the price and it cures gel nails instantly.</li>
+    <li> I have had this kit for over a year and a half now and absolutely love it.  I easily fit 4 fingers in at a time, and thumbs separately.  Never have had any issues with drying, they are always cured.  I do the base coat for 60 seconds, each color layer for 30 seconds and then the top coat for 60 seconds and never have an issue.  I work at a spa that uses Orly as well and have had my nails done there (by the professionals) and at other locations (with other gel brands) and my at-home results are just as good and definitely more cost effective, if anything it just takes me a bit longer as I am a perfectionist and it isn&#x27;t easy to polish with your non-dominant hand :) Though I will take a slightly longer polishing time over regular polishes that take forever to dry.&lt;br /&gt;&lt;br /&gt;I recently started doing my friend&#x27;s nails for them as well and have had great results.  I only use Orly gels though.  I have heard mixed reviews about mixing gel brands in general and don&#x27;t want to take the financial &amp;#34;risk&amp;#34; (I&#x27;m cheap and don&#x27;t like to waste money) on buying a gel polish that won&#x27;t work with my Orly base and top coats.  Keep in mind too, these gel polishes do have an &amp;#34;expiration&amp;#34; date on them (typically 12 months after opening).</li>
+    <li> Delivered fast. Good product.</li>
+    <li> i like it.  its easy to use and work with.. the  size makes my work space seem un cluttered.  I would recommend it</li>
+    <li> Feels cheap (lightweight) but it does the job and was a good deal @ $40.  Consistently leaves an oily finish at the top of the polish but I am not sure if this is normal or not. Some lights require a specific brand polish with it and this one did not say. It has dried both brands I tried. Overall worth it.</li>
+    <li> The first one was a defective unit... As usual amazon promptly sent another one.  It worked just as advertised and now my wife is happy.</li>
+    <li> It did not come with an adapter for power. I went and bought the adapter which was $25 alone and tried it at te store and it still didn&#x27;t work. I have returned it.</li>
+    <li> I got this product in time as promised, however, i could not use it when i got it! The nail lamp does not come with a power cord. Although my dust buster cord does fit into it, i returned it for the fact they did not tell me i&#x27;d need to supply my own. What a ripe-off!</li>
+    <li> Super quick and easy to use.  I didn&#x27;t want the UV exposure so this is perfect for doing my own gel nails at home.</li>
+    <li> I really like this little Orly Smartgels LED nail dryer for the price!  It&#x27;s small and easy to store.  However, you can only dry the four fingers on one hand minus the thumb at a time.  I did have a larger UV nail dryer.  I liked it because I could fit both hands in it, but it was large and hard to store.  It also took 2 minutes to dry gel polish, where the Orly Smartgels Led Lamp only takes 15 to 30 seconds.</li>
+    <li> Much smaller than I expected.  Instructions say to cure fingers first, then thumb - it is kind of a tight fit for the whole hand.  Instructions lack slightly.  Plugged in lamp, turned on power button, and nothing happened.  Tried it again - same result.  Plugged it in for a third time, turned it on, and pressed the timer button, lit right up!  So you need to hit the timer button also.  Works fine, no problems - and for the price, I am very happy.  FYI with a gel coat/polish, after you cure it, you need to wipe the nail with a lint free cloth with alcohol to remove the residue or it will feel sticky.&lt;br /&gt;I only gave product four stars because of the size.</li>
+    <li> This has lasted me for-ev-er. It works well every time :)</li>
+    <li> I tried it two times. The first time I noticed that the light was getting dimmer and the second time lights did not switch off after the timer. Also it was making strange sound.</li>
+    <li> I&#x27;m still working on really liking this lamp.  I also have the full size UV lamp and comparing the 2 this lamp is okay.  Although I&#x27;m still trying to feel it out.  If you like the perk of doing both hands at once this is not the lamp for you.  It does fit my four fingers in very well.  However, I&#x27;m a petite person and have small hands.  If you have bigger hands I don&#x27;t think that this will fit your fingers in nicely.  It cures a variety of gel polishes but on the darker shades it really doesn&#x27;t do well, that&#x27;s where the UV lamp comes into play.  I also thought it would have a sturdy feel being that it&#x27;s an Orly lamp and it feels like it could break easily.  I&#x27;m not sure if I should spring for the bigger LED lamp but the price difference is steep.</li>
+    <li> I was kinda bummed because I couldn&#x27;t find ANY reviews on this thing! It works really great with my gelish nail polish. It isn&#x27;t super small, but it works best to do the four fingers first and thumb separately. This is a GREAT buy for your money....I highly recommend it! I have used about 5-8 times so far with NO problems</li>
+    <li> What am I doing wrong? I applied the ph bond and then the gel nail polish (light color) and used the lamp for a minute but didn&#x27;t dry. I kept repeating the drying process but no luck. I must have kept my nails under for 15 mins in total but still didn&#x27;t dry completely. I will be returning it</li>
+    <li> This light is awesome, requires no setup just plug it in and it&#x27;s ready works great with the orly fx gel starter kit. Going to save me a lot of money doing my nails myself instead of $80 a month at the salon.</li>
+    <li> My wife was excited to get this product but when it came it didn&#x27;t have the power adapter to plug it in.. when I got one that was right it still didn&#x27;t work.. all in all very disappointed. She ended up going to Target and buying one of the Sally Hansen sets so she could start to use her gel products.</li>
+    <li> Works exactly as described. You can&#x27;t really fit your thumbs in, but because of how fast it works that doesn&#x27;t even really matter. Great product, glad I bought it instead of a full size lamp that you have to replace the bulbs in.</li>
+    <li> I Returned this item. Box missing power cord. Useless unless you can get power. I will say the return process was easy though.</li>
+    <li> I am a licensed professional, and I am mentioning that first because it does play a huge part in my rating of this Orly smart gel system. I&#x27;m not just a home do it yourself-er when it comes to gel nails in general, I do a lot of them for clients, and on myself.&lt;br /&gt;That said, this LED light is a fantastic value for the size and the price. It is light, and feels almost toy like, but don&#x27;t let that fool you. It really packs a gel curing punch. When they say 30 seconds, they mean it. It only fits four fingers at a time, with thumbs done separate, that&#x27;s fine except that it&#x27;s not really the right shape or height for both thumbs to sit comfortably inside. Not a huge problem though, since the led light unit is so very light weight I can hold it up with my hands comfortably rested on the table and then my thumbs sit at the right angle and are cured quickly.&lt;br /&gt;Mine arrived with the power cord, which is not attached to the unit, but is a plug in port. The plug itself is oversized, so make sure you have room on your power strip or outlet, I was kind of surprised by this set up, (removable power cord), since there is not a battery/wireless powering option. But, again for the price, I can overlook the little oddities.&lt;br /&gt;All my lights worked, and have worked just fine after so far about a hundred full manicures. The timer also works well, it will emit a beep when you first turn the unit on. It has a single bar button on top that is set for 60 seconds, but after the first 30 it emits a beep so, if you aren&#x27;t curing a dark color, you know when to take them out and move on to the next coat.&lt;br /&gt;As for the gel itself, I am quite a fan. I like the two in one base and top coat, as it saves space if that&#x27;s an issue. The color range is okay, and the coverage of the colors has proven to be consistent. It&#x27;s a little thicker in viscosity than other brands I&#x27;m used to, but after a nail or two you get used to the way this gel works. The wear time was consistent, about 16 days before there is any lifting, (this is average, mind you, sometimes it&#x27;s worn longer and sometimes less).&lt;br /&gt;The instructions for the system are easy to follow, even if you&#x27;ve never done your own before.&lt;br /&gt;For a small, inexpensive investment, I highly recommend this for home use.  But, if it&#x27;s your first time definitely get the full system setup that includes the entire &#x27;kit&#x27;, it will go a long way in making for a positive experience.there is any lifting, (this is average, mind you, sometimes it&#x27;s worn longer and sometimes less).&lt;br /&gt;The instructions for the system are easy to follow, even if you&#x27;ve never done your own before.&lt;br /&gt;For a small, inexpensive investment, I highly recommend this for home use.  But, if it&#x27;s your first time definitely get the full system setup that includes the entire &#x27;kit&#x27;, it will go a long way in making for a positive experience.</li>
+    <li> Have been using it for over a year and still works great.  I love that I can dry my gel polish in one minute.</li>
+    <li> In the past I wrote a bad comment about this Item.&lt;br /&gt;Now this a one and only name brand product an every single step of the service I provide ...I m happy with the lamp, does the job perfectly and I like it , I m a nail tech and it was hard to update most of my gels cuz they are expensive but is need it.&lt;br /&gt;&lt;br /&gt;This lamp it was definitely NOT what I expected , very tiny ,&lt;br /&gt;does not work with the gel product that I have , still on trial .&lt;br /&gt;I do not recommend if you are a Nail tech .</li>
+    <li> It also does not have a compartment for batteries, so it is completely useless. If you can&#x27;t power it, you can&#x27;t dry your nails with it.</li>
+    <li> I would give this zero stars if possible.  Please do NOT waste your money.  I have no idea where these great reviews are coming from!?!?!  I purchased the system through Hautelook and it is a colossal waste of money and time.  I tried the process exactly as described.  The colors are light and streaky even after several coats.  The lamp sent was not the same as pictured here -- but completely useless nonetheless.  Did not cure as it should AND was so hot as to become uncomfortable.  No way to get a refund as it was a non-refundable item on Hautelook.  At least on Amazon you can get a refund!</li>
+</ol>
+
+
+
+

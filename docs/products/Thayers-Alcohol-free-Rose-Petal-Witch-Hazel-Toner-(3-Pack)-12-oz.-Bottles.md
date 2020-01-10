@@ -3,8 +3,8 @@ title: Thayers Alcohol-free Rose Petal Witch Hazel Toner (3 Pack) 12-oz. Bottles
 description: Thayers Alcohol-free Rose Petal Witch Hazel Toner (3 Pack) 12-oz. Bottles,
 author: Suvojit Manna,
 tags: Thayers Alcohol-free Rose Petal Witch Hazel Toner (3 Pack) 12-oz. Bottles,
-publishedAt: Thu Jan 09 2020 19:08:20 GMT+0530 (India Standard Time),
-modifiedAt: Thu Jan 09 2020 19:08:20 GMT+0530 (India Standard Time),
+publishedAt: Fri Jan 10 2020 14:59:00 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:59:00 GMT+0530 (India Standard Time),
 ---
 
 # [Thayers Alcohol-free Rose Petal Witch Hazel Toner (3 Pack) 12-oz. Bottles](https://products.checkmycream.com/products/Thayers-Alcohol-free-Rose-Petal-Witch-Hazel-Toner-(3-Pack)-12-oz.-Bottles.html)
@@ -12,211 +12,211 @@ modifiedAt: Thu Jan 09 2020 19:08:20 GMT+0530 (India Standard Time),
 ### Positive Reviews
 
 <ol>
-      <li>I use this as a toner after cleansing my face or just to refresh my skin and it is perfect.</li>
-      <li>Product is great!</li>
-      <li>My package arrived in perfect condition and this toner feels and smells delightful.</li>
-      <li>Wonderful toner for after cleansing.</li>
-      <li>Great stuff!</li>
-      <li>Also, it smells great!</li>
-      <li>Great product!!</li>
-      <li>I am very happy with this product</li>
-      <li>so happy!</li>
-      <li>Great toner!</li>
-      <li>It smells great too!</li>
-      <li>I think it is my best concoction out of the three!</li>
-      <li>I advise that you put it in a travel size spray bottle for best effect</li>
-      <li>It doesnt make my skin break out and the ingredients are a wonderful concoction.</li>
-      <li>Best toner out there.</li>
-      <li>, so happy I did and kudos to him (whomever he is!)</li>
-      <li>I am very impressed, and I am happy I went with this toner for my combination-sensitive skin!</li>
-      <li>this toner is awesome...</li>
-      <li>best ever!!!!been</li>
-      <li>Excellent transaction!</li>
-      <li>Great customer service and products! A+++</li>
-      <li>Wonderful!</li>
-      <li>Very happy with the purchase.</li>
-      <li>and my son is very happy with the results.</li>
-      <li>so it&#x27;s perfect.</li>
-      <li>This is the best stuff ever.</li>
-      <li>This is great stuff!</li>
-      <li>Best toner I&#x27;ve ever used!</li>
-      <li>The smell is AMAZING!!!</li>
-      <li>It is one of the best toner I have used.  </li>
-      <li>Wonderful product</li>
-      <li>very good product!</li>
-      <li>This is a wonderful product.</li>
-      <li>Smells wonderful!</li>
       <li>Truly wonderful product if you have oily skin like me.</li>
-      <li>The best.  </li>
-      <li>It&#x27;s the best</li>
-      <li>I especially love the one with Aloe Vera!</li>
-      <li>great product to have your stash!</li>
-      <li>It also smells wonderful!  </li>
-      <li>I am very happy with this product.</li>
-      <li>What a delightful treat from the heat!&lt;br /&gt;I</li>
-      <li>Excellent value for money.</li>
-      <li>Bought it to remove mud mask &amp; it works wonderfully.</li>
-      <li>Having no alcohol means that my skin does not get irritated after using it, which is awesome.  </li>
-      <li>Awesome product and will probably use forever.</li>
-      <li>The item arrived on time, and perfect condition.</li>
-      <li>awesome price</li>
-      <li>It works great!</li>
-      <li>This stuff is great!</li>
-      <li>It is an excellent product.</li>
-      <li>Excellent product.</li>
-      <li>I wanted it because it combined a lot of awesome ingredients</li>
-      <li>This is a wonderful toner.  </li>
       <li>I am totally impressed.</li>
-      <li>a great toner!</li>
+      <li>Best way to restore skin&#x27;s glow and resiliency.</li>
       <li>It also has a wonderful</li>
-      <li>Thayers is a wonderful product.  </li>
-      <li>The service was wonderful and prompt.  </li>
-      <li>This toner is awesome.</li>
-      <li>I use it in combination with Christina Moss Naturals Organic Moisturizer (also on Amazon) and my skin looks and feels wonderful.</li>
-      <li>I am very impressed.</li>
-      <li>I just spray it on my face for convenience and it&#x27;s so much better!!!!</li>
-      <li>This smells and works great!</li>
-      <li>but it&#x27;s rosey and wonderful.</li>
-      <li>SOOOO good!!</li>
-      <li>Company is great!</li>
-      <li>Never burns and smells great!</li>
-      <li>Thank you for your prompt delivery and great price!</li>
-      <li>Wonderful fragrance in this product.</li>
-      <li>Awesome!</li>
-      <li>This product is perfect.</li>
-      <li>So happy!!</li>
-      <li>is wonderful.  </li>
-      <li>Thayer&#x27;s makes one of the best Witch Hazel.</li>
-      <li>Placed on cotton balls and kept in the fridge it gives excellent relief of bum issues.  </li>
-      <li>Great product!</li>
-      <li>Excellent transaction!</li>
-      <li>Great product!</li>
-      <li>I have to say that this product is magnificent.</li>
-      <li>and my skin was always perfect</li>
-      <li>Great product!</li>
-      <li>This one is the best.</li>
-      <li>Best toner!</li>
-      <li>It smells wonderful</li>
-      <li>To me, that is the perfect combination for a skin toner.</li>
-      <li>Works well and smells absolutely wonderful!</li>
-      <li>And does wonderful things for basically every aspect of life.</li>
-      <li>Works great!</li>
-      <li>Perfect for the morning or after the gym</li>
-      <li>Smells great and has minimized my pores in just a week!</li>
-      <li>Works awesome</li>
-      <li>This toner is great!</li>
-      <li>the scent is wonderful</li>
-      <li>This is great!</li>
+      <li>Great for acne prone skin!</li>
+      <li>I use this as a toner after cleansing my face or just to refresh my skin and it is perfect.</li>
+      <li>best toner i have ever used</li>
+      <li>Very happy with the product.</li>
+      <li>Best Toner!  </li>
+      <li>the perfect toner for sensitive/combination skin!</li>
+      <li>It works great!!!!</li>
+      <li>I use it in my homemade eye makeup remover and it works great!</li>
+      <li>A wonderful combination of ingredients.  </li>
+      <li>Smells wonderful.  </li>
       <li>The best rose water i have ever tried !!!!</li>
+      <li>Thayers is a wonderful product.  </li>
+      <li>It smells WONDERFUL!</li>
+      <li>This is the best toner that I found for my combination skin.  </li>
+      <li>This stuff is the best!  </li>
+      <li>Perfect for the skin.!</li>
+      <li>Very happy!</li>
+      <li>Great customer service!</li>
+      <li>Great product!</li>
+      <li>:D</li>
+      <li>This Witch Hazel Rosewater toner is awesome!  </li>
+      <li>Product is great!</li>
+      <li>GREAT Product!!!</li>
+      <li>Great for shaving!</li>
+      <li>Perfect face toner!</li>
+      <li>This is great!</li>
+      <li>It&#x27;s wonderful!</li>
+      <li>Great toner!</li>
+      <li>This is a wonderful toner.  </li>
+      <li>Smells great!  </li>
+      <li>I am truly impressed with this product.</li>
+      <li>BEST THING EVER..</li>
+      <li>The service was wonderful and prompt.  </li>
+      <li>best thing I ever used on my face.  </li>
+      <li>Smells wonderful!</li>
+      <li>My package arrived in perfect condition and this toner feels and smells delightful.</li>
+      <li>and I am so happy!</li>
+      <li>It also smells wonderful.</li>
+      <li>the scent is wonderful</li>
+      <li>Wonderful toner for after cleansing.</li>
+      <li>this is the best toner that I have used, it clams the skin and is perfect to use after masks, cleanser, etc.  </li>
+      <li>Excellent vendor!</li>
+      <li>The worl&#x27;d best toner- smells incredible and soothes your skin!</li>
+      <li>and it makes my skin look wonderful.</li>
+      <li>Wonderful product!  </li>
+      <li>I wanted it because it combined a lot of awesome ingredients</li>
+      <li>This is wonderful stuff.  </li>
+      <li>Wonderful stuff.</li>
+      <li>Great stuff!</li>
       <li>This is the best toner I&#x27;ve ever used!</li>
+      <li>Because it is alcohol-free, it doesn&#x27;t have any burning sensation, which is great!</li>
+      <li>This toner is great!</li>
+      <li>It&#x27;s awesome!</li>
+      <li>An excellent post-shave balm for men.</li>
+      <li>Great product!</li>
+      <li>Also, it smells great!</li>
+      <li>Until now, it looks very good!</li>
       <li>And I&#x27;m happy to see that it&#x27;s alcohol-free!</li>
+      <li>Works awesome</li>
+      <li>Smells wonderful.  </li>
+      <li>Smells great !</li>
+      <li>Best witch hazel ive found yet.</li>
+      <li>Great product!!</li>
       <li>Smells SO good!!</li>
-      <li>Thank you for this wonderful product.</li>
+      <li>I am so happy with my purchase!</li>
+      <li>Great toner!!!  </li>
+      <li>It&#x27;s wonderful.</li>
+      <li>It is awesome!</li>
+      <li>Great product!</li>
+      <li>What a delicious and soothing balm!</li>
+      <li>It is perfect for what I wanted.  </li>
+      <li>This is one of the best toners I&#x27;ve ever used.  </li>
+      <li>This toner is awesome.</li>
+      <li>Best witch hazel I&#x27;ve used.</li>
+      <li>Awesome stuff!</li>
+      <li>Best toner!</li>
+      <li>I am very happy with this product</li>
+      <li>They recommend using it as a toner, but that of course made me break out lol!</li>
+      <li>They were great!</li>
+      <li>I find the makeup settles into my awesome wrinkles</li>
+      <li>and it smells wonderful!</li>
+      <li>It smells wonderful</li>
+      <li>This product smells wonderful.</li>
+      <li>THIS IS PERFECT.</li>
+      <li>so happy!</li>
+      <li>it&#x27;s perfect!</li>
+      <li>Smells great!</li>
+      <li>Wonderful smell</li>
+      <li>This stuff is the best!</li>
+      <li>This is wonderful stuff.</li>
+      <li>The smell is delicious.  </li>
+      <li>This product is great!</li>
+      <li>This is the BEST toner I have ever used!</li>
+      <li>I ended up putting it in a spray bottle and use it by spritzing it all over my face after cleansing and it feels wonderful!</li>
+      <li>Great toner!</li>
+      <li>Very best thing I&#x27;ve used on face ever.  </li>
 </ol>
 
 
 <h2>Negative Reviews</h2>
 <ol>
-<li> I use this as a toner after cleansing my face or just to refresh my skin and it is perfect.</li>
-<li> Product is great!</li>
-<li> My package arrived in perfect condition and this toner feels and smells delightful.</li>
-<li> Wonderful toner for after cleansing.</li>
-<li> Great stuff!</li>
-<li> Also, it smells great!</li>
-<li> Great product!!</li>
-<li> I am very happy with this product</li>
-<li> so happy!</li>
-<li> Great toner!</li>
-<li> It smells great too!</li>
-<li> I think it is my best concoction out of the three!</li>
-<li> I advise that you put it in a travel size spray bottle for best effect</li>
-<li> It doesnt make my skin break out and the ingredients are a wonderful concoction.</li>
-<li> Best toner out there.</li>
-<li> , so happy I did and kudos to him (whomever he is!)</li>
-<li> I am very impressed, and I am happy I went with this toner for my combination-sensitive skin!</li>
-<li> this toner is awesome...</li>
-<li> best ever!!!!been</li>
-<li> Excellent transaction!</li>
-<li> Great customer service and products! A+++</li>
-<li> Wonderful!</li>
-<li> Very happy with the purchase.</li>
-<li> and my son is very happy with the results.</li>
-<li> so it&#x27;s perfect.</li>
-<li> This is the best stuff ever.</li>
-<li> This is great stuff!</li>
-<li> Best toner I&#x27;ve ever used!</li>
-<li> The smell is AMAZING!!!</li>
-<li> It is one of the best toner I have used.  </li>
-<li> Wonderful product</li>
-<li> very good product!</li>
-<li> This is a wonderful product.</li>
-<li> Smells wonderful!</li>
 <li> Truly wonderful product if you have oily skin like me.</li>
-<li> The best.  </li>
-<li> It&#x27;s the best</li>
-<li> I especially love the one with Aloe Vera!</li>
-<li> great product to have your stash!</li>
-<li> It also smells wonderful!  </li>
-<li> I am very happy with this product.</li>
-<li> What a delightful treat from the heat!&lt;br /&gt;I</li>
-<li> Excellent value for money.</li>
-<li> Bought it to remove mud mask &amp; it works wonderfully.</li>
-<li> Having no alcohol means that my skin does not get irritated after using it, which is awesome.  </li>
-<li> Awesome product and will probably use forever.</li>
-<li> The item arrived on time, and perfect condition.</li>
-<li> awesome price</li>
-<li> It works great!</li>
-<li> This stuff is great!</li>
-<li> It is an excellent product.</li>
-<li> Excellent product.</li>
-<li> I wanted it because it combined a lot of awesome ingredients</li>
-<li> This is a wonderful toner.  </li>
 <li> I am totally impressed.</li>
-<li> a great toner!</li>
+<li> Best way to restore skin&#x27;s glow and resiliency.</li>
 <li> It also has a wonderful</li>
-<li> Thayers is a wonderful product.  </li>
-<li> The service was wonderful and prompt.  </li>
-<li> This toner is awesome.</li>
-<li> I use it in combination with Christina Moss Naturals Organic Moisturizer (also on Amazon) and my skin looks and feels wonderful.</li>
-<li> I am very impressed.</li>
-<li> I just spray it on my face for convenience and it&#x27;s so much better!!!!</li>
-<li> This smells and works great!</li>
-<li> but it&#x27;s rosey and wonderful.</li>
-<li> SOOOO good!!</li>
-<li> Company is great!</li>
-<li> Never burns and smells great!</li>
-<li> Thank you for your prompt delivery and great price!</li>
-<li> Wonderful fragrance in this product.</li>
-<li> Awesome!</li>
-<li> This product is perfect.</li>
-<li> So happy!!</li>
-<li> is wonderful.  </li>
-<li> Thayer&#x27;s makes one of the best Witch Hazel.</li>
-<li> Placed on cotton balls and kept in the fridge it gives excellent relief of bum issues.  </li>
-<li> Great product!</li>
-<li> Excellent transaction!</li>
-<li> Great product!</li>
-<li> I have to say that this product is magnificent.</li>
-<li> and my skin was always perfect</li>
-<li> Great product!</li>
-<li> This one is the best.</li>
-<li> Best toner!</li>
-<li> It smells wonderful</li>
-<li> To me, that is the perfect combination for a skin toner.</li>
-<li> Works well and smells absolutely wonderful!</li>
-<li> And does wonderful things for basically every aspect of life.</li>
-<li> Works great!</li>
-<li> Perfect for the morning or after the gym</li>
-<li> Smells great and has minimized my pores in just a week!</li>
-<li> Works awesome</li>
-<li> This toner is great!</li>
-<li> the scent is wonderful</li>
-<li> This is great!</li>
+<li> Great for acne prone skin!</li>
+<li> I use this as a toner after cleansing my face or just to refresh my skin and it is perfect.</li>
+<li> best toner i have ever used</li>
+<li> Very happy with the product.</li>
+<li> Best Toner!  </li>
+<li> the perfect toner for sensitive/combination skin!</li>
+<li> It works great!!!!</li>
+<li> I use it in my homemade eye makeup remover and it works great!</li>
+<li> A wonderful combination of ingredients.  </li>
+<li> Smells wonderful.  </li>
 <li> The best rose water i have ever tried !!!!</li>
+<li> Thayers is a wonderful product.  </li>
+<li> It smells WONDERFUL!</li>
+<li> This is the best toner that I found for my combination skin.  </li>
+<li> This stuff is the best!  </li>
+<li> Perfect for the skin.!</li>
+<li> Very happy!</li>
+<li> Great customer service!</li>
+<li> Great product!</li>
+<li> :D</li>
+<li> This Witch Hazel Rosewater toner is awesome!  </li>
+<li> Product is great!</li>
+<li> GREAT Product!!!</li>
+<li> Great for shaving!</li>
+<li> Perfect face toner!</li>
+<li> This is great!</li>
+<li> It&#x27;s wonderful!</li>
+<li> Great toner!</li>
+<li> This is a wonderful toner.  </li>
+<li> Smells great!  </li>
+<li> I am truly impressed with this product.</li>
+<li> BEST THING EVER..</li>
+<li> The service was wonderful and prompt.  </li>
+<li> best thing I ever used on my face.  </li>
+<li> Smells wonderful!</li>
+<li> My package arrived in perfect condition and this toner feels and smells delightful.</li>
+<li> and I am so happy!</li>
+<li> It also smells wonderful.</li>
+<li> the scent is wonderful</li>
+<li> Wonderful toner for after cleansing.</li>
+<li> this is the best toner that I have used, it clams the skin and is perfect to use after masks, cleanser, etc.  </li>
+<li> Excellent vendor!</li>
+<li> The worl&#x27;d best toner- smells incredible and soothes your skin!</li>
+<li> and it makes my skin look wonderful.</li>
+<li> Wonderful product!  </li>
+<li> I wanted it because it combined a lot of awesome ingredients</li>
+<li> This is wonderful stuff.  </li>
+<li> Wonderful stuff.</li>
+<li> Great stuff!</li>
 <li> This is the best toner I&#x27;ve ever used!</li>
+<li> Because it is alcohol-free, it doesn&#x27;t have any burning sensation, which is great!</li>
+<li> This toner is great!</li>
+<li> It&#x27;s awesome!</li>
+<li> An excellent post-shave balm for men.</li>
+<li> Great product!</li>
+<li> Also, it smells great!</li>
+<li> Until now, it looks very good!</li>
 <li> And I&#x27;m happy to see that it&#x27;s alcohol-free!</li>
+<li> Works awesome</li>
+<li> Smells wonderful.  </li>
+<li> Smells great !</li>
+<li> Best witch hazel ive found yet.</li>
+<li> Great product!!</li>
 <li> Smells SO good!!</li>
-<li> Thank you for this wonderful product.</li>
+<li> I am so happy with my purchase!</li>
+<li> Great toner!!!  </li>
+<li> It&#x27;s wonderful.</li>
+<li> It is awesome!</li>
+<li> Great product!</li>
+<li> What a delicious and soothing balm!</li>
+<li> It is perfect for what I wanted.  </li>
+<li> This is one of the best toners I&#x27;ve ever used.  </li>
+<li> This toner is awesome.</li>
+<li> Best witch hazel I&#x27;ve used.</li>
+<li> Awesome stuff!</li>
+<li> Best toner!</li>
+<li> I am very happy with this product</li>
+<li> They recommend using it as a toner, but that of course made me break out lol!</li>
+<li> They were great!</li>
+<li> I find the makeup settles into my awesome wrinkles</li>
+<li> and it smells wonderful!</li>
+<li> It smells wonderful</li>
+<li> This product smells wonderful.</li>
+<li> THIS IS PERFECT.</li>
+<li> so happy!</li>
+<li> it&#x27;s perfect!</li>
+<li> Smells great!</li>
+<li> Wonderful smell</li>
+<li> This stuff is the best!</li>
+<li> This is wonderful stuff.</li>
+<li> The smell is delicious.  </li>
+<li> This product is great!</li>
+<li> This is the BEST toner I have ever used!</li>
+<li> I ended up putting it in a spray bottle and use it by spritzing it all over my face after cleansing and it feels wonderful!</li>
+<li> Great toner!</li>
+<li> Very best thing I&#x27;ve used on face ever.  </li>
 </ol>
 
 <h2>All Reviews</h2>
@@ -2912,6 +2912,7 @@ modifiedAt: Thu Jan 09 2020 19:08:20 GMT+0530 (India Standard Time),
     <li> LOVE this stuff!! My skin looks brighter and the smell of Roses is AWESOME!!</li>
     <li> its a great product, its smell very good. I,d like to say it is really great,and i like it very much.</li>
 </ol>
+
 
 
 

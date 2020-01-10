@@ -1,0 +1,173 @@
+---
+title: Dermalogica Skin Perfect Primer SPF 30, 0.75 Fluid Ounce,
+description: Dermalogica Skin Perfect Primer SPF 30, 0.75 Fluid Ounce,
+author: Suvojit Manna,
+tags: Dermalogica Skin Perfect Primer SPF 30, 0.75 Fluid Ounce,
+publishedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
+---
+
+# [Dermalogica Skin Perfect Primer SPF 30, 0.75 Fluid Ounce](https://products.checkmycream.com/products/Dermalogica-Skin-Perfect-Primer-SPF-30-0.75-Fluid-Ounce.html)
+
+### Positive Reviews
+
+<ol>
+      <li>I have my best friend using the primer now.</li>
+      <li>This is so awesome for under your makeup or just to wear alone.</li>
+      <li>This is a great product!  </li>
+      <li>Its the best face primer</li>
+      <li>Gives a flawless appearance!</li>
+      <li>Another plus is how beautifully it evens out my skin tone,  goes on like butter.</li>
+      <li>Product gives a very nice pearly sheen to the face.</li>
+      <li>This primer is AMAZING!  </li>
+      <li>dont wear a lot of make-up, so this is perfect for daytime on top of my moisturiser.&lt;br /&gt;Leaves my skin looking bright all day and evens out any blemishes.</li>
+      <li>Does seem to be good with smoothing out your skin before application of make-up.  </li>
+      <li>They are light on your skin and do a wonderful job nourishing your skin.  </li>
+      <li>I have received compliments from my friends saying that my skin looks so good.</li>
+      <li>I highly recommend this excellent product that provides safe SPF protection, with a superb moisture barrier.</li>
+      <li>Love this!</li>
+      <li>I love it!</li>
+      <li>My favorite product EVER!</li>
+      <li>I love this product!  </li>
+      <li>One of my favorite treatments in my skin care regime!</li>
+      <li>Love this product!</li>
+      <li>This primer is amazing.  </li>
+      <li>Nice finish, no breakouts.</li>
+      <li>It&#x27;s nice to find it for a reduced price on Amazon.</li>
+      <li>Goes on so smoothly, blends in perfectly, keeps the skin moisturized, and can be used in place of a foundation, if you want a light, dewy look.  </li>
+      <li>but it&#x27;s a nice to have when I need it.</li>
+      <li>Goes on very smoothly and evenly.</li>
+      <li>love all dermalogica products.</li>
+      <li>I love the product.</li>
+      <li>My favorite primer.</li>
+      <li>I received this as a sample and fell in love with it.  </li>
+      <li>Goes on very smoothly and quickly -</li>
+      <li>It makes me feel beautiful and younger.  </li>
+      <li>Just a light layer of coverage, and sunblock that doesn&#x27;t hurt my eyes.</li>
+      <li>Makes make up go on so smoothly</li>
+      <li>I like how it makes my face act like a smooth canvas.</li>
+      <li>Creates an even and smooth canvas.</li>
+      <li>Although pricey, this tube will last for a while and is probably one of the best (have been using many high-end brands but always go back to this one).</li>
+      <li>This is pricey however well worth the money!</li>
+      <li>You can use it as a light makeup in a pinch to even your skin tone when running around if you don&#x27;t want to go full force.</li>
+      <li>Love using covers really well</li>
+      <li>Perfect alone when you just want a little something, and works very well with foundation or tinted moisturizer.  </li>
+      <li>(my opinion) fairly quickly after I&#x27;ve put my make up on.</li>
+      <li>Can be worn alone or underneath foundation for a long lasting flawless complexion.</li>
+      <li>You still need to put a light moisturizer on first, as it is not enough on its own.</li>
+      <li>This is by far my favorite primer.  </li>
+      <li>It is well worth the money.  </li>
+      <li>will most likely just use it when I&#x27;m more conscious of an event I&#x27;m going to with how I want my make</li>
+      <li>I was amazed how much improvement in the finished look it helped achieve!</li>
+      <li>I really like the way the primer feels and blends in with my skin tone.</li>
+      <li>Unfortunately the scent is far to &#x27;perfume&#x27; like for me, and I usually am okay with most scents.</li>
+      <li>it does wonders for my mature skin.  </li>
+      <li>I absolutely adore this skin primer and use it every single day.  </li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> I have my best friend using the primer now.</li>
+<li> This is so awesome for under your makeup or just to wear alone.</li>
+<li> This is a great product!  </li>
+<li> Its the best face primer</li>
+<li> Gives a flawless appearance!</li>
+<li> Another plus is how beautifully it evens out my skin tone,  goes on like butter.</li>
+<li> Product gives a very nice pearly sheen to the face.</li>
+<li> This primer is AMAZING!  </li>
+<li> dont wear a lot of make-up, so this is perfect for daytime on top of my moisturiser.&lt;br /&gt;Leaves my skin looking bright all day and evens out any blemishes.</li>
+<li> Does seem to be good with smoothing out your skin before application of make-up.  </li>
+<li> They are light on your skin and do a wonderful job nourishing your skin.  </li>
+<li> I have received compliments from my friends saying that my skin looks so good.</li>
+<li> I highly recommend this excellent product that provides safe SPF protection, with a superb moisture barrier.</li>
+<li> Love this!</li>
+<li> I love it!</li>
+<li> My favorite product EVER!</li>
+<li> I love this product!  </li>
+<li> One of my favorite treatments in my skin care regime!</li>
+<li> Love this product!</li>
+<li> This primer is amazing.  </li>
+<li> Nice finish, no breakouts.</li>
+<li> It&#x27;s nice to find it for a reduced price on Amazon.</li>
+<li> Goes on so smoothly, blends in perfectly, keeps the skin moisturized, and can be used in place of a foundation, if you want a light, dewy look.  </li>
+<li> but it&#x27;s a nice to have when I need it.</li>
+<li> Goes on very smoothly and evenly.</li>
+<li> love all dermalogica products.</li>
+<li> I love the product.</li>
+<li> My favorite primer.</li>
+<li> I received this as a sample and fell in love with it.  </li>
+<li> Goes on very smoothly and quickly -</li>
+<li> It makes me feel beautiful and younger.  </li>
+<li> Just a light layer of coverage, and sunblock that doesn&#x27;t hurt my eyes.</li>
+<li> Makes make up go on so smoothly</li>
+<li> I like how it makes my face act like a smooth canvas.</li>
+<li> Creates an even and smooth canvas.</li>
+<li> Although pricey, this tube will last for a while and is probably one of the best (have been using many high-end brands but always go back to this one).</li>
+<li> This is pricey however well worth the money!</li>
+<li> You can use it as a light makeup in a pinch to even your skin tone when running around if you don&#x27;t want to go full force.</li>
+<li> Love using covers really well</li>
+<li> Perfect alone when you just want a little something, and works very well with foundation or tinted moisturizer.  </li>
+<li> (my opinion) fairly quickly after I&#x27;ve put my make up on.</li>
+<li> Can be worn alone or underneath foundation for a long lasting flawless complexion.</li>
+<li> You still need to put a light moisturizer on first, as it is not enough on its own.</li>
+<li> This is by far my favorite primer.  </li>
+<li> It is well worth the money.  </li>
+<li> will most likely just use it when I&#x27;m more conscious of an event I&#x27;m going to with how I want my make</li>
+<li> I was amazed how much improvement in the finished look it helped achieve!</li>
+<li> I really like the way the primer feels and blends in with my skin tone.</li>
+<li> Unfortunately the scent is far to &#x27;perfume&#x27; like for me, and I usually am okay with most scents.</li>
+<li> it does wonders for my mature skin.  </li>
+<li> I absolutely adore this skin primer and use it every single day.  </li>
+<li> My only complaint is that the very small tube goes quickly, and it&#x27;s pricey!  </li>
+<li> Although you don&#x27;t have to use very much, I think this is still expensive so</li>
+<li> The primer is a little bit oily than expected.</li>
+<li> Little goes a long way, I use it everyday and one tube will last me at least 6 weeks or so.</li>
+<li> It is tinted so it gives you a little sunkissed glow with SPF 30.  </li>
+<li> So it won&#x27;t be an everyday product for me</li>
+<li> Been using Dermalogica for a few months.&lt;br /&gt;I</li>
+<li> I use this everyday, and appreciate that it has SPF.</li>
+<li> This little tube lasted me at least 4 months.  </li>
+<li> When applying, use a very small amount.  </li>
+<li> If it were less expensive, I would keep this in stock forever!</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> This primer is amazing.  It is tinted so it gives you a little sunkissed glow with SPF 30.  You still need to put a light moisturizer on first, as it is not enough on its own. When applying, use a very small amount.  This little tube lasted me at least 4 months.  I also put it on my eyelids and my makeup looks set all day with no smudging in the creases.  You can use it as a light makeup in a pinch to even your skin tone when running around if you don&#x27;t want to go full force.</li>
+    <li> Love this! Makes make up go on so smoothly</li>
+    <li> I love the product. I can see the difference when I use it</li>
+    <li> Although pricey, this tube will last for a while and is probably one of the best (have been using many high-end brands but always go back to this one). Creates an even and smooth canvas. Can be worn alone or underneath foundation for a long lasting flawless complexion.</li>
+    <li> This is so awesome for under your makeup or just to wear alone.</li>
+    <li> Love using covers really well</li>
+    <li> This is by far my favorite primer.  i have tried them all and always end up going back to dermalogica.  it does wonders for my mature skin.  Hides a multitude of issues -- wrinkles, discoloration etc. while keeping my foundation in place for hours. This is pricey however well worth the money!</li>
+    <li> Feel the &amp;#34;smoothing&amp;#34; effect! Will purchase again.</li>
+    <li> This primer is AMAZING!  Goes on so smoothly, blends in perfectly, keeps the skin moisturized, and can be used in place of a foundation, if you want a light, dewy look.  My only complaint is that the very small tube goes quickly, and it&#x27;s pricey!  If it were less expensive, I would keep this in stock forever!</li>
+    <li> I absolutely adore this skin primer and use it every single day.  It makes me feel beautiful and younger.  I have been using it for years.  Thank you thank your thank you for this!!!  judy katz</li>
+    <li> My favorite primer. It evens skin tone, provides a &amp;#34;lit from within&amp;#34; look with the pearl powder + mineral sunscreen.</li>
+    <li> Product gives a very nice pearly sheen to the face.</li>
+    <li> It has a bit of smell ,though it was written it does not... The primer is a little bit oily than expected.</li>
+    <li> Will definitely purchase again.</li>
+    <li> Been using Dermalogica for a few months.&lt;br /&gt;I dont wear a lot of make-up, so this is perfect for daytime on top of my moisturiser.&lt;br /&gt;Leaves my skin looking bright all day and evens out any blemishes.</li>
+    <li> love all dermalogica products.</li>
+    <li> I really like the way the primer feels and blends in with my skin tone. I have received compliments from my friends saying that my skin looks so good. I have my best friend using the primer now.</li>
+    <li> I love it! I use this everyday, and appreciate that it has SPF. It&#x27;s nice to find it for a reduced price on Amazon.</li>
+    <li> Love this product! Delivered on time!</li>
+    <li> I highly recommend this excellent product that provides safe SPF protection, with a superb moisture barrier. Another plus is how beautifully it evens out my skin tone,  goes on like butter. One of my favorite treatments in my skin care regime!</li>
+    <li> I received this as a sample and fell in love with it.  Its the best face primer I&#x27;ve found! It is well worth the money.  Little goes a long way, I use it everyday and one tube will last me at least 6 weeks or so. I&#x27;m thinking of changing my entire line to Dermalogica.</li>
+    <li> Gives a flawless appearance!</li>
+    <li> Just a light layer of coverage, and sunblock that doesn&#x27;t hurt my eyes. Goes on very smoothly and quickly -</li>
+    <li> I like how it makes my face act like a smooth canvas. Makeup simply glides on. I was amazed how much improvement in the finished look it helped achieve!</li>
+    <li> Perfect alone when you just want a little something, and works very well with foundation or tinted moisturizer.  Nice finish, no breakouts.</li>
+    <li> Does seem to be good with smoothing out your skin before application of make-up.  Unfortunately the scent is far to &#x27;perfume&#x27; like for me, and I usually am okay with most scents. I still put up with it since I like the product and the scent goes away (my opinion) fairly quickly after I&#x27;ve put my make up on. Although you don&#x27;t have to use very much, I think this is still expensive so will most likely just use it when I&#x27;m more conscious of an event I&#x27;m going to with how I want my make up/skin to look. So it won&#x27;t be an everyday product for me but it&#x27;s a nice to have when I need it.</li>
+    <li> I only use dermalogica products and have been using them for years.  They are light on your skin and do a wonderful job nourishing your skin.  I will not be giving up their products anytime soon!</li>
+    <li> No Foundation needed....this is from heaven !</li>
+    <li> My favorite product EVER!</li>
+    <li> I love this product!  I have combination skin and it never makes me break out!!  The only primer I can use!!</li>
+    <li> This is a great product!  Goes on very smoothly and evenly.</li>
+</ol>
+
+
+
+

@@ -3,8 +3,8 @@ title: Waterpik Complete Care Water Flosser and Sonic Toothbrush,
 description: Waterpik Complete Care Water Flosser and Sonic Toothbrush,
 author: Suvojit Manna,
 tags: Waterpik Complete Care Water Flosser and Sonic Toothbrush,
-publishedAt: Thu Jan 09 2020 19:08:39 GMT+0530 (India Standard Time),
-modifiedAt: Thu Jan 09 2020 19:08:39 GMT+0530 (India Standard Time),
+publishedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
 ---
 
 # [Waterpik Complete Care Water Flosser and Sonic Toothbrush](https://products.checkmycream.com/products/Waterpik-Complete-Care-Water-Flosser-and-Sonic-Toothbrush.html)
@@ -12,211 +12,211 @@ modifiedAt: Thu Jan 09 2020 19:08:39 GMT+0530 (India Standard Time),
 ### Positive Reviews
 
 <ol>
-      <li>great product!!!!!!!!!</li>
-      <li>Excellent for oral hygiene .</li>
       <li>Works great!</li>
+      <li>great product!!!!!!!!!</li>
+      <li>This is great for now, however!</li>
+      <li>A great, space saving device!</li>
+      <li>Awesome product!</li>
+      <li>Excellent for oral hygiene .</li>
+      <li>on time arrival, excellent brush  </li>
+      <li>I&#x27;m very happy with my purchase.</li>
+      <li>Best checkup ever at the dentist.  </li>
+      <li>This, however, works perfectly!</li>
+      <li>Excellent product.</li>
+      <li>Excellent quality also.</li>
+      <li>Wonderful!</li>
+      <li>The combination is wonderful!  </li>
+      <li>My dental hygienist is impressed.</li>
+      <li>Awesome!!!</li>
+      <li>The toothbrush is excellent and the water pik met all expectations</li>
+      <li>It was an excellent price and came on time and in perfect condition.</li>
+      <li>Excellent product.</li>
+      <li>Excellent product and my wife loves it !!</li>
+      <li>My dentist is very happy with my results.</li>
+      <li>so I feel that I&#x27;m recommending the best for your home care.</li>
+      <li>How awesome!</li>
+      <li>It really is awesome.</li>
+      <li>The toothbrush is awesome and has timers for each quadrant of your mouth.</li>
+      <li>This is the best thing I&#x27;ve ever purchased.</li>
+      <li>My dentist recommended that I buy a Waterpik flosser for my family because it is the best way to get kids (mine are teenagers, 15 and 17, a boy and a girl) to floss.&lt;br /&gt;&lt;br</li>
+      <li>Works great!</li>
+      <li>best purchase ever , works well.</li>
+      <li>wourks great!</li>
+      <li>toothbrush is awesome.</li>
+      <li>the best toothbrush and water pick ever.</li>
+      <li>This is a great combination!  </li>
+      <li>Excellent product thank you</li>
+      <li>Great results!</li>
+      <li>This combo Irrigator / Sonic Tooth Brush is the best I have ever used on both levels. .</li>
+      <li>OMG, the BEST purchase I have made for myself and my son this year!!!  </li>
+      <li>, the best price I have seen anywhere as well. .</li>
+      <li>This might be the best product I&#x27;ve ever used.</li>
+      <li>The quality is excellent.</li>
+      <li>Been using Waterpik for years and this is the best.</li>
+      <li>Works great!</li>
+      <li>excellent.  </li>
+      <li>Not too impressed witht he water Pick</li>
+      <li>This thing is AWESOME!!!</li>
+      <li>Excellent product!!!!!</li>
+      <li>Covered section for storing all tooth brush heads &amp; picks is excellent sanitary design feature.</li>
+      <li>This thing is awesome.  </li>
+      <li>The waterpik design and storage are the best waterpik ever.</li>
+      <li>Best deal ever.</li>
+      <li>It&#x27;s awesome!</li>
+      <li>Its the best..  </li>
+      <li>This is a wonderful product.</li>
+      <li>Gum massages are the best!</li>
       <li>Ora Hygiene at it&#x27;s best.</li>
+      <li>Excellent customer service!!</li>
+      <li>The best part of this set is that the toothbrush feels wonderful on my gums.  </li>
+      <li>This is a wonderful item to have for my son to use with his braces.</li>
+      <li>I am very happy with this product.  </li>
+      <li>This combination is a marvelous idea.  </li>
+      <li>Wonderful product.  </li>
+      <li>But this one is AWESOME!  </li>
+      <li>Very happy with it.</li>
+      <li>It is perfect...</li>
+      <li>I needed a sonic care type toothbrush and my husband&#x27;s dentist told him he needed a waterpick so this was a perfect solution for us.</li>
+      <li>Awesome.</li>
+      <li>Very happy and smiling!:D</li>
+      <li>Excellent product!</li>
+      <li>Best price and design</li>
+      <li>excellent, that was recomended by my odonthologist</li>
+      <li>This is the best ever .....</li>
+      <li>Great!!!!</li>
+      <li>It works great!  </li>
+      <li>Wonderful, one of the best toothbrushes and water piks</li>
+      <li>Telling you this thing is the best mouth care item I ever purchased.</li>
+      <li>Great!</li>
+      <li>I have to say it is the best!!</li>
+      <li>I&#x27;d say this model is the best of the three.</li>
+      <li>This combo is great!  </li>
+      <li>The water flosser is wonderful and have noticed my gums no longer are tender.</li>
       <li>Great combo package deal!</li>
+      <li>Flosser + sonic brush at a great price!</li>
       <li>Awesome machine.  </li>
+      <li>My dental hygenist recommended setting the intensity midway for the best results.  </li>
       <li>Delivered perfect and this duo works awesome.  </li>
       <li>excellent product.  </li>
+      <li>Best health investment I&#x27;ve made!</li>
       <li>So I did the best I could until I got this time.  </li>
-      <li>Excellent!  </li>
-      <li>Great deal!</li>
-      <li>This is the greatest oral hygiene device EVER!  </li>
-      <li>My teeth feel so awesome</li>
-      <li>I know now, from reading today the excellent manual that comes with this Model WP-900, that my Model WP-60W had a defective reservoir valve and the warranty would have covered replacing it.</li>
-      <li>/&gt;It arrived today, and I am extremely impressed.</li>
-      <li>Great product!</li>
-      <li>Best flossing and electronic brush array of attachments.</li>
-      <li>Perfect.</li>
-      <li>It is an excellent product.  </li>
-      <li>Excellent all-in-one product.</li>
-      <li>Best of the best.  </li>
-      <li>Besides that awesome product.</li>
-      <li>This is the best electric toothbrush I&#x27;ve ever used.</li>
-      <li>Best system I have used.  </li>
-      <li>Perfect gift for my husband.  </li>
-      <li>I was so happy to find this on Amazon - both things I needed in one!</li>
-      <li>The additional tips for the water pik are awesome too.</li>
-      <li>This is perfect in the cleaning process!  </li>
-      <li>Very happy with this purchase!</li>
-      <li>Wonderful product that performs as promised.</li>
-      <li>I&#x27;m not feeling real good about customer service, warranty or reliability of Water Pik products.</li>
-      <li>Great gift for Father&#x27;s Day!</li>
-      <li>When I purchased this was the best price out there.  </li>
-      <li>Awesome buy</li>
-      <li>It would be perfect, if the power adapter could be 100-240 globly adaptive.</li>
-      <li>The glosser works perfect but the toothbrush stops working in 2 months</li>
-      <li>The flosser is excellent and the brush as well.</li>
-      <li>It is perfect!!</li>
-      <li>Great power!!</li>
-      <li>tooth brush&#x27;s built-in time is a wonderful reminder.&lt;br /&gt;&lt;br</li>
-      <li>Works great cleaning them out under the wires!</li>
-      <li>It is the perfect oral care product.</li>
-      <li>Best purchase this year!</li>
-      <li>Arrived on time, excellent packaging.</li>
-      <li>Best part, after it was all over, almost no blood, and no visible bleeding!  </li>
-      <li>My dentist recommended that I buy a Waterpik flosser for my family because it is the best way to get kids (mine are teenagers, 15 and 17, a boy and a girl) to floss.&lt;br /&gt;&lt;br</li>
-      <li>Awesome product!</li>
-      <li>The toothbrush is excellent and the water pik met all expectations</li>
-      <li>the best toothbrush and water pick ever.</li>
-      <li>Been using Waterpik for years and this is the best.</li>
-      <li>Covered section for storing all tooth brush heads &amp; picks is excellent sanitary design feature.</li>
-      <li>The Waterpik WP- 900 is the best.</li>
-      <li>It came with 2 tooth brush heads also perfect for us.</li>
-      <li>Great product!</li>
-      <li>For good teeth !!</li>
-      <li>toothbrush is awesome!</li>
-      <li>I love this!!!!!</li>
-      <li>js awesome!</li>
-      <li>&#x3D;D</li>
-      <li>Toothbrush works  awesome and the water flosser is perfect for cleaning between teeth and gums.  </li>
-      <li>Excellent results.</li>
-      <li>My hygienist was impressed.</li>
-      <li>Wonderful product...highly recommend it!</li>
-      <li>I love my water pik!!!!  </li>
-      <li>But it&#x27;s wonderful</li>
-      <li>The spray does an excellent job of cleaning the area between the bridges and gums.</li>
-      <li>As I said it is a wonderful product</li>
-      <li>they had the best price with Prime 2 day shipping.</li>
-      <li>They each have one and they are GREAT with braces!!</li>
-      <li>It is perfect Water Flosser and Toothbrush.</li>
-      <li>Perfect for every day use!</li>
-      <li>great product!</li>
-      <li>Was an awesome toothbrush while it worked.</li>
-      <li>Perfect.</li>
-      <li>Best one made.</li>
-      <li>The water pick itself is awesome.</li>
-      <li>great product !</li>
-      <li>The best prevention care starts at home.</li>
-      <li>I have found that Waterpik makes the best water flosser.  </li>
-      <li>Works great!</li>
-      <li>Great product!</li>
-      <li>I am very happy with the mechanics of this product.</li>
-      <li>Best one I&#x27;ve ever owned</li>
-      <li>Especially great for my two bridges.</li>
-      <li>Very happy with this appliance.  </li>
-      <li>and it is still running great!</li>
-      <li>and I am very happy that I did.  </li>
-      <li>They work wonderfully with one exception:  </li>
-      <li>Very Happy with this.</li>
-      <li>so that you can take some time to develop the method of use that works best for you.  </li>
+      <li>Excellent.</li>
+      <li>This is a Great combination!</li>
       <li>Great job Waterpik!</li>
-      <li>Flosser + sonic brush at a great price!</li>
-      <li>I have to say it is the best!!</li>
-      <li>Telling you this thing is the best mouth care item I ever purchased.</li>
-      <li>This is the best ever .....</li>
-      <li>I needed a sonic care type toothbrush and my husband&#x27;s dentist told him he needed a waterpick so this was a perfect solution for us.</li>
-      <li>Wonderful product.  </li>
-      <li>I am very happy with this product.  </li>
-      <li>The waterpik design and storage are the best waterpik ever.</li>
-      <li>OMG, the BEST purchase I have made for myself and my son this year!!!  </li>
+      <li>price vs goods very good!</li>
+      <li>Arguably the best purchase of the year for me.</li>
+      <li>But for the price, I think they have probably done the best they could.</li>
+      <li>It is just perfect and what I was looking for.</li>
+      <li>The flosser is also perfect.</li>
+      <li>Getting used to the Waterpik part took about 4-5 times to get the hang of how to hold it without getting water splashed out of my mouth, but the feeling after is wonderful.</li>
+      <li>Very happy about this change to my brushing regiment!</li>
+      <li>Awesome price and just what we needed.  </li>
+      <li>This gadget is wonderful, does not take up a lotta space.  </li>
 </ol>
 
 
 <h2>Negative Reviews</h2>
 <ol>
-<li> great product!!!!!!!!!</li>
-<li> Excellent for oral hygiene .</li>
 <li> Works great!</li>
+<li> great product!!!!!!!!!</li>
+<li> This is great for now, however!</li>
+<li> A great, space saving device!</li>
+<li> Awesome product!</li>
+<li> Excellent for oral hygiene .</li>
+<li> on time arrival, excellent brush  </li>
+<li> I&#x27;m very happy with my purchase.</li>
+<li> Best checkup ever at the dentist.  </li>
+<li> This, however, works perfectly!</li>
+<li> Excellent product.</li>
+<li> Excellent quality also.</li>
+<li> Wonderful!</li>
+<li> The combination is wonderful!  </li>
+<li> My dental hygienist is impressed.</li>
+<li> Awesome!!!</li>
+<li> The toothbrush is excellent and the water pik met all expectations</li>
+<li> It was an excellent price and came on time and in perfect condition.</li>
+<li> Excellent product.</li>
+<li> Excellent product and my wife loves it !!</li>
+<li> My dentist is very happy with my results.</li>
+<li> so I feel that I&#x27;m recommending the best for your home care.</li>
+<li> How awesome!</li>
+<li> It really is awesome.</li>
+<li> The toothbrush is awesome and has timers for each quadrant of your mouth.</li>
+<li> This is the best thing I&#x27;ve ever purchased.</li>
+<li> My dentist recommended that I buy a Waterpik flosser for my family because it is the best way to get kids (mine are teenagers, 15 and 17, a boy and a girl) to floss.&lt;br /&gt;&lt;br</li>
+<li> Works great!</li>
+<li> best purchase ever , works well.</li>
+<li> wourks great!</li>
+<li> toothbrush is awesome.</li>
+<li> the best toothbrush and water pick ever.</li>
+<li> This is a great combination!  </li>
+<li> Excellent product thank you</li>
+<li> Great results!</li>
+<li> This combo Irrigator / Sonic Tooth Brush is the best I have ever used on both levels. .</li>
+<li> OMG, the BEST purchase I have made for myself and my son this year!!!  </li>
+<li> , the best price I have seen anywhere as well. .</li>
+<li> This might be the best product I&#x27;ve ever used.</li>
+<li> The quality is excellent.</li>
+<li> Been using Waterpik for years and this is the best.</li>
+<li> Works great!</li>
+<li> excellent.  </li>
+<li> Not too impressed witht he water Pick</li>
+<li> This thing is AWESOME!!!</li>
+<li> Excellent product!!!!!</li>
+<li> Covered section for storing all tooth brush heads &amp; picks is excellent sanitary design feature.</li>
+<li> This thing is awesome.  </li>
+<li> The waterpik design and storage are the best waterpik ever.</li>
+<li> Best deal ever.</li>
+<li> It&#x27;s awesome!</li>
+<li> Its the best..  </li>
+<li> This is a wonderful product.</li>
+<li> Gum massages are the best!</li>
 <li> Ora Hygiene at it&#x27;s best.</li>
+<li> Excellent customer service!!</li>
+<li> The best part of this set is that the toothbrush feels wonderful on my gums.  </li>
+<li> This is a wonderful item to have for my son to use with his braces.</li>
+<li> I am very happy with this product.  </li>
+<li> This combination is a marvelous idea.  </li>
+<li> Wonderful product.  </li>
+<li> But this one is AWESOME!  </li>
+<li> Very happy with it.</li>
+<li> It is perfect...</li>
+<li> I needed a sonic care type toothbrush and my husband&#x27;s dentist told him he needed a waterpick so this was a perfect solution for us.</li>
+<li> Awesome.</li>
+<li> Very happy and smiling!:D</li>
+<li> Excellent product!</li>
+<li> Best price and design</li>
+<li> excellent, that was recomended by my odonthologist</li>
+<li> This is the best ever .....</li>
+<li> Great!!!!</li>
+<li> It works great!  </li>
+<li> Wonderful, one of the best toothbrushes and water piks</li>
+<li> Telling you this thing is the best mouth care item I ever purchased.</li>
+<li> Great!</li>
+<li> I have to say it is the best!!</li>
+<li> I&#x27;d say this model is the best of the three.</li>
+<li> This combo is great!  </li>
+<li> The water flosser is wonderful and have noticed my gums no longer are tender.</li>
 <li> Great combo package deal!</li>
+<li> Flosser + sonic brush at a great price!</li>
 <li> Awesome machine.  </li>
+<li> My dental hygenist recommended setting the intensity midway for the best results.  </li>
 <li> Delivered perfect and this duo works awesome.  </li>
 <li> excellent product.  </li>
+<li> Best health investment I&#x27;ve made!</li>
 <li> So I did the best I could until I got this time.  </li>
-<li> Excellent!  </li>
-<li> Great deal!</li>
-<li> This is the greatest oral hygiene device EVER!  </li>
-<li> My teeth feel so awesome</li>
-<li> I know now, from reading today the excellent manual that comes with this Model WP-900, that my Model WP-60W had a defective reservoir valve and the warranty would have covered replacing it.</li>
-<li> /&gt;It arrived today, and I am extremely impressed.</li>
-<li> Great product!</li>
-<li> Best flossing and electronic brush array of attachments.</li>
-<li> Perfect.</li>
-<li> It is an excellent product.  </li>
-<li> Excellent all-in-one product.</li>
-<li> Best of the best.  </li>
-<li> Besides that awesome product.</li>
-<li> This is the best electric toothbrush I&#x27;ve ever used.</li>
-<li> Best system I have used.  </li>
-<li> Perfect gift for my husband.  </li>
-<li> I was so happy to find this on Amazon - both things I needed in one!</li>
-<li> The additional tips for the water pik are awesome too.</li>
-<li> This is perfect in the cleaning process!  </li>
-<li> Very happy with this purchase!</li>
-<li> Wonderful product that performs as promised.</li>
-<li> I&#x27;m not feeling real good about customer service, warranty or reliability of Water Pik products.</li>
-<li> Great gift for Father&#x27;s Day!</li>
-<li> When I purchased this was the best price out there.  </li>
-<li> Awesome buy</li>
-<li> It would be perfect, if the power adapter could be 100-240 globly adaptive.</li>
-<li> The glosser works perfect but the toothbrush stops working in 2 months</li>
-<li> The flosser is excellent and the brush as well.</li>
-<li> It is perfect!!</li>
-<li> Great power!!</li>
-<li> tooth brush&#x27;s built-in time is a wonderful reminder.&lt;br /&gt;&lt;br</li>
-<li> Works great cleaning them out under the wires!</li>
-<li> It is the perfect oral care product.</li>
-<li> Best purchase this year!</li>
-<li> Arrived on time, excellent packaging.</li>
-<li> Best part, after it was all over, almost no blood, and no visible bleeding!  </li>
-<li> My dentist recommended that I buy a Waterpik flosser for my family because it is the best way to get kids (mine are teenagers, 15 and 17, a boy and a girl) to floss.&lt;br /&gt;&lt;br</li>
-<li> Awesome product!</li>
-<li> The toothbrush is excellent and the water pik met all expectations</li>
-<li> the best toothbrush and water pick ever.</li>
-<li> Been using Waterpik for years and this is the best.</li>
-<li> Covered section for storing all tooth brush heads &amp; picks is excellent sanitary design feature.</li>
-<li> The Waterpik WP- 900 is the best.</li>
-<li> It came with 2 tooth brush heads also perfect for us.</li>
-<li> Great product!</li>
-<li> For good teeth !!</li>
-<li> toothbrush is awesome!</li>
-<li> I love this!!!!!</li>
-<li> js awesome!</li>
-<li> &#x3D;D</li>
-<li> Toothbrush works  awesome and the water flosser is perfect for cleaning between teeth and gums.  </li>
-<li> Excellent results.</li>
-<li> My hygienist was impressed.</li>
-<li> Wonderful product...highly recommend it!</li>
-<li> I love my water pik!!!!  </li>
-<li> But it&#x27;s wonderful</li>
-<li> The spray does an excellent job of cleaning the area between the bridges and gums.</li>
-<li> As I said it is a wonderful product</li>
-<li> they had the best price with Prime 2 day shipping.</li>
-<li> They each have one and they are GREAT with braces!!</li>
-<li> It is perfect Water Flosser and Toothbrush.</li>
-<li> Perfect for every day use!</li>
-<li> great product!</li>
-<li> Was an awesome toothbrush while it worked.</li>
-<li> Perfect.</li>
-<li> Best one made.</li>
-<li> The water pick itself is awesome.</li>
-<li> great product !</li>
-<li> The best prevention care starts at home.</li>
-<li> I have found that Waterpik makes the best water flosser.  </li>
-<li> Works great!</li>
-<li> Great product!</li>
-<li> I am very happy with the mechanics of this product.</li>
-<li> Best one I&#x27;ve ever owned</li>
-<li> Especially great for my two bridges.</li>
-<li> Very happy with this appliance.  </li>
-<li> and it is still running great!</li>
-<li> and I am very happy that I did.  </li>
-<li> They work wonderfully with one exception:  </li>
-<li> Very Happy with this.</li>
-<li> so that you can take some time to develop the method of use that works best for you.  </li>
+<li> Excellent.</li>
+<li> This is a Great combination!</li>
 <li> Great job Waterpik!</li>
-<li> Flosser + sonic brush at a great price!</li>
-<li> I have to say it is the best!!</li>
-<li> Telling you this thing is the best mouth care item I ever purchased.</li>
-<li> This is the best ever .....</li>
-<li> I needed a sonic care type toothbrush and my husband&#x27;s dentist told him he needed a waterpick so this was a perfect solution for us.</li>
-<li> Wonderful product.  </li>
-<li> I am very happy with this product.  </li>
-<li> The waterpik design and storage are the best waterpik ever.</li>
-<li> OMG, the BEST purchase I have made for myself and my son this year!!!  </li>
+<li> price vs goods very good!</li>
+<li> Arguably the best purchase of the year for me.</li>
+<li> But for the price, I think they have probably done the best they could.</li>
+<li> It is just perfect and what I was looking for.</li>
+<li> The flosser is also perfect.</li>
+<li> Getting used to the Waterpik part took about 4-5 times to get the hang of how to hold it without getting water splashed out of my mouth, but the feeling after is wonderful.</li>
+<li> Very happy about this change to my brushing regiment!</li>
+<li> Awesome price and just what we needed.  </li>
+<li> This gadget is wonderful, does not take up a lotta space.  </li>
 </ol>
 
 <h2>All Reviews</h2>
@@ -1758,6 +1758,7 @@ modifiedAt: Thu Jan 09 2020 19:08:39 GMT+0530 (India Standard Time),
     <li> This is the second unit I&#x27;ve purchased. I take very good care of my teeth and can&#x27;t imagine not having this. After using this for a short time my teeth felt cleaner then right after a dentist visit. I purchased a portable flosser and toothbrush to use in our RV, but after 10 days my teeth just didn&#x27;t feel very clean. So I purchased this identical unit for the camper. My teeth and gums have never been healthier and dentist cleanings are a breeze. I highly recommend this product!</li>
     <li> very nice experience, to protect my teeth very well</li>
 </ol>
+
 
 
 

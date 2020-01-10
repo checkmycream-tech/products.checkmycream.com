@@ -1,0 +1,115 @@
+---
+title: Soft &#x27;N Style Sure Grip Roller Flat Pack, 144 Assorted Rollers,
+description: Soft &#x27;N Style Sure Grip Roller Flat Pack, 144 Assorted Rollers,
+author: Suvojit Manna,
+tags: Soft &#x27;N Style Sure Grip Roller Flat Pack, 144 Assorted Rollers,
+publishedAt: Fri Jan 10 2020 14:59:11 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:59:11 GMT+0530 (India Standard Time),
+---
+
+# [Soft &#x27;N Style Sure Grip Roller Flat Pack, 144 Assorted Rollers](https://products.checkmycream.com/products/Soft-&#x27;N-Style-Sure-Grip-Roller-Flat-Pack-144-Assorted-Rollers.html)
+
+### Positive Reviews
+
+<ol>
+      <li>I used this product and was very happy with the results.</li>
+      <li>Very happy customer!</li>
+      <li>clips which hold them perfectly, even overnight.</li>
+      <li>These are the type of rollers I use to curl my hair perfectly.  </li>
+      <li>very good.</li>
+      <li>and they work great.  </li>
+      <li>Besides that great product.</li>
+      <li>Work great and price was good.</li>
+      <li>Love these rollers!</li>
+      <li>They did an amazing job.</li>
+      <li>Had a nice variety of sizes to choose from.would recommend this product to my friends.</li>
+      <li>Love that they grip the hair.</li>
+      <li>and I must say that I love them.</li>
+      <li>they are not sure-grip, slip right out of your hair and do not come with any kind of clip to hold in place.  </li>
+      <li>And when I did put them in my hair with my own clips, they did absolutely nothing.  </li>
+      <li>They look and feel cheap.</li>
+      <li>I am ordering some more so that I can have enough to curl my hair the way I want t.  </li>
+      <li>That&#x27;s entirely my fault, though, as I knew they were self gripping but</li>
+      <li>Has made my roller sets much easier to roll and the hair do not snag.</li>
+      <li>I really regret buying these.</li>
+      <li>this product is not what i expected, there not grip rollers i havent been able to use them becaue they fall out</li>
+      <li>cause she have curly hair and this ones really grip to the hair, are confortable wearing,&lt;br /&gt;quality</li>
+      <li>hoped the spokes would be made from nylon or a soft plastic.</li>
+      <li>Shipped fast lots of sizes for my hair and different styles</li>
+      <li>Exactly what I wanted and expected.</li>
+      <li>These are around what you expect but be aware that the short ones are really short (maybe an inch long or so) while the long ones are pretty average lengths for rollers.</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> I used this product and was very happy with the results.</li>
+<li> Very happy customer!</li>
+<li> clips which hold them perfectly, even overnight.</li>
+<li> These are the type of rollers I use to curl my hair perfectly.  </li>
+<li> very good.</li>
+<li> and they work great.  </li>
+<li> Besides that great product.</li>
+<li> Work great and price was good.</li>
+<li> Love these rollers!</li>
+<li> They did an amazing job.</li>
+<li> Had a nice variety of sizes to choose from.would recommend this product to my friends.</li>
+<li> Love that they grip the hair.</li>
+<li> and I must say that I love them.</li>
+<li> they are not sure-grip, slip right out of your hair and do not come with any kind of clip to hold in place.  </li>
+<li> And when I did put them in my hair with my own clips, they did absolutely nothing.  </li>
+<li> They look and feel cheap.</li>
+<li> I am ordering some more so that I can have enough to curl my hair the way I want t.  </li>
+<li> That&#x27;s entirely my fault, though, as I knew they were self gripping but</li>
+<li> Has made my roller sets much easier to roll and the hair do not snag.</li>
+<li> I really regret buying these.</li>
+<li> this product is not what i expected, there not grip rollers i havent been able to use them becaue they fall out</li>
+<li> cause she have curly hair and this ones really grip to the hair, are confortable wearing,&lt;br /&gt;quality</li>
+<li> hoped the spokes would be made from nylon or a soft plastic.</li>
+<li> Shipped fast lots of sizes for my hair and different styles</li>
+<li> Exactly what I wanted and expected.</li>
+<li> These are around what you expect but be aware that the short ones are really short (maybe an inch long or so) while the long ones are pretty average lengths for rollers.</li>
+<li> These had a very cheap feel when they arrived and felt dusty and a little oily.</li>
+<li> I have long hair so these did not work for me, they would work for women with short hair.</li>
+<li> I expected larger rollers to..</li>
+<li> Roller are smaller than I expected, some are half the size they appear in the photo.  </li>
+<li> stay on the haie, no real problems</li>
+<li> oblong shaped they worked but ee not as expected.</li>
+<li> I can&#x27;t use them, however, because the outsides have these sharp points that make me hesitate to wrap my delicate, curly hair properly.</li>
+<li> So if you have curly hair and intend to use these to straighten (basically, if you need to wrap your hair tightly)</li>
+<li> These are a waste of money</li>
+<li> I&#x27;m an amateur hair roller, so I guess they serve the purpose.</li>
+<li> Not sure if I&#x27;ll return them or just give them to a cousin.</li>
+<li> I was disappointed when i received these rollers; they are designed for people with short hair.</li>
+<li> Not happy with the product at all, although they don&#x27;t grip, they also don&#x27;t fulfill their purpose.</li>
+<li> Don&#x27;t waste your money, otherwise you&#x27;ll end up like me: extremely disappointed.</li>
+<li> the shape of the roller was weird.</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> Love that they grip the hair. Has made my roller sets much easier to roll and the hair do not snag.</li>
+    <li> Just like the beauty shop and plenty of sizes to choose from.  Use 1 1/2&amp;#34; clips which hold them perfectly, even overnight.</li>
+    <li> Exactly what I wanted and expected. Very happy customer!</li>
+    <li> I wish I would&#x27;ve paid attention to the reviews when I purchased these. They DO NOT grip your hair. They look and feel cheap. I really regret buying these. If you&#x27;re looking for the Velcro self grip type of rollers, these are not it. Not happy with the product at all, although they don&#x27;t grip, they also don&#x27;t fulfill their purpose. Don&#x27;t waste your money, otherwise you&#x27;ll end up like me: extremely disappointed.</li>
+    <li> Shipped fast lots of sizes for my hair and different styles</li>
+    <li> These are the type of rollers I use to curl my hair perfectly.  I am ordering some more so that I can have enough to curl my hair the way I want t.  There is every size I need in the box Thank you.</li>
+    <li> they are not sure-grip, slip right out of your hair and do not come with any kind of clip to hold in place.  And when I did put them in my hair with my own clips, they did absolutely nothing.  I have used the self-grip rollers with brush inside and they work great.  These are a waste of money</li>
+    <li> These are around what you expect but be aware that the short ones are really short (maybe an inch long or so) while the long ones are pretty average lengths for rollers. I can&#x27;t use them, however, because the outsides have these sharp points that make me hesitate to wrap my delicate, curly hair properly. That&#x27;s entirely my fault, though, as I knew they were self gripping but hoped the spokes would be made from nylon or a soft plastic. So if you have curly hair and intend to use these to straighten (basically, if you need to wrap your hair tightly) I recommend you keep looking. Not sure if I&#x27;ll return them or just give them to a cousin.</li>
+    <li> comes with aloooottt of pieces all types of hair length and thickness can use these. stay on the haie, no real problems</li>
+    <li> Love these rollers! I purchased these rollers for a blow out and I must say that I love them. They did an amazing job.</li>
+    <li> this product is not what i expected, there not grip rollers i havent been able to use them becaue they fall out they dont even stay in place</li>
+    <li> I expected larger rollers to.. Besides that great product.</li>
+    <li> Roller are smaller than I expected, some are half the size they appear in the photo.  I&#x27;m an amateur hair roller, so I guess they serve the purpose.</li>
+    <li> These had a very cheap feel when they arrived and felt dusty and a little oily. I gave them away.</li>
+    <li> oblong shaped they worked but ee not as expected. I did like the teeth onthem bt the shape of the roller was weird.</li>
+    <li> I used this product and was very happy with the results. Had a nice variety of sizes to choose from.would recommend this product to my friends. Cynthia Atwood</li>
+    <li> Work great and price was good.</li>
+    <li> im using this on my 2y cause she have curly hair and this ones really grip to the hair, are confortable wearing,&lt;br /&gt;quality very good.</li>
+    <li> I was disappointed when i received these rollers; they are designed for people with short hair. I have long hair so these did not work for me, they would work for women with short hair.</li>
+</ol>
+
+
+
+

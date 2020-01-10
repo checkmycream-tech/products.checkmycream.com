@@ -1,0 +1,177 @@
+---
+title: Body Fantasies Signature Cotton Candy for Women, 3 Pcs Gift Set,
+description: Body Fantasies Signature Cotton Candy for Women, 3 Pcs Gift Set,
+author: Suvojit Manna,
+tags: Body Fantasies Signature Cotton Candy for Women, 3 Pcs Gift Set,
+publishedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
+---
+
+# [Body Fantasies Signature Cotton Candy for Women, 3 Pcs Gift Set](https://products.checkmycream.com/products/Body-Fantasies-Signature-Cotton-Candy-for-Women-3-Pcs-Gift-Set.html)
+
+### Positive Reviews
+
+<ol>
+      <li>This is my favorite!!!!!!!</li>
+      <li>This is sooo delicious!</li>
+      <li>Smells just like cotton candy, the body wash is awesome, the spray isnt to overbearing, and the lotion smells awesome.</li>
+      <li>Smells great!</li>
+      <li>Wasn&#x27;t very happy with the smell</li>
+      <li>Smells amazing!!!!!!!</li>
+      <li>I was using an aerosol cotton candy perfume from Walmart that was $3, smelled incredible and then disappeared.</li>
+      <li>Smells just like spun sugar at the fair!</li>
+      <li>Bought it as a gift but then had to order for myself because it smelled so good!</li>
+      <li>The lotion is very good texture and moisture wise, but the smell was so NOT cotton candy.</li>
+      <li>Great value with the 3 pieces.</li>
+      <li>lol</li>
+      <li>Great product.</li>
+      <li>Great price.</li>
+      <li>Happy with scent</li>
+      <li>Great deal for all three.  </li>
+      <li>and I&#x27;m good to go.</li>
+      <li>This was a good pried package and gift</li>
+      <li>It smells really good.</li>
+      <li>The cotton candy smells wonderful,, delivery was quick,</li>
+      <li>I get so many compliments on this fragrance!  </li>
+      <li>Love the Cotton Candy for my girlfriend!</li>
+      <li>Perfect cotton candy smell while still being clean and sweet!</li>
+      <li>Love this gift set smells so good ...</li>
+      <li>The lotion is nice and not oily/sticky.</li>
+      <li>/&gt;It also came in a cute bag that was inside the box.&lt;br /&gt;Also</li>
+      <li>Love the cotton candy body spray.</li>
+      <li>but it was okay.</li>
+      <li>Love all 3 items.</li>
+      <li>If you love the smell of cotton candy this is for you!&lt;br /&gt;it smells</li>
+      <li>I LOVE CANDY</li>
+      <li>It smelled more like grape koolaid.</li>
+      <li>Fast shipping I love it!!</li>
+      <li>I wasn&#x27;t sure how this would smell but for that price it was worth trying.&lt;br /&gt;&lt;br /&gt;Well</li>
+      <li>When she opened her present this morning she was so happy.</li>
+      <li>It smells just like cotton candy and is truly a treat worth ordering!</li>
+      <li>Lotion is creamy but light and absorbs quickly.  </li>
+      <li>The bodywash is delightfully sweet and lathers well.</li>
+      <li>I SMELL SWEET</li>
+      <li>Lucky me.  </li>
+      <li>The body wash, lotion and body spray all smell incredible and last through the day and even into the next day.</li>
+      <li>RIGHT OUT</li>
+      <li>Nothing worked  but this lotion  is wonderful, thick but not greasy, it leaves my skin so soft.</li>
+      <li>Very fast delivery.</li>
+      <li>Thank you vyer much!</li>
+      <li>Smells great, long lasting scent.</li>
+      <li>Im definitely buying more of this when it runs out.</li>
+      <li>I have used this scent, along with their vanilla scent, for many years and will continue to do so as long as they make it.  </li>
+      <li>The whole set.  </li>
+      <li>I have very ashy skin and have tried everything.</li>
+      <li>and i really smell like cotton candy</li>
+      <li>I like strong,  long lasting scents.  </li>
+      <li>I was pleasantly surprised.</li>
+      <li>but the general scent had dissipated by then.</li>
+      <li>Thought (or hoped ) it would smell like Victoria&#x27;s Secret &amp;#34; Candy, Baby&amp;#34; but it smells more like kids cough syrup ,A BIG YUCK!!!!!</li>
+      <li>I was completely shocked as to how much product I received as far as how many ounces in fragrance.</li>
+      <li>This is hard to find and I got so lucky to find this on Amazon.  </li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> This is my favorite!!!!!!!</li>
+<li> This is sooo delicious!</li>
+<li> Smells just like cotton candy, the body wash is awesome, the spray isnt to overbearing, and the lotion smells awesome.</li>
+<li> Smells great!</li>
+<li> Wasn&#x27;t very happy with the smell</li>
+<li> Smells amazing!!!!!!!</li>
+<li> I was using an aerosol cotton candy perfume from Walmart that was $3, smelled incredible and then disappeared.</li>
+<li> Smells just like spun sugar at the fair!</li>
+<li> Bought it as a gift but then had to order for myself because it smelled so good!</li>
+<li> The lotion is very good texture and moisture wise, but the smell was so NOT cotton candy.</li>
+<li> Great value with the 3 pieces.</li>
+<li> lol</li>
+<li> Great product.</li>
+<li> Great price.</li>
+<li> Happy with scent</li>
+<li> Great deal for all three.  </li>
+<li> and I&#x27;m good to go.</li>
+<li> This was a good pried package and gift</li>
+<li> It smells really good.</li>
+<li> The cotton candy smells wonderful,, delivery was quick,</li>
+<li> I get so many compliments on this fragrance!  </li>
+<li> Love the Cotton Candy for my girlfriend!</li>
+<li> Perfect cotton candy smell while still being clean and sweet!</li>
+<li> Love this gift set smells so good ...</li>
+<li> The lotion is nice and not oily/sticky.</li>
+<li> /&gt;It also came in a cute bag that was inside the box.&lt;br /&gt;Also</li>
+<li> Love the cotton candy body spray.</li>
+<li> but it was okay.</li>
+<li> Love all 3 items.</li>
+<li> If you love the smell of cotton candy this is for you!&lt;br /&gt;it smells</li>
+<li> I LOVE CANDY</li>
+<li> It smelled more like grape koolaid.</li>
+<li> Fast shipping I love it!!</li>
+<li> I wasn&#x27;t sure how this would smell but for that price it was worth trying.&lt;br /&gt;&lt;br /&gt;Well</li>
+<li> When she opened her present this morning she was so happy.</li>
+<li> It smells just like cotton candy and is truly a treat worth ordering!</li>
+<li> Lotion is creamy but light and absorbs quickly.  </li>
+<li> The bodywash is delightfully sweet and lathers well.</li>
+<li> I SMELL SWEET</li>
+<li> Lucky me.  </li>
+<li> The body wash, lotion and body spray all smell incredible and last through the day and even into the next day.</li>
+<li> RIGHT OUT</li>
+<li> Nothing worked  but this lotion  is wonderful, thick but not greasy, it leaves my skin so soft.</li>
+<li> Very fast delivery.</li>
+<li> Thank you vyer much!</li>
+<li> Smells great, long lasting scent.</li>
+<li> Im definitely buying more of this when it runs out.</li>
+<li> I have used this scent, along with their vanilla scent, for many years and will continue to do so as long as they make it.  </li>
+<li> The whole set.  </li>
+<li> I have very ashy skin and have tried everything.</li>
+<li> and i really smell like cotton candy</li>
+<li> I like strong,  long lasting scents.  </li>
+<li> I was pleasantly surprised.</li>
+<li> but the general scent had dissipated by then.</li>
+<li> Thought (or hoped ) it would smell like Victoria&#x27;s Secret &amp;#34; Candy, Baby&amp;#34; but it smells more like kids cough syrup ,A BIG YUCK!!!!!</li>
+<li> I was completely shocked as to how much product I received as far as how many ounces in fragrance.</li>
+<li> This is hard to find and I got so lucky to find this on Amazon.  </li>
+<li> The scent doesn&#x27;t last very long.</li>
+<li> This product came a day earlier than expected and it shipped fast.&lt;br</li>
+<li> A LITTLE VASELINE</li>
+<li> No lucky her!!!!!</li>
+<li> So disappointed!</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> This is my favorite!!!!!!! Perfect cotton candy smell while still being clean and sweet! It&#x27;s sprayed all over me and my room! LOOOOVVVEE IT!!!!!!!</li>
+    <li> Oh man! If you love the smell of cotton candy this is for you!&lt;br /&gt;it smells so yummy I want to eat it lol</li>
+    <li> Smells like strawberry Skittles not cotton candy. The scent doesn&#x27;t last very long.</li>
+    <li> Was worried the smell would be too &amp;#34;fake&amp;#34;. After receiving this the smell was just what I was expecting! It smells really good.</li>
+    <li> Like the smell for my wife. This was a good pried package and gift</li>
+    <li> Love this gift set smells so good ...</li>
+    <li> Smells amazing!!!!!!! Bought it as a gift but then had to order for myself because it smelled so good!</li>
+    <li> So disappointed! It smelled more like grape koolaid. The lotion is very good texture and moisture wise, but the smell was so NOT cotton candy.</li>
+    <li> Wasn&#x27;t very happy with the smell but it was okay.</li>
+    <li> This really smells like cotton candy, I wear it everyday. Im definitely buying more of this when it runs out. Plus you can&#x27;t beat the price.</li>
+    <li> The lotion is off the chain!!! I have very ashy skin and have tried everything. Nothing worked  but this lotion  is wonderful, thick but not greasy, it leaves my skin so soft. Me and my guy where at a party and he could not stop rubbing, squeezing, or massaging my skin.</li>
+    <li> Great price. Love the Cotton Candy for my girlfriend!</li>
+    <li> Smells great! The lotion is nice and not oily/sticky. All of the items smell yummy just like cotton candy!</li>
+    <li> I get so many compliments on this fragrance!  Great value with the 3 pieces.</li>
+    <li> The cotton candy smells wonderful,, delivery was quick,</li>
+    <li> I was using an aerosol cotton candy perfume from Walmart that was $3, smelled incredible and then disappeared. It&#x27;s on here but it&#x27;s $20/bottle! I wasn&#x27;t sure how this would smell but for that price it was worth trying.&lt;br /&gt;&lt;br /&gt;Well I was pleasantly surprised. I like strong,  long lasting scents.  The body wash, lotion and body spray all smell incredible and last through the day and even into the next day. I will buy again when I run out.</li>
+    <li> My sister LOVES this stuff.  When she opened her present this morning she was so happy. This is hard to find and I got so lucky to find this on Amazon.  The whole set.  Lucky me.  No lucky her!!!!!</li>
+    <li> I LOVE CANDY AND WHEN I WHERE THIS I SMELL SWEET AS I LOOK AND THE COMPLIMENTS JUST KEEP COMING AND COMING AND I FEEL DELICICIOUS NEVER FORGET TO LAYER AND LAYER A LITTLE VASELINE RIGHT OUT THE SHOWER  THEN LAYER AND LAYER</li>
+    <li> Love all 3 items. Smells just like cotton candy, the body wash is awesome, the spray isnt to overbearing, and the lotion smells awesome.</li>
+    <li> I have used this scent, along with their vanilla scent, for many years and will continue to do so as long as they make it.  It smells just like its name.</li>
+    <li> I was completely shocked as to how much product I received as far as how many ounces in fragrance. It was definitely like Christmas morning for myself when I opened my package. It smells just like cotton candy and is truly a treat worth ordering!</li>
+    <li> Love the cotton candy body spray. They stopped selling it at my local Wal-mart. I searched on Amazon and found it. Smells great, long lasting scent. Yummy</li>
+    <li> This is sooo delicious! Arrived on time and i really smell like cotton candy</li>
+    <li> Fast shipping I love it!!</li>
+    <li> Thought (or hoped ) it would smell like Victoria&#x27;s Secret &amp;#34; Candy, Baby&amp;#34; but it smells more like kids cough syrup ,A BIG YUCK!!!!!</li>
+    <li> Very fast delivery. Great product.</li>
+    <li> This product came a day earlier than expected and it shipped fast.&lt;br /&gt;It also came in a cute bag that was inside the box.&lt;br /&gt;Also, it smelled just like cotton candy.</li>
+    <li> Great deal for all three.  Happy with scent</li>
+    <li> Smells just like spun sugar at the fair! A couple of sprays on my shirt,  hair, neck and wrists and I&#x27;m good to go. I would say the scent lasts a couple of hours. I could smell it on my wrist if I put my nose to it but the general scent had dissipated by then. Lotion is creamy but light and absorbs quickly.  The bodywash is delightfully sweet and lathers well. Thank you vyer much!</li>
+</ol>
+
+
+
+

@@ -3,8 +3,8 @@ title: niceEshop Professional 15 Color Concealer Camouflage Makeup Palette (Conc
 description: niceEshop Professional 15 Color Concealer Camouflage Makeup Palette (Concealer, 15 Colors),
 author: Suvojit Manna,
 tags: niceEshop Professional 15 Color Concealer Camouflage Makeup Palette (Concealer, 15 Colors),
-publishedAt: Thu Jan 09 2020 19:08:38 GMT+0530 (India Standard Time),
-modifiedAt: Thu Jan 09 2020 19:08:38 GMT+0530 (India Standard Time),
+publishedAt: Fri Jan 10 2020 15:00:30 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:30 GMT+0530 (India Standard Time),
 ---
 
 # [niceEshop Professional 15 Color Concealer Camouflage Makeup Palette (Concealer, 15 Colors)](https://products.checkmycream.com/products/niceEshop-Professional-15-Color-Concealer-Camouflage-Makeup-Palette-(Concealer-15-Colors).html)
@@ -12,211 +12,211 @@ modifiedAt: Thu Jan 09 2020 19:08:38 GMT+0530 (India Standard Time),
 ### Positive Reviews
 
 <ol>
-      <li>REALLY GREAT FOR BEGINNERS !</li>
-      <li>Received it in perfect condition.</li>
-      <li>and hopefully I will find the perfect one.</li>
-      <li>Great delivery time!</li>
-      <li>I&#x27;m so impressed.</li>
-      <li>These concealers are creamy to the touch and have awesome staying power!</li>
-      <li>Love these concealers!!!!</li>
-      <li>I use this as foundation and this product conceals everything leaving a wonderful porcelain looking skin</li>
-      <li>PERFECT for contouring!</li>
-      <li>it came on time works out awesome for me..</li>
-      <li>The colors are great!</li>
-      <li>Priced awesome!</li>
-      <li>Very good for the price!</li>
-      <li>But the product and coverage is great!</li>
-      <li>I&#x27;m still very happy with the product.</li>
-      <li>the best combination for my skin</li>
-      <li>And the product works great!!</li>
-      <li>Just a tad oily, pigments stay in place wonderfully.</li>
-      <li>Very happy with my purchase.</li>
-      <li>it&#x27;s not going to be the best concealer.</li>
-      <li>I&#x27;ve ordered this before and it was excellent</li>
-      <li>Wonderful palette.</li>
-      <li>it goes on great!</li>
-      <li>The colors of this product are perfect for my skin tone.</li>
-      <li>Excellent for covering up bruises.</li>
-      <li>Perfect condition.</li>
-      <li>And it&#x27;s perfect for travel.</li>
-      <li>Wonderful  item would order from again</li>
-      <li>Excellent!</li>
-      <li>Excellent coverage.  </li>
-      <li>If your a makeup artist this wouldn&#x27;t be great!</li>
-      <li>What a great buy!</li>
-      <li>very happy I purchase this item!!</li>
-      <li>but I was perfect.</li>
-      <li>This is perfect for covering blemishes and contouring.</li>
-      <li>Great make up!</li>
-      <li>For a beginner, this concealer is great!</li>
-      <li>if you are planning to begin contouring, this is your best friend!</li>
-      <li>, it makes my face look flawless.</li>
-      <li>I&#x27;m very satisfied with my product!!!</li>
-      <li>and it was great!</li>
-      <li>Wonderful!!</li>
-      <li>it&#x27;s perfect just what I wanted</li>
-      <li>The color palette is great!  </li>
-      <li>it&#x27;s perfect.</li>
-      <li>I love it!!!!</li>
-      <li>If you know how to contour, this kit is perfect for EVERY skin tone!!!</li>
-      <li>It came in perfect condition.&lt;br /&gt;&lt;br</li>
       <li>so this was perfect because of the color palettes I can blend and perfect the color I need.</li>
-      <li>This is so great!!!</li>
-      <li>This product is great !!!</li>
-      <li>Customer service was excellent!!</li>
-      <li>This is a very good buy!</li>
-      <li>best thing i have ever bought</li>
-      <li>Best price</li>
-      <li>But this product is great!!!</li>
-      <li>Despite those things this works great!</li>
-      <li>THIS IS THE BEST CONCEALER EVER!!</li>
-      <li>WHAT NEEDS TO BE COVERED ON YOUR FACE FOR A GREAT PRICE!!</li>
-      <li>I&#x27;M ONE HAPPY COSTUMER!!</li>
-      <li>best for beginners though</li>
-      <li>This product is perfect!  </li>
-      <li>but I love it!!!!</li>
-      <li>Great colors and coverage!</li>
-      <li>wonderful product and the price</li>
-      <li>It was what I wanted , the color was perfect.</li>
-      <li>But it&#x27;s perfect for contouring</li>
-      <li>Great customer service though!</li>
-      <li>EXCELLENT!</li>
-      <li>Great product!</li>
-      <li>I just wasn&#x27;t too impressed and wouldn&#x27;t buy again.</li>
-      <li>and you will be very impressed</li>
-      <li>so this is a perfect palette for me.</li>
-      <li>This is the best contour pallet I have ever used, it goes on flawlessly and stays on all day.</li>
-      <li>Awesome.</li>
-      <li>But besides that every thing is great!!!!</li>
-      <li>They also have my perfect skin tone shade.</li>
-      <li>Came I&#x27;m perfect condition on a 100 degree weather</li>
-      <li>Great product!!!</li>
-      <li>Great price!!!</li>
-      <li>GREAT PACKAGING!!</li>
-      <li>too look perfect with makeup</li>
-      <li>The price is perfect!</li>
-      <li>For a price like this, this product is wonderful.</li>
-      <li>This is perfect for a kid who you don&#x27;t want to get makeup on themselves.</li>
-      <li>this palette is so perfect.</li>
-      <li>was awesome.</li>
-      <li>I would have to say med. coverage at best.</li>
-      <li>I gave it 4 stars because it&#x27;s not the best concealer I have ever used.</li>
-      <li>The concealer is great!!</li>
-      <li>/&gt;It does have very good coverage though!</li>
-      <li>Coverage is perfect.</li>
+      <li>Shipped perfectly though</li>
+      <li>I love them!!!!!</li>
+      <li>Perfect, got to me in 3 days.</li>
+      <li>REALLY GREAT FOR BEGINNERS !</li>
       <li>and it works great!</li>
-      <li>It came perfect!</li>
+      <li>awesome product for very good price!</li>
+      <li>Coverage is perfect.</li>
+      <li>Wonderful  item would order from again</li>
+      <li>For this price is perfect.</li>
       <li>Great product!</li>
+      <li>/&gt;It does have very good coverage though!</li>
+      <li>So happy with this!</li>
       <li>One of the best consealer pallets I have used!</li>
+      <li>#flawless</li>
+      <li>but I was perfect.</li>
+      <li>typeand cocomplexion  works best</li>
+      <li>I&#x27;ve ordered this before and it was excellent</li>
       <li>It makes my skin look perfect and the contouring makes my features pop.</li>
+      <li>The concealer is great!!</li>
+      <li>This is a great product!</li>
+      <li>I gave it 4 stars because it&#x27;s not the best concealer I have ever used.</li>
+      <li>And it&#x27;s perfect for travel.</li>
+      <li>I would have to say med. coverage at best.</li>
+      <li>It comes out perfect.  </li>
       <li>Covers great and stays all day!</li>
+      <li>Its AWESOME for contouring</li>
+      <li>i am brown skinned so the darker shade worked perfectly on my face</li>
       <li>Awesome</li>
+      <li>I am really impressed!</li>
+      <li>All purchases excellent</li>
+      <li>awesome!</li>
       <li>I&#x27;m very happy with what i received.</li>
+      <li>And It WOrks Perfectly!!</li>
+      <li>Received it in perfect condition.</li>
+      <li>If covers flawlessly.</li>
+      <li>It makes my skin look so flawless.</li>
+      <li>was awesome.</li>
+      <li>Loved it!!</li>
+      <li>this palette is so perfect.</li>
+      <li>This is perfect for a kid who you don&#x27;t want to get makeup on themselves.</li>
+      <li>it created the perfect bronze look i was looking for.</li>
+      <li>Excellent.</li>
+      <li>For a price like this, this product is wonderful.</li>
+      <li>Perfect condition.</li>
+      <li>it&#x27;s perfect just what I wanted</li>
+      <li>coverage/pigmentation is not the greatest.</li>
+      <li>and hopefully I will find the perfect one.</li>
+      <li>Excellent product for the price!  </li>
+      <li>This contouring kit is awesome!</li>
+      <li>very happy I purchase this item!!</li>
+      <li>It lasts through the day and makes your face look awesome.</li>
+      <li>Excellent for covering up bruises.</li>
+      <li>The color palette is great!  </li>
+      <li>Great delivery time!</li>
+      <li>The price is perfect!</li>
+      <li>Awesome!</li>
+      <li>too look perfect with makeup</li>
+      <li>I worked out so well, and i am so impressed with this concealer palette</li>
+      <li>it&#x27;s perfect.</li>
+      <li>I&#x27;m so impressed.</li>
+      <li>absolutely perfect!!</li>
+      <li>What a great buy!</li>
+      <li>Great pallet!</li>
+      <li>Excellent!</li>
+      <li>wonderful colors to work with</li>
+      <li>For someone who needs to find the perfect shade of concealer, I recommend the Graftobian palettes.  </li>
+      <li>Packaging was great though!</li>
+      <li>These concealers are creamy to the touch and have awesome staying power!</li>
+      <li>This concealer is very good!</li>
+      <li>Awesome customer service.</li>
+      <li>It also doesn&#x27;t blend the greatest.</li>
+      <li>Love these concealers!!!!</li>
+      <li>Awesome for contouring</li>
+      <li>I use this as foundation and this product conceals everything leaving a wonderful porcelain looking skin</li>
+      <li>Perfect palette for the price!</li>
+      <li>It works perfect</li>
+      <li>So great!!</li>
+      <li>Just perfect and inexpensive.</li>
+      <li>I don&#x27;t know how people are receiving damaged or melted product because mine is perfect</li>
+      <li>PERFECT for contouring!</li>
+      <li>Wonderful!!</li>
+      <li>GREAT PACKAGING!!</li>
+      <li>This is perfect for covering blemishes and contouring.</li>
+      <li>I love it!!!!</li>
+      <li>The 8 that I use are wonderful.</li>
+      <li>Great price!!!</li>
+      <li>Great product!!!</li>
+      <li>Came I&#x27;m perfect condition on a 100 degree weather</li>
+      <li>If you know how to contour, this kit is perfect for EVERY skin tone!!!</li>
+      <li>Perfect.</li>
+      <li>Awesome product, worked as intended</li>
+      <li>The shade variety is perfect for contouring.</li>
+      <li>They also have my perfect skin tone shade.</li>
+      <li>But besides that every thing is great!!!!</li>
+      <li>Very happy with purchase</li>
+      <li>The colors of this product are perfect for my skin tone.</li>
+      <li>and it was great!</li>
+      <li>really great for contouring!</li>
+      <li>it came on time works out awesome for me..</li>
 </ol>
 
 
 <h2>Negative Reviews</h2>
 <ol>
-<li> REALLY GREAT FOR BEGINNERS !</li>
-<li> Received it in perfect condition.</li>
-<li> and hopefully I will find the perfect one.</li>
-<li> Great delivery time!</li>
-<li> I&#x27;m so impressed.</li>
-<li> These concealers are creamy to the touch and have awesome staying power!</li>
-<li> Love these concealers!!!!</li>
-<li> I use this as foundation and this product conceals everything leaving a wonderful porcelain looking skin</li>
-<li> PERFECT for contouring!</li>
-<li> it came on time works out awesome for me..</li>
-<li> The colors are great!</li>
-<li> Priced awesome!</li>
-<li> Very good for the price!</li>
-<li> But the product and coverage is great!</li>
-<li> I&#x27;m still very happy with the product.</li>
-<li> the best combination for my skin</li>
-<li> And the product works great!!</li>
-<li> Just a tad oily, pigments stay in place wonderfully.</li>
-<li> Very happy with my purchase.</li>
-<li> it&#x27;s not going to be the best concealer.</li>
-<li> I&#x27;ve ordered this before and it was excellent</li>
-<li> Wonderful palette.</li>
-<li> it goes on great!</li>
-<li> The colors of this product are perfect for my skin tone.</li>
-<li> Excellent for covering up bruises.</li>
-<li> Perfect condition.</li>
-<li> And it&#x27;s perfect for travel.</li>
-<li> Wonderful  item would order from again</li>
-<li> Excellent!</li>
-<li> Excellent coverage.  </li>
-<li> If your a makeup artist this wouldn&#x27;t be great!</li>
-<li> What a great buy!</li>
-<li> very happy I purchase this item!!</li>
-<li> but I was perfect.</li>
-<li> This is perfect for covering blemishes and contouring.</li>
-<li> Great make up!</li>
-<li> For a beginner, this concealer is great!</li>
-<li> if you are planning to begin contouring, this is your best friend!</li>
-<li> , it makes my face look flawless.</li>
-<li> I&#x27;m very satisfied with my product!!!</li>
-<li> and it was great!</li>
-<li> Wonderful!!</li>
-<li> it&#x27;s perfect just what I wanted</li>
-<li> The color palette is great!  </li>
-<li> it&#x27;s perfect.</li>
-<li> I love it!!!!</li>
-<li> If you know how to contour, this kit is perfect for EVERY skin tone!!!</li>
-<li> It came in perfect condition.&lt;br /&gt;&lt;br</li>
 <li> so this was perfect because of the color palettes I can blend and perfect the color I need.</li>
-<li> This is so great!!!</li>
-<li> This product is great !!!</li>
-<li> Customer service was excellent!!</li>
-<li> This is a very good buy!</li>
-<li> best thing i have ever bought</li>
-<li> Best price</li>
-<li> But this product is great!!!</li>
-<li> Despite those things this works great!</li>
-<li> THIS IS THE BEST CONCEALER EVER!!</li>
-<li> WHAT NEEDS TO BE COVERED ON YOUR FACE FOR A GREAT PRICE!!</li>
-<li> I&#x27;M ONE HAPPY COSTUMER!!</li>
-<li> best for beginners though</li>
-<li> This product is perfect!  </li>
-<li> but I love it!!!!</li>
-<li> Great colors and coverage!</li>
-<li> wonderful product and the price</li>
-<li> It was what I wanted , the color was perfect.</li>
-<li> But it&#x27;s perfect for contouring</li>
-<li> Great customer service though!</li>
-<li> EXCELLENT!</li>
-<li> Great product!</li>
-<li> I just wasn&#x27;t too impressed and wouldn&#x27;t buy again.</li>
-<li> and you will be very impressed</li>
-<li> so this is a perfect palette for me.</li>
-<li> This is the best contour pallet I have ever used, it goes on flawlessly and stays on all day.</li>
-<li> Awesome.</li>
-<li> But besides that every thing is great!!!!</li>
-<li> They also have my perfect skin tone shade.</li>
-<li> Came I&#x27;m perfect condition on a 100 degree weather</li>
-<li> Great product!!!</li>
-<li> Great price!!!</li>
-<li> GREAT PACKAGING!!</li>
-<li> too look perfect with makeup</li>
-<li> The price is perfect!</li>
-<li> For a price like this, this product is wonderful.</li>
-<li> This is perfect for a kid who you don&#x27;t want to get makeup on themselves.</li>
-<li> this palette is so perfect.</li>
-<li> was awesome.</li>
-<li> I would have to say med. coverage at best.</li>
-<li> I gave it 4 stars because it&#x27;s not the best concealer I have ever used.</li>
-<li> The concealer is great!!</li>
-<li> /&gt;It does have very good coverage though!</li>
-<li> Coverage is perfect.</li>
+<li> Shipped perfectly though</li>
+<li> I love them!!!!!</li>
+<li> Perfect, got to me in 3 days.</li>
+<li> REALLY GREAT FOR BEGINNERS !</li>
 <li> and it works great!</li>
-<li> It came perfect!</li>
+<li> awesome product for very good price!</li>
+<li> Coverage is perfect.</li>
+<li> Wonderful  item would order from again</li>
+<li> For this price is perfect.</li>
 <li> Great product!</li>
+<li> /&gt;It does have very good coverage though!</li>
+<li> So happy with this!</li>
 <li> One of the best consealer pallets I have used!</li>
+<li> #flawless</li>
+<li> but I was perfect.</li>
+<li> typeand cocomplexion  works best</li>
+<li> I&#x27;ve ordered this before and it was excellent</li>
 <li> It makes my skin look perfect and the contouring makes my features pop.</li>
+<li> The concealer is great!!</li>
+<li> This is a great product!</li>
+<li> I gave it 4 stars because it&#x27;s not the best concealer I have ever used.</li>
+<li> And it&#x27;s perfect for travel.</li>
+<li> I would have to say med. coverage at best.</li>
+<li> It comes out perfect.  </li>
 <li> Covers great and stays all day!</li>
+<li> Its AWESOME for contouring</li>
+<li> i am brown skinned so the darker shade worked perfectly on my face</li>
 <li> Awesome</li>
+<li> I am really impressed!</li>
+<li> All purchases excellent</li>
+<li> awesome!</li>
 <li> I&#x27;m very happy with what i received.</li>
+<li> And It WOrks Perfectly!!</li>
+<li> Received it in perfect condition.</li>
+<li> If covers flawlessly.</li>
+<li> It makes my skin look so flawless.</li>
+<li> was awesome.</li>
+<li> Loved it!!</li>
+<li> this palette is so perfect.</li>
+<li> This is perfect for a kid who you don&#x27;t want to get makeup on themselves.</li>
+<li> it created the perfect bronze look i was looking for.</li>
+<li> Excellent.</li>
+<li> For a price like this, this product is wonderful.</li>
+<li> Perfect condition.</li>
+<li> it&#x27;s perfect just what I wanted</li>
+<li> coverage/pigmentation is not the greatest.</li>
+<li> and hopefully I will find the perfect one.</li>
+<li> Excellent product for the price!  </li>
+<li> This contouring kit is awesome!</li>
+<li> very happy I purchase this item!!</li>
+<li> It lasts through the day and makes your face look awesome.</li>
+<li> Excellent for covering up bruises.</li>
+<li> The color palette is great!  </li>
+<li> Great delivery time!</li>
+<li> The price is perfect!</li>
+<li> Awesome!</li>
+<li> too look perfect with makeup</li>
+<li> I worked out so well, and i am so impressed with this concealer palette</li>
+<li> it&#x27;s perfect.</li>
+<li> I&#x27;m so impressed.</li>
+<li> absolutely perfect!!</li>
+<li> What a great buy!</li>
+<li> Great pallet!</li>
+<li> Excellent!</li>
+<li> wonderful colors to work with</li>
+<li> For someone who needs to find the perfect shade of concealer, I recommend the Graftobian palettes.  </li>
+<li> Packaging was great though!</li>
+<li> These concealers are creamy to the touch and have awesome staying power!</li>
+<li> This concealer is very good!</li>
+<li> Awesome customer service.</li>
+<li> It also doesn&#x27;t blend the greatest.</li>
+<li> Love these concealers!!!!</li>
+<li> Awesome for contouring</li>
+<li> I use this as foundation and this product conceals everything leaving a wonderful porcelain looking skin</li>
+<li> Perfect palette for the price!</li>
+<li> It works perfect</li>
+<li> So great!!</li>
+<li> Just perfect and inexpensive.</li>
+<li> I don&#x27;t know how people are receiving damaged or melted product because mine is perfect</li>
+<li> PERFECT for contouring!</li>
+<li> Wonderful!!</li>
+<li> GREAT PACKAGING!!</li>
+<li> This is perfect for covering blemishes and contouring.</li>
+<li> I love it!!!!</li>
+<li> The 8 that I use are wonderful.</li>
+<li> Great price!!!</li>
+<li> Great product!!!</li>
+<li> Came I&#x27;m perfect condition on a 100 degree weather</li>
+<li> If you know how to contour, this kit is perfect for EVERY skin tone!!!</li>
+<li> Perfect.</li>
+<li> Awesome product, worked as intended</li>
+<li> The shade variety is perfect for contouring.</li>
+<li> They also have my perfect skin tone shade.</li>
+<li> But besides that every thing is great!!!!</li>
+<li> Very happy with purchase</li>
+<li> The colors of this product are perfect for my skin tone.</li>
+<li> and it was great!</li>
+<li> really great for contouring!</li>
+<li> it came on time works out awesome for me..</li>
 </ol>
 
 <h2>All Reviews</h2>
@@ -1989,6 +1989,7 @@ modifiedAt: Thu Jan 09 2020 19:08:38 GMT+0530 (India Standard Time),
     <li> This product made my skin bust out in red spots all over my face and irritated my skin really bad!</li>
     <li> Absolutely awful. I am an esthetician by trade and this is the most disgusting product I have ever seen. Never in my life has my skin broke out like it did after using this. It started burning, followed by itchy skin that lasted for days and red streaks (20 min after applying). It doesn&#x27;t have an ingredient list attached so BUYER BEWARE. It is from CHINA. I don&#x27;t think this product is safe for skin!!!! The quality is NOT creamy, it sinks right into the fine lines and is not cosmo grade quality. It&#x27;s absolutely horrible I can&#x27;t even sell this at my garage sale I&#x27;m afraid to get sued!</li>
 </ol>
+
 
 
 

@@ -1,0 +1,287 @@
+---
+title: Olay Total Effects Revitalizing Foaming Cleanser,
+description: Olay Total Effects Revitalizing Foaming Cleanser,
+author: Suvojit Manna,
+tags: Olay Total Effects Revitalizing Foaming Cleanser,
+publishedAt: Fri Jan 10 2020 14:59:51 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:59:51 GMT+0530 (India Standard Time),
+---
+
+# [Olay Total Effects Revitalizing Foaming Cleanser](https://products.checkmycream.com/products/Olay-Total-Effects-Revitalizing-Foaming-Cleanser.html)
+
+### Positive Reviews
+
+<ol>
+      <li>It smells wonderful</li>
+      <li>Wonderful.</li>
+      <li>this is perfect for you.</li>
+      <li>Excellent!</li>
+      <li>Best cleanser ever.</li>
+      <li>Makes my face feel so great!</li>
+      <li>Excellent scrub to use.</li>
+      <li>A great deal!!!</li>
+      <li>Great!</li>
+      <li>This scrub is awesome.  </li>
+      <li>This was an excellent buy, the smell is not too overpowering and you can always trust Olay to make good products</li>
+      <li>Nothing great.</li>
+      <li>The citrus smell is great for a wake-up.</li>
+      <li>It works great for me.</li>
+      <li>The product arrived on time and was great.</li>
+      <li>Great for both men and woman.</li>
+      <li>Exfoliates and smells great</li>
+      <li>I use it in the morning to wash my face in the sink, and it does a great job removing the night time oils.  </li>
+      <li>It&#x27;s a great every night scrub.</li>
+      <li>It is so refreshing and makes your skin feel wonderful.</li>
+      <li>It has fine grainy texture which feels wonderful during and after use.</li>
+      <li>as I&#x27;m aging, perhaps that is a good think.</li>
+      <li>Good price.</li>
+      <li>Wife loves good pricing</li>
+      <li>Was delighted to find it here.</li>
+      <li>and I thought I was buying bulk for a good deal</li>
+      <li>Good for either sex.</li>
+      <li>and it is very refreshing.</li>
+      <li>Better than a lot of scrubs I&#x27;ve used, which is great for me.</li>
+      <li>Smells really good, is effective at exfoliating and cleaning.  </li>
+      <li>My husband and I have fallen in love with this face wash!</li>
+      <li>4 more words and now done!</li>
+      <li>I love this cleanser!  </li>
+      <li>It does an amazing job at exfoliating and is very refreshing.</li>
+      <li>and I love it!  </li>
+      <li>Has a cooling feeling that I love!</li>
+      <li>I love it!</li>
+      <li>and I love this scrub!</li>
+      <li>and i loved the product, i saw this product online and ordered the pack of 3 in order to save more money.</li>
+      <li>The smell is nice.  </li>
+      <li>This is by far the best for my skin!</li>
+      <li>This one makes my face squeaky clean and is a good exfoliator.</li>
+      <li>Very smooth scrub.</li>
+      <li>Finally found this and its awesome and feels refreshing.  </li>
+      <li>I love the citrus fragrance.</li>
+      <li>I decided to try this as an alternative because I thought I&#x27;d like the citrus scent better</li>
+      <li>Love this face wash.  </li>
+      <li>Love this stuff.  </li>
+      <li>My skin has never looked better.</li>
+      <li>It&#x27;s okay.</li>
+      <li>Great price fast shipping</li>
+      <li>The gentle citrus smell is great too.</li>
+      <li>The product was okay.</li>
+      <li>and I have tried many products.</li>
+      <li>Plus I love the fragrance.</li>
+      <li>I love this citrus scrub.  </li>
+      <li>I like the refreshing scent, and this one has &amp;#34;scrubby beads&amp;#34; in it for exfoliating.</li>
+      <li>It leaves my face feeling very clean.</li>
+      <li>I find that in the winter months when my skin is dry that this is the best thing.  </li>
+      <li>I love the citrus fragrance, but especially love that the product is not harsh like some face washes with large scrubbing granules.  </li>
+      <li>This is a fantastic  skin cleaning product, you feel your skin very clean</li>
+      <li>Refreshing scent while it scrubs your face clean.</li>
+      <li>This is a great scrub for daily use.  </li>
+      <li>This product is great for me in the winter but just isn&#x27;t enough for my summer skin.  </li>
+      <li>I received a free sample and decided to order a set.  </li>
+      <li>It has a light scent and</li>
+      <li>I enjoy applying it on my face in the shower and smelling the citrus clean scent.</li>
+      <li>I feel clean and smooth just after a couple of scrubs.</li>
+      <li>I keep reordering this because it makes my skin feel so clean afterwards.  </li>
+      <li>works well to clean and slough skin.</li>
+      <li>but it does clean the face.</li>
+      <li>I swear by this product, makes your skin feel clean.  </li>
+      <li>It has a pleasant aroma, especially for summer.</li>
+      <li>I am not sure if line appearance is helped, but it is the best product of its kind that I have found so far.</li>
+      <li>I was using the original version, which has a unique, but not unpleasant smell.  </li>
+      <li>Nice smell and leaves skin soft.</li>
+      <li>the scrub beads are much finer than most competitor skin care products.  </li>
+      <li>I switched to this from St. Ives, which is chock full o&#x27; scrub.</li>
+      <li>Not only it cleanse my face, the cool feeling makes mefeel so good and refresh.</li>
+      <li>Use in the shower every morning and night, face feels clean and fresh.  </li>
+      <li>Overall, excellent scrub that I use in the shower nigh daily.</li>
+      <li>This works really well to clean and smooth my skin every day.  </li>
+      <li>Love this stuff, somehow I could no longer find it in New Orleans</li>
+      <li>The beads are fine and do not hurt my face as much.</li>
+      <li>The exfoliating beads in this cleanser kind of quickly melt after few scrubs and they surely do absorb the oil on my skin.</li>
+      <li>It&#x27;s gentle yet effective and doesn&#x27;t seem to dry my skin out even more.  </li>
+      <li>Also is very good on my skin, I rarely get zits at all where it seemed I used to always have at least one or two popping up somewhere on my face.</li>
+      <li>Although I had to order a case of 3, the savings in gas searching will be worth it.</li>
+      <li>olay cleanser leaves my skin so clean,smooth and refresh every morning,I would recomend this product to anyone that wants a fresh start every morning!</li>
+      <li>The price was right.</li>
+      <li>A little more exfoliating beads might be nice, but I love this scrub overall.</li>
+      <li>My second order of this, works great and will continue to use for the foreseeable future...</li>
+      <li>It leaves a fresh, clean and soft texture on my face!</li>
+      <li>I love that this cleanser isn&#x27;t harsh on my skin, but it still leaves my skin feeling refreshed and clean!</li>
+      <li>My pores appear smaller, my skin tone more even and my skin just feels softer and smoother.</li>
+      <li>Makesy face so soft and smooth.  </li>
+      <li>The product itself I first started using because it was recommended&lt;br /&gt;in</li>
+      <li>I love this stuff, can&#x27;t say enough</li>
+      <li>I was disapppointed when my favorite Olay cleansing product was suddenly unavailable.</li>
+      <li>My favorite face scrub and my local grocery store stopped carrying it.</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> It smells wonderful</li>
+<li> Wonderful.</li>
+<li> this is perfect for you.</li>
+<li> Excellent!</li>
+<li> Best cleanser ever.</li>
+<li> Makes my face feel so great!</li>
+<li> Excellent scrub to use.</li>
+<li> A great deal!!!</li>
+<li> Great!</li>
+<li> This scrub is awesome.  </li>
+<li> This was an excellent buy, the smell is not too overpowering and you can always trust Olay to make good products</li>
+<li> Nothing great.</li>
+<li> The citrus smell is great for a wake-up.</li>
+<li> It works great for me.</li>
+<li> The product arrived on time and was great.</li>
+<li> Great for both men and woman.</li>
+<li> Exfoliates and smells great</li>
+<li> I use it in the morning to wash my face in the sink, and it does a great job removing the night time oils.  </li>
+<li> It&#x27;s a great every night scrub.</li>
+<li> It is so refreshing and makes your skin feel wonderful.</li>
+<li> It has fine grainy texture which feels wonderful during and after use.</li>
+<li> as I&#x27;m aging, perhaps that is a good think.</li>
+<li> Good price.</li>
+<li> Wife loves good pricing</li>
+<li> Was delighted to find it here.</li>
+<li> and I thought I was buying bulk for a good deal</li>
+<li> Good for either sex.</li>
+<li> and it is very refreshing.</li>
+<li> Better than a lot of scrubs I&#x27;ve used, which is great for me.</li>
+<li> Smells really good, is effective at exfoliating and cleaning.  </li>
+<li> My husband and I have fallen in love with this face wash!</li>
+<li> 4 more words and now done!</li>
+<li> I love this cleanser!  </li>
+<li> It does an amazing job at exfoliating and is very refreshing.</li>
+<li> and I love it!  </li>
+<li> Has a cooling feeling that I love!</li>
+<li> I love it!</li>
+<li> and I love this scrub!</li>
+<li> and i loved the product, i saw this product online and ordered the pack of 3 in order to save more money.</li>
+<li> The smell is nice.  </li>
+<li> This is by far the best for my skin!</li>
+<li> This one makes my face squeaky clean and is a good exfoliator.</li>
+<li> Very smooth scrub.</li>
+<li> Finally found this and its awesome and feels refreshing.  </li>
+<li> I love the citrus fragrance.</li>
+<li> I decided to try this as an alternative because I thought I&#x27;d like the citrus scent better</li>
+<li> Love this face wash.  </li>
+<li> Love this stuff.  </li>
+<li> My skin has never looked better.</li>
+<li> It&#x27;s okay.</li>
+<li> Great price fast shipping</li>
+<li> The gentle citrus smell is great too.</li>
+<li> The product was okay.</li>
+<li> and I have tried many products.</li>
+<li> Plus I love the fragrance.</li>
+<li> I love this citrus scrub.  </li>
+<li> I like the refreshing scent, and this one has &amp;#34;scrubby beads&amp;#34; in it for exfoliating.</li>
+<li> It leaves my face feeling very clean.</li>
+<li> I find that in the winter months when my skin is dry that this is the best thing.  </li>
+<li> I love the citrus fragrance, but especially love that the product is not harsh like some face washes with large scrubbing granules.  </li>
+<li> This is a fantastic  skin cleaning product, you feel your skin very clean</li>
+<li> Refreshing scent while it scrubs your face clean.</li>
+<li> This is a great scrub for daily use.  </li>
+<li> This product is great for me in the winter but just isn&#x27;t enough for my summer skin.  </li>
+<li> I received a free sample and decided to order a set.  </li>
+<li> It has a light scent and</li>
+<li> I enjoy applying it on my face in the shower and smelling the citrus clean scent.</li>
+<li> I feel clean and smooth just after a couple of scrubs.</li>
+<li> I keep reordering this because it makes my skin feel so clean afterwards.  </li>
+<li> works well to clean and slough skin.</li>
+<li> but it does clean the face.</li>
+<li> I swear by this product, makes your skin feel clean.  </li>
+<li> It has a pleasant aroma, especially for summer.</li>
+<li> I am not sure if line appearance is helped, but it is the best product of its kind that I have found so far.</li>
+<li> I was using the original version, which has a unique, but not unpleasant smell.  </li>
+<li> Nice smell and leaves skin soft.</li>
+<li> the scrub beads are much finer than most competitor skin care products.  </li>
+<li> I switched to this from St. Ives, which is chock full o&#x27; scrub.</li>
+<li> Not only it cleanse my face, the cool feeling makes mefeel so good and refresh.</li>
+<li> Use in the shower every morning and night, face feels clean and fresh.  </li>
+<li> Overall, excellent scrub that I use in the shower nigh daily.</li>
+<li> This works really well to clean and smooth my skin every day.  </li>
+<li> Love this stuff, somehow I could no longer find it in New Orleans</li>
+<li> The beads are fine and do not hurt my face as much.</li>
+<li> The exfoliating beads in this cleanser kind of quickly melt after few scrubs and they surely do absorb the oil on my skin.</li>
+<li> It&#x27;s gentle yet effective and doesn&#x27;t seem to dry my skin out even more.  </li>
+<li> Also is very good on my skin, I rarely get zits at all where it seemed I used to always have at least one or two popping up somewhere on my face.</li>
+<li> Although I had to order a case of 3, the savings in gas searching will be worth it.</li>
+<li> olay cleanser leaves my skin so clean,smooth and refresh every morning,I would recomend this product to anyone that wants a fresh start every morning!</li>
+<li> The price was right.</li>
+<li> A little more exfoliating beads might be nice, but I love this scrub overall.</li>
+<li> My second order of this, works great and will continue to use for the foreseeable future...</li>
+<li> It leaves a fresh, clean and soft texture on my face!</li>
+<li> I love that this cleanser isn&#x27;t harsh on my skin, but it still leaves my skin feeling refreshed and clean!</li>
+<li> My pores appear smaller, my skin tone more even and my skin just feels softer and smoother.</li>
+<li> Makesy face so soft and smooth.  </li>
+<li> The product itself I first started using because it was recommended&lt;br /&gt;in</li>
+<li> I love this stuff, can&#x27;t say enough</li>
+<li> I was disapppointed when my favorite Olay cleansing product was suddenly unavailable.</li>
+<li> My favorite face scrub and my local grocery store stopped carrying it.</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> I love this stuff, can&#x27;t say enough how well it works. It&#x27;s a great every night scrub.</li>
+    <li> My second order of this, works great and will continue to use for the foreseeable future...4 more words and now done!</li>
+    <li> works well to clean and slough skin. light sensitive - use at night only</li>
+    <li> I am 40-something, and I have tried several facial scrubs. Some are too harsh. Some just don&#x27;t get the job done. This one cleans, improves pores, exfoliates, and doesn&#x27;t dry my skin out. I am not sure if line appearance is helped, but it is the best product of its kind that I have found so far.</li>
+    <li> I bought 3 bottles. Best cleanser ever. This stuff cleared up all my whiteheads and blackheads in just a few weeks. I do use this daily with Olay ProX.</li>
+    <li> I am an Olay fan to begin with and this did not disappoint.    The citrus aroma is subtle and soothing.  The scrub itself is  gentle yet cleansing and rejuvenating.  I was cautious when I  ordered this product; I&#x27;m not one for purchasing items with  scents, but this is a keeper.  Oh, and don&#x27;t worry about  rinsing; not a problem.</li>
+    <li> The product was okay. I didnt like the fact it came shipped already broken. Bad experience and will not be purchasing again</li>
+    <li> I do not believe this is the same you buy in stores. It smells similar but the effects were different when I started using it. Been buying it for years and I thought I was buying bulk for a good deal but my face and hands have broken out from the use... Sad. My skin isn&#x27;t even sensitive.</li>
+    <li> Refreshing scent while it scrubs your face clean. I enjoy applying it on my face in the shower and smelling the citrus clean scent.</li>
+    <li> Not only it cleanse my face, the cool feeling makes mefeel so good and refresh. Skin is clean and soft.</li>
+    <li> I hate to write a negative review but this really destroys my skin. I thought it was just coincidence but after using the whole tune over the last few months, I have had continuous acne breaks is off varying degrees over that period.  The smell is nice.  The feel is nice but having my skin be way worse than before I used it is very disappointing. I have adult acne prone skin and other Olay products work well.  My only negative experience is with this.</li>
+    <li> I love this cleanser!  Been using it for almost a year now and I love it!  Check out our blog post to see my full skin care routine with this product and other Olay products!&lt;br /&gt;http://www.beckyandbrittany.com/2015/05/skincare-routine.html</li>
+    <li> I love this citrus scrub.  I use to buy noxema citrus scrub but they disc. it.  Finally found this and its awesome and feels refreshing.  I don&#x27;t use noxema product anymore now.</li>
+    <li> Been a fan of Olay face washes for years. This one makes my face squeaky clean and is a good exfoliator. The beads are fine and do not hurt my face as much. Definitely need to put moisturizer on afterwards.</li>
+    <li> Love this face wash.  Makesy face so soft and smooth.  Recommend this product.</li>
+    <li> I don&#x27;t see any difference in my skin but it does clean the face.</li>
+    <li> This product IS &amp;#34;refreshing&amp;#34;</li>
+    <li> I&#x27;ve been using this for a couple of weeks every morning paired with the moisturizer and I can definitely see a difference with my skin. My pores appear smaller, my skin tone more even and my skin just feels softer and smoother. I love that this cleanser isn&#x27;t harsh on my skin, but it still leaves my skin feeling refreshed and clean!</li>
+    <li> I was disapppointed when my favorite Olay cleansing product was suddenly unavailable. However, this cleanser is a close second. It has a pleasant aroma, especially for summer. I find it keeps my formerly oil skin feeling clean, albeit without being too abrasive or drying. I highly recommend it.</li>
+    <li> Makes my face feel so great! Has a cooling feeling that I love! Also is very good on my skin, I rarely get zits at all where it seemed I used to always have at least one or two popping up somewhere on my face. I do recommend a moisturizer after use.</li>
+    <li> Nothing great. It&#x27;s okay. I will use and finish my tube but wouldn&#x27;t repurchase again</li>
+    <li> I had used a trial pack before this and i loved the product, i saw this product online and ordered the pack of 3 in order to save more money. The product arrived on time and was great. I love this product and it always rejuvenates you after a tired and long day at work.</li>
+    <li> I really like this face wash, and buying it bulk online has saved me a almost 10$. It is refreshing and doesn&#x27;t dry out my skin like some products. Plus I love the fragrance.</li>
+    <li> The citrus aroma of this scrub is very pleasing. The scrub part is barely there, but as I&#x27;m aging, perhaps that is a good think. I switched to this from St. Ives, which is chock full o&#x27; scrub.</li>
+    <li> This product is great for me in the winter but just isn&#x27;t enough for my summer skin.  I find that in the winter months when my skin is dry that this is the best thing.  It&#x27;s gentle yet effective and doesn&#x27;t seem to dry my skin out even more.  In the summer when my skin is dewy this just adds to the problem.  It isn&#x27;t enough to remove the extra oil and control shine and actually adds to my breakouts.  I switch to St Ives Apricot Scrub in the summer and then around October I go back to this.  It&#x27;s not bad but isn&#x27;t for me year round</li>
+    <li> I keep reordering this because it makes my skin feel so clean afterwards.  It has a little &amp;#34;scrub&amp;#34; to it that I feel buffs my skin too.</li>
+    <li> I will use it even though it dries my face out like my last face wash.  The smell is tolerable, but I am not a fan.  I would say if you have very oily skin this is perfect for you.</li>
+    <li> Use in the shower every morning and night, face feels clean and fresh.  Would recommend any oil of Olay product.</li>
+    <li> olay cleanser leaves my skin so clean,smooth and refresh every morning,I would recomend this product to anyone that wants a fresh start every morning!</li>
+    <li> Great for both men and woman.</li>
+    <li> Excellent scrub to use.</li>
+    <li> This is a great scrub for daily use.  I&#x27;m 40 and have somewhat oily skin.  This works really well to clean and smooth my skin every day.  It has a light scent and the scrub beads are much finer than most competitor skin care products.  It&#x27;s similar to a very fine sand, versus a coarse sand grit.&lt;br /&gt;I&#x27;ve used this for a few years now and it&#x27;s my preferred face wash over anything offered by Estee Lauder, Clinique, Clarisonic&#x27;s scrubs, Paula&#x27;s Choice, etc.  Each tube lasts me close to two months.&lt;br /&gt;Recommend!</li>
+    <li> Love this stuff, somehow I could no longer find it in New Orleans</li>
+    <li> I was having trouble finding the Olay Total Effects in the stores, thankfully I found it on Amazon. The price was right. Although I had to order a case of 3, the savings in gas searching will be worth it. The product itself I first started using because it was recommended&lt;br /&gt;in a magazine to help with large pores. It has fine grainy texture which feels wonderful during and after use. I am 50ish, with oily summer skin and dry winter skin. It works great for me.</li>
+    <li> Great price fast shipping</li>
+    <li> This was an excellent buy, the smell is not too overpowering and you can always trust Olay to make good products</li>
+    <li> Excellent! A great deal!!!</li>
+    <li> Great! My skin has never looked better. A little more exfoliating beads might be nice, but I love this scrub overall.</li>
+    <li> Medium level scrub. Better than a lot of scrubs I&#x27;ve used, which is great for me. The citrus smell is great for a wake-up.</li>
+    <li> Not my fav orange scent, can&#x27;t use with wash cloth-burned skin.</li>
+    <li> I like Oil of Olay facial washes, but had not tried this one.  I received a free sample and decided to order a set.  I really like the scent, but I am partial to citrus scents.  I use it in the morning to wash my face in the sink, and it does a great job removing the night time oils.  It leaves my face feeling very clean.</li>
+    <li> This works just as well as the expensive facial scrubs.  I only give it four stars because I&#x27;m not crazy about the scent.</li>
+    <li> Wife loves good pricing</li>
+    <li> Love this stuff.  It does an amazing job at exfoliating and is very refreshing.</li>
+    <li> Very smooth scrub. Does&#x27;t scratch or irritate the skin.</li>
+    <li> My favorite face scrub and my local grocery store stopped carrying it. Was delighted to find it here. I like the refreshing scent, and this one has &amp;#34;scrubby beads&amp;#34; in it for exfoliating.</li>
+    <li> I&#x27;m a man in early 30s and I love this scrub! I have an oily skin and I have tried many products. This is by far the best for my skin! It leaves a fresh, clean and soft texture on my face! The gentle citrus smell is great too. The exfoliating beads in this cleanser kind of quickly melt after few scrubs and they surely do absorb the oil on my skin. I feel clean and smooth just after a couple of scrubs. I love it!</li>
+    <li> Exfoliates and smells great</li>
+    <li> I&#x27;ve used this for years.  Good price.</li>
+    <li> I love the citrus fragrance, but especially love that the product is not harsh like some face washes with large scrubbing granules.  I buy it in multiple qualities and give it to friends and family too.</li>
+    <li> Nice smell and leaves skin soft.</li>
+    <li> This scrub is awesome.  It smells wonderful and I my face has not had a break-out since I have been using it.</li>
+    <li> I swear by this product, makes your skin feel clean.  Not a harsh scrub like others I&#x27;ve tried, noticed a difference in my skin within a few weeks of using this product.</li>
+    <li> I was using the original version, which has a unique, but not unpleasant smell.  I decided to try this as an alternative because I thought I&#x27;d like the citrus scent better (and I do).  I think the granularity is slightly harsher, and my skin feels slightly drier after using the citrus version, but I had to use moisturizer after each anyway.  Overall, excellent scrub that I use in the shower nigh daily.</li>
+    <li> Smells really good, is effective at exfoliating and cleaning.  Good for either sex.</li>
+    <li> My husband and I have fallen in love with this face wash! It is so refreshing and makes your skin feel wonderful.</li>
+    <li> Wonderful. Makes ur skin feel brand new</li>
+    <li> This is a fantastic  skin cleaning product, you feel your skin very clean and it is very refreshing. I love the citrus fragrance. I bought three of them.</li>
+</ol>
+
+
+
+

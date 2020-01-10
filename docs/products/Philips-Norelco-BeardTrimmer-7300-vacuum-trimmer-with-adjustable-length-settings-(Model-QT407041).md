@@ -3,8 +3,8 @@ title: Philips Norelco BeardTrimmer 7300, vacuum trimmer with adjustable length 
 description: Philips Norelco BeardTrimmer 7300, vacuum trimmer with adjustable length settings (Model # QT4070/41),
 author: Suvojit Manna,
 tags: Philips Norelco BeardTrimmer 7300, vacuum trimmer with adjustable length settings (Model # QT4070/41),
-publishedAt: Thu Jan 09 2020 19:08:30 GMT+0530 (India Standard Time),
-modifiedAt: Thu Jan 09 2020 19:08:30 GMT+0530 (India Standard Time),
+publishedAt: Fri Jan 10 2020 14:59:53 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:59:53 GMT+0530 (India Standard Time),
 ---
 
 # [Philips Norelco BeardTrimmer 7300, vacuum trimmer with adjustable length settings (Model # QT4070/41)](https://products.checkmycream.com/products/Philips-Norelco-BeardTrimmer-7300-vacuum-trimmer-with-adjustable-length-settings-(Model-QT407041).html)
@@ -12,211 +12,211 @@ modifiedAt: Thu Jan 09 2020 19:08:30 GMT+0530 (India Standard Time),
 ### Positive Reviews
 
 <ol>
+      <li>It works perfect and he is very happy.</li>
+      <li>The cleaning brush that is included is one of the best ones that I have used.</li>
+      <li>Best trimmer ever.</li>
+      <li>Great buy!</li>
+      <li>One of the best design and useability.</li>
+      <li>Best Beard trimmer ever!</li>
+      <li>Excellent beard trimmer.  </li>
+      <li>Great for manscaping too!</li>
       <li>especially liked this because it had one head and the blade positioning adjusts.  </li>
+      <li>I&#x27;m very happy with this purchase, and would recommend to another.</li>
       <li>The Norelco seems to be the best of them all.</li>
+      <li>it.&lt;br /&gt;&lt;br /&gt;I am very impressed.  </li>
+      <li>This trimmer is the best I&#x27;ve ever used!</li>
+      <li>This is an awesome product.</li>
+      <li>another one-thought it to be one of the best trimmers I&#x27;ve ever used/owned</li>
+      <li>This is probably the best trimmer I&#x27;ve had.  </li>
+      <li>Best grooming purchase I have ever made.  </li>
+      <li>The Philips Norelco Qt4070 is the best one yet.</li>
       <li>This product is great!</li>
+      <li>I&#x27;m impressed!</li>
+      <li>shorter/longer cut is awesome.</li>
+      <li>I wondered how some guys had that perfectly groomed beard.  </li>
+      <li>This thing is great!</li>
+      <li>Very happy with this.</li>
+      <li>Works great!  </li>
+      <li>Amazon had the best price I could find for this trimmer.</li>
+      <li>This trimmer works awesome.</li>
+      <li>this trimmer did the job on all perfectly.  </li>
       <li>Best Trimmer on the market</li>
+      <li>best since the 980.  </li>
+      <li>/&gt;Before you begin trimming, the manual notes that in order to perform the best job it is best to comb the beard out.</li>
+      <li>Maintaining a beard or musttash is what this product appears to be best suited for.</li>
+      <li>This beard trimmer is my newest best friend.</li>
+      <li>could be your best friend, but for what I was looking for it was overkill on features, and underwhelming on delivering the 5 o&#x27;clock look.</li>
       <li>Excellent.</li>
       <li>Perfect trimmer.</li>
+      <li>Excellent in every way.</li>
+      <li>the guard is awesome.</li>
+      <li>Best trimmer I have purchased.&lt;br</li>
+      <li>Otherwise, works excellently.</li>
+      <li>Now I have used this item and it performs GREAT!</li>
+      <li>He says it&#x27;s the best trimmer he&#x27;s ever had!</li>
+      <li>Excellent replacement for a Wahl trimmer</li>
+      <li>The Norelco trimmer works great!</li>
+      <li>Supposedly best rated trimmer</li>
+      <li>It does an excellent job of grooming.</li>
+      <li>But after some research I think this is the best deal around.</li>
+      <li>I just got this and used it...and it works awesome.</li>
+      <li>It has quite a bit of precision when it comes to height, perfect for those who know just what they want.&lt;br /&gt;&lt;br</li>
+      <li>/&gt;The build quality is something to be desired, but portability is excellent!</li>
+      <li>My husband is very happy with this product</li>
+      <li>One of the best around according to my husband.</li>
+      <li>Best beard trimmer I have ever had.</li>
+      <li>This is a great device for all the family!  </li>
+      <li>If your looking for THE best beard trimmer, then you have found it.</li>
       <li>He was also impressed that it came with a charger.</li>
+      <li>The LED display for height and battery remaining is excellent.  </li>
       <li>I could go on and on about what a great product this is...highly recommended!!</li>
       <li>great product!</li>
-      <li>Very happy with my purchase.</li>
-      <li>i am very happy with the trimmer.</li>
-      <li>and this works perfectly.  </li>
-      <li>The Philips Norelco QT4070 is the greatest trimmer I have ever used.  </li>
-      <li>and I find this razor is perfect for that.</li>
-      <li>In this regard, this trimmer has been wonderful.  </li>
-      <li>It does an excellent job.  </li>
-      <li>Great product!</li>
-      <li>Works great!</li>
-      <li>Best feature is lithium battery.</li>
-      <li>If you want stubble, it is perfect.</li>
-      <li>But for what it is designed for it is the best I ever had.</li>
-      <li>This trimmer is excellent.</li>
-      <li>The LED display is just magnificent and the turn-dial works perfect.</li>
-      <li>The Phillips Norelco turned out to be close to perfect.</li>
-      <li>Happy with my purchase!</li>
-      <li>And I have to say that this razor is awesome!  </li>
-      <li>This is the best trimmer I have ever had.</li>
-      <li>However, nothing is perfect.</li>
-      <li>And, it would have been perfect if a carry case had been included.</li>
-      <li>However, I still rate them as the best of the best.</li>
-      <li>It&#x27;s perfect!</li>
-      <li>This beard trimmer is great!</li>
-      <li>This thing is great!</li>
-      <li>it.&lt;br /&gt;&lt;br /&gt;I am very impressed.  </li>
-      <li>Best damn electric trimmer I have ever had!</li>
-      <li>Maintaining a beard or musttash is what this product appears to be best suited for.</li>
-      <li>If your looking for THE best beard trimmer, then you have found it.</li>
-      <li>but it still does an excellent job.</li>
-      <li>Keeps the beard and mustache under control and he looks awesome.  </li>
-      <li>This trimmer is excellent.  </li>
-      <li>I&#x27;ve used the trimmer 4 times since then and have been very happy with the quality of the trimmer.&lt;br /&gt;&lt;br</li>
-      <li>Excellent product.  </li>
-      <li>Supposedly best rated trimmer</li>
-      <li>this trimmer did the job on all perfectly.  </li>
-      <li>Excellent beard trimmer.  </li>
-      <li>The Philips Norelco Qt4070 is the best one yet.</li>
-      <li>Very happy with this.</li>
-      <li>/&gt;Before you begin trimming, the manual notes that in order to perform the best job it is best to comb the beard out.</li>
-      <li>It has quite a bit of precision when it comes to height, perfect for those who know just what they want.&lt;br /&gt;&lt;br</li>
+      <li>perfect beard trimmer.</li>
+      <li>Excellent battery life.</li>
+      <li>Great!</li>
+      <li>Best he&#x27;s ever had.</li>
+      <li>Great shaver!</li>
       <li>Great!</li>
       <li>Buy one, its great!</li>
       <li>This the best I&#x27;ve come across.  </li>
-      <li>It&#x27;s the best I&#x27;ve seen yet, and that, I&#x27;ve used so far...by a mile or more....!!!!  </li>
-      <li>The best I have ever owned.</li>
-      <li>so hope it is as wonderful as it looks.  </li>
-      <li>Although sum hair doesn&#x27;t get vacuumed up this thing is great!</li>
-      <li>Very happy with this purchase.</li>
-      <li>But the engineers at Norelco have taken a wonderfully designed T980 trimmer and screwed it up royally.</li>
-      <li>This is the best trimmer in my opinion.  </li>
-      <li>omg best solution ever....</li>
-      <li>so this trimmer is the best shaver ever...</li>
-      <li>Best trimmer i&#x27;ve ever had.</li>
-      <li>This trimmer is excellent.</li>
-      <li>Excellent product, does just what is says it does.</li>
-      <li>Husband said turbo is great too!</li>
-      <li>Excellent device.</li>
-      <li>It works great!  </li>
-      <li>This is the best I have seen!</li>
-      <li>[...] was so delightful</li>
-      <li>best trimmer i have used</li>
-      <li>I asked for it since I figured it would be an excellent upgrade.  </li>
-      <li>This is one of the best products on the market.  </li>
-      <li>East to use - great shave!</li>
-      <li>Best of both worlds.</li>
-      <li>but hey, nothings perfect</li>
-      <li>/&gt;It performs beautifully!  </li>
-      <li>The product, if used strictly for beard trimming is awesome!</li>
-      <li>I have found this trimmer to be perfect for those needs.  </li>
-      <li>but now I&#x27;m impressed!</li>
-      <li>The Qt4070 was perfect for my needs...</li>
-      <li>best trimmer ever.</li>
       <li>The height selection is excellent.</li>
-      <li>The LED display for height and battery remaining is excellent.  </li>
-      <li>The Norelco trimmer works great!</li>
-      <li>Amazon had the best price I could find for this trimmer.</li>
-      <li>shorter/longer cut is awesome.</li>
-      <li>Best he&#x27;s ever had.</li>
+      <li>It&#x27;s the best I&#x27;ve seen yet, and that, I&#x27;ve used so far...by a mile or more....!!!!  </li>
+      <li>Excellent product.  </li>
+      <li>Very happy with my purchase.</li>
+      <li>This is an excellent product for grooming stubble and/or body</li>
       <li>I&#x27;m using the trimmer without it&#x27;s head (the shortest setting 0.5 mm) and it does a perfect job.&lt;br /&gt;I</li>
+      <li>The best I have ever owned.</li>
+      <li>but it still does an excellent job.</li>
+      <li>This trimmer is wonderful.</li>
+      <li>Perfect gift!</li>
+      <li>so hope it is as wonderful as it looks.  </li>
+      <li>i am very happy with the trimmer.</li>
+      <li>This thing is awesome!</li>
+      <li>Works great!</li>
+      <li>I like the product, however not the best.</li>
+      <li>, this beard and mustache trimmer was the perfect choice</li>
+      <li>Since I still have that attachment, I tried it on the 4070 and it works perfectly.  </li>
+      <li>It trims his beard perfectly.  </li>
+      <li>I bought this trimmer over a year ago and am very happy with it.</li>
+      <li>I&#x27;ve used the trimmer 4 times since then and have been very happy with the quality of the trimmer.&lt;br /&gt;&lt;br</li>
+      <li>Also, I wasn&#x27;t impressed by the trimming comb attachments.</li>
+      <li>Although sum hair doesn&#x27;t get vacuumed up this thing is great!</li>
       <li>AND I GOT IT IN PERFECT TIMEING</li>
-      <li>That&#x27;s eight months of excellent performance on one charge.</li>
-      <li>Just wasn&#x27;t impressive at all.</li>
-      <li>Very happy with it.</li>
-      <li>This grooming product works perfectly.  </li>
-      <li>This trimmer seemed to be the best of all.</li>
-      <li>All In One Trimmer]] since then, and don&#x27;t cease to be impressed if not amazed by it&#x27;s battery life.</li>
-      <li>For this, it is perfect.</li>
-      <li>These are absolutely perfect.</li>
-      <li>A Great trimmer!</li>
-      <li>Awesome.</li>
-      <li>Great Trimmer!</li>
+      <li>Excellent Product as advertised.</li>
+      <li>the best beard trimmer i&#x27;ve ever used.</li>
+      <li>Very happy with this purchase.</li>
+      <li>This trimmer is excellent.  </li>
+      <li>I gave this razor as a Christmas gift to my friend and he says it&#x27;s the best he has ever used and loves it.</li>
+      <li>This is intended to not be comprehensive, a lot of folks have done an awesome job with the pros and cons</li>
+      <li>Great product!</li>
+      <li>But the engineers at Norelco have taken a wonderfully designed T980 trimmer and screwed it up royally.</li>
+      <li>Best beard trimmer I have ever owned.</li>
+      <li>For over $50 I would expect it to give a perfect, uniform trim.  </li>
 </ol>
 
 
 <h2>Negative Reviews</h2>
 <ol>
+<li> It works perfect and he is very happy.</li>
+<li> The cleaning brush that is included is one of the best ones that I have used.</li>
+<li> Best trimmer ever.</li>
+<li> Great buy!</li>
+<li> One of the best design and useability.</li>
+<li> Best Beard trimmer ever!</li>
+<li> Excellent beard trimmer.  </li>
+<li> Great for manscaping too!</li>
 <li> especially liked this because it had one head and the blade positioning adjusts.  </li>
+<li> I&#x27;m very happy with this purchase, and would recommend to another.</li>
 <li> The Norelco seems to be the best of them all.</li>
+<li> it.&lt;br /&gt;&lt;br /&gt;I am very impressed.  </li>
+<li> This trimmer is the best I&#x27;ve ever used!</li>
+<li> This is an awesome product.</li>
+<li> another one-thought it to be one of the best trimmers I&#x27;ve ever used/owned</li>
+<li> This is probably the best trimmer I&#x27;ve had.  </li>
+<li> Best grooming purchase I have ever made.  </li>
+<li> The Philips Norelco Qt4070 is the best one yet.</li>
 <li> This product is great!</li>
+<li> I&#x27;m impressed!</li>
+<li> shorter/longer cut is awesome.</li>
+<li> I wondered how some guys had that perfectly groomed beard.  </li>
+<li> This thing is great!</li>
+<li> Very happy with this.</li>
+<li> Works great!  </li>
+<li> Amazon had the best price I could find for this trimmer.</li>
+<li> This trimmer works awesome.</li>
+<li> this trimmer did the job on all perfectly.  </li>
 <li> Best Trimmer on the market</li>
+<li> best since the 980.  </li>
+<li> /&gt;Before you begin trimming, the manual notes that in order to perform the best job it is best to comb the beard out.</li>
+<li> Maintaining a beard or musttash is what this product appears to be best suited for.</li>
+<li> This beard trimmer is my newest best friend.</li>
+<li> could be your best friend, but for what I was looking for it was overkill on features, and underwhelming on delivering the 5 o&#x27;clock look.</li>
 <li> Excellent.</li>
 <li> Perfect trimmer.</li>
+<li> Excellent in every way.</li>
+<li> the guard is awesome.</li>
+<li> Best trimmer I have purchased.&lt;br</li>
+<li> Otherwise, works excellently.</li>
+<li> Now I have used this item and it performs GREAT!</li>
+<li> He says it&#x27;s the best trimmer he&#x27;s ever had!</li>
+<li> Excellent replacement for a Wahl trimmer</li>
+<li> The Norelco trimmer works great!</li>
+<li> Supposedly best rated trimmer</li>
+<li> It does an excellent job of grooming.</li>
+<li> But after some research I think this is the best deal around.</li>
+<li> I just got this and used it...and it works awesome.</li>
+<li> It has quite a bit of precision when it comes to height, perfect for those who know just what they want.&lt;br /&gt;&lt;br</li>
+<li> /&gt;The build quality is something to be desired, but portability is excellent!</li>
+<li> My husband is very happy with this product</li>
+<li> One of the best around according to my husband.</li>
+<li> Best beard trimmer I have ever had.</li>
+<li> This is a great device for all the family!  </li>
+<li> If your looking for THE best beard trimmer, then you have found it.</li>
 <li> He was also impressed that it came with a charger.</li>
+<li> The LED display for height and battery remaining is excellent.  </li>
 <li> I could go on and on about what a great product this is...highly recommended!!</li>
 <li> great product!</li>
-<li> Very happy with my purchase.</li>
-<li> i am very happy with the trimmer.</li>
-<li> and this works perfectly.  </li>
-<li> The Philips Norelco QT4070 is the greatest trimmer I have ever used.  </li>
-<li> and I find this razor is perfect for that.</li>
-<li> In this regard, this trimmer has been wonderful.  </li>
-<li> It does an excellent job.  </li>
-<li> Great product!</li>
-<li> Works great!</li>
-<li> Best feature is lithium battery.</li>
-<li> If you want stubble, it is perfect.</li>
-<li> But for what it is designed for it is the best I ever had.</li>
-<li> This trimmer is excellent.</li>
-<li> The LED display is just magnificent and the turn-dial works perfect.</li>
-<li> The Phillips Norelco turned out to be close to perfect.</li>
-<li> Happy with my purchase!</li>
-<li> And I have to say that this razor is awesome!  </li>
-<li> This is the best trimmer I have ever had.</li>
-<li> However, nothing is perfect.</li>
-<li> And, it would have been perfect if a carry case had been included.</li>
-<li> However, I still rate them as the best of the best.</li>
-<li> It&#x27;s perfect!</li>
-<li> This beard trimmer is great!</li>
-<li> This thing is great!</li>
-<li> it.&lt;br /&gt;&lt;br /&gt;I am very impressed.  </li>
-<li> Best damn electric trimmer I have ever had!</li>
-<li> Maintaining a beard or musttash is what this product appears to be best suited for.</li>
-<li> If your looking for THE best beard trimmer, then you have found it.</li>
-<li> but it still does an excellent job.</li>
-<li> Keeps the beard and mustache under control and he looks awesome.  </li>
-<li> This trimmer is excellent.  </li>
-<li> I&#x27;ve used the trimmer 4 times since then and have been very happy with the quality of the trimmer.&lt;br /&gt;&lt;br</li>
-<li> Excellent product.  </li>
-<li> Supposedly best rated trimmer</li>
-<li> this trimmer did the job on all perfectly.  </li>
-<li> Excellent beard trimmer.  </li>
-<li> The Philips Norelco Qt4070 is the best one yet.</li>
-<li> Very happy with this.</li>
-<li> /&gt;Before you begin trimming, the manual notes that in order to perform the best job it is best to comb the beard out.</li>
-<li> It has quite a bit of precision when it comes to height, perfect for those who know just what they want.&lt;br /&gt;&lt;br</li>
+<li> perfect beard trimmer.</li>
+<li> Excellent battery life.</li>
+<li> Great!</li>
+<li> Best he&#x27;s ever had.</li>
+<li> Great shaver!</li>
 <li> Great!</li>
 <li> Buy one, its great!</li>
 <li> This the best I&#x27;ve come across.  </li>
-<li> It&#x27;s the best I&#x27;ve seen yet, and that, I&#x27;ve used so far...by a mile or more....!!!!  </li>
-<li> The best I have ever owned.</li>
-<li> so hope it is as wonderful as it looks.  </li>
-<li> Although sum hair doesn&#x27;t get vacuumed up this thing is great!</li>
-<li> Very happy with this purchase.</li>
-<li> But the engineers at Norelco have taken a wonderfully designed T980 trimmer and screwed it up royally.</li>
-<li> This is the best trimmer in my opinion.  </li>
-<li> omg best solution ever....</li>
-<li> so this trimmer is the best shaver ever...</li>
-<li> Best trimmer i&#x27;ve ever had.</li>
-<li> This trimmer is excellent.</li>
-<li> Excellent product, does just what is says it does.</li>
-<li> Husband said turbo is great too!</li>
-<li> Excellent device.</li>
-<li> It works great!  </li>
-<li> This is the best I have seen!</li>
-<li> [...] was so delightful</li>
-<li> best trimmer i have used</li>
-<li> I asked for it since I figured it would be an excellent upgrade.  </li>
-<li> This is one of the best products on the market.  </li>
-<li> East to use - great shave!</li>
-<li> Best of both worlds.</li>
-<li> but hey, nothings perfect</li>
-<li> /&gt;It performs beautifully!  </li>
-<li> The product, if used strictly for beard trimming is awesome!</li>
-<li> I have found this trimmer to be perfect for those needs.  </li>
-<li> but now I&#x27;m impressed!</li>
-<li> The Qt4070 was perfect for my needs...</li>
-<li> best trimmer ever.</li>
 <li> The height selection is excellent.</li>
-<li> The LED display for height and battery remaining is excellent.  </li>
-<li> The Norelco trimmer works great!</li>
-<li> Amazon had the best price I could find for this trimmer.</li>
-<li> shorter/longer cut is awesome.</li>
-<li> Best he&#x27;s ever had.</li>
+<li> It&#x27;s the best I&#x27;ve seen yet, and that, I&#x27;ve used so far...by a mile or more....!!!!  </li>
+<li> Excellent product.  </li>
+<li> Very happy with my purchase.</li>
+<li> This is an excellent product for grooming stubble and/or body</li>
 <li> I&#x27;m using the trimmer without it&#x27;s head (the shortest setting 0.5 mm) and it does a perfect job.&lt;br /&gt;I</li>
+<li> The best I have ever owned.</li>
+<li> but it still does an excellent job.</li>
+<li> This trimmer is wonderful.</li>
+<li> Perfect gift!</li>
+<li> so hope it is as wonderful as it looks.  </li>
+<li> i am very happy with the trimmer.</li>
+<li> This thing is awesome!</li>
+<li> Works great!</li>
+<li> I like the product, however not the best.</li>
+<li> , this beard and mustache trimmer was the perfect choice</li>
+<li> Since I still have that attachment, I tried it on the 4070 and it works perfectly.  </li>
+<li> It trims his beard perfectly.  </li>
+<li> I bought this trimmer over a year ago and am very happy with it.</li>
+<li> I&#x27;ve used the trimmer 4 times since then and have been very happy with the quality of the trimmer.&lt;br /&gt;&lt;br</li>
+<li> Also, I wasn&#x27;t impressed by the trimming comb attachments.</li>
+<li> Although sum hair doesn&#x27;t get vacuumed up this thing is great!</li>
 <li> AND I GOT IT IN PERFECT TIMEING</li>
-<li> That&#x27;s eight months of excellent performance on one charge.</li>
-<li> Just wasn&#x27;t impressive at all.</li>
-<li> Very happy with it.</li>
-<li> This grooming product works perfectly.  </li>
-<li> This trimmer seemed to be the best of all.</li>
-<li> All In One Trimmer]] since then, and don&#x27;t cease to be impressed if not amazed by it&#x27;s battery life.</li>
-<li> For this, it is perfect.</li>
-<li> These are absolutely perfect.</li>
-<li> A Great trimmer!</li>
-<li> Awesome.</li>
-<li> Great Trimmer!</li>
+<li> Excellent Product as advertised.</li>
+<li> the best beard trimmer i&#x27;ve ever used.</li>
+<li> Very happy with this purchase.</li>
+<li> This trimmer is excellent.  </li>
+<li> I gave this razor as a Christmas gift to my friend and he says it&#x27;s the best he has ever used and loves it.</li>
+<li> This is intended to not be comprehensive, a lot of folks have done an awesome job with the pros and cons</li>
+<li> Great product!</li>
+<li> But the engineers at Norelco have taken a wonderfully designed T980 trimmer and screwed it up royally.</li>
+<li> Best beard trimmer I have ever owned.</li>
+<li> For over $50 I would expect it to give a perfect, uniform trim.  </li>
 </ol>
 
 <h2>All Reviews</h2>
@@ -2228,6 +2228,7 @@ modifiedAt: Thu Jan 09 2020 19:08:30 GMT+0530 (India Standard Time),
     <li> I tried this on numerous occasions and it consitently missed hairs or left whole areas much longer or much shorter than everywhere else.  I tried repeatedly going over and over the same spots from different directions.  After my face was rubbed raw from these attempts I gave up and returned it.  I need something that trims my beard and despite it&#x27;s name, this failed to do that for me.&lt;br /&gt;&lt;br /&gt;Pro&#x27;s:  Vacuum collected most (not all) of the hair.&lt;br /&gt;&lt;br /&gt;Con&#x27;s:  The contour following guide has a gap in the middle so it stabs you and allows certain areas to trim too closely.  The vacuum puts a gap between the blade and the guard so it is a little awkward/unusable trying to get a close/accurate trim from that direction.</li>
     <li> The adjustable head on this beard trimmer was exactly what I was looking for. I didn&#x27;t want to carry around multiple clips that I would have to attach to the clippers. The cut is really good, and the contour attachment makes cutting under my chin a lot easier.&lt;br /&gt;&lt;br /&gt;I was disappointed in the vacuum capabilities of this trimmer. While it does catch a lot of hair, there is still a good amount that falls in the sink, and the way the head is designed, the hair keeps getting caught where the vacuum sucks the hair in. This blocks the clipper and you have to remove the hair before you can keep cutting.&lt;br /&gt;&lt;br /&gt;Other than that the trimmer works well, and I highly recommend for travel!</li>
 </ol>
+
 
 
 

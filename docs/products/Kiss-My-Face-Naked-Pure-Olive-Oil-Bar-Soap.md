@@ -1,0 +1,276 @@
+---
+title: Kiss My Face Naked Pure Olive Oil Bar Soap,
+description: Kiss My Face Naked Pure Olive Oil Bar Soap,
+author: Suvojit Manna,
+tags: Kiss My Face Naked Pure Olive Oil Bar Soap,
+publishedAt: Fri Jan 10 2020 14:59:27 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:59:27 GMT+0530 (India Standard Time),
+---
+
+# [Kiss My Face Naked Pure Olive Oil Bar Soap](https://products.checkmycream.com/products/Kiss-My-Face-Naked-Pure-Olive-Oil-Bar-Soap.html)
+
+### Positive Reviews
+
+<ol>
+      <li>they smell wonderful.</li>
+      <li>The texture and aroma of the bars are wonderful.</li>
+      <li>my Face have the perfect combination...</li>
+      <li>It makes the bathroom smell wonderful too.  </li>
+      <li>Excellent quality.</li>
+      <li>A wonderful soap.</li>
+      <li>and I literally cannot believe how great it feels!</li>
+      <li>I was very happy with the delivery.</li>
+      <li>The lavender smell adds a lot to this wonderful soap bar.  </li>
+      <li>Smells great!</li>
+      <li>Great buy!</li>
+      <li>Both the scent and the feel is awesome.  </li>
+      <li>This soap is absolutely amazing!!</li>
+      <li>It IS a pleasant scent!</li>
+      <li>This soap is wonderful, smells nice</li>
+      <li>but the lavender scent is great.</li>
+      <li>It works great for shaving for my husband too.</li>
+      <li>It lathers great  4.</li>
+      <li>Love it !!</li>
+      <li>But it feels good on the skin.  </li>
+      <li>This ones isn&#x27;t as good.</li>
+      <li>It feels good on the skin    </li>
+      <li>so it was a good price too for a healthier soap.  </li>
+      <li>The lavender and the olive oil make a good quality</li>
+      <li>I tried the olive oil and olive oil &amp; aloe soaps and loved them.  </li>
+      <li>However, the soap lathers well, cleans nicely, and feels good on the skin.  </li>
+      <li>The lavender scent soap is just wonderfully scented while using it and most importantly it doesn&#x27;t cause dryness.  </li>
+      <li>I love this soap!</li>
+      <li>What a surprise, it was better than the soap I was looking for!</li>
+      <li>I love this soap!  </li>
+      <li>Love the scent!</li>
+      <li>Love it!  </li>
+      <li>More lavender scented goodies!</li>
+      <li>although great for my skin, they tended to make my hair oily and melt too easily into a browny sludge in the soap dish.  </li>
+      <li>But the lavender one has a much more pleasant aroma.</li>
+      <li>When I wake up I have nice waves</li>
+      <li>And it lathers up nicely, but not too much.&lt;br /&gt;&lt;br</li>
+      <li>It&#x27;s nice I can use it on my body too.</li>
+      <li>soap is perfect, and I love it so much.</li>
+      <li>I liked them just OK.</li>
+      <li>Very strong odor, maybe more olivy than lavender which perfume  </li>
+      <li>Not tested on animals and is made with healthy ingredients.  </li>
+      <li>While it was healing I would rub it with coconut oil and aloe after washing, but now that it&#x27;s healthy</li>
+      <li>You can find this brand in most health food stores if you just want to try it.</li>
+      <li>From the first use my hair has been amazing!</li>
+      <li>I haven&#x27;t tried their version with aloe which might be even better</li>
+      <li>I love this soap.</li>
+      <li>/&gt;Lavender is one of my favorite scents.  </li>
+      <li>(I use more in the morning).</li>
+      <li>I love it.</li>
+      <li>The size of the bars are my husbands favorite reason he likes the bars.</li>
+      <li>Love this soap.</li>
+      <li>Love everything about it.</li>
+      <li>Absolutely love this soap.</li>
+      <li>I love the smell and the cleanliness factor and the packaging, etc.</li>
+      <li>but surely we are getting there, and this Kiss My Face soap was one of this months changes.</li>
+      <li>Love the scent.</li>
+      <li>I cannot believe how fabulous my hair looks and feels!</li>
+      <li>We love this soap-</li>
+      <li>It isn&#x27;t as moisturizing as Toms or Dr. Bonners,but it&#x27;s just ok.</li>
+      <li>This soap is fantastic!</li>
+      <li>It would be nice if an 8-pack with a variety of fragrances were available.  </li>
+      <li>I have it in the shower on a coated wire shower rack which has plenty of air flow to keep it dry between using and it&#x27;s working perfectly for me.</li>
+      <li>Great smell and leaves skin soft!</li>
+      <li>and it was great for the skin and didn&#x27;t cause any breakouts or rashes on my partner with sensitive skin.</li>
+      <li>Gentle but thorough - and it smells good, too.  </li>
+      <li>There is a very very light clean scent.  </li>
+      <li>Very mild on the hands</li>
+      <li>primarily so it is easy on my skin.</li>
+      <li>I didn&#x27;t), but way too strong for the face.  </li>
+      <li>It has a really strong fragrance.</li>
+      <li>I am super allergic to so many soaps, not this one, its so pure !!!</li>
+      <li>I used the olive oil smelling one and it worked fine.</li>
+      <li>Works fine.</li>
+      <li>This time around I went for the one with Lavender to hopefully get a bit of a natural pleasant scent.</li>
+      <li>I love the kids my face brand soap my skin is not as dry and this scent smells great.</li>
+      <li>I really want to like this soap since it is gentle, moisturizing, and smells great.  </li>
+      <li>8oz bar is HUGE.</li>
+      <li>It&#x27;s huge and would break your toe if you dropped it.</li>
+      <li>I really love this soap - has all natural products and no chemicals, and the scent is nice - like a light lavender and is not cloying.  </li>
+      <li>Had the aloe vera, which leaves a nice feeling on the skin afterwards but smells really funky.</li>
+      <li>It is very large, so better for bath than for hand washing by the sink.  </li>
+      <li>I don&#x27;t like this one any more than I like most scented personal and household products, but unlike most, this one smells really, really strong.    </li>
+      <li>there is actually a greater percentage of Olive oil in them than the Savon de Marseille, no rough flower petals, and a beautiful natural scent.  </li>
+      <li>I did try the original version of this soap for a while</li>
+      <li>overall great soap that doesn&#x27;t cause dry itchy skin or irritation and leaves a pleasant scent.</li>
+      <li>I love that these soaps are more natural.</li>
+      <li>I love the size of the bars they are nice and big.</li>
+      <li>Rinses off clean.  </li>
+      <li>My beloved Savon de Marseille has had to take second place in my favorites list now!</li>
+      <li>I purchased this bar soap from whole foods, as I do most of my beauty supplies.</li>
+      <li>This soap smells very good and is large so it lasts a long time!!  </li>
+      <li>It has a mild lavender scent and the bar is long-lasting.</li>
+      <li>It&#x27;s a good sized bar, but rectangular, so easy to handle in the shower, and it leaves my hair and skin feeling soft, not dry.  </li>
+      <li>After the first time I used this soap my face felt so clean and the acne started clearing up immediately.</li>
+      <li>I&#x27;ve been using this for a little over a month now and am so happy with the results.&lt;br</li>
+      <li>This is heavily scented, smells great  </li>
+      <li>The bar lasts longer and is worth the money.</li>
+      <li>It lathers up pretty good for an all-natural product and lasts a long time.  </li>
+      <li>It&#x27;s a good soap but get only 3 stars because I don&#x27;t much like the frangrance.</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> they smell wonderful.</li>
+<li> The texture and aroma of the bars are wonderful.</li>
+<li> my Face have the perfect combination...</li>
+<li> It makes the bathroom smell wonderful too.  </li>
+<li> Excellent quality.</li>
+<li> A wonderful soap.</li>
+<li> and I literally cannot believe how great it feels!</li>
+<li> I was very happy with the delivery.</li>
+<li> The lavender smell adds a lot to this wonderful soap bar.  </li>
+<li> Smells great!</li>
+<li> Great buy!</li>
+<li> Both the scent and the feel is awesome.  </li>
+<li> This soap is absolutely amazing!!</li>
+<li> It IS a pleasant scent!</li>
+<li> This soap is wonderful, smells nice</li>
+<li> but the lavender scent is great.</li>
+<li> It works great for shaving for my husband too.</li>
+<li> It lathers great  4.</li>
+<li> Love it !!</li>
+<li> But it feels good on the skin.  </li>
+<li> This ones isn&#x27;t as good.</li>
+<li> It feels good on the skin    </li>
+<li> so it was a good price too for a healthier soap.  </li>
+<li> The lavender and the olive oil make a good quality</li>
+<li> I tried the olive oil and olive oil &amp; aloe soaps and loved them.  </li>
+<li> However, the soap lathers well, cleans nicely, and feels good on the skin.  </li>
+<li> The lavender scent soap is just wonderfully scented while using it and most importantly it doesn&#x27;t cause dryness.  </li>
+<li> I love this soap!</li>
+<li> What a surprise, it was better than the soap I was looking for!</li>
+<li> I love this soap!  </li>
+<li> Love the scent!</li>
+<li> Love it!  </li>
+<li> More lavender scented goodies!</li>
+<li> although great for my skin, they tended to make my hair oily and melt too easily into a browny sludge in the soap dish.  </li>
+<li> But the lavender one has a much more pleasant aroma.</li>
+<li> When I wake up I have nice waves</li>
+<li> And it lathers up nicely, but not too much.&lt;br /&gt;&lt;br</li>
+<li> It&#x27;s nice I can use it on my body too.</li>
+<li> soap is perfect, and I love it so much.</li>
+<li> I liked them just OK.</li>
+<li> Very strong odor, maybe more olivy than lavender which perfume  </li>
+<li> Not tested on animals and is made with healthy ingredients.  </li>
+<li> While it was healing I would rub it with coconut oil and aloe after washing, but now that it&#x27;s healthy</li>
+<li> You can find this brand in most health food stores if you just want to try it.</li>
+<li> From the first use my hair has been amazing!</li>
+<li> I haven&#x27;t tried their version with aloe which might be even better</li>
+<li> I love this soap.</li>
+<li> /&gt;Lavender is one of my favorite scents.  </li>
+<li> (I use more in the morning).</li>
+<li> I love it.</li>
+<li> The size of the bars are my husbands favorite reason he likes the bars.</li>
+<li> Love this soap.</li>
+<li> Love everything about it.</li>
+<li> Absolutely love this soap.</li>
+<li> I love the smell and the cleanliness factor and the packaging, etc.</li>
+<li> but surely we are getting there, and this Kiss My Face soap was one of this months changes.</li>
+<li> Love the scent.</li>
+<li> I cannot believe how fabulous my hair looks and feels!</li>
+<li> We love this soap-</li>
+<li> It isn&#x27;t as moisturizing as Toms or Dr. Bonners,but it&#x27;s just ok.</li>
+<li> This soap is fantastic!</li>
+<li> It would be nice if an 8-pack with a variety of fragrances were available.  </li>
+<li> I have it in the shower on a coated wire shower rack which has plenty of air flow to keep it dry between using and it&#x27;s working perfectly for me.</li>
+<li> Great smell and leaves skin soft!</li>
+<li> and it was great for the skin and didn&#x27;t cause any breakouts or rashes on my partner with sensitive skin.</li>
+<li> Gentle but thorough - and it smells good, too.  </li>
+<li> There is a very very light clean scent.  </li>
+<li> Very mild on the hands</li>
+<li> primarily so it is easy on my skin.</li>
+<li> I didn&#x27;t), but way too strong for the face.  </li>
+<li> It has a really strong fragrance.</li>
+<li> I am super allergic to so many soaps, not this one, its so pure !!!</li>
+<li> I used the olive oil smelling one and it worked fine.</li>
+<li> Works fine.</li>
+<li> This time around I went for the one with Lavender to hopefully get a bit of a natural pleasant scent.</li>
+<li> I love the kids my face brand soap my skin is not as dry and this scent smells great.</li>
+<li> I really want to like this soap since it is gentle, moisturizing, and smells great.  </li>
+<li> 8oz bar is HUGE.</li>
+<li> It&#x27;s huge and would break your toe if you dropped it.</li>
+<li> I really love this soap - has all natural products and no chemicals, and the scent is nice - like a light lavender and is not cloying.  </li>
+<li> Had the aloe vera, which leaves a nice feeling on the skin afterwards but smells really funky.</li>
+<li> It is very large, so better for bath than for hand washing by the sink.  </li>
+<li> I don&#x27;t like this one any more than I like most scented personal and household products, but unlike most, this one smells really, really strong.    </li>
+<li> there is actually a greater percentage of Olive oil in them than the Savon de Marseille, no rough flower petals, and a beautiful natural scent.  </li>
+<li> I did try the original version of this soap for a while</li>
+<li> overall great soap that doesn&#x27;t cause dry itchy skin or irritation and leaves a pleasant scent.</li>
+<li> I love that these soaps are more natural.</li>
+<li> I love the size of the bars they are nice and big.</li>
+<li> Rinses off clean.  </li>
+<li> My beloved Savon de Marseille has had to take second place in my favorites list now!</li>
+<li> I purchased this bar soap from whole foods, as I do most of my beauty supplies.</li>
+<li> This soap smells very good and is large so it lasts a long time!!  </li>
+<li> It has a mild lavender scent and the bar is long-lasting.</li>
+<li> It&#x27;s a good sized bar, but rectangular, so easy to handle in the shower, and it leaves my hair and skin feeling soft, not dry.  </li>
+<li> After the first time I used this soap my face felt so clean and the acne started clearing up immediately.</li>
+<li> I&#x27;ve been using this for a little over a month now and am so happy with the results.&lt;br</li>
+<li> This is heavily scented, smells great  </li>
+<li> The bar lasts longer and is worth the money.</li>
+<li> It lathers up pretty good for an all-natural product and lasts a long time.  </li>
+<li> It&#x27;s a good soap but get only 3 stars because I don&#x27;t much like the frangrance.</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> My husband has negative skin reactions to most soaps but this one allows him to bathe with pleasure.  It makes the bathroom smell wonderful too.  The negative is that it dissolves and melts more than other soaps so that it leaves a residue wherever you leave the wet bar - mainly on the soap tray in the shower or on the sink.  It is very large, so better for bath than for hand washing by the sink.  But it feels good on the skin.  I haven&#x27;t tried their version with aloe which might be even better but the lavender scent is great.</li>
+    <li> We love this soap- it&#x27;s substantial size, sofetning ingresients and it&#x27;s all natural. It works great for shaving for my husband too.</li>
+    <li> I&#x27;ve been switching our families products to natural and organic whenever I can. Slowly but surely we are getting there, and this Kiss My Face soap was one of this months changes. The Food Babe suggested this, as well as the Kiss My Face lotion which we also bought. I was worried it wouldn&#x27;t suds up like regular soap and I was very wrong. This soap is wonderful, smells nice and it&#x27;s also a really sizeable bar. We keep it on our metal shower caddy instead of the soap dish to keep it from melting. I would definitely recommend!</li>
+    <li> Love this soap. Not tested on animals and is made with healthy ingredients.  Smells great!</li>
+    <li> I always use this for my shower soap! Great smell and leaves skin soft!</li>
+    <li> This soap should be used in an auto mechanics washroom as a hand soap.  It can really cut grease (by the way did you know that this soap was made in Greece - I didn&#x27;t), but way too strong for the face.  Also the bars are huge bricks that are hard to hold.  I&#x27;ll never buy or use this stuff again.</li>
+    <li> I like this soap a lot. I used the olive oil smelling one and it worked fine. But the lavender one has a much more pleasant aroma. I love that these soaps are more natural.</li>
+    <li> When I turned 20 I started having the worst acne ever. I tried EVERY acne product there was out there to no avail. One day I was talking about it to a friend and she told me that she had the same problem and the only thing that worked was when she went \\&quot;all natural.\\&quot; So I found this soap at the grocery store and decided to try it.&lt;br /&gt;OH MY GOSH! You know how people will tell you the acne will get worse before it gets better if you&#x27;ve found the right product? Well they are WRONG! After the first time I used this soap my face felt so clean and the acne started clearing up immediately. I highly highly highly recommend trying this if nothing else has worked for you. I would also recommend using a little bit of lavender oil on your face after you&#x27;ve washed it. (I have since quit using the lavender oil, but it seemed to really help the process at first) This soap is absolutely amazing!!</li>
+    <li> I like this soap and couldn&#x27;t find it locally.</li>
+    <li> Love it !! I am super allergic to so many soaps, not this one, its so pure !!!</li>
+    <li> I really want to like this soap since it is gentle, moisturizing, and smells great.  However, after a week of infrequent use, this thing has totally disintegrated into a green slimy mess in our soap dish.      Would you really want this kissing your face?    [...]</li>
+    <li> I discovered Kiss My Face products maybe 20 years ago.  I was looking for a large size bath soap that didn&#x27;t dry out my skin and didn&#x27;t have a scent.  I tried the olive oil and olive oil &amp; aloe soaps and loved them.  There is a very very light clean scent.  The lavender scent soap is just wonderfully scented while using it and most importantly it doesn&#x27;t cause dryness.  One draw back if you use white or light color wash cloths -- it will stain it after prolonged use.  I also use the moisture lotion olive and aloe when needed especially in winter.  There are stronger scented products that come in soft soap pump style containers.  You can find this brand in most health food stores if you just want to try it. Then buy it in larger quanties on Amazon at a lower unit cost.</li>
+    <li> I really love this soap - has all natural products and no chemicals, and the scent is nice - like a light lavender and is not cloying.  It lathers up pretty good for an all-natural product and lasts a long time.  The bars are kind of big and a bit unwieldy in the beginning - wouldn&#x27;t want to drop it on a toe, but they do last forever.  Rinses off clean.  I&#x27;ve been using this soap for years and will never switch again!</li>
+    <li> They are too large too heavy and make a gooey mess on the bottom.&lt;br /&gt;but they smell wonderful.</li>
+    <li> I&#x27;ve been using this soap for several years, and I particularly like the lavender scent since it does not cause any allergic reactions.  It does leave the skin feeling very soft.  I would highly recommend this product.</li>
+    <li> Absolutely love this soap. I have sensitive skin and this is mild enough not to cause irritation. Love the scent. It is somewhat soft so you can not let it sit in water. I have it in the shower on a coated wire shower rack which has plenty of air flow to keep it dry between using and it&#x27;s working perfectly for me.</li>
+    <li> This is nice soap and it does last a long time if you keep it on a soap saver soap dish(take a hot knife and cut the bars in half). But, the ingredients are questionable.&lt;br /&gt;Why would they need to add fragrance at the end if it has lavendar oil?  It isn&#x27;t as moisturizing as Toms or Dr. Bonners,but it&#x27;s just ok.</li>
+    <li> Been buying this for years. Kiss My Face and Bronners have kept clear of the destroy-our-health effects of the chemical companies who produce products masquerading as soap. Large bars, does not dry skin. I love it.</li>
+    <li> This soap is fantastic! I have used it every day since I got it. I love the size of the bars they are nice and big. The size of the bars are my husbands favorite reason he likes the bars. The texture and aroma of the bars are wonderful. I couldn&#x27;t find the soap I was looking for, so I bought this soap. What a surprise, it was better than the soap I was looking for! I will buy this exact bar of soap again.</li>
+    <li> This soap is a sensible extravagance.  Skin care and hygiene in one bar of soap. I have less dry skin and there are no perfumes to irritate sensitive family members.</li>
+    <li> Was looking for healthier soap options (you rub this all over your body everyday! it should be non-toxic!!) and found this bar. My whole family loves it and I don&#x27;t feel the need to use anything else. Ever. I love the smell and the cleanliness factor and the packaging, etc. Love everything about it.</li>
+    <li> I love this soap!  Both the scent and the feel is awesome.  The lavender and the olive oil make a good quality product.&lt;br /&gt;&lt;br /&gt;Lavender is one of my favorite scents.  The lavender smell adds a lot to this wonderful soap bar.  The smell of it is music to my nose.&lt;br /&gt;&lt;br /&gt;The feel is smooth and soft, but not too slippery.  It feels like heaven.  And it lathers up nicely, but not too much.&lt;br /&gt;&lt;br /&gt;The bar is pretty big, so it will last a while.  Therefore, the price is not that bad considering how long it will last.&lt;br /&gt;&lt;br /&gt;This soap is perfect, and I love it so much.</li>
+    <li> I had bad eczema on my back that I had been treating with hydrocortisone cream, but I decided to try out something gentler.  I wash my back every other day with this soap and the eczema is gone!  While it was healing I would rub it with coconut oil and aloe after washing, but now that it&#x27;s healthy that&#x27;s not even necessary.</li>
+    <li> Gentle but thorough - and it smells good, too.  Only reason it&#x27;s not a five star product is the size of the bar. It&#x27;s huge and would break your toe if you dropped it. I cut my bars into either two or four smaller bars using a kitchen knife heated with hot water. Works fine.</li>
+    <li> Large, heavy, and slippery bars are hard to hold onto in the shower...and 8 bars may last a year!  The lavender fragrance seems a bit &amp;#34;medicinal.&amp;#34;  It would be nice if an 8-pack with a variety of fragrances were available.  However, the soap lathers well, cleans nicely, and feels good on the skin.  The bars are also about half as expensive as another olive soap I&#x27;ve been using.</li>
+    <li> I love this soap! I have been using it for 6 years and I will continue to use it. I will buy again</li>
+    <li> Had to get a different brand than I usually get. Do not like this one as much. But will have to live with it. I have lupus and my skin itches all the time and the olive oil and lavender soap usually helps. This ones isn&#x27;t as good. I was very happy with the delivery. Thank you.</li>
+    <li> I&#x27;ve been using this soap for years. It has a mild lavender scent and the bar is long-lasting.</li>
+    <li> Mmmm! More lavender scented goodies! I love this soap.</li>
+    <li> What can I say? The bars are all natural and each bar lasts me about 16 days and I bathe morning and night (I use more in the morning). Great buy!</li>
+    <li> This soap smells very good and is large so it lasts a long time!!  We can make one bar last 3-4 weeks!  We bought bulk so it was a good price too for a healthier soap.  It also doesn&#x27;t dry out the skin.</li>
+    <li> Love the scent! The bar lasts longer and is worth the money.</li>
+    <li> I bought these years ago. Several for a pretty low cost. I liked them just OK. Years ago I tried the &amp;#34;no poo&amp;#34; method and did the baking soda apple cider vinegar thing. For me, the transition period never ended. My hair was just gross on a pretty regular basis. I did try the original version of this soap for a while but I think because the grease was so heavy in my hair from several months of the BS/ACV method it didn&#x27;t work well.&lt;br /&gt;&lt;br /&gt;Fast forward a few years and I&#x27;ve been toying with revisiting no poo and even tried co-washing for a while. My hair is fine and conditioner makes it so limp and it gets greasy fast - even sometimes right after a shower. I had several versions of this OO bar in my cupboard and decided to bust it out. Wow! From the first use my hair has been amazing! Just as soft or more so than using condition but not limp. Fuller. Thicker. I can go about 3-4 days now in between washes with this. I do use a dry shampoo (usually baby powder) in between but don&#x27;t need much. I cannot believe how fabulous my hair looks and feels! I&#x27;ve been using this for a little over a month now and am so happy with the results.&lt;br /&gt;&lt;br /&gt;It does make your hair feel a bit weird after washing. Not the same as shampoo at all - it feels fuller even when wet. I shower at night. Let it air dry for a while then put into a bun and sleep on it. When I wake up I have nice waves and I literally cannot believe how great it feels! It&#x27;s nice I can use it on my body too. My husband loves that I only have one product in the shower now too!</li>
+    <li> It really helps with my dry skin.</li>
+    <li> Had the unscented, it smeels a little funny. Had the aloe vera, which leaves a nice feeling on the skin afterwards but smells really funky. This is heavily scented, smells great  and I like the just showered smell.</li>
+    <li> A wonderful soap. I previously tried the bar that was simply Olive Oil and it was great for the skin and didn&#x27;t cause any breakouts or rashes on my partner with sensitive skin. This time around I went for the one with Lavender to hopefully get a bit of a natural pleasant scent. Overall a great bar that I will definitely be buying again as long as it&#x27;s available.&lt;br /&gt;&lt;br /&gt;So why only 4 starts?&lt;br /&gt;&lt;br /&gt;The 8oz bar is HUGE. It&#x27;s hard to grip for me and my hands aren&#x27;t tiny. There&#x27;s no way a child could use without dropping it constantly.  It costs a bit more to go with the 4oz bars, but I highly recommend them especially if you have children or elderly using this.&lt;br /&gt;&lt;br /&gt;The scent is stronger than expected.  The packaging is this: soap wrapped in thin cardboard and a heavy paper outter wrapping, 4 bars wrapped together in plastic, the 8 bars then in a sealed plastic bag, everything inside a taped Amazon box.  So you wouldn&#x27;t think, with all that packaging, that the scent of this soap would be apparent before even picking up the Amazon box, but it is. The whole bathroom smells of the soap immediately after opening and that scent doesn&#x27;t go away.  It IS a pleasant scent! I only wish it was about half the strength.&lt;br /&gt;&lt;br /&gt;An overall great soap that doesn&#x27;t cause dry itchy skin or irritation and leaves a pleasant scent.</li>
+    <li> Excellent quality. Very mild on the hands</li>
+    <li> Individual bars are huge, so I cut them in half.  A dark olive green bar with a very very faint lavender scent, but a nice soft feel.  One box will last us a long time.</li>
+    <li> There&#x27;s a lot I like about this soap:  1. It&#x27;s cruelty-free  2. The big bars are economical, because you&#x27;re only left with a stub to throw out half as often as with the standard 4 oz. bars  3. It lathers great  4. It feels good on the skin    But here&#x27;s what I don&#x27;t like:  1. It has a really strong fragrance. I know that smell is a matter of taste (no pun here), and some people probably like the olive and lavender fragrance. But I&#x27;m really picky about fragrances. (Don&#x27;t even try to sell me a scented laundry detergent!) I don&#x27;t like this one any more than I like most scented personal and household products, but unlike most, this one smells really, really strong.    Unfortunately, I purchased the whole pack, so I&#x27;ll have to give away all but the one I opened!</li>
+    <li> It saddens me to write this review as I strongly support natural products. I purchased this bar soap from whole foods, as I do most of my beauty supplies. I use Kiss My Face body lotion and have had no problems. Unfortunately, Kiss My Face bar soap caused me to break out in the worst rash I have ever had. I developed bruises on my body from the uncontrollable itch, I could not get any relief! It took me a while to figure out it was my bar soap. I went to my dermatologist multiple times and they misdiagnosed me with scabies!! When that medicine did not work, they had me change my laundry detergent to unscented and switch to dove unscented bar soap. It was not until I was rash free for over a month, I reintroduced the kiss my face bar soap, and with in a few hours broke out in the same horrible rash. If you have sensitive skin, I would not purchase this soap! I&#x27;m writing this post because I don&#x27;t want anyone else to have to suffer like I did :(</li>
+    <li> Very strong odor, maybe more olivy than lavender which perfume  I can&#x27;t detect at all. These are big bars and slippery, too large for my hand so I start them off in old stockings. The good thing is they are not tested on animals (such as applying to poor rabbits&#x27; eyes). It&#x27;s a good soap but get only 3 stars because I don&#x27;t much like the frangrance.</li>
+    <li> I love the kids my face brand soap my skin is not as dry and this scent smells great.</li>
+    <li> I&#x27;ve been experimenting with different Olive oil based soaps over the past couple of months...I wanted something I could wash both hair and body with and that would help with a flare up of very dry itchy skin.  I started with Savon de Marseilles, but didn&#x27;t like the smell of the unscented versions, and the blocks that contained flower petals, although beautifully scented, were a little hard to handle in the shower due to size.  Then I went to Olivella, but although great for my skin, they tended to make my hair oily and melt too easily into a browny sludge in the soap dish.  Kiss my Face have the perfect combination...there is actually a greater percentage of Olive oil in them than the Savon de Marseille, no rough flower petals, and a beautiful natural scent.  It&#x27;s a good sized bar, but rectangular, so easy to handle in the shower, and it leaves my hair and skin feeling soft, not dry.  Love it!  My beloved Savon de Marseille has had to take second place in my favorites list now!</li>
+    <li> I like this soap really well, but be forewarned that these are HUGE bars, almost too big to handle comfortably.  Therefore, it&#x27;s a great value, especially if you have very big hands.</li>
+    <li> Since most soaps are made of harsh chemicals that dry your skin, I was happy to find this product that is natural and not loaded with dyes and perfumes. Since finding this soap a few years ago, I haven&#x27;t used anything else.</li>
+    <li> My favorite soap in the entire world. Gentle enough for your body and your face which is rare these days. It&#x27;s hard to justify $20+ for soap, but this is very much worth it. Plus it is much cheaper to buy on Amazon in this quantity than it is anywhere else.</li>
+    <li> I bought this for the low ingredient content, no harmful chems or anything and made of olive oil primarily so it is easy on my skin. Price I paid on here was much cheaper than any store where I live.</li>
+</ol>
+
+
+
+

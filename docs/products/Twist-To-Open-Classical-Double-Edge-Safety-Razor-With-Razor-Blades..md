@@ -1,0 +1,259 @@
+---
+title: Twist To Open Classical Double Edge Safety Razor With Razor Blades.,
+description: Twist To Open Classical Double Edge Safety Razor With Razor Blades.,
+author: Suvojit Manna,
+tags: Twist To Open Classical Double Edge Safety Razor With Razor Blades.,
+publishedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
+---
+
+# [Twist To Open Classical Double Edge Safety Razor With Razor Blades.](https://products.checkmycream.com/products/Twist-To-Open-Classical-Double-Edge-Safety-Razor-With-Razor-Blades..html)
+
+### Positive Reviews
+
+<ol>
+      <li>No cuts perfect shave!</li>
+      <li>I&#x27;m happy with this razor!</li>
+      <li>No need to buy from a bald guy who owns a pawn shop, lol!</li>
+      <li>Very happy with product.</li>
+      <li>I immediately ordered a Parker 96-R and that is the best one.</li>
+      <li>Awesome razor.</li>
+      <li>I find that it works the best while saving my head.</li>
+      <li>Very good razor.</li>
+      <li>Good value excellent product.</li>
+      <li>Everyone says it great for a beginner,  </li>
+      <li>it&#x27;s a great start.&lt;br</li>
+      <li>Works great at a great price.</li>
+      <li>I opened the box and got to the shaving, which was great.  </li>
+      <li>Great product for the price.  </li>
+      <li>The weight, blade angle, and guards are superior with the MingShi.</li>
+      <li>Not as good of a shave as I thought it would be</li>
+      <li>Good shaves.</li>
+      <li>The razor is a beautiful piece of workmanship to begin with...much better than I was expecting.</li>
+      <li>I&#x27;m sure the case would be great for traveling too.</li>
+      <li>The difference between this and the Gillette was amazing.</li>
+      <li>The comfort of this razor was amazing.</li>
+      <li>Comes in a nice sturdy travel case.</li>
+      <li>Nice starter.</li>
+      <li>The packs of included blades are nice as well.</li>
+      <li>yea, it comes in a case which is handy if you don&#x27;t have a stand to put the razor on.  </li>
+      <li>I must be honest, I bought this razor just for the travel case.  </li>
+      <li>/&gt;Since this was my first time getting a safety razor I decided that it would be best to buy a chipper one based on the Original Gillette Buterfly Safety Razor.</li>
+      <li>Purchased this razor for about $10, most travel cases cost more than $10 on their own.  </li>
+      <li>It works and I&#x27;m enjoying it</li>
+      <li>The razor looks nice, is light and works as it should.  </li>
+      <li>and I find it gives me better control during the shave.</li>
+      <li>I shaved with one of the five Mingshi blades provided with it, and found it to be somewhat more aggressive than the Weishi.</li>
+      <li>I&#x27;ve been using this thing daily for about 2 months and am still very happy.</li>
+      <li>Completely satisfied.  </li>
+      <li>opinion is if this is your first time using a safety razor this Mingshi is a good buy.</li>
+      <li>and I get the nice close clean smooth save</li>
+      <li>Nice razor came right on time</li>
+      <li>For the price this is a GOOD razor with a SOLID feel that gives a nice shave.</li>
+      <li>However, with very gentle strokes used , it delivered a nearly perfect shave, with only one pass .</li>
+      <li>I am new to using a safety razor and wasn&#x27;t going to spend $35, $50 or more just to find out if I liked this style of razor.</li>
+      <li>This razor is cheap quality, but gets the job done.</li>
+      <li>It is extremely light, not like my Edwin Jagger</li>
+      <li>This applied, my  face is baby butt smooth with no irritation.</li>
+      <li>cheap shave.</li>
+      <li>have only used one of the sample razor blades with is the Jianyu (with I&#x27;m happy with and has not had to change yet), but I plan to use all three samples the flying eagle and YingJili.</li>
+      <li>hoped my Merkur razor would fit in the travel case, but no.</li>
+      <li>Nice inexpensive set that works as it should a very close shave.</li>
+      <li>If you want a cheap safety razor buy the Parker 91R for about $30.</li>
+      <li>Which I like because I like to keep a smooth head, for the ladies to rub!&lt;br /&gt;&lt;br</li>
+      <li>Well worth the money!</li>
+      <li>Cool product.  </li>
+      <li>Not bad for the price.</li>
+      <li>/&gt;I was a bit concerned at first due to the sort handle and lite weight, but I most say I was pleasantly surprise at the quality and effectiveness of the razor.&lt;br /&gt;&lt;br</li>
+      <li>then once against the grain shaving motions, which was enough to get a nice smooth shave.  </li>
+      <li>Fairly mild.</li>
+      <li>good chrome finish and heavy metal feel but wish it could be thinner at the top to help is shaping beard</li>
+      <li>(Which is the chippest price I can find), I felt the price wasn&#x27;t worth the product</li>
+      <li>The enclosed blades from Ying JiLi and Mingshi are wickedly sharp, and good for any number of shaves dependent on your beard.  </li>
+      <li>My first recent purchase was a vintage Gillette which is nice, but a bit unforgiving for me.</li>
+      <li>Take something that&#x27;s normally made of metal for good reason and replace as much as possible of it with plastic.</li>
+      <li>I come love Gillette products, but since the price of Gillette razors blades for Fusion are about $20 at Dollars General  </li>
+      <li>Bought as a gift to a friend as his first safety razor.</li>
+      <li>The blades do a great job on my beard, which is pretty thick, while it doesn&#x27;t irritate my skin.  </li>
+      <li>My first foray into safety razors.  </li>
+      <li>is.&lt;br /&gt;Otherwise, this shaver works about on par with most double edge razors I have tried.  </li>
+      <li>The blade angle is just right and very forgiving.</li>
+      <li>It is slightly less in the appearance and feel of quality than the Weishi razor that I got a few days ago, but for the price, is still very impressive.</li>
+      <li>I really like it...been using it for about four months now...</li>
+      <li>If I want a really, really close shave</li>
+      <li>only negative thought is that it feels kinda light and cheap and the butterfly top is flimsy.  </li>
+      <li>Bothersome, but doesn&#x27;t really affect the shave.  </li>
+      <li>Not only does it give a close shave, and the blade doesn&#x27;t get all gunked up, but also it is cost effective because the blades last longer and are cheaper to replace.</li>
+      <li>The razor itself is of decent build quality, I don&#x27;t care for the weight.  </li>
+      <li>Highly recommend this.</li>
+      <li>highly recommend the MingShi.</li>
+      <li>WOW!</li>
+      <li>some minor oxidizing is beginning to occur and I will most likely upgrade in the next couple of months, but I think it will just end up in my travel kit then.  </li>
+      <li>I personally feel that the worst DE razor and blades available is still better than the best, and most expensive multi blade razor!</li>
+      <li>I usually follow up with an excellent after shave balm, made  by combining a small amount of cocoa butter skin lotion (Queen Helene, sold at Walmart and many other stores for less than two dollars for a big bottle) and Old Spice.</li>
+      <li>It has a classy appearance.&lt;br /&gt;One</li>
+      <li>Took a bit to get used to shaving this way but is so much cheaper than throwing away money to big name razor companies.</li>
+      <li>as far as saving cream, I use Queen Helene coco butter hand and body lotion.</li>
+      <li>I really don&#x27;t like those scalloped butterfly doors above the blade edges.  </li>
+      <li>I have a medium beard; each blade has given me three close shaves so far</li>
+      <li>Works really well and should save quite a bit of money in the long run.  </li>
+      <li>If you are tired of paying high dollars for multi-blasde cartridges, and think you might want to try a single blade shave, buy this razor!&lt;br /&gt;Barbers shave you with only one blade, why should you buy carts with multiple blades that don&#x27;t give as good a shave?&lt;br /&gt;I</li>
+      <li>This razor works extremely well - no nicks in 3 weeks of shaving and it gives me a really close shave...</li>
+      <li>first it&#x27;s a little tricky to get use too</li>
+      <li>If you have someone who is new to the prospect of wet shaving, I would not start them on.</li>
+      <li>Additionally, to extend the life of the razor, dry it thoroughly after each shave (take care to get all the water out of the hollow handle), and place a drop of light machine oil down the handle occasionally (to keep the zinc rod from corroding).  </li>
+      <li>I would only buy if you are new to wet shaving and cannot afford to buy a $40 razor (Merkur).</li>
+      <li>it will need oiled, but since it&#x27;s basically the Gillette Buterfly Safety Razor, all that is needed is a few drops of oil down the center hole in the top part of the razor.</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> No cuts perfect shave!</li>
+<li> I&#x27;m happy with this razor!</li>
+<li> No need to buy from a bald guy who owns a pawn shop, lol!</li>
+<li> Very happy with product.</li>
+<li> I immediately ordered a Parker 96-R and that is the best one.</li>
+<li> Awesome razor.</li>
+<li> I find that it works the best while saving my head.</li>
+<li> Very good razor.</li>
+<li> Good value excellent product.</li>
+<li> Everyone says it great for a beginner,  </li>
+<li> it&#x27;s a great start.&lt;br</li>
+<li> Works great at a great price.</li>
+<li> I opened the box and got to the shaving, which was great.  </li>
+<li> Great product for the price.  </li>
+<li> The weight, blade angle, and guards are superior with the MingShi.</li>
+<li> Not as good of a shave as I thought it would be</li>
+<li> Good shaves.</li>
+<li> The razor is a beautiful piece of workmanship to begin with...much better than I was expecting.</li>
+<li> I&#x27;m sure the case would be great for traveling too.</li>
+<li> The difference between this and the Gillette was amazing.</li>
+<li> The comfort of this razor was amazing.</li>
+<li> Comes in a nice sturdy travel case.</li>
+<li> Nice starter.</li>
+<li> The packs of included blades are nice as well.</li>
+<li> yea, it comes in a case which is handy if you don&#x27;t have a stand to put the razor on.  </li>
+<li> I must be honest, I bought this razor just for the travel case.  </li>
+<li> /&gt;Since this was my first time getting a safety razor I decided that it would be best to buy a chipper one based on the Original Gillette Buterfly Safety Razor.</li>
+<li> Purchased this razor for about $10, most travel cases cost more than $10 on their own.  </li>
+<li> It works and I&#x27;m enjoying it</li>
+<li> The razor looks nice, is light and works as it should.  </li>
+<li> and I find it gives me better control during the shave.</li>
+<li> I shaved with one of the five Mingshi blades provided with it, and found it to be somewhat more aggressive than the Weishi.</li>
+<li> I&#x27;ve been using this thing daily for about 2 months and am still very happy.</li>
+<li> Completely satisfied.  </li>
+<li> opinion is if this is your first time using a safety razor this Mingshi is a good buy.</li>
+<li> and I get the nice close clean smooth save</li>
+<li> Nice razor came right on time</li>
+<li> For the price this is a GOOD razor with a SOLID feel that gives a nice shave.</li>
+<li> However, with very gentle strokes used , it delivered a nearly perfect shave, with only one pass .</li>
+<li> I am new to using a safety razor and wasn&#x27;t going to spend $35, $50 or more just to find out if I liked this style of razor.</li>
+<li> This razor is cheap quality, but gets the job done.</li>
+<li> It is extremely light, not like my Edwin Jagger</li>
+<li> This applied, my  face is baby butt smooth with no irritation.</li>
+<li> cheap shave.</li>
+<li> have only used one of the sample razor blades with is the Jianyu (with I&#x27;m happy with and has not had to change yet), but I plan to use all three samples the flying eagle and YingJili.</li>
+<li> hoped my Merkur razor would fit in the travel case, but no.</li>
+<li> Nice inexpensive set that works as it should a very close shave.</li>
+<li> If you want a cheap safety razor buy the Parker 91R for about $30.</li>
+<li> Which I like because I like to keep a smooth head, for the ladies to rub!&lt;br /&gt;&lt;br</li>
+<li> Well worth the money!</li>
+<li> Cool product.  </li>
+<li> Not bad for the price.</li>
+<li> /&gt;I was a bit concerned at first due to the sort handle and lite weight, but I most say I was pleasantly surprise at the quality and effectiveness of the razor.&lt;br /&gt;&lt;br</li>
+<li> then once against the grain shaving motions, which was enough to get a nice smooth shave.  </li>
+<li> Fairly mild.</li>
+<li> good chrome finish and heavy metal feel but wish it could be thinner at the top to help is shaping beard</li>
+<li> (Which is the chippest price I can find), I felt the price wasn&#x27;t worth the product</li>
+<li> The enclosed blades from Ying JiLi and Mingshi are wickedly sharp, and good for any number of shaves dependent on your beard.  </li>
+<li> My first recent purchase was a vintage Gillette which is nice, but a bit unforgiving for me.</li>
+<li> Take something that&#x27;s normally made of metal for good reason and replace as much as possible of it with plastic.</li>
+<li> I come love Gillette products, but since the price of Gillette razors blades for Fusion are about $20 at Dollars General  </li>
+<li> Bought as a gift to a friend as his first safety razor.</li>
+<li> The blades do a great job on my beard, which is pretty thick, while it doesn&#x27;t irritate my skin.  </li>
+<li> My first foray into safety razors.  </li>
+<li> is.&lt;br /&gt;Otherwise, this shaver works about on par with most double edge razors I have tried.  </li>
+<li> The blade angle is just right and very forgiving.</li>
+<li> It is slightly less in the appearance and feel of quality than the Weishi razor that I got a few days ago, but for the price, is still very impressive.</li>
+<li> I really like it...been using it for about four months now...</li>
+<li> If I want a really, really close shave</li>
+<li> only negative thought is that it feels kinda light and cheap and the butterfly top is flimsy.  </li>
+<li> Bothersome, but doesn&#x27;t really affect the shave.  </li>
+<li> Not only does it give a close shave, and the blade doesn&#x27;t get all gunked up, but also it is cost effective because the blades last longer and are cheaper to replace.</li>
+<li> The razor itself is of decent build quality, I don&#x27;t care for the weight.  </li>
+<li> Highly recommend this.</li>
+<li> highly recommend the MingShi.</li>
+<li> WOW!</li>
+<li> some minor oxidizing is beginning to occur and I will most likely upgrade in the next couple of months, but I think it will just end up in my travel kit then.  </li>
+<li> I personally feel that the worst DE razor and blades available is still better than the best, and most expensive multi blade razor!</li>
+<li> I usually follow up with an excellent after shave balm, made  by combining a small amount of cocoa butter skin lotion (Queen Helene, sold at Walmart and many other stores for less than two dollars for a big bottle) and Old Spice.</li>
+<li> It has a classy appearance.&lt;br /&gt;One</li>
+<li> Took a bit to get used to shaving this way but is so much cheaper than throwing away money to big name razor companies.</li>
+<li> as far as saving cream, I use Queen Helene coco butter hand and body lotion.</li>
+<li> I really don&#x27;t like those scalloped butterfly doors above the blade edges.  </li>
+<li> I have a medium beard; each blade has given me three close shaves so far</li>
+<li> Works really well and should save quite a bit of money in the long run.  </li>
+<li> If you are tired of paying high dollars for multi-blasde cartridges, and think you might want to try a single blade shave, buy this razor!&lt;br /&gt;Barbers shave you with only one blade, why should you buy carts with multiple blades that don&#x27;t give as good a shave?&lt;br /&gt;I</li>
+<li> This razor works extremely well - no nicks in 3 weeks of shaving and it gives me a really close shave...</li>
+<li> first it&#x27;s a little tricky to get use too</li>
+<li> If you have someone who is new to the prospect of wet shaving, I would not start them on.</li>
+<li> Additionally, to extend the life of the razor, dry it thoroughly after each shave (take care to get all the water out of the hollow handle), and place a drop of light machine oil down the handle occasionally (to keep the zinc rod from corroding).  </li>
+<li> I would only buy if you are new to wet shaving and cannot afford to buy a $40 razor (Merkur).</li>
+<li> it will need oiled, but since it&#x27;s basically the Gillette Buterfly Safety Razor, all that is needed is a few drops of oil down the center hole in the top part of the razor.</li>
+<li> The head has the same flat angle as the Schick Krona with novel scalloped doors, which expose a lot of the blade edge.  </li>
+<li> Single blade shaves very close with less irritation.</li>
+<li> and I would highly recommend it to anyone tired of paying exorbitant prices for modern day replacement blades.</li>
+<li> I live in Pittsburgh Pennsylvania and it took about a week and a half to get her from</li>
+<li> apply and re-shave any areas that are hard to get to the first time and that leaves everything like the proverbial baby&#x27;s bottom.</li>
+<li> I was skeptical at first, but was pleasantly surprised with this razor.</li>
+<li> Saves you money in a long run.</li>
+<li> and I found that the Fusion didn&#x27;t case any burns as long as I waited 5 days in between saves.&lt;br /&gt;&lt;br /&gt;I</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> Not bad for the price. Was a little hard to open, but it eventually opened. Blades are sharp</li>
+    <li> Better then buying a pack of razors that r very expensive and with this one u just buy the blade and off u go.</li>
+    <li> Took a bit to get used to shaving this way but is so much cheaper than throwing away money to big name razor companies.</li>
+    <li> Bought as a gift to a friend as his first safety razor. He loves it. Said he has never has such a close shave. Well worth the money!</li>
+    <li> very dissatisfied, razors are particularly bad, not even lasting the shave.  Would never buy it again!</li>
+    <li> Well i bought this and man cut me did it!! So bought a MERKUR black handle long and wowsers! No cuts perfect shave! Fork out the 40 or 60 bucks and buy a premium razor trust me</li>
+    <li> Now I have been using Gillette Fusion Razors since they come on the market several years ago, and prior to that I had used Gillette Mock 3 razor since in started saving at 16.&lt;br /&gt;&lt;br /&gt;I have always uses Gillette products because Gillette send me a starters kit for my 16th birthday. I come love Gillette products, but since the price of Gillette razors blades for Fusion are about $20 at Dollars General  (Which is the chippest price I can find), I felt the price wasn&#x27;t worth the product I was getting.&lt;br /&gt;&lt;br /&gt;I began to look at other razors companies but based on the design of the razors I know they would not work the same way of do the job like Gillette Fusion. Since I&#x27;m and African American razor burns are quite common for me and I found that the Fusion didn&#x27;t case any burns as long as I waited 5 days in between saves.&lt;br /&gt;&lt;br /&gt;I then remembered that my grandfather used a Gillette safety razor up until about 5 years before his death and he saved everyday without any razor burns, so I decided to order a safety razor.&lt;br /&gt;&lt;br /&gt;Since this was my first time getting a safety razor I decided that it would be best to buy a chipper one based on the Original Gillette Buterfly Safety Razor. So I purchased this razor.&lt;br /&gt;&lt;br /&gt;I was a bit concerned at first due to the sort handle and lite weight, but I most say I was pleasantly surprise at the quality and effectiveness of the razor.&lt;br /&gt;&lt;br /&gt;What would taken me and hour and a half to save my head and face on my Gillette Fusion, now takes me 20 minutes to save and I get the nice close clean smooth save I like.&lt;br /&gt;&lt;br /&gt;At first it&#x27;s a little tricky to get use too, I nicked myself a few times, but afterword I have no problem. I don&#x27;t have to wait a minimum of 5 days before I can save again. Which I like because I like to keep a smooth head, for the ladies to rub!&lt;br /&gt;&lt;br /&gt;I&#x27;ve had the razor for over a month now and I couldn&#x27;t be happier with the razor. I have not had to change the blade yet, and I&#x27;m using the Chinese blades that came with the razor.&lt;br /&gt;&lt;br /&gt;No I know since this has in movable parts it will need oiled, but since it&#x27;s basically the Gillette Buterfly Safety Razor, all that is needed is a few drops of oil down the center hole in the top part of the razor. I&#x27;ve read that people complained about it sticking while trying to open the razor butterfly arms, but a few grops of oil once a month should keep it from sticking.&lt;br /&gt;&lt;br /&gt;Since it is lite weight, I believe if dropped it will break, but for a razor a this price it&#x27;s nothing to get to worked up about. I live in Pittsburgh Pennsylvania and it took about a week and a half to get her from China.&lt;br /&gt;&lt;br /&gt;No as far as saving cream, I use Queen Helene coco butter hand and body lotion. I find that it works the best while saving my head. As for my face I use woman&#x27;s saving creams. I know it&#x27;s suggested that you us saving soap with a safety razor, but I have had no problems using what I have been using for the last 5 years.&lt;br /&gt;&lt;br /&gt;I have only used one of the sample razor blades with is the Jianyu (with I&#x27;m happy with and has not had to change yet), but I plan to use all three samples the flying eagle and YingJili. The set also comes with 5 razors blades made by the manufacturer of the razors Ming Shi blades, but I will update with my opinion about the quality of the blades when I use them.&lt;br /&gt;&lt;br /&gt;My opinion is if this is your first time using a safety razor this Mingshi is a good buy. I will never go back to multiple blades razors again. Too bad Gillette does not make safety razors anymore.</li>
+    <li> I really don&#x27;t like those scalloped butterfly doors above the blade edges.  They don&#x27;t seem to do anything but let the blade flex a bit.&lt;br /&gt;Really do like the case.  It has a classy appearance.&lt;br /&gt;One of this brand of razor I bought (I have two) has a handle which twists in two places.  Weird.  Bothersome, but doesn&#x27;t really affect the shave.  Can&#x27;t tell if it&#x27;s supposed to be that way or what the deal is.&lt;br /&gt;Otherwise, this shaver works about on par with most double edge razors I have tried.  Fairly mild.</li>
+    <li> Completely satisfied.  Great product for the price.  Delivered promptly and I would highly recommend it to anyone tired of paying exorbitant prices for modern day replacement blades.</li>
+    <li> This razor works extremely well - no nicks in 3 weeks of shaving and it gives me a really close shave... close enough that I now shave every other day. If I want a really, really close shave I take a little extra time, after using shave cream, rinse and use a product in a small bottle that is called &amp;#34;Shave Secret&amp;#34; (about 6 drops) apply and re-shave any areas that are hard to get to the first time and that leaves everything like the proverbial baby&#x27;s bottom. Also, the handle is about 1/2&amp;#34; longer than the Wishi and I find it gives me better control during the shave. I would recommend to a friend.</li>
+    <li> Nice inexpensive set that works as it should a very close shave. No need to buy from a bald guy who owns a pawn shop, lol!</li>
+    <li> Nice razor came right on time and I like it I did get it as a gift so I only assume it works but it&#x27;s a razor and the blades fit so how can it be bad.</li>
+    <li> cheap shave. I like it</li>
+    <li> Sorry guys but the safey bar on this one is made of plastic! The rest is made of metal but that  piece of brittle plastic is a dealbreaker for me I&#x27;m afraid. I like the design of the razor.too bad quality is low.for this only one star.</li>
+    <li> Very happy with product. Comes in a nice sturdy travel case. Single blade shaves very close with less irritation. No need to spend 20+ dollars for blades.</li>
+    <li> This is stereotypical Chinese &amp;#34;cut corners everywhere&amp;#34; manufacturing. Take something that&#x27;s normally made of metal for good reason and replace as much as possible of it with plastic. Then paint the plastic to make it look like metal.&lt;br /&gt;&lt;br /&gt;This is going into the trash. If you want a cheap safety razor buy the Parker 91R for about $30.</li>
+    <li> Got my Mingshi today. It is slightly less in the appearance and feel of quality than the Weishi razor that I got a few days ago, but for the price, is still very impressive. I shaved with one of the five Mingshi blades provided with it, and found it to be somewhat more aggressive than the Weishi. However, with very gentle strokes used , it delivered a nearly perfect shave, with only one pass . I usually follow up with an excellent after shave balm, made  by combining a small amount of cocoa butter skin lotion (Queen Helene, sold at Walmart and many other stores for less than two dollars for a big bottle) and Old Spice. This applied, my  face is baby butt smooth with no irritation. I&#x27;m happy with this razor! I personally feel that the worst DE razor and blades available is still better than the best, and most expensive multi blade razor!</li>
+    <li> Cool product.  Was considering joining the dollar shave club to save money, but ultimately decided to try this instead. Works really well and should save quite a bit of money in the long run.  It also looks a lot nicer than disposable razors.</li>
+    <li> This is a small razor, uncomfortable to hold while shaving and very cheaply made. I immediately ordered a Parker 96-R and that is the best one.</li>
+    <li> This razor is cheap quality, but gets the job done. When I started wet shaving, this was the razor I bought and it did the job, until it broke about  8 months after I brought it. I would only buy if you are new to wet shaving and cannot afford to buy a $40 razor (Merkur).</li>
+    <li> good chrome finish and heavy metal feel but wish it could be thinner at the top to help is shaping beard</li>
+    <li> I was skeptical at first, but was pleasantly surprised with this razor. For the price this is a GOOD razor with a SOLID feel that gives a nice shave. I am new to using a safety razor and wasn&#x27;t going to spend $35, $50 or more just to find out if I liked this style of razor. I&#x27;ve been using this thing daily for about 2 months and am still very happy. The packs of included blades are nice as well. They are all Chinese blades so you can&#x27;t read the packaging, but again for the price it&#x27;s a great start.&lt;br /&gt;One of the butterflys can go out of alignment when changing the blade, but taking an extra couple seconds to close it slowly fixes it.</li>
+    <li> Not as good of a shave as I thought it would be</li>
+    <li> I used the razor just a few times.  Gotta be careful or you&#x27;ll cut yourself.</li>
+    <li> I recently went back to a DE safety razor after spending a fortune over the years fort newer and &amp;#34;better&amp;#34; razors. I used this type when I started shaving in the 60s. My first recent purchase was a vintage Gillette which is nice, but a bit unforgiving for me. I bought the MingShi, which arrived today. I tried it with a blade from Family Dollar Stores. WOW! The difference between this and the Gillette was amazing. The razor is a beautiful piece of workmanship to begin with...much better than I was expecting. The comfort of this razor was amazing. The blade angle is just right and very forgiving. I only inflicted two small nicks on myself, as opposed to the Gillette which left me bleeding badly. The weight, blade angle, and guards are superior with the MingShi. If you are tired of paying high dollars for multi-blasde cartridges, and think you might want to try a single blade shave, buy this razor!&lt;br /&gt;Barbers shave you with only one blade, why should you buy carts with multiple blades that don&#x27;t give as good a shave?&lt;br /&gt;I highly recommend the MingShi.</li>
+    <li> It works and I&#x27;m enjoying it</li>
+    <li> Awesome razor. Not only does it give a close shave, and the blade doesn&#x27;t get all gunked up, but also it is cost effective because the blades last longer and are cheaper to replace. Highly recommend this.</li>
+    <li> I must be honest, I bought this razor just for the travel case.  Purchased this razor for about $10, most travel cases cost more than $10 on their own.  The razor came with 11 assorted blades, so I am looking forward to trying all those.  The razor itself is of decent build quality, I don&#x27;t care for the weight.  It is extremely light, not like my Edwin Jagger deL89L.  Everyone says it great for a beginner,  but I disagree.  If you have someone who is new to the prospect of wet shaving, I would not start them on. The bargan basement brands.  I would still opt to recommend a $30 Edwin Jagger, Merkur, or Parker.  Use this as your travel razor, or back up.  I will shave with this and then edit my review later.</li>
+    <li> Works great at a great price.</li>
+    <li> Cant beat the quality and price. Saves you money in a long run. Blades are inexpensive too. Thank- you&lt;br /&gt;Dennis</li>
+    <li> The razor looks nice, is light and works as it should.  Although, it is made with thin chrome plated metal and a zinc rod that operates the doors.  One star off for the zinc rod that is a weak point in the razor.  The head has the same flat angle as the Schick Krona with novel scalloped doors, which expose a lot of the blade edge.  It is an aggressive razor that will give you a close shave.  But, be advised, one should prep well and shave carefully to avoid skin irritation and unnecessary blood letting.  Additionally, to extend the life of the razor, dry it thoroughly after each shave (take care to get all the water out of the hollow handle), and place a drop of light machine oil down the handle occasionally (to keep the zinc rod from corroding).  The enclosed blades from Ying JiLi and Mingshi are wickedly sharp, and good for any number of shaves dependent on your beard.  I have a medium beard; each blade has given me three close shaves so far and I&#x27;m still using them.</li>
+    <li> All the way from China, this razor arrived to me in Massachusetts in about two and a half weeks.  I opened the box and got to the shaving, which was great.  The blades do a great job on my beard, which is pretty thick, while it doesn&#x27;t irritate my skin.  I did a once with the grain and then once against the grain shaving motions, which was enough to get a nice smooth shave.  I only nicked myself once.&lt;br /&gt;My only negative thought is that it feels kinda light and cheap and the butterfly top is flimsy.  None of these thoughts ruin the actual shave you will get.&lt;br /&gt;Oh yea, it comes in a case which is handy if you don&#x27;t have a stand to put the razor on.  I&#x27;m sure the case would be great for traveling too.</li>
+    <li> My first foray into safety razors.  I really like it...been using it for about four months now...some minor oxidizing is beginning to occur and I will most likely upgrade in the next couple of months, but I think it will just end up in my travel kit then.  Nice starter.</li>
+    <li> The razor is lightweight and feels chintzy. Using my regular blades, I still cut myself.&lt;br /&gt;I hoped my Merkur razor would fit in the travel case, but no.</li>
+    <li> Good value excellent product.</li>
+    <li> Presented it to my father in law since he was visiting and had forgotten his shaving kit home. He used it for 10 days or so - and dropped it by mistake in the wash basin on the 10th day - it shattered into 3 pieces. Total waste of money !!!</li>
+    <li> Very good razor. Good shaves. I recommend this.</li>
+    <li> You get what you pay for.</li>
+</ol>
+
+
+
+

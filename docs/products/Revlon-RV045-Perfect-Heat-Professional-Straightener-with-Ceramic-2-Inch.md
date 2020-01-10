@@ -1,0 +1,270 @@
+---
+title: Revlon RV045 Perfect Heat Professional Straightener with Ceramic, 2 Inch,
+description: Revlon RV045 Perfect Heat Professional Straightener with Ceramic, 2 Inch,
+author: Suvojit Manna,
+tags: Revlon RV045 Perfect Heat Professional Straightener with Ceramic, 2 Inch,
+publishedAt: Fri Jan 10 2020 14:59:00 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:59:00 GMT+0530 (India Standard Time),
+---
+
+# [Revlon RV045 Perfect Heat Professional Straightener with Ceramic, 2 Inch](https://products.checkmycream.com/products/Revlon-RV045-Perfect-Heat-Professional-Straightener-with-Ceramic-2-Inch.html)
+
+### Positive Reviews
+
+<ol>
+      <li>It has an adjustable heat setting which has been the best feature for me.</li>
+      <li>This hair straightener is great!  </li>
+      <li>Wonderful product.  </li>
+      <li>IT IS SO AWESOME.</li>
+      <li>Untill then it was awesome</li>
+      <li>This straightener works excellent!</li>
+      <li>Surprisingly, this hair straightener has turned into a necessity!  </li>
+      <li>All that I can say is that it works great</li>
+      <li>and you can get them a great prices on EBAY</li>
+      <li>I&#x27;m extremely happy with the iron.</li>
+      <li>it works great......</li>
+      <li>This is a great buy because it has up to 25 heat settings and ceramic plates.  </li>
+      <li>It is very comfortable to use and the best part is that the heat settings work nicely according to the texture and thickness of hair.</li>
+      <li>It&#x27;s good for the price</li>
+      <li>I wanted a good one, but I didn&#x27;t want to spend a lot of money.  </li>
+      <li>its really good</li>
+      <li>It does a good job if you are looking for something inexpensive that will get the job done.</li>
+      <li>but this seems to be a good product to me.</li>
+      <li>or you will not get a good product plus</li>
+      <li>I am very pleased with this product.  </li>
+      <li>so it&#x27;s great to be able to choose the setting that will accommodate me.  </li>
+      <li>I was very pleased with the Revlon straightener.</li>
+      <li>ADN DOES ADN AMAZING GORGEOUS JOB</li>
+      <li>Well, I love it!</li>
+      <li>Love it!</li>
+      <li>This product is easy to use and is great for beginners.</li>
+      <li>THIS PRODUCT IS AMAZING</li>
+      <li>There must be some kind of problem with the manufacturing of this straightner.</li>
+      <li>This one was perfect for me: ceramic, reasonably priced, and lots of heat adjustment.</li>
+      <li>I have been very happy with my purchase and highly recommend it.</li>
+      <li>I wanted to get a straightener but wasn&#x27;t sure which brand or what kind to buy.  </li>
+      <li>I have very fine hair</li>
+      <li>It heats up very quickly!</li>
+      <li>and I am pretty happy with it.</li>
+      <li>Heats up quick!!</li>
+      <li>The product works good, its variable heat settings are useful, till date</li>
+      <li>Love It.</li>
+      <li>i have used many irons before this one and would not recommend it to anyone.</li>
+      <li>AND ITS CHEAP!</li>
+      <li>The ceramic plates have made sure she hasn&#x27;t burnt or damaged her hair.  </li>
+      <li>Make sure your iron goes to 400 degrees f</li>
+      <li>Ok, this was a gift for my sister.</li>
+      <li>and I love</li>
+      <li>I&#x27;m very happy with it and would definitely recommend it.</li>
+      <li>I have medium length hair that needs some extra TLC to look its best.  </li>
+      <li>it scorched the top of the counter in the bathroom and everything i had set it on (save a metal soap dish).</li>
+      <li>I use got2b crazysleek to help with heat protection and smoothness, and love the results.  </li>
+      <li>I love how this has heat settings and \\&quot;floating\\&quot; ceramic plates</li>
+      <li>( you don&#x27;t have to spend more than $50).</li>
+      <li>This straightener is ok.</li>
+      <li>It&#x27;s best to combine the flat iron with straightening spray to keep your hair from getting frizzy or getting those flyaways.</li>
+      <li>this straightener worked really good at  first.</li>
+      <li>The best thing about it is how it has several settings that you can adjust to fit your hair type.  </li>
+      <li>I haven&#x27;t had any problems with my hair becoming frizzy.  </li>
+      <li>It&#x27;s just a sales pitch to make the iron sound better.</li>
+      <li>Heats very quickly.  </li>
+      <li>after research I found that plated ceramic irons can chip easily and reveal the metal plate underneath that snags your hair.</li>
+      <li>Overall I&#x27;d call it an excellent value that will definitely get the job done at a good price.</li>
+      <li>This one works fine, but it&#x27;s just not as strong as hers.</li>
+      <li>This is the first straightener that I own.</li>
+      <li>It works just fine.</li>
+      <li>I have fine hair</li>
+      <li>as it stands, this revlon iron is perfect for the few times i month that i want pin-straight hair.</li>
+      <li>The different heat settings are great</li>
+      <li>I&#x27;ve had this flat iron for almost a year now, and it is still working great.</li>
+      <li>and I was so excited to try it out.  </li>
+      <li>so I don&#x27;t need the iron to be very hot.</li>
+      <li>(my hair is naturally straight and fine</li>
+      <li>But, overall a very good product, especially considering its price.</li>
+      <li>Now it takes quite an effort to get my hair completely smooth (my hair is already stick straight, but gets lots of flyaways).</li>
+      <li>While I&#x27;m not an expert on hair products, she has been extremely satisfied and was surprised when she found out the price.  </li>
+      <li>It&#x27;s only been a month, but so far it&#x27;s working great.</li>
+      <li>The Revlon used to be that easy, but now I have to go over and over and over each section of hair in order to get decent results.</li>
+      <li>and it straightened it pretty quickly.</li>
+      <li>My roommate already has a Vidal Sasson one that looks exactly the same, but since I&#x27;m moving out soon, I wanted to get my own.</li>
+      <li>it heats up very quickly and does wonders even on my coarse hair!I was tempted to buy a product that costs 10 times as much and am soooo glad I saved the money.</li>
+      <li>This iron works great on my coarse hair even on a low heat setting.</li>
+      <li>I love the swivel cord, it&#x27;s so comfortable and convenient when going from one side to the other.</li>
+      <li>It heats up very fast, and is pretty durable</li>
+      <li>but it still works really well!</li>
+      <li>The only thing that I didn&#x27;t like, which really didn&#x27;t even bother me that much, is that the part you hold on too can get kind of hot</li>
+      <li>This is the first time I am using a rod for my hair</li>
+      <li>When you want hot, it gets HOT.</li>
+      <li>When I first bought it, I felt iffy about it because of it&#x27;s inexpensive price.</li>
+      <li>It get&#x27;s pretty hot but takes a bit to heat up.  </li>
+      <li>This is my first staightner.</li>
+      <li>The straightening iron does exactly that.  </li>
+      <li>It really works!</li>
+      <li>it heats up quick and the large, broad plates flatten hair quickly.  </li>
+      <li>I have read some bad reviews about the longevity of this product, but it has been good to me, and should be good to you, once you take care of it.</li>
+      <li>This iron replaced my 2-3yr old Conair, which never really did a good job.</li>
+      <li>It heats up pretty quickly and I have not had any problem with it so far....</li>
+      <li>I was generous enough to give this item one star because it does stay hot (see thumb), and I am sure someone with semi-straight or slightly wavy hair would be okay with it.</li>
+      <li>It is very quick and only takes a few seconds to warm up.</li>
+      <li>takes a little while (over a min ) to warm but does the job ...</li>
+      <li>I have very Thick Frizzy Curly Hair and this product worked great for me.  </li>
+      <li>I bought this straightner november 04&#x27;, and I still love it, I have very thick hair, so when I wash it, it becomes even more</li>
+      <li>so it takes a couple more tries than the vidal sasson one to straighten a section of hair, but if you have shorter or thinner hair, you shouldn&#x27;t notice much of a problem.</li>
+      <li>and she said that price wasn&#x27;t really important--cheaper products could be just as effective as more expensive ones.  </li>
+      <li>and I use a product called Motions (hair lotion) to help keep my hair straight all day.  </li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> It has an adjustable heat setting which has been the best feature for me.</li>
+<li> This hair straightener is great!  </li>
+<li> Wonderful product.  </li>
+<li> IT IS SO AWESOME.</li>
+<li> Untill then it was awesome</li>
+<li> This straightener works excellent!</li>
+<li> Surprisingly, this hair straightener has turned into a necessity!  </li>
+<li> All that I can say is that it works great</li>
+<li> and you can get them a great prices on EBAY</li>
+<li> I&#x27;m extremely happy with the iron.</li>
+<li> it works great......</li>
+<li> This is a great buy because it has up to 25 heat settings and ceramic plates.  </li>
+<li> It is very comfortable to use and the best part is that the heat settings work nicely according to the texture and thickness of hair.</li>
+<li> It&#x27;s good for the price</li>
+<li> I wanted a good one, but I didn&#x27;t want to spend a lot of money.  </li>
+<li> its really good</li>
+<li> It does a good job if you are looking for something inexpensive that will get the job done.</li>
+<li> but this seems to be a good product to me.</li>
+<li> or you will not get a good product plus</li>
+<li> I am very pleased with this product.  </li>
+<li> so it&#x27;s great to be able to choose the setting that will accommodate me.  </li>
+<li> I was very pleased with the Revlon straightener.</li>
+<li> ADN DOES ADN AMAZING GORGEOUS JOB</li>
+<li> Well, I love it!</li>
+<li> Love it!</li>
+<li> This product is easy to use and is great for beginners.</li>
+<li> THIS PRODUCT IS AMAZING</li>
+<li> There must be some kind of problem with the manufacturing of this straightner.</li>
+<li> This one was perfect for me: ceramic, reasonably priced, and lots of heat adjustment.</li>
+<li> I have been very happy with my purchase and highly recommend it.</li>
+<li> I wanted to get a straightener but wasn&#x27;t sure which brand or what kind to buy.  </li>
+<li> I have very fine hair</li>
+<li> It heats up very quickly!</li>
+<li> and I am pretty happy with it.</li>
+<li> Heats up quick!!</li>
+<li> The product works good, its variable heat settings are useful, till date</li>
+<li> Love It.</li>
+<li> i have used many irons before this one and would not recommend it to anyone.</li>
+<li> AND ITS CHEAP!</li>
+<li> The ceramic plates have made sure she hasn&#x27;t burnt or damaged her hair.  </li>
+<li> Make sure your iron goes to 400 degrees f</li>
+<li> Ok, this was a gift for my sister.</li>
+<li> and I love</li>
+<li> I&#x27;m very happy with it and would definitely recommend it.</li>
+<li> I have medium length hair that needs some extra TLC to look its best.  </li>
+<li> it scorched the top of the counter in the bathroom and everything i had set it on (save a metal soap dish).</li>
+<li> I use got2b crazysleek to help with heat protection and smoothness, and love the results.  </li>
+<li> I love how this has heat settings and \\&quot;floating\\&quot; ceramic plates</li>
+<li> ( you don&#x27;t have to spend more than $50).</li>
+<li> This straightener is ok.</li>
+<li> It&#x27;s best to combine the flat iron with straightening spray to keep your hair from getting frizzy or getting those flyaways.</li>
+<li> this straightener worked really good at  first.</li>
+<li> The best thing about it is how it has several settings that you can adjust to fit your hair type.  </li>
+<li> I haven&#x27;t had any problems with my hair becoming frizzy.  </li>
+<li> It&#x27;s just a sales pitch to make the iron sound better.</li>
+<li> Heats very quickly.  </li>
+<li> after research I found that plated ceramic irons can chip easily and reveal the metal plate underneath that snags your hair.</li>
+<li> Overall I&#x27;d call it an excellent value that will definitely get the job done at a good price.</li>
+<li> This one works fine, but it&#x27;s just not as strong as hers.</li>
+<li> This is the first straightener that I own.</li>
+<li> It works just fine.</li>
+<li> I have fine hair</li>
+<li> as it stands, this revlon iron is perfect for the few times i month that i want pin-straight hair.</li>
+<li> The different heat settings are great</li>
+<li> I&#x27;ve had this flat iron for almost a year now, and it is still working great.</li>
+<li> and I was so excited to try it out.  </li>
+<li> so I don&#x27;t need the iron to be very hot.</li>
+<li> (my hair is naturally straight and fine</li>
+<li> But, overall a very good product, especially considering its price.</li>
+<li> Now it takes quite an effort to get my hair completely smooth (my hair is already stick straight, but gets lots of flyaways).</li>
+<li> While I&#x27;m not an expert on hair products, she has been extremely satisfied and was surprised when she found out the price.  </li>
+<li> It&#x27;s only been a month, but so far it&#x27;s working great.</li>
+<li> The Revlon used to be that easy, but now I have to go over and over and over each section of hair in order to get decent results.</li>
+<li> and it straightened it pretty quickly.</li>
+<li> My roommate already has a Vidal Sasson one that looks exactly the same, but since I&#x27;m moving out soon, I wanted to get my own.</li>
+<li> it heats up very quickly and does wonders even on my coarse hair!I was tempted to buy a product that costs 10 times as much and am soooo glad I saved the money.</li>
+<li> This iron works great on my coarse hair even on a low heat setting.</li>
+<li> I love the swivel cord, it&#x27;s so comfortable and convenient when going from one side to the other.</li>
+<li> It heats up very fast, and is pretty durable</li>
+<li> but it still works really well!</li>
+<li> The only thing that I didn&#x27;t like, which really didn&#x27;t even bother me that much, is that the part you hold on too can get kind of hot</li>
+<li> This is the first time I am using a rod for my hair</li>
+<li> When you want hot, it gets HOT.</li>
+<li> When I first bought it, I felt iffy about it because of it&#x27;s inexpensive price.</li>
+<li> It get&#x27;s pretty hot but takes a bit to heat up.  </li>
+<li> This is my first staightner.</li>
+<li> The straightening iron does exactly that.  </li>
+<li> It really works!</li>
+<li> it heats up quick and the large, broad plates flatten hair quickly.  </li>
+<li> I have read some bad reviews about the longevity of this product, but it has been good to me, and should be good to you, once you take care of it.</li>
+<li> This iron replaced my 2-3yr old Conair, which never really did a good job.</li>
+<li> It heats up pretty quickly and I have not had any problem with it so far....</li>
+<li> I was generous enough to give this item one star because it does stay hot (see thumb), and I am sure someone with semi-straight or slightly wavy hair would be okay with it.</li>
+<li> It is very quick and only takes a few seconds to warm up.</li>
+<li> takes a little while (over a min ) to warm but does the job ...</li>
+<li> I have very Thick Frizzy Curly Hair and this product worked great for me.  </li>
+<li> I bought this straightner november 04&#x27;, and I still love it, I have very thick hair, so when I wash it, it becomes even more</li>
+<li> so it takes a couple more tries than the vidal sasson one to straighten a section of hair, but if you have shorter or thinner hair, you shouldn&#x27;t notice much of a problem.</li>
+<li> and she said that price wasn&#x27;t really important--cheaper products could be just as effective as more expensive ones.  </li>
+<li> and I use a product called Motions (hair lotion) to help keep my hair straight all day.  </li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> I read several reviews when looking for a flat iron and they terrified me. The only good reviews were for VERY expensive flat irons. Others warned of short life spans and melting handles. I bought this flat iron because it was afordable and I thought I would take my chances. Well, I love it! It has been all that I wanted and needed. It heats up very quickly, and the ceramic iron does not stick to your hair, even with heavy product use. It has an adjustable heat setting which has been the best feature for me. I have very fine hair so I don&#x27;t need the iron to be very hot. I set it between 3 and 5 for perfectly straight hair. Other irons only have on/off, the heat from those would fry my hair.    I have been very happy with my purchase and highly recommend it.</li>
+    <li> My hair is a mixture of white people&#x27;s hair texture and black people&#x27;s hair texture.  I have not experienced any problems with this straigtening Iron and reccommend it to anyone.</li>
+    <li> this straightener worked really good at  first. i had really thick longggg hair and it straightened it pretty quickly. i had it for about two months and then it just stopped heating up. the handle would heat up and the little red light would go on but there was no heat on the ceramic at all. its really frustrating cuz i really liked it. i will not buy another revlon flat iron because this happened to my friend also.</li>
+    <li> The product works good, its variable heat settings are useful, till date I did not hear any complaints from family members.</li>
+    <li> I&#x27;m extremely happy with the iron. It works well with my frizzy hair, it tones it down! I love the swivel cord, it&#x27;s so comfortable and convenient when going from one side to the other. When you want hot, it gets HOT. It is very quick and only takes a few seconds to warm up. I&#x27;m very happy with it and would definitely recommend it.</li>
+    <li> My roommate already has a Vidal Sasson one that looks exactly the same, but since I&#x27;m moving out soon, I wanted to get my own. This one works fine, but it&#x27;s just not as strong as hers. I have thick long hair so it takes a couple more tries than the vidal sasson one to straighten a section of hair, but if you have shorter or thinner hair, you shouldn&#x27;t notice much of a problem.</li>
+    <li> THIS PRODUCT IS AMAZING &lt;br /&gt;I USE IS EVERYTIME I GET OUT OF THE SHOWER! IT IS SO AWESOME. I HEATS UP WITHIN 1 MINUTE ADN DOES ADN AMAZING GORGEOUS JOB ON STRAIGHTENING MY HAIR. AND ITS CHEAP! BUY IT</li>
+    <li> This hair straightener is great!  When I first bought it, I felt iffy about it because of it&#x27;s inexpensive price. Surprisingly, this hair straightener has turned into a necessity!  It heats up pretty quickly and I have not had any problem with it so far....I&#x27;ve had it for about 4 years now!  The best thing about it is how it has several settings that you can adjust to fit your hair type.  I have fine hair so it&#x27;s great to be able to choose the setting that will accommodate me.  However, sometimes my hair gets trapped between the small space where the plates are attached to the device. I end up tugging my hair, and I hate that! But, overall a very good product, especially considering its price.</li>
+    <li> Wonderful product.  Heats very quickly.  Efficient straigtening without overdoing it. Wow.  Some results!</li>
+    <li> I bought this for my wife who has been overjoyed with the results.  The straightening iron does exactly that.  The ceramic plates have made sure she hasn&#x27;t burnt or damaged her hair.  While I&#x27;m not an expert on hair products, she has been extremely satisfied and was surprised when she found out the price.  She had expected it to be quite a bit more expensive.  Overall I&#x27;d call it an excellent value that will definitely get the job done at a good price.</li>
+    <li> I was a little wary of getting my first hair straightener because I kept hearing about all the bad ones! I didn&#x27;t want to get an expensive one since I wasn&#x27;t sure how much I&#x27;d use it and the cheaper ones seemed to break or burn hair. This one was perfect for me: ceramic, reasonably priced, and lots of heat adjustment. It&#x27;s only been a month, but so far it&#x27;s working great. Now I can put my thick wavy hair into some measure of control and elegance. It&#x27;s starting to take a little longer to heat up now than in the beginning, and I hope it isn&#x27;t a sign of breaking, but of being broken in.</li>
+    <li> its really good, i have extremely curly hair and this makes my hair as straight as if i went to my hair stylist.</li>
+    <li> I was very pleased with the Revlon straightener. Being my first straightener, I was very skeptical.  I wanted a good one, but I didn&#x27;t want to spend a lot of money.  I am very pleased with this product.  I have very Thick Frizzy Curly Hair and this product worked great for me.  I keep the temp. at around 15 and I use a product called Motions (hair lotion) to help keep my hair straight all day.  I haven&#x27;t had any problems with my hair becoming frizzy.  This product is easy to use and is great for beginners.</li>
+    <li> I wanted to get a straightener but wasn&#x27;t sure which brand or what kind to buy.  I asked  my hairstylist about straighteners and she said that price wasn&#x27;t really important--cheaper products could be just as effective as more expensive ones.  The only things you need to watch out for (especially if you color your hair or have dry hair from styling, etc.) are that there are adjustable heat settings and ceramic plates rather than metal, because it won&#x27;t burn your hair that way.  This is a great buy because it has up to 25 heat settings and ceramic plates.  It heats up within about a minute or two and only takes about 5 to 7 minutes for me to get my hair extremely straight (my hair is naturally straight and fine but I have a lot of it).  I have had this product for about a year now and have never had any problems with it.  Highly recommended!</li>
+    <li> it&#x27;s hard to see what tempature it&#x27;s set at. It heats up very fast, and is pretty durable (i&#x27;ve been traveling with it for 8 months now)</li>
+    <li> I don&#x27;t know how valid my opinion is as I have little experience with styling my hair and this is the only flat iron I have ever used but this seems to be a good product to me. I guess it is a testimonial in itself though that there is nothing about this product that drives me nuts.</li>
+    <li> This straightner does work nicely, however, much like the other review I read my straightner also decided to never heat up after I only used to 4 times. There must be some kind of problem with the manufacturing of this straightner. Don&#x27;t buy it unless you want to use it a few times and then need to buy a new one.</li>
+    <li> This is the first straightener that I own.I have extensions which are thick and coarse. it heats up very quickly and does wonders even on my coarse hair!I was tempted to buy a product that costs 10 times as much and am soooo glad I saved the money.</li>
+    <li> I&#x27;ve had this flat iron for about 8 months. I only use it three or four times a week. It worked really well the first 6 months, but lately it doesn&#x27;t seem to get as hot as it used to. Now it takes quite an effort to get my hair completely smooth (my hair is already stick straight, but gets lots of flyaways). My hairstylist uses the Chi and every time I go in to get my hair done I walk out with perfectly smooth hair - and it only takes him a couple of swipes with the Chi. The Revlon used to be that easy, but now I have to go over and over and over each section of hair in order to get decent results. I wouldn&#x27;t recommend the Revlon for long-term use. It doesn&#x27;t seem to hold up.</li>
+    <li> I have medium length hair that needs some extra TLC to look its best.  My hair stylist recommended a flat iron with cermaic plates (less damaging to hair) to calm the cuticles of my hair.  It really works!</li>
+    <li> I bought this straightner november 04&#x27;, and I still love it, I have very thick hair, so when I wash it, it becomes even more thicker- but I don&#x27;t have to worry, I just use this item to make my hair straight and shiny and it has lasted a long time.&lt;br /&gt;&lt;br /&gt;I Love It.</li>
+    <li> It do not have this model hence the 3 stars, but recently purchased the Revlon flat iron that has a rounded edge for about the same price point. It could not straighten a baby&#x27;s hair. My hair is wavy but not curly. The heat is so low and never fully come up to a temp that is useful. I was using an old Hot Tools model and did not want to spend big bucks on a ceramic salon iron but was very disappointed with my new purchase. Make sure your iron goes to 400 degrees f or you will not get a good product plus after research I found that plated ceramic irons can chip easily and reveal the metal plate underneath that snags your hair. In this case it really does pay to get a quality iron and you can get them a great prices on EBAY ( you don&#x27;t have to spend more than $50). Don&#x27;t waste your time on this.</li>
+    <li> I used to use the \\&quot;turbo Chi\\&quot;--the one with the red velvet on the outside.  It was my roomate&#x27;s and she moved out so I got this one for my birthday.  It works just as well as the chi for about 1/6 of the price.  My hair is VERY curly and EXTREMELY thick and this straightened my hair in less time than the chi.  The different heat settings are great and I love that&#x27;s 2 inches--straightening goes by much faster that way.  I would definately recommend this product to someone looking for a straightener with ceramic plates.  The only thing that I didn&#x27;t like, which really didn&#x27;t even bother me that much, is that the part you hold on too can get kind of hot but it&#x27;s nothing intolerable.</li>
+    <li> This straightener works excellent! It heats up very quickly! (be careful!) Makes my hair stick straight in just a couple seconds. I would def recommend it for anyone with any sort of hair.</li>
+    <li> Ok, this was a gift for my sister. All that I can say is that it works great and I think it is recomended for people with thick and strong hair so it can withstand the treatment.</li>
+    <li> I have owned alot of flat irons and just wanted to get an inexpensive one to travel with.  It get&#x27;s pretty hot but takes a bit to heat up.  It does a good job if you are looking for something inexpensive that will get the job done.</li>
+    <li> i&#x27;ve been getting the stick-straight hair that lasted for a year by going to the saloon which cost me $120 for straightening, cut and treatment. So, i thought why not do it myself since i already have straight hair, it shouldn&#x27;t be much of an effort. Well, not really, this gadget works but i just couldn&#x27;t get that same same smooth, light and silky straight look from the saloon.  &lt;br /&gt; &lt;br /&gt; &lt;br /&gt;i&#x27;m not sure if i should have it on at a higher heat instead of keeping it between 5-8 ( i don&#x27;t wish to fry my hair).. Overall, i would still recommend Revlon RX045C if you want straight hair with a little bit of volume.  &lt;br /&gt; &lt;br /&gt;</li>
+    <li> This straightener is ok. It says you have to wait 6 to 12 min. but its takes longer. The straightener makes your hair un-frizzy if you use the proper shampoos.</li>
+    <li> Ive used this for my (now longer) hair for about a month now ....it works great......takes a little while (over a min ) to warm but does the job ...touch iron!!</li>
+    <li> I read a ton of good review for this product so before I went to the salon and spent over $100 for a chi flat iron I decided to try it out.  I bought a high end hair lotion to use with the iron and I was so excited to try it out.  What I ended up with was not a head full of straight hair - I ended up with frizzy looking burnt smelling hair and a pretty badly burned thumb.  I was generous enough to give this item one star because it does stay hot (see thumb), and I am sure someone with semi-straight or slightly wavy hair would be okay with it.</li>
+    <li> This iron works great on my coarse hair even on a low heat setting. Just don&#x27;t be fooled by the newer version of this iron in which the word \\&quot;Ionic\\&quot; was added. The upc numbers are exactly the same. It&#x27;s just a sales pitch to make the iron sound better. Heated ceramic material produces ions, so any iron out there with the word \\&quot;Ionic\\&quot; is no different than a plain ceramic iron.</li>
+    <li> i have slightly wavy, thick, coarse hair that i would love to get pin straight.  like others on this site, i didn&#x27;t want to pay almost $100 for a state-of-the-art flat iron when id only use it once in a while.  at less than $25, this iron is a steal.  it heats up quick and the large, broad plates flatten hair quickly.  i&#x27;d probably get the chi if i had very curly hair and planned on using it every day.  as it stands, this revlon iron is perfect for the few times i month that i want pin-straight hair.</li>
+    <li> this iron gets SO hot on the outside that it has melted itself. it scorched the top of the counter in the bathroom and everything i had set it on (save a metal soap dish). also it snags my hair and so i have ended up with a lot of breakage. i have used many irons before this one and would not recommend it to anyone.</li>
+    <li> I&#x27;ve had this flat iron for almost a year now, and it is still working great. I use it at heat level 20 (it goes up to 25), and it heats up in about a minute or so. I have VERY dry, coarse, frizzy hair, but it straightens it right out with minimal work, and if I don&#x27;t go crazy partying, it will stay pretty straight for a few days.    Although I know I&#x27;m not supposed to, I even use this flat iron to dry my hair dead straight after I wash it. Of course, I steam my hair every 2 weeks as a STRICT rule, and use a lot of moisturiser whenever I put this amount heat in my hair, but still, my hair has actually been falling out a lot less than when I used to use curlers and a bonnet dryer.    I have read some bad reviews about the longevity of this product, but it has been good to me, and should be good to you, once you take care of it.</li>
+    <li> It is very comfortable to use and the best part is that the heat settings work nicely according to the texture and thickness of hair. This is the first time I am using a rod for my hair and I am pretty happy with it.</li>
+    <li> This is my first staightner. It works just fine. Heats up quick!! Have no complaints!!!</li>
+    <li> This iron replaced my 2-3yr old Conair, which never really did a good job. This iron is lightweight, slim and really heats up to do the job. My hair stays stick straight and shiny for days at a time sometimes not even needing a touch up. I love how this has heat settings and \\&quot;floating\\&quot; ceramic plates so there really are NO gaps and your hair doesn&#x27;t get pulled out or spots are missed. Plus because it&#x27;s so lightweight my arms aren&#x27;t hurting me by the time I am done, very user freindly. I will not be replacing this one anytime soon. Love it!</li>
+    <li> I have naturally curly hair and straightening my hair with a flat brush and a blow dryer has always taken me forever! Now I can blow dry my hair in 15 minutes and then use the flat iron to finish and my hair stays board straight all day long. It&#x27;s best to combine the flat iron with straightening spray to keep your hair from getting frizzy or getting those flyaways. I have had this product for 6 months and it&#x27;s now starting to show signs of wear &amp; tear and the ceramic gold topping is coming off but it still works really well!</li>
+    <li> I searched these for some time since the salon wanted to sell me a different one for $120. Anyway, I decided to give this one a try. I use got2b crazysleek to help with heat protection and smoothness, and love the results.  I don&#x27;t flat iron everyday, but 2-3 times per week, and get what I want.</li>
+    <li> I bought this as gift for my sis and she threw it away as it didn&#x27;t work after 3 months from purchase date. Untill then it was awesome and so i rate it 3 star</li>
+    <li> It&#x27;s good for the price and I always thought it worked very well.  However, upon trying a more expensive iron of my friend&#x27;s (Chi 1\\&quot;), I realized that you get what you pay for.  Although it works, it does not straighten as well as some other irons.  You will have to spend more time on your hair, especially if your hair&#x27;s naturally wavy like mine.    If you want something faster and that will leave your hair silkier, invest a little more.</li>
+</ol>
+
+
+
+

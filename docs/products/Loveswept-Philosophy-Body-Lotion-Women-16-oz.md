@@ -1,0 +1,123 @@
+---
+title: Loveswept Philosophy Body Lotion Women 16 oz,
+description: Loveswept Philosophy Body Lotion Women 16 oz,
+author: Suvojit Manna,
+tags: Loveswept Philosophy Body Lotion Women 16 oz,
+publishedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
+---
+
+# [Loveswept Philosophy Body Lotion Women 16 oz](https://products.checkmycream.com/products/Loveswept-Philosophy-Body-Lotion-Women-16-oz.html)
+
+### Positive Reviews
+
+<ol>
+      <li>Best lotion I ever used!  </li>
+      <li>Smells wonderful!</li>
+      <li>Smells wonderful.</li>
+      <li>Best smelling of all Philosophy in my opinion!</li>
+      <li>love philosophy lotions!!</li>
+      <li>Love this fragrance!  </li>
+      <li>Lovely product!  </li>
+      <li>Love it!</li>
+      <li>The rich texture is perfect, it absorbs very quickly, and gives hydration that lasts upwards of seven to eight</li>
+      <li>AND THIS PRODUCT IS AMAZING</li>
+      <li>Would buy again, nice smell, moisturizes.</li>
+      <li>Amazing Grace has been my all time favorite Philosophy fragrance.  </li>
+      <li>Smells amazing &amp; leaves your skin completely smooth and hydrated!</li>
+      <li>Better than Amazing Grace, imho.</li>
+      <li>A delightful fragrance,  light and new!</li>
+      <li>Absolutely love the scent and will continue to order and use this body lotion.  </li>
+      <li>and I love it</li>
+      <li>Also love the richness of this lotion, goes on smoothly and is a fantastic moisturizer plus the scent lasts all day.</li>
+      <li>This one has a strong perfume smell, the type that gives me a headache.  </li>
+      <li>/&gt;This really is fantastic lotion for hands and body.</li>
+      <li>Love this scent, clean and fresh.  </li>
+      <li>Smells so clean and light.</li>
+      <li>Smells so good and leaves the skin super soft</li>
+      <li>Product is authentic and new.</li>
+      <li>Well now I have a new favorite.  </li>
+      <li>It&#x27;s light enough to use all day, many times a day.</li>
+      <li>Love it, such a fresh smell.</li>
+      <li>good value, less expense than Ulta salons.</li>
+      <li>smells lovely and romantic.  </li>
+      <li>First time I tried it</li>
+      <li>It always leaves my skin smooth and soft.</li>
+      <li>I buy Philosophy body lotions, because, in addition to moisturizing my dry skin better than any others I&#x27;ve tried, they have a very clean scent, more like soap than the usual perfume smell.  </li>
+      <li>so well, I really wish Philosophy would make it in an unscented version.</li>
+      <li>Since this lotion is so effective and long lasting and moisturizes</li>
+      <li>have very sensitive skin and also found it to be non-irritating.</li>
+      <li>makes my hands feel so soft!  </li>
+      <li>Absorbs quickly, richly scented, long lasting, moisturizing, silky, hydrating, non-irritating, luxurious, and effective.&lt;br /&gt;&lt;br</li>
+      <li>It is long lasting and smells so pretty</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> Best lotion I ever used!  </li>
+<li> Smells wonderful!</li>
+<li> Smells wonderful.</li>
+<li> Best smelling of all Philosophy in my opinion!</li>
+<li> love philosophy lotions!!</li>
+<li> Love this fragrance!  </li>
+<li> Lovely product!  </li>
+<li> Love it!</li>
+<li> The rich texture is perfect, it absorbs very quickly, and gives hydration that lasts upwards of seven to eight</li>
+<li> AND THIS PRODUCT IS AMAZING</li>
+<li> Would buy again, nice smell, moisturizes.</li>
+<li> Amazing Grace has been my all time favorite Philosophy fragrance.  </li>
+<li> Smells amazing &amp; leaves your skin completely smooth and hydrated!</li>
+<li> Better than Amazing Grace, imho.</li>
+<li> A delightful fragrance,  light and new!</li>
+<li> Absolutely love the scent and will continue to order and use this body lotion.  </li>
+<li> and I love it</li>
+<li> Also love the richness of this lotion, goes on smoothly and is a fantastic moisturizer plus the scent lasts all day.</li>
+<li> This one has a strong perfume smell, the type that gives me a headache.  </li>
+<li> /&gt;This really is fantastic lotion for hands and body.</li>
+<li> Love this scent, clean and fresh.  </li>
+<li> Smells so clean and light.</li>
+<li> Smells so good and leaves the skin super soft</li>
+<li> Product is authentic and new.</li>
+<li> Well now I have a new favorite.  </li>
+<li> It&#x27;s light enough to use all day, many times a day.</li>
+<li> Love it, such a fresh smell.</li>
+<li> good value, less expense than Ulta salons.</li>
+<li> smells lovely and romantic.  </li>
+<li> First time I tried it</li>
+<li> It always leaves my skin smooth and soft.</li>
+<li> I buy Philosophy body lotions, because, in addition to moisturizing my dry skin better than any others I&#x27;ve tried, they have a very clean scent, more like soap than the usual perfume smell.  </li>
+<li> so well, I really wish Philosophy would make it in an unscented version.</li>
+<li> Since this lotion is so effective and long lasting and moisturizes</li>
+<li> have very sensitive skin and also found it to be non-irritating.</li>
+<li> makes my hands feel so soft!  </li>
+<li> Absorbs quickly, richly scented, long lasting, moisturizing, silky, hydrating, non-irritating, luxurious, and effective.&lt;br /&gt;&lt;br</li>
+<li> It is long lasting and smells so pretty</li>
+<li> SHIPPING NO TIME FLAT</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> smells lovely and romantic.  makes my hands feel so soft!  love philosophy lotions!!</li>
+    <li> SHIPPING NO TIME FLAT AND THIS PRODUCT IS AMAZING</li>
+    <li> Love it, such a fresh smell.</li>
+    <li> Absolutely love the scent and will continue to order and use this body lotion.  It is long lasting and smells so pretty</li>
+    <li> Best smelling of all Philosophy in my opinion! Love it!</li>
+    <li> My wife loves the product and Amazon met all my needs in price and delivery</li>
+    <li> Smells so clean and light.</li>
+    <li> Best lotion I ever used!  Smells wonderful!</li>
+    <li> good value, less expense than Ulta salons. Would buy again, nice smell, moisturizes.</li>
+    <li> Amazing Grace has been my all time favorite Philosophy fragrance.  Well now I have a new favorite.  Loveswept is springtime in a bottle.  It&#x27;s light enough to use all day, many times a day. A delightful fragrance,  light and new!</li>
+    <li> Love this scent, clean and fresh.  Also love the richness of this lotion, goes on smoothly and is a fantastic moisturizer plus the scent lasts all day.</li>
+    <li> Lovely product!  Smells amazing &amp; leaves your skin completely smooth and hydrated!</li>
+    <li> I buy Philosophy body lotions, because, in addition to moisturizing my dry skin better than any others I&#x27;ve tried, they have a very clean scent, more like soap than the usual perfume smell.  This one has a strong perfume smell, the type that gives me a headache.  I gave mine to my daughter, who likes this smell.</li>
+    <li> Love this fragrance!  Better than Amazing Grace, imho.</li>
+    <li> Absorbs quickly, richly scented, long lasting, moisturizing, silky, hydrating, non-irritating, luxurious, and effective.&lt;br /&gt;&lt;br /&gt;This really is fantastic lotion for hands and body. The rich texture is perfect, it absorbs very quickly, and gives hydration that lasts upwards of seven to eight hours.&lt;br /&gt;&lt;br /&gt;I have very sensitive skin and also found it to be non-irritating. It always leaves my skin smooth and soft. Since this lotion is so effective and long lasting and moisturizes so well, I really wish Philosophy would make it in an unscented version.</li>
+    <li> Smells so good and leaves the skin super soft I also have the body wash. First time I tried it and I love it</li>
+    <li> Smells wonderful. Product is authentic and new.</li>
+</ol>
+
+
+
+

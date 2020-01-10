@@ -1,0 +1,262 @@
+---
+title: Tattoo Ink Cups 500 #13 Caps Tattoo Supplies,
+description: Tattoo Ink Cups 500 #13 Caps Tattoo Supplies,
+author: Suvojit Manna,
+tags: Tattoo Ink Cups 500 #13 Caps Tattoo Supplies,
+publishedAt: Fri Jan 10 2020 15:00:12 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:12 GMT+0530 (India Standard Time),
+---
+
+# [Tattoo Ink Cups 500 #13 Caps Tattoo Supplies](https://products.checkmycream.com/products/Tattoo-Ink-Cups-500-13-Caps-Tattoo-Supplies.html)
+
+### Positive Reviews
+
+<ol>
+      <li>Excellent purchase.</li>
+      <li>Perfect size for me.</li>
+      <li>Greenish tinted threw me off but perfect size.</li>
+      <li>Awesome product!</li>
+      <li>Oh the joys of ink caps, they hold ink, add a ink cap holding tray and mix your colors away, Go Amazon :D</li>
+      <li>Excellent quality for the price.</li>
+      <li>came on time very happy</li>
+      <li>Love all your tattoo supplies!!!</li>
+      <li>Good product.&lt;br /&gt;Great customer service!</li>
+      <li>loved it!</li>
+      <li>Great price, on time shipping.</li>
+      <li>Happy with all my caps</li>
+      <li>Great product thank you</li>
+      <li>These ink cups are great.  </li>
+      <li>These are great and what i needed.</li>
+      <li>All of it was there and in good shape great buy</li>
+      <li>i will be ordering more, Awesome product.</li>
+      <li>They seem much more sturdy, came in on time, and were in awesome condition.</li>
+      <li>Good in a bind with Amazon Prime.</li>
+      <li>Everything was good with them.</li>
+      <li>fantastic, excellent product.</li>
+      <li>good 13ml tattoo caps.</li>
+      <li>good product</li>
+      <li>Got these quick, very happy</li>
+      <li>Very satisfied with shipping and ink cups.</li>
+      <li>Thank you for sending on time and I am so very glad that it was what I needed</li>
+      <li>Great for medium work love it</li>
+      <li>everything came perfectly packaged and super fast!!!!</li>
+      <li>Functional and cost effective.</li>
+      <li>the price was really good as i checked many prices.</li>
+      <li>Really liked the price on these</li>
+      <li>They always answer emails and are very easy to work with.</li>
+      <li>loved it and have no bad reveiw to give.</li>
+      <li>Satisfied with the size &amp; delivery.</li>
+      <li>Great price fast shipping</li>
+      <li>it was here on time and love how many caps u get for your money ....</li>
+      <li>Fast shipping great price</li>
+      <li>Thanks for the great product</li>
+      <li>Thank you :-)</li>
+      <li>Just what they should be nothing more</li>
+      <li>Much better then the #9s.</li>
+      <li>im sure he used them and made it easy with the ink.</li>
+      <li>Wow soo many ,i dont even think i will count them lol</li>
+      <li>Fast shipment and good quality ink cups.</li>
+      <li>but you can easily take them off with a knife</li>
+      <li>it made it easy for me</li>
+      <li>their fine.</li>
+      <li>super pleased</li>
+      <li>Great deal and will be looking forward to future buisness with you.</li>
+      <li>over great product will shop again in the future</li>
+      <li>Thank you so much!!!</li>
+      <li>Perfect for small tattooing areas</li>
+      <li>Well worth the price for the amount!</li>
+      <li>thanks&#x27; pirate face and amazon,i will be ordering more.</li>
+      <li>I&#x27;ll definitely be ordering more when I run out of these. :)</li>
+      <li>We always get the order quickly and it is always correct.</li>
+      <li>There vary good caps and came vary fast and the price is not bad at all, when im short</li>
+      <li>Nothing too exciting.</li>
+      <li>They are just right.</li>
+      <li>Right size.</li>
+      <li>Love them,perfect size,and perfect price for how many you get.better than the small cups,when you need that little extra ink.</li>
+      <li>will be buying more in the future</li>
+      <li>Perfect Size Cups ~ not too big, not too small.</li>
+      <li>Exactly what the artist wanted.  </li>
+      <li>I got my ink cups fast,and they are nice and the right thickness and size for almost any tattoo job, I got large and small, but this size are nice for about any job, except small tat&#x27;s where you don&#x27;t want to waste ink,because if you use high end ink and you just need a  little ink you don&#x27;t want to hit the bittom of the cup and screw you neddle up,but they come in handy more than most size cup.</li>
+      <li>Just as described good quality arrived fast the size is very useful not to small not to big.</li>
+      <li>No broken pieces.</li>
+      <li>I recommend it to anyone who wants to buy something of quality .............................</li>
+      <li>, I know things happen, but I really need those caps and now I have to order from someone else.</li>
+      <li>only problem is they arent smooth on the bottom</li>
+      <li>I really like that</li>
+      <li>Received it in a reasonable time, no problems at all.</li>
+      <li>I am stuck with 500 caps that I really could have used 100 of.</li>
+      <li>there is some sort of stains on them.. not clean or suitable for sterile tattooing.</li>
+      <li>Lives up to recent reviews was very impressed came in blind of n eye n</li>
+      <li>came in a big bag, with multiple smaller bags full inside which makes it nice to keep the bulk in the storage closet and a smaller bag in the work area.</li>
+      <li>exactly what I expected.</li>
+      <li>But other than that it was exactly what i ordered</li>
+      <li>Will order again as in in near future.</li>
+      <li>Not to small, but not to big where i waste more ink than i used.</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> Excellent purchase.</li>
+<li> Perfect size for me.</li>
+<li> Greenish tinted threw me off but perfect size.</li>
+<li> Awesome product!</li>
+<li> Oh the joys of ink caps, they hold ink, add a ink cap holding tray and mix your colors away, Go Amazon :D</li>
+<li> Excellent quality for the price.</li>
+<li> came on time very happy</li>
+<li> Love all your tattoo supplies!!!</li>
+<li> Good product.&lt;br /&gt;Great customer service!</li>
+<li> loved it!</li>
+<li> Great price, on time shipping.</li>
+<li> Happy with all my caps</li>
+<li> Great product thank you</li>
+<li> These ink cups are great.  </li>
+<li> These are great and what i needed.</li>
+<li> All of it was there and in good shape great buy</li>
+<li> i will be ordering more, Awesome product.</li>
+<li> They seem much more sturdy, came in on time, and were in awesome condition.</li>
+<li> Good in a bind with Amazon Prime.</li>
+<li> Everything was good with them.</li>
+<li> fantastic, excellent product.</li>
+<li> good 13ml tattoo caps.</li>
+<li> good product</li>
+<li> Got these quick, very happy</li>
+<li> Very satisfied with shipping and ink cups.</li>
+<li> Thank you for sending on time and I am so very glad that it was what I needed</li>
+<li> Great for medium work love it</li>
+<li> everything came perfectly packaged and super fast!!!!</li>
+<li> Functional and cost effective.</li>
+<li> the price was really good as i checked many prices.</li>
+<li> Really liked the price on these</li>
+<li> They always answer emails and are very easy to work with.</li>
+<li> loved it and have no bad reveiw to give.</li>
+<li> Satisfied with the size &amp; delivery.</li>
+<li> Great price fast shipping</li>
+<li> it was here on time and love how many caps u get for your money ....</li>
+<li> Fast shipping great price</li>
+<li> Thanks for the great product</li>
+<li> Thank you :-)</li>
+<li> Just what they should be nothing more</li>
+<li> Much better then the #9s.</li>
+<li> im sure he used them and made it easy with the ink.</li>
+<li> Wow soo many ,i dont even think i will count them lol</li>
+<li> Fast shipment and good quality ink cups.</li>
+<li> but you can easily take them off with a knife</li>
+<li> it made it easy for me</li>
+<li> their fine.</li>
+<li> super pleased</li>
+<li> Great deal and will be looking forward to future buisness with you.</li>
+<li> over great product will shop again in the future</li>
+<li> Thank you so much!!!</li>
+<li> Perfect for small tattooing areas</li>
+<li> Well worth the price for the amount!</li>
+<li> thanks&#x27; pirate face and amazon,i will be ordering more.</li>
+<li> I&#x27;ll definitely be ordering more when I run out of these. :)</li>
+<li> We always get the order quickly and it is always correct.</li>
+<li> There vary good caps and came vary fast and the price is not bad at all, when im short</li>
+<li> Nothing too exciting.</li>
+<li> They are just right.</li>
+<li> Right size.</li>
+<li> Love them,perfect size,and perfect price for how many you get.better than the small cups,when you need that little extra ink.</li>
+<li> will be buying more in the future</li>
+<li> Perfect Size Cups ~ not too big, not too small.</li>
+<li> Exactly what the artist wanted.  </li>
+<li> I got my ink cups fast,and they are nice and the right thickness and size for almost any tattoo job, I got large and small, but this size are nice for about any job, except small tat&#x27;s where you don&#x27;t want to waste ink,because if you use high end ink and you just need a  little ink you don&#x27;t want to hit the bittom of the cup and screw you neddle up,but they come in handy more than most size cup.</li>
+<li> Just as described good quality arrived fast the size is very useful not to small not to big.</li>
+<li> No broken pieces.</li>
+<li> I recommend it to anyone who wants to buy something of quality .............................</li>
+<li> , I know things happen, but I really need those caps and now I have to order from someone else.</li>
+<li> only problem is they arent smooth on the bottom</li>
+<li> I really like that</li>
+<li> Received it in a reasonable time, no problems at all.</li>
+<li> I am stuck with 500 caps that I really could have used 100 of.</li>
+<li> there is some sort of stains on them.. not clean or suitable for sterile tattooing.</li>
+<li> Lives up to recent reviews was very impressed came in blind of n eye n</li>
+<li> came in a big bag, with multiple smaller bags full inside which makes it nice to keep the bulk in the storage closet and a smaller bag in the work area.</li>
+<li> exactly what I expected.</li>
+<li> But other than that it was exactly what i ordered</li>
+<li> Will order again as in in near future.</li>
+<li> Not to small, but not to big where i waste more ink than i used.</li>
+<li> so they will set flat on a table</li>
+<li> Only 4 stars cause the bottom of the cap has a little piece of plastic that sticks out and has to be trimmed off before the cap will sit level.</li>
+<li> Got what was expected</li>
+<li> as expected.</li>
+<li> Other than that, they are in fact ink cups.</li>
+<li> They have little odd knobs on the bottoms of them</li>
+<li> Lots of little ink caps, the picture says it all.</li>
+<li> it&#x27;s unbelievable but everything was as promised with this product .</li>
+<li> just as described came late</li>
+<li> Not happy</li>
+<li> Would not have been disappointed if I had.</li>
+<li> also they are disgusting.</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> Found trash and dirt in the bag with my caps.</li>
+    <li> Fast shipment and good quality ink cups. Right size.</li>
+    <li> These are great and what i needed. They are just right.</li>
+    <li> Lives up to recent reviews was very impressed came in blind of n eye n just wat I ordered!</li>
+    <li> I guess he needed these and used them when he did his tat, im sure he used them and made it easy with the ink.</li>
+    <li> Perfect....exactly what I needed!!!  Thank you :-)</li>
+    <li> Got these quick, very happy</li>
+    <li> Does what&#x27;s it suppose to</li>
+    <li> it was here on time and love how many caps u get for your money .... this will last me about a month</li>
+    <li> just as described came late but that was PRIME&#x27;s fault. over great product will shop again in the future A+</li>
+    <li> We have ordered several times from this company. We always get the order quickly and it is always correct. They always answer emails and are very easy to work with. We will continue to order from them.</li>
+    <li> Great product thank you</li>
+    <li> Thank you for sending on time and I am so very glad that it was what I needed it made it easy for me</li>
+    <li> Oh the joys of ink caps, they hold ink, add a ink cap holding tray and mix your colors away, Go Amazon :D</li>
+    <li> Ordered this for my tattoo starter kit. Awesome product! No broken pieces. I&#x27;ll definitely be ordering more when I run out of these. :)</li>
+    <li> Omg . You wouldn&#x27;t believe the size in reality it&#x27;s unbelievable but everything was as promised with this product .</li>
+    <li> Now this is how your to order your ink cups, came sealed up and have no defects within any of the cups</li>
+    <li> Good product.&lt;br /&gt;Great customer service!</li>
+    <li> I really like that I ordered the #13 cups. Much better then the #9s. They seem much more sturdy, came in on time, and were in awesome condition. Will be ordering these again.</li>
+    <li> would order again, as i do go through alot with testing and mixing colors. will be buying more in the future</li>
+    <li> Only 4 stars cause the bottom of the cap has a little piece of plastic that sticks out and has to be trimmed off before the cap will sit level.</li>
+    <li> Received it in a reasonable time, no problems at all. Would buy again</li>
+    <li> Just what they should be nothing more</li>
+    <li> just what my daughter needed.</li>
+    <li> Greenish tinted threw me off but perfect size. Excellent purchase. Almost bought 3000 as this is an add on product. Would not have been disappointed if I had.</li>
+    <li> came on time very happy</li>
+    <li> Excellent quality for the price. Will order again.  Convenient packaging fits well in the carrying case.  Will order again as in in near future.</li>
+    <li> as expected. no problems</li>
+    <li> Perfect for small tattooing areas</li>
+    <li> Great for medium work love it</li>
+    <li> There vary good caps and came vary fast and the price is not bad at all, when im short i will be ordering more, Awesome product.</li>
+    <li> Really liked the price on these</li>
+    <li> good 13ml tattoo caps.</li>
+    <li> fantastic, excellent product. I recommend it to anyone who wants to buy something of quality .............................</li>
+    <li> I can tattoo forever off these things. Lots of them. exactly what I expected. Will order again,do recommend. good product</li>
+    <li> Perfect size for me. Not to small, but not to big where i waste more ink than i used. came in a big bag, with multiple smaller bags full inside which makes it nice to keep the bulk in the storage closet and a smaller bag in the work area. Other than that, they are in fact ink cups.</li>
+    <li> These ink cups are great.  They do what they are supposed to, hold ink.  Nothing too exciting. Work as advertised.</li>
+    <li> Got what was expected</li>
+    <li> Love all your tattoo supplies!!!</li>
+    <li> the ink cups were biger than i thought but they were still needed an im use to to doing big tattoos so thank u</li>
+    <li> Great price fast shipping</li>
+    <li> I ordered #13. they sent #15.. also they are disgusting. there is some sort of stains on them.. not clean or suitable for sterile tattooing.</li>
+    <li> loved it and have no bad reveiw to give. I would recomend these caps to all my tattoo buddies.Thanks for the great product</li>
+    <li> Wow soo many ,i dont even think i will count them lol</li>
+    <li> They have little odd knobs on the bottoms of them but you can easily take them off with a knife so they will set flat on a table</li>
+    <li> I ordered #13 ink cups and got #9, I know things happen, but I really need those caps and now I have to order from someone else. I am stuck with 500 caps that I really could have used 100 of.Not happy</li>
+    <li> their fine. Good in a bind with Amazon Prime.</li>
+    <li> Love them,perfect size,and perfect price for how many you get.better than the small cups,when you need that little extra ink.</li>
+    <li> Satisfied with the size &amp; delivery.</li>
+    <li> Lots of little ink caps, the picture says it all. Functional and cost effective.</li>
+    <li> loved it! everything came perfectly packaged and super fast!!!! super pleased</li>
+    <li> Very satisfied with shipping and ink cups. Great deal and will be looking forward to future buisness with you. Thank you so much!!!</li>
+    <li> only problem is they arent smooth on the bottom</li>
+    <li> All of it was there and in good shape great buy</li>
+    <li> Well worth the price for the amount!</li>
+    <li> Obviously, it is what it is. Great price, on time shipping.</li>
+    <li> Fast shipping great price</li>
+    <li> I got my ink cups fast,and they are nice and the right thickness and size for almost any tattoo job, I got large and small, but this size are nice for about any job, except small tat&#x27;s where you don&#x27;t want to waste ink,because if you use high end ink and you just need a  little ink you don&#x27;t want to hit the bittom of the cup and screw you neddle up,but they come in handy more than most size cup. thanks&#x27; pirate face and amazon,i will be ordering more.</li>
+    <li> Just as described good quality arrived fast the size is very useful not to small not to big. Happy with all my caps the price was really good as i checked many prices.</li>
+    <li> Perfect Size Cups ~ not too big, not too small. Exactly what the artist wanted.  No complaints at all.</li>
+    <li> Everything was good with them. Just  know that you will have to sterilize them. But other than that it was exactly what i ordered and i received them way faster than i thought. definitely recommended</li>
+</ol>
+
+
+
+

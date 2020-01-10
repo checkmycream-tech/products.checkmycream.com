@@ -1,0 +1,127 @@
+---
+title: Donna Karan Delicious Fresh Blossom Perfume Eau De Parfum Spray for Women, 1 Ounce,
+description: Donna Karan Delicious Fresh Blossom Perfume Eau De Parfum Spray for Women, 1 Ounce,
+author: Suvojit Manna,
+tags: Donna Karan Delicious Fresh Blossom Perfume Eau De Parfum Spray for Women, 1 Ounce,
+publishedAt: Fri Jan 10 2020 14:59:44 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:59:44 GMT+0530 (India Standard Time),
+---
+
+# [Donna Karan Delicious Fresh Blossom Perfume Eau De Parfum Spray for Women, 1 Ounce](https://products.checkmycream.com/products/Donna-Karan-Delicious-Fresh-Blossom-Perfume-Eau-De-Parfum-Spray-for-Women-1-Ounce.html)
+
+### Positive Reviews
+
+<ol>
+      <li>but it turned out  perfect.</li>
+      <li>Great smell!</li>
+      <li>Very, very nice scent!  </li>
+      <li>Very nice for any season!</li>
+      <li>Great fragrance and a great price!!</li>
+      <li>Great service,Thanks Amazon</li>
+      <li>Would make great presents for females on your list</li>
+      <li>Love, Love This Perfume!!!!</li>
+      <li>My sister loved it.</li>
+      <li>Found a good deal on amazon compared to store prices.</li>
+      <li>Smells like DKNY Delicious Fresh Blossom</li>
+      <li>I absolutely love it!</li>
+      <li>It was wrapped nicely and I love the scent</li>
+      <li>Nice, light floral scent.</li>
+      <li>Its my favorite</li>
+      <li>I get so many compliments when I wear it.  </li>
+      <li>Its light and floral scent!  </li>
+      <li>and I ordered again online since it&#x27;s better price than at stores.</li>
+      <li>Love the way my hair and clothes smell after I spray it.</li>
+      <li>Love this perfume.  </li>
+      <li>Not as light as I thought it would be.</li>
+      <li>Fab and light scent.  </li>
+      <li>Love this fresh floral.</li>
+      <li>Any lady can enjoy it.</li>
+      <li>Thanks again Amazon and seller!!!</li>
+      <li>Super fast delivery!!!</li>
+      <li>makes me feel fresh and comfortable.</li>
+      <li>Sweet smelling perfume.</li>
+      <li>Cool gift, indeed.</li>
+      <li>it&#x27;s sweet like a apples, fresh, like it</li>
+      <li>I love this scent, but it&#x27;s hard to find good prices.  </li>
+      <li>but it was worth the wait.  </li>
+      <li>Item received exactly as described.</li>
+      <li>Favorite fragrance - light and subtle, but lasts throughout the day.</li>
+      <li>Shipping took a little longer than most things</li>
+      <li>It smells fresh and it last.</li>
+      <li>doesn&#x27;t last very long, but that&#x27;s okay.</li>
+      <li>Item was well packaged and new and sealed in box.</li>
+      <li>and I was not sure about getting fresh blossom</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> but it turned out  perfect.</li>
+<li> Great smell!</li>
+<li> Very, very nice scent!  </li>
+<li> Very nice for any season!</li>
+<li> Great fragrance and a great price!!</li>
+<li> Great service,Thanks Amazon</li>
+<li> Would make great presents for females on your list</li>
+<li> Love, Love This Perfume!!!!</li>
+<li> My sister loved it.</li>
+<li> Found a good deal on amazon compared to store prices.</li>
+<li> Smells like DKNY Delicious Fresh Blossom</li>
+<li> I absolutely love it!</li>
+<li> It was wrapped nicely and I love the scent</li>
+<li> Nice, light floral scent.</li>
+<li> Its my favorite</li>
+<li> I get so many compliments when I wear it.  </li>
+<li> Its light and floral scent!  </li>
+<li> and I ordered again online since it&#x27;s better price than at stores.</li>
+<li> Love the way my hair and clothes smell after I spray it.</li>
+<li> Love this perfume.  </li>
+<li> Not as light as I thought it would be.</li>
+<li> Fab and light scent.  </li>
+<li> Love this fresh floral.</li>
+<li> Any lady can enjoy it.</li>
+<li> Thanks again Amazon and seller!!!</li>
+<li> Super fast delivery!!!</li>
+<li> makes me feel fresh and comfortable.</li>
+<li> Sweet smelling perfume.</li>
+<li> Cool gift, indeed.</li>
+<li> it&#x27;s sweet like a apples, fresh, like it</li>
+<li> I love this scent, but it&#x27;s hard to find good prices.  </li>
+<li> but it was worth the wait.  </li>
+<li> Item received exactly as described.</li>
+<li> Favorite fragrance - light and subtle, but lasts throughout the day.</li>
+<li> Shipping took a little longer than most things</li>
+<li> It smells fresh and it last.</li>
+<li> doesn&#x27;t last very long, but that&#x27;s okay.</li>
+<li> Item was well packaged and new and sealed in box.</li>
+<li> and I was not sure about getting fresh blossom</li>
+<li> i only wish the smell would last a little longer</li>
+<li> Not overpowering on the dry down....</li>
+<li> I had green apple before</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> It was wrapped nicely and I love the scent</li>
+    <li> Super fast delivery!!! Item received exactly as described. Will definitely order again.</li>
+    <li> I already had this perfume and I ordered again online since it&#x27;s better price than at stores. The fragrance it&#x27;s sweet like a apples, fresh, like it</li>
+    <li> My sister loved it. Smells like DKNY Delicious Fresh Blossom Perfume Eau De Parfum Spray for Women. Cool gift, indeed.</li>
+    <li> i only wish the smell would last a little longer i will buy again . Would make great presents for females on your list</li>
+    <li> OMG!  This perfume is a must!  Its light and floral scent!  When I wear it, I dont have to spray a lot and it lasts on my skin and clothes all day.  I get so many compliments when I wear it.  Very, very nice scent!  Shipping took a little longer than most things but it was worth the wait.  I absolutely love it!</li>
+    <li> It has a undertone.  Not as light as I thought it would be.</li>
+    <li> Fab and light scent.  Its my favorite</li>
+    <li> Great fragrance and a great price!!</li>
+    <li> Love, Love This Perfume!!!!</li>
+    <li> Favorite fragrance - light and subtle, but lasts throughout the day. I always get complimented on the scent. Doesn&#x27;t smell alcohol-y and doesn&#x27;t make me nauseous. Love the way my hair and clothes smell after I spray it. Thanks again Amazon and seller!!! Item was well packaged and new and sealed in box. The one ounce fragrance comes with spray.</li>
+    <li> Love this perfume.  It smells fresh and it last.</li>
+    <li> Great smell! makes me feel fresh and comfortable.I had green apple before and I was not sure about getting fresh blossom but it turned out  perfect.Great service,Thanks Amazon</li>
+    <li> Love this fresh floral. Not overpowering on the dry down....doesn&#x27;t last very long, but that&#x27;s okay. Very nice for any season!</li>
+    <li> I love this scent, but it&#x27;s hard to find good prices.  Found a good deal on amazon compared to store prices.</li>
+    <li> Nice, light floral scent. It won&#x27;t last all day, but it&#x27;s not overpowering either.</li>
+    <li> Sweet smelling perfume. Any lady can enjoy it.</li>
+</ol>
+
+
+
+

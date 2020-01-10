@@ -3,8 +3,8 @@ title: PURA D&#x27;OR Hair Loss Prevention Premium Organic Argan Oil Shampoo,16 
 description: PURA D&#x27;OR Hair Loss Prevention Premium Organic Argan Oil Shampoo,16 Fluid Ounce (Packaging may vary),
 author: Suvojit Manna,
 tags: PURA D&#x27;OR Hair Loss Prevention Premium Organic Argan Oil Shampoo,16 Fluid Ounce (Packaging may vary),
-publishedAt: Thu Jan 09 2020 19:08:36 GMT+0530 (India Standard Time),
-modifiedAt: Thu Jan 09 2020 19:08:36 GMT+0530 (India Standard Time),
+publishedAt: Fri Jan 10 2020 15:00:18 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:18 GMT+0530 (India Standard Time),
 ---
 
 # [PURA D&#x27;OR Hair Loss Prevention Premium Organic Argan Oil Shampoo,16 Fluid Ounce (Packaging may vary)](https://products.checkmycream.com/products/PURA-D&#x27;OR-Hair-Loss-Prevention-Premium-Organic-Argan-Oil-Shampoo16-Fluid-Ounce-(Packaging-may-vary).html)
@@ -12,211 +12,211 @@ modifiedAt: Thu Jan 09 2020 19:08:36 GMT+0530 (India Standard Time),
 ### Positive Reviews
 
 <ol>
-      <li>This shampoo is the best!</li>
       <li>Excellent product.</li>
-      <li>Excellent quality shampoo.</li>
-      <li>Great Product!!</li>
-      <li>Perfect for me.</li>
-      <li>It works awesomely.</li>
-      <li>I lllllllllllllllooooooooovvvvvvvveeeeeeeeeee this wonderful product.</li>
-      <li>Great product; I recommend it!</li>
-      <li>My hair looks and feels great!  </li>
-      <li>and I can say this is the best.</li>
-      <li>looks great after using it!</li>
-      <li>I can&#x27;t speak to the hairloss prevention as thankfully that is not an issue yet, but I can say that the formula is wonderful</li>
-      <li>I just know that my scalp appreciates all the wonderful ingredients it has.&lt;br /&gt;&lt;br /&gt;I</li>
-      <li>This has been the best shampoo that I have ever invested in.</li>
-      <li>It&#x27;s perfect for her.</li>
-      <li>Wonderful product .</li>
-      <li>Excellent shampoo.</li>
-      <li>/&gt;I&#x27;ve been using this shampoo for almost 6 months now, and I&#x27;m honestly very impressed.</li>
-      <li>Great Stuff!</li>
-      <li>Great product!</li>
-      <li>It is the best shampoo that I&#x27;ve ever used.</li>
-      <li>Works great for me!</li>
-      <li>I was very happy with this product .My</li>
-      <li>This is a wonderful herbal/organic shampoo, not just a hair loss product.</li>
-      <li>I am so happy!</li>
-      <li>This shampoo is wonderful.</li>
-      <li>is that the fragrance of this shampoo is not the best.</li>
-      <li>This is the best shampoo I&#x27;ve ever used.</li>
-      <li>Smells great!</li>
-      <li>Excellent shampoo.  </li>
-      <li>Great product!</li>
-      <li>Very happy with this shampoo.</li>
-      <li>I have recommend it to my best friend.</li>
-      <li>Great product!</li>
-      <li>I have been using this shampoo for four months now, and I have to say I&#x27;m quite impressed with it.</li>
-      <li>She is very happy with the results that she is having, I am also going to start using.</li>
-      <li>I am very happy with this product.</li>
-      <li>This one is the best one I&#x27;ve seen so</li>
-      <li>Excellent product!</li>
-      <li>I&#x27;m vegetarian and in excellent health, but as the doctor was including &amp;#34;Pura d&#x27;Or&amp;#34; in his notes, he said, &amp;#34;This shampoo may be &#x27;organic&#x27;,</li>
-      <li>and the results are wonderful!</li>
-      <li>From my experience, the smell wasn&#x27;t the greatest, but seems to be doing the job.</li>
-      <li>Great product!</li>
-      <li>It also makes your hair smell awesome!</li>
-      <li>Great product!</li>
-      <li>Very happy with the results.</li>
-      <li>This shampoo is simply Wonderful.</li>
-      <li>Best Shampoo I tried.</li>
-      <li>it&#x27;s incredible!</li>
-      <li>Great product!</li>
-      <li>Stuff is great!!</li>
-      <li>This shampoo is the BEST!</li>
-      <li>BEST Shampoo ever!!!</li>
-      <li>think it&#x27;s the best thing that I have used on my hair</li>
-      <li>awesome shampoo.</li>
-      <li>Best of all, it is made in the USA and is NOT TESTED ON ANIMALS.</li>
-      <li>So you will not smell like perfect by using this thing.&lt;br /&gt;&lt;br</li>
-      <li>I am prime member and  noticed that this product is a best seller.</li>
-      <li>Great product!</li>
-      <li>Awesome product!</li>
+      <li>Excellent for shine and bounce.  </li>
+      <li>It is awesome.</li>
+      <li>Smells great too!</li>
       <li>Great service!</li>
-      <li>And the best part?</li>
+      <li>If it is the best selling product on Amazon something must be working.</li>
+      <li>I bought this product out of impulse and because it is the best selling product on Amazon.</li>
+      <li>Great shampoo!</li>
+      <li>Excellent ingredients, and seems like a quality product.</li>
+      <li>Packaging and bottle were in perfect condition as well.  </li>
+      <li>This shampoo is the best!</li>
+      <li>Awesome product!</li>
+      <li>I am very happy with Pura D&#x27;Or.</li>
+      <li>This shampoo is awesome!  </li>
+      <li>I&#x27;m very happy with the shampoo.</li>
+      <li>Some of the best organic shampoo out there!</li>
+      <li>The price and quality make it an excellent buy.  </li>
+      <li>So, I will continue to use this and hope I keep getting the awesome results</li>
+      <li>I am so happy!!!</li>
+      <li>I have been using this shampoo for four months now, and I have to say I&#x27;m quite impressed with it.</li>
       <li>but it worked awesome at restoring my crown area.</li>
+      <li>Great product!</li>
+      <li>Best shampoo I&#x27;ve ever used.</li>
       <li>Well, a wonderful shampoo which is Pura d&#x27;or premium organic shampoo!</li>
       <li>An awesome product.</li>
+      <li>One of the best product I have ever used for hair loss control purpose.</li>
+      <li>Best product I&#x27;ve ever used.</li>
+      <li>one of the best shampoos we have ever used.</li>
+      <li>Excellent product.</li>
+      <li>This is the best shampoo I have ever used.</li>
+      <li>still cannot update on the har loss prevention part of it but will update once I get through with using the product for 2-3 months - hoping for the best!.</li>
+      <li>It works excellent.  </li>
       <li>Regarding the seller where I purchased this product is excellent</li>
+      <li>Excellent, just excellent.</li>
+      <li>With that said, this is still a wonderful shampoo!</li>
+      <li>Very happy.</li>
+      <li>This is the best shampoo that I have ever used.</li>
+      <li>The Pura d&#x27;or Conditioner worked awesome!</li>
+      <li>and I love it !!!!!!!!!!!!!!!</li>
+      <li>am planning on keep using this shampoo, great!!</li>
+      <li>and I must say I&#x27;m impressed.  </li>
+      <li>Five Stars from a very happy customer!</li>
       <li>I&#x27;m very happy with both.</li>
+      <li>Great shampoo!</li>
+      <li>and there&#x27;s no doubt my hair&#x27;s been in the best shape it&#x27;s been in years.  </li>
+      <li>The best shampoo ever.</li>
+      <li>This shampoo is a perfect balance between cleansing and nourishing.</li>
+      <li>It&#x27;s the best organic shampoo  </li>
+      <li>This is the best hair product I&#x27;ve ever used.</li>
+      <li>This is one of best product ever I have used.</li>
+      <li>Smells great!  </li>
+      <li>Seriously awesome!</li>
+      <li>and I would have to say it&#x27;s the best shampoo i&#x27;ve ever used.</li>
+      <li>I use once or twice a week for best results but must use conditioner for detangling.</li>
       <li>and i bought it then find it is great!</li>
+      <li>I&#x27;ve always had beautiful hair and was complimented on it, often!  </li>
+      <li>I am prime member and  noticed that this product is a best seller.</li>
+      <li>it&#x27;s so amazing!!!</li>
+      <li>and it is Best shampoo ever.</li>
+      <li>This is a wonderful product that just started working after two weeks.  </li>
+      <li>This is a great product and I will never use another shampoo product again!</li>
+      <li>So you will not smell like perfect by using this thing.&lt;br /&gt;&lt;br</li>
+      <li>Excellent quality shampoo.</li>
+      <li>Then I came across this shampoo as the best seller on Amazon.</li>
+      <li>Very good 5 star!</li>
+      <li>product works great!</li>
       <li>It worked the best after using it for 3 months.</li>
+      <li>It doesn&#x27;t smell the best</li>
+      <li>im very happy with this product now</li>
+      <li>(it smells like lemons, real good).</li>
       <li>and this definitely is perfect for that.</li>
-      <li>Smells great too!</li>
-      <li>Very impressive!!!</li>
-      <li>This is an awesome product!</li>
-      <li>and this was the best way to judge length</li>
-      <li>This is probably the best shampoo I have tried !</li>
-      <li>Hair feels great afterwards!</li>
-      <li>What a great shampoo!!!</li>
-      <li>Great product,really works!</li>
+      <li>Very good!</li>
       <li>Great Product!!</li>
-      <li>Thicker hair, great product!</li>
-      <li>I think that it is the best out there.</li>
-      <li>This product is awesome!</li>
-      <li>Best hair loss Prevention oil I ever found..  </li>
-      <li>This product is great!</li>
-      <li>AMAZING!!!</li>
-      <li>But happily so!</li>
-      <li>And it is the best shampoo my wife</li>
-      <li>This shampoo is the best!</li>
-      <li>Very happy with the product.</li>
-      <li>awesome product.</li>
-      <li>/&gt;I&#x27;ve come to the conclusion that there is no hair shampoo to help stop hair thinning and your best bet is to just focus on volumizing shampoos that you can buy at a fraction of the cost of this garbage.</li>
-      <li>Great!</li>
-      <li>Makes your hair feel great as well!</li>
+      <li>best way to test your hair loss is to: pick the bunch of your hairs around 20-30 and stretch it,</li>
+      <li>Really really love this shampoo !!!!</li>
+      <li>/&gt;It smells great!</li>
+      <li>Excellent shampoo!  </li>
+      <li>I came across this product on Amazon and was impressed with the reviews.</li>
+      <li>This is a great product!  </li>
+      <li>This is the best product for your hair that you could every buy&lt;br /&gt;Highly</li>
+      <li>it worked great and am still continuing to use it!!</li>
+      <li>My hair feels so wonderful after shampooing!</li>
+      <li>Pura d&#x27;or is the best organic shampoo for my hair.</li>
+      <li>This product is awesome!  </li>
+      <li>Perfect for me.</li>
+      <li>It works wonderfully!</li>
+      <li>Very happy with this purchase.</li>
+      <li>The best organic shampoo in the market.</li>
+      <li>, my wife is also very happy with the results as she feels her hair is thicker and healthier.</li>
+      <li>Best shampoo I have used.</li>
+      <li>Excellent shampoo that cleans well and leaves no residue.  </li>
+      <li>Great Product!</li>
+      <li>this shampoo is superb!</li>
+      <li>I was very impressed with that people who used this were saying about their results.  </li>
+      <li>This is the best shampoo that I&#x27;ve ever used.</li>
+      <li>very happy with this product.....</li>
       <li>Great product!</li>
-      <li>/&gt;&amp;#34;I bought this product for my friend&#x27;s wife and it works wonderfully.</li>
-      <li>Great product !</li>
-      <li>I&#x27;m very impressed.</li>
-      <li>I&#x27;m very happy with this product.  </li>
-      <li>I&#x27;m very happy</li>
-      <li>Really an awesome product to get rid of hair loss!</li>
+      <li>It awesome.</li>
+      <li>The company is wonderful as well.</li>
+      <li>I have been using it for a week now and am very happy with the results.</li>
 </ol>
 
 
 <h2>Negative Reviews</h2>
 <ol>
-<li> This shampoo is the best!</li>
 <li> Excellent product.</li>
-<li> Excellent quality shampoo.</li>
-<li> Great Product!!</li>
-<li> Perfect for me.</li>
-<li> It works awesomely.</li>
-<li> I lllllllllllllllooooooooovvvvvvvveeeeeeeeeee this wonderful product.</li>
-<li> Great product; I recommend it!</li>
-<li> My hair looks and feels great!  </li>
-<li> and I can say this is the best.</li>
-<li> looks great after using it!</li>
-<li> I can&#x27;t speak to the hairloss prevention as thankfully that is not an issue yet, but I can say that the formula is wonderful</li>
-<li> I just know that my scalp appreciates all the wonderful ingredients it has.&lt;br /&gt;&lt;br /&gt;I</li>
-<li> This has been the best shampoo that I have ever invested in.</li>
-<li> It&#x27;s perfect for her.</li>
-<li> Wonderful product .</li>
-<li> Excellent shampoo.</li>
-<li> /&gt;I&#x27;ve been using this shampoo for almost 6 months now, and I&#x27;m honestly very impressed.</li>
-<li> Great Stuff!</li>
-<li> Great product!</li>
-<li> It is the best shampoo that I&#x27;ve ever used.</li>
-<li> Works great for me!</li>
-<li> I was very happy with this product .My</li>
-<li> This is a wonderful herbal/organic shampoo, not just a hair loss product.</li>
-<li> I am so happy!</li>
-<li> This shampoo is wonderful.</li>
-<li> is that the fragrance of this shampoo is not the best.</li>
-<li> This is the best shampoo I&#x27;ve ever used.</li>
-<li> Smells great!</li>
-<li> Excellent shampoo.  </li>
-<li> Great product!</li>
-<li> Very happy with this shampoo.</li>
-<li> I have recommend it to my best friend.</li>
-<li> Great product!</li>
-<li> I have been using this shampoo for four months now, and I have to say I&#x27;m quite impressed with it.</li>
-<li> She is very happy with the results that she is having, I am also going to start using.</li>
-<li> I am very happy with this product.</li>
-<li> This one is the best one I&#x27;ve seen so</li>
-<li> Excellent product!</li>
-<li> I&#x27;m vegetarian and in excellent health, but as the doctor was including &amp;#34;Pura d&#x27;Or&amp;#34; in his notes, he said, &amp;#34;This shampoo may be &#x27;organic&#x27;,</li>
-<li> and the results are wonderful!</li>
-<li> From my experience, the smell wasn&#x27;t the greatest, but seems to be doing the job.</li>
-<li> Great product!</li>
-<li> It also makes your hair smell awesome!</li>
-<li> Great product!</li>
-<li> Very happy with the results.</li>
-<li> This shampoo is simply Wonderful.</li>
-<li> Best Shampoo I tried.</li>
-<li> it&#x27;s incredible!</li>
-<li> Great product!</li>
-<li> Stuff is great!!</li>
-<li> This shampoo is the BEST!</li>
-<li> BEST Shampoo ever!!!</li>
-<li> think it&#x27;s the best thing that I have used on my hair</li>
-<li> awesome shampoo.</li>
-<li> Best of all, it is made in the USA and is NOT TESTED ON ANIMALS.</li>
-<li> So you will not smell like perfect by using this thing.&lt;br /&gt;&lt;br</li>
-<li> I am prime member and  noticed that this product is a best seller.</li>
-<li> Great product!</li>
-<li> Awesome product!</li>
+<li> Excellent for shine and bounce.  </li>
+<li> It is awesome.</li>
+<li> Smells great too!</li>
 <li> Great service!</li>
-<li> And the best part?</li>
+<li> If it is the best selling product on Amazon something must be working.</li>
+<li> I bought this product out of impulse and because it is the best selling product on Amazon.</li>
+<li> Great shampoo!</li>
+<li> Excellent ingredients, and seems like a quality product.</li>
+<li> Packaging and bottle were in perfect condition as well.  </li>
+<li> This shampoo is the best!</li>
+<li> Awesome product!</li>
+<li> I am very happy with Pura D&#x27;Or.</li>
+<li> This shampoo is awesome!  </li>
+<li> I&#x27;m very happy with the shampoo.</li>
+<li> Some of the best organic shampoo out there!</li>
+<li> The price and quality make it an excellent buy.  </li>
+<li> So, I will continue to use this and hope I keep getting the awesome results</li>
+<li> I am so happy!!!</li>
+<li> I have been using this shampoo for four months now, and I have to say I&#x27;m quite impressed with it.</li>
 <li> but it worked awesome at restoring my crown area.</li>
+<li> Great product!</li>
+<li> Best shampoo I&#x27;ve ever used.</li>
 <li> Well, a wonderful shampoo which is Pura d&#x27;or premium organic shampoo!</li>
 <li> An awesome product.</li>
+<li> One of the best product I have ever used for hair loss control purpose.</li>
+<li> Best product I&#x27;ve ever used.</li>
+<li> one of the best shampoos we have ever used.</li>
+<li> Excellent product.</li>
+<li> This is the best shampoo I have ever used.</li>
+<li> still cannot update on the har loss prevention part of it but will update once I get through with using the product for 2-3 months - hoping for the best!.</li>
+<li> It works excellent.  </li>
 <li> Regarding the seller where I purchased this product is excellent</li>
+<li> Excellent, just excellent.</li>
+<li> With that said, this is still a wonderful shampoo!</li>
+<li> Very happy.</li>
+<li> This is the best shampoo that I have ever used.</li>
+<li> The Pura d&#x27;or Conditioner worked awesome!</li>
+<li> and I love it !!!!!!!!!!!!!!!</li>
+<li> am planning on keep using this shampoo, great!!</li>
+<li> and I must say I&#x27;m impressed.  </li>
+<li> Five Stars from a very happy customer!</li>
 <li> I&#x27;m very happy with both.</li>
+<li> Great shampoo!</li>
+<li> and there&#x27;s no doubt my hair&#x27;s been in the best shape it&#x27;s been in years.  </li>
+<li> The best shampoo ever.</li>
+<li> This shampoo is a perfect balance between cleansing and nourishing.</li>
+<li> It&#x27;s the best organic shampoo  </li>
+<li> This is the best hair product I&#x27;ve ever used.</li>
+<li> This is one of best product ever I have used.</li>
+<li> Smells great!  </li>
+<li> Seriously awesome!</li>
+<li> and I would have to say it&#x27;s the best shampoo i&#x27;ve ever used.</li>
+<li> I use once or twice a week for best results but must use conditioner for detangling.</li>
 <li> and i bought it then find it is great!</li>
+<li> I&#x27;ve always had beautiful hair and was complimented on it, often!  </li>
+<li> I am prime member and  noticed that this product is a best seller.</li>
+<li> it&#x27;s so amazing!!!</li>
+<li> and it is Best shampoo ever.</li>
+<li> This is a wonderful product that just started working after two weeks.  </li>
+<li> This is a great product and I will never use another shampoo product again!</li>
+<li> So you will not smell like perfect by using this thing.&lt;br /&gt;&lt;br</li>
+<li> Excellent quality shampoo.</li>
+<li> Then I came across this shampoo as the best seller on Amazon.</li>
+<li> Very good 5 star!</li>
+<li> product works great!</li>
 <li> It worked the best after using it for 3 months.</li>
+<li> It doesn&#x27;t smell the best</li>
+<li> im very happy with this product now</li>
+<li> (it smells like lemons, real good).</li>
 <li> and this definitely is perfect for that.</li>
-<li> Smells great too!</li>
-<li> Very impressive!!!</li>
-<li> This is an awesome product!</li>
-<li> and this was the best way to judge length</li>
-<li> This is probably the best shampoo I have tried !</li>
-<li> Hair feels great afterwards!</li>
-<li> What a great shampoo!!!</li>
-<li> Great product,really works!</li>
+<li> Very good!</li>
 <li> Great Product!!</li>
-<li> Thicker hair, great product!</li>
-<li> I think that it is the best out there.</li>
-<li> This product is awesome!</li>
-<li> Best hair loss Prevention oil I ever found..  </li>
-<li> This product is great!</li>
-<li> AMAZING!!!</li>
-<li> But happily so!</li>
-<li> And it is the best shampoo my wife</li>
-<li> This shampoo is the best!</li>
-<li> Very happy with the product.</li>
-<li> awesome product.</li>
-<li> /&gt;I&#x27;ve come to the conclusion that there is no hair shampoo to help stop hair thinning and your best bet is to just focus on volumizing shampoos that you can buy at a fraction of the cost of this garbage.</li>
-<li> Great!</li>
-<li> Makes your hair feel great as well!</li>
+<li> best way to test your hair loss is to: pick the bunch of your hairs around 20-30 and stretch it,</li>
+<li> Really really love this shampoo !!!!</li>
+<li> /&gt;It smells great!</li>
+<li> Excellent shampoo!  </li>
+<li> I came across this product on Amazon and was impressed with the reviews.</li>
+<li> This is a great product!  </li>
+<li> This is the best product for your hair that you could every buy&lt;br /&gt;Highly</li>
+<li> it worked great and am still continuing to use it!!</li>
+<li> My hair feels so wonderful after shampooing!</li>
+<li> Pura d&#x27;or is the best organic shampoo for my hair.</li>
+<li> This product is awesome!  </li>
+<li> Perfect for me.</li>
+<li> It works wonderfully!</li>
+<li> Very happy with this purchase.</li>
+<li> The best organic shampoo in the market.</li>
+<li> , my wife is also very happy with the results as she feels her hair is thicker and healthier.</li>
+<li> Best shampoo I have used.</li>
+<li> Excellent shampoo that cleans well and leaves no residue.  </li>
+<li> Great Product!</li>
+<li> this shampoo is superb!</li>
+<li> I was very impressed with that people who used this were saying about their results.  </li>
+<li> This is the best shampoo that I&#x27;ve ever used.</li>
+<li> very happy with this product.....</li>
 <li> Great product!</li>
-<li> /&gt;&amp;#34;I bought this product for my friend&#x27;s wife and it works wonderfully.</li>
-<li> Great product !</li>
-<li> I&#x27;m very impressed.</li>
-<li> I&#x27;m very happy with this product.  </li>
-<li> I&#x27;m very happy</li>
-<li> Really an awesome product to get rid of hair loss!</li>
+<li> It awesome.</li>
+<li> The company is wonderful as well.</li>
+<li> I have been using it for a week now and am very happy with the results.</li>
 </ol>
 
 <h2>All Reviews</h2>
@@ -3961,6 +3961,7 @@ modifiedAt: Thu Jan 09 2020 19:08:36 GMT+0530 (India Standard Time),
     <li> This shampoo is amazing! I have thin oily hair and I was looking for something that will make my hair thicker and stop my hair from falling out. I realized that I can only use organic shampoos for my hair.&lt;br /&gt;&lt;br /&gt;After using this everyday for a few weeks I started to notice my hair get thicker and my hair stop falling out. Now when I put my hair on a pony tail, I can really feel how much thicker my hair got. Will definitely be ordering this product again.&lt;br /&gt;&lt;br /&gt;I also wanted to say that I have been using this for about 2 months now almost everyday and the bottle is not even half empty. I apply about 2 pumps to my roots only and then use a conditioner for my roots</li>
     <li> The smell is a little too strong, but it smells natural. Hair loss is little less than before after first use. The hair quite soft and not too tough even though I didnt use conditioner. I will keep using to see if any more great result.</li>
 </ol>
+
 
 
 

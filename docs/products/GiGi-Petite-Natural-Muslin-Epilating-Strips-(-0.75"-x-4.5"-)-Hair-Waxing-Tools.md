@@ -1,0 +1,97 @@
+---
+title: GiGi Petite Natural Muslin Epilating Strips ( 0.75&quot; x 4.5&quot; ) Hair Waxing Tools,
+description: GiGi Petite Natural Muslin Epilating Strips ( 0.75&quot; x 4.5&quot; ) Hair Waxing Tools,
+author: Suvojit Manna,
+tags: GiGi Petite Natural Muslin Epilating Strips ( 0.75&quot; x 4.5&quot; ) Hair Waxing Tools,
+publishedAt: Fri Jan 10 2020 14:58:59 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:58:59 GMT+0530 (India Standard Time),
+---
+
+# [GiGi Petite Natural Muslin Epilating Strips ( 0.75&quot; x 4.5&quot; ) Hair Waxing Tools](https://products.checkmycream.com/products/GiGi-Petite-Natural-Muslin-Epilating-Strips-(-0.75&quot;-x-4.5&quot;-)-Hair-Waxing-Tools.html)
+
+### Positive Reviews
+
+<ol>
+      <li>Happy waxing!</li>
+      <li>Worked great, as always!</li>
+      <li>is the best!</li>
+      <li>Great size for the eyebrow areas..</li>
+      <li>They are good but threads keep coming out and when used with gel, the strings are stuck on face.</li>
+      <li>The strips are good</li>
+      <li>Works good for waxing-like it should.</li>
+      <li>They otherwise work ok.</li>
+      <li>Perfect length and width for facial waxing.</li>
+      <li>I love my GiGi and the muslin</li>
+      <li>I love the size and quality of these strips</li>
+      <li>I&#x27;ve had a GiGi waxing kit for years and love a their products.  </li>
+      <li>Works great for small areas</li>
+      <li>Good texture, but odd sizes.</li>
+      <li>Sheds way to much!</li>
+      <li>first impression is that i dont like it</li>
+      <li>Exactly as described.</li>
+      <li>They were too narrow tp be much good for my use.</li>
+      <li>I will have to order the right size next time.</li>
+      <li>It&#x27;s always important to work in small sections when waxing.  </li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> Happy waxing!</li>
+<li> Worked great, as always!</li>
+<li> is the best!</li>
+<li> Great size for the eyebrow areas..</li>
+<li> They are good but threads keep coming out and when used with gel, the strings are stuck on face.</li>
+<li> The strips are good</li>
+<li> Works good for waxing-like it should.</li>
+<li> They otherwise work ok.</li>
+<li> Perfect length and width for facial waxing.</li>
+<li> I love my GiGi and the muslin</li>
+<li> I love the size and quality of these strips</li>
+<li> I&#x27;ve had a GiGi waxing kit for years and love a their products.  </li>
+<li> Works great for small areas</li>
+<li> Good texture, but odd sizes.</li>
+<li> Sheds way to much!</li>
+<li> first impression is that i dont like it</li>
+<li> Exactly as described.</li>
+<li> They were too narrow tp be much good for my use.</li>
+<li> I will have to order the right size next time.</li>
+<li> It&#x27;s always important to work in small sections when waxing.  </li>
+<li> Larger wax strips are not good to use on these areas--they often end up ripping out more hair than was intended, and is also a waste of muslin.  </li>
+<li> While the previous reviewer is correct that these need tiny fingers to be used and that you get wax on your fingers when you use these, these muslin strips are mandatory for waxing tiny areas like underneath eyebrows, inside nostrils, widow&#x27;s peaks, etc.  </li>
+<li> The strips can have quite a bit of loose strings on them, so brush or shake off before use or they can interfere with the results.</li>
+<li> but then when I use them for the gigi wax the little muslin strands fall off and make a big mess.</li>
+<li> I have used others that were slightly wider with no shedding.</li>
+<li> They made a mess every where.</li>
+<li> I don&#x27;t know why they even make strips this narrow - you would need tweezer fingers to handle them.  </li>
+<li> I have not yet used the product so not sure how they would work but from the looks of it, i feel like the strips are too thin.&lt;br</li>
+<li> If you have small hands, (like me) you won&#x27;t have a problem with these at all.  </li>
+<li> These are also very narrow strips.</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> Strips shed threads all over the place. The threads get stuck in the wax. These are also very narrow strips. I have used others that were slightly wider with no shedding. They otherwise work ok.</li>
+    <li> The strips are good but then when I use them for the gigi wax the little muslin strands fall off and make a big mess.</li>
+    <li> Works good for waxing-like it should.</li>
+    <li> I love the size and quality of these strips</li>
+    <li> Good texture, but odd sizes.</li>
+    <li> I don&#x27;t know why they even make strips this narrow - you would need tweezer fingers to handle them.  There is no way to use them without getting wax all over your fingers - totally unusuable.</li>
+    <li> I have not yet used the product so not sure how they would work but from the looks of it, i feel like the strips are too thin.&lt;br /&gt;My first impression is that i dont like it but if the strips work then i would come back and change my review</li>
+    <li> Perfect length and width for facial waxing. I love my GiGi and the muslin is the best!</li>
+    <li> Worked great, as always! Great size for the eyebrow areas..</li>
+    <li> Sheds way to much! Also doesn&#x27;t stick to wax well</li>
+    <li> They made a mess every where. I ended up throwing them away and ordering another brand. Do not recommend these strips</li>
+    <li> I&#x27;ve had a GiGi waxing kit for years and love a their products.  The strips can have quite a bit of loose strings on them, so brush or shake off before use or they can interfere with the results.</li>
+    <li> Exactly as described.</li>
+    <li> They are good but threads keep coming out and when used with gel, the strings are stuck on face.</li>
+    <li> Product works well on smaller facial areas (brows and upper lip)</li>
+    <li> Works great for small areas</li>
+    <li> Although the product said petite, I found they are not the size I was looking for. They were too narrow tp be much good for my use. I will have to order the right size next time.</li>
+    <li> While the previous reviewer is correct that these need tiny fingers to be used and that you get wax on your fingers when you use these, these muslin strips are mandatory for waxing tiny areas like underneath eyebrows, inside nostrils, widow&#x27;s peaks, etc.  It&#x27;s always important to work in small sections when waxing.  Larger wax strips are not good to use on these areas--they often end up ripping out more hair than was intended, and is also a waste of muslin.  If you have small hands, (like me) you won&#x27;t have a problem with these at all.  Happy waxing!</li>
+</ol>
+
+
+
+

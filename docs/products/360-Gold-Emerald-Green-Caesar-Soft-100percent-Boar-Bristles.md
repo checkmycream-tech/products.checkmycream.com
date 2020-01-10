@@ -1,0 +1,127 @@
+---
+title: 360 Gold Emerald Green Caesar Soft 100% Boar Bristles,
+description: 360 Gold Emerald Green Caesar Soft 100% Boar Bristles,
+author: Suvojit Manna,
+tags: 360 Gold Emerald Green Caesar Soft 100% Boar Bristles,
+publishedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
+---
+
+# [360 Gold Emerald Green Caesar Soft 100% Boar Bristles](https://products.checkmycream.com/products/360-Gold-Emerald-Green-Caesar-Soft-100percent-Boar-Bristles.html)
+
+### Positive Reviews
+
+<ol>
+      <li>Best brushes on the world.</li>
+      <li>Superb purchase!!</li>
+      <li>Great product!</li>
+      <li>This brush is just awesome.</li>
+      <li>Its an excellent brush!!!....</li>
+      <li>It&#x27;s best quality is</li>
+      <li>Good quality and great communicator</li>
+      <li>i heard a lot of good things about this brush</li>
+      <li>So good I have 2.</li>
+      <li>and it feels amazing on your head @</li>
+      <li>Love this brush got my waves looking good</li>
+      <li>It doesn&#x27;t have the nice shiny protective coat of lacquer that it looks like it has in the picture.</li>
+      <li>But was well worth it!!!</li>
+      <li>Love this Brush need another one</li>
+      <li>Love it..</li>
+      <li>Making brushing a more enjoyable experience.</li>
+      <li>I love me a Diane 8119</li>
+      <li>Great brush thought would be getting worked if spent this kind if money on a brush!</li>
+      <li>Great came a day early..</li>
+      <li>Just gives you that smooth finishing touch...</li>
+      <li>The Diane brush have the right texture but they don&#x27;t have the innovative design of the CQPs.  </li>
+      <li>This is a rather large brush, yet, to my surprise, it is able to maintain a well balanced and ergonomic function.</li>
+      <li>but this brush is the true meaning of versatility &amp; class.</li>
+      <li>Bristles break off quick</li>
+      <li>I am pleased with the purchase of this 360 gold emerald brush, and I highly recommend it to anyone who appreciates a quality product.</li>
+      <li>I brought a blue one, overall the curved shape of the brush is good, the bristles are good, and it doesn&#x27;t shed, It lays your hair down quick and connects your waves.</li>
+      <li>The best brush in the game PERIOD!</li>
+      <li>Does exactly what it says it is supposed to do.</li>
+      <li>No matter your hair type or style, I am certain that you will find yourself using this brush</li>
+      <li>I expected more out of  this premium brush.</li>
+      <li>Well I own the medium brush and that one is too firm at times.  </li>
+      <li>Highly recommended waves gettin taken to another level.</li>
+      <li>But as soon as you run it under water to clean it out the paint or dye on it will be all over your hands, even after its dry.</li>
+      <li>Now previously, I bought the red soft brush and have had it for 6 months with no problems, regularly running it under warm water and soap to clean it.  </li>
+      <li>Was kind of skeptical at first</li>
+      <li>Both the blue and the green medium boar bristle brushes cracked within 20 seconds after initially runnning them under warm water and soap.  </li>
+      <li>This brush is just not firm enough for me.  </li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> Best brushes on the world.</li>
+<li> Superb purchase!!</li>
+<li> Great product!</li>
+<li> This brush is just awesome.</li>
+<li> Its an excellent brush!!!....</li>
+<li> It&#x27;s best quality is</li>
+<li> Good quality and great communicator</li>
+<li> i heard a lot of good things about this brush</li>
+<li> So good I have 2.</li>
+<li> and it feels amazing on your head @</li>
+<li> Love this brush got my waves looking good</li>
+<li> It doesn&#x27;t have the nice shiny protective coat of lacquer that it looks like it has in the picture.</li>
+<li> But was well worth it!!!</li>
+<li> Love this Brush need another one</li>
+<li> Love it..</li>
+<li> Making brushing a more enjoyable experience.</li>
+<li> I love me a Diane 8119</li>
+<li> Great brush thought would be getting worked if spent this kind if money on a brush!</li>
+<li> Great came a day early..</li>
+<li> Just gives you that smooth finishing touch...</li>
+<li> The Diane brush have the right texture but they don&#x27;t have the innovative design of the CQPs.  </li>
+<li> This is a rather large brush, yet, to my surprise, it is able to maintain a well balanced and ergonomic function.</li>
+<li> but this brush is the true meaning of versatility &amp; class.</li>
+<li> Bristles break off quick</li>
+<li> I am pleased with the purchase of this 360 gold emerald brush, and I highly recommend it to anyone who appreciates a quality product.</li>
+<li> I brought a blue one, overall the curved shape of the brush is good, the bristles are good, and it doesn&#x27;t shed, It lays your hair down quick and connects your waves.</li>
+<li> The best brush in the game PERIOD!</li>
+<li> Does exactly what it says it is supposed to do.</li>
+<li> No matter your hair type or style, I am certain that you will find yourself using this brush</li>
+<li> I expected more out of  this premium brush.</li>
+<li> Well I own the medium brush and that one is too firm at times.  </li>
+<li> Highly recommended waves gettin taken to another level.</li>
+<li> But as soon as you run it under water to clean it out the paint or dye on it will be all over your hands, even after its dry.</li>
+<li> Now previously, I bought the red soft brush and have had it for 6 months with no problems, regularly running it under warm water and soap to clean it.  </li>
+<li> Was kind of skeptical at first</li>
+<li> Both the blue and the green medium boar bristle brushes cracked within 20 seconds after initially runnning them under warm water and soap.  </li>
+<li> This brush is just not firm enough for me.  </li>
+<li> Not a bad brush, but no better than the regular CQP brush  ,which is half the price.</li>
+<li> It gently massages the scalp and lays your hair down with very little effort.</li>
+<li> Helps lay my waves down easier</li>
+<li> and I don&#x27;t know if I can ever purchase from Crown Quality Products again as that $40 plus dollars seemed to have been a waste.  </li>
+<li> and I have thick hair.</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> Does exactly what it says it is supposed to do. Great product!</li>
+    <li> Helps lay my waves down easier and I have thick hair. Was kind of skeptical at first but the reviews were no fluke. Add me to the list.</li>
+    <li> Beautify made CQP. This is a rather large brush, yet, to my surprise, it is able to maintain a well balanced and ergonomic function. I am pleased with the purchase of this 360 gold emerald brush, and I highly recommend it to anyone who appreciates a quality product. It gently massages the scalp and lays your hair down with very little effort. No matter your hair type or style, I am certain that you will find yourself using this brush often.&lt;br /&gt;Thank you for reading my review. GOD bless.</li>
+    <li> This brush is just not firm enough for me.  I know what you are thinking \\&quot;just get the medium brush\\&quot;.  Well I own the medium brush and that one is too firm at times.  The Diane brush have the right texture but they don&#x27;t have the innovative design of the CQPs.  Also it is pricey.  They need a brush that falls in between this one and the medium.  Maybe smedium or something.</li>
+    <li> Great came a day early.. Love this Brush need another one</li>
+    <li> I brought a blue one, overall the curved shape of the brush is good, the bristles are good, and it doesn&#x27;t shed, It lays your hair down quick and connects your waves. But as soon as you run it under water to clean it out the paint or dye on it will be all over your hands, even after its dry. It doesn&#x27;t have the nice shiny protective coat of lacquer that it looks like it has in the picture.</li>
+    <li> This brush contours to the scalp. Making brushing a more enjoyable experience. It definitely magnifies the deep wave. Superb purchase!!</li>
+    <li> The best brush in the game PERIOD! (Crown or Caesar) I love me a Diane 8119 but this brush is the true meaning of versatility &amp; class. Just gives you that smooth finishing touch...</li>
+    <li> Best brushes on the world. So good I have 2. One with handle and one without</li>
+    <li> Love it.. Buy them all</li>
+    <li> This brush is just awesome. It&#x27;s best quality is it&#x27;s versatility and it feels amazing on your head @ whatever length</li>
+    <li> Good quality and great communicator</li>
+    <li> i heard a lot of good things about this brush</li>
+    <li> Great brush thought would be getting worked if spent this kind if money on a brush! But was well worth it!!! Highly recommended waves gettin taken to another level. No BS!</li>
+    <li> Both the blue and the green medium boar bristle brushes cracked within 20 seconds after initially runnning them under warm water and soap.  This is totally unacceptable. Now previously, I bought the red soft brush and have had it for 6 months with no problems, regularly running it under warm water and soap to clean it.  I have never had this problem with a Diane brush and I don&#x27;t know if I can ever purchase from Crown Quality Products again as that $40 plus dollars seemed to have been a waste.  The quality of the wood should not be that fragile and so I question the &amp;#34;quality&amp;#34; of the company in their choice of wood.</li>
+    <li> Not a bad brush, but no better than the regular CQP brush  ,which is half the price. I expected more out of  this premium brush.</li>
+    <li> Its an excellent brush!!!....</li>
+    <li> Love this brush got my waves looking good</li>
+    <li> Bristles break off quick</li>
+</ol>
+
+
+
+

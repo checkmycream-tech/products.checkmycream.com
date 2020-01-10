@@ -1,0 +1,105 @@
+---
+title: Doctored Locks Weave Needle for Hair Extensions, Weaves and Braids,
+description: Doctored Locks Weave Needle for Hair Extensions, Weaves and Braids,
+author: Suvojit Manna,
+tags: Doctored Locks Weave Needle for Hair Extensions, Weaves and Braids,
+publishedAt: Fri Jan 10 2020 14:59:37 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:59:37 GMT+0530 (India Standard Time),
+---
+
+# [Doctored Locks Weave Needle for Hair Extensions, Weaves and Braids](https://products.checkmycream.com/products/Doctored-Locks-Weave-Needle-for-Hair-Extensions-Weaves-and-Braids.html)
+
+### Positive Reviews
+
+<ol>
+      <li>Perfect for weaving hair, for placing ornaments in braids, etc.  </li>
+      <li>This is absolutly the best needle to do sew-in with, I do not stick myself or the client at all..</li>
+      <li>The curved needle is the best for all jobs.  </li>
+      <li>lol</li>
+      <li>Am happy.</li>
+      <li>this needle is great and it does its job.</li>
+      <li>Great.</li>
+      <li>After using this needle to make my own clip in extensions, I feel like more equipped to write a review.</li>
+      <li>it&#x27;s okay</li>
+      <li>For the price I would think it would be more than one.</li>
+      <li>Open to ordering again though, this is a good seller with good service.</li>
+      <li>It was cheap</li>
+      <li>That is the only downside to using this needle otherwise it is great.</li>
+      <li>Its smaller than what it is in the picture by the way, but thats good</li>
+      <li>I made my own DIY Halo Hair extension and even though I&#x27;ve never worked with a curved needle before, it was really easy to go through multiple wefts of hair.</li>
+      <li>They responded fairly quickly, saying they&#x27;d look into it &amp; w</li>
+      <li>Got it before the due date which is good.</li>
+      <li>I&#x27;m ordering the straight needle right now!</li>
+      <li>I know better next time to order several more.</li>
+      <li>The straight needke I lost.</li>
+      <li>straight just like the picture.</li>
+      <li>Pictured is 1 curved needle and 1 straight needle.</li>
+      <li>but i could have just went to Hobby Lobby and found a straight needle for more than half the cost</li>
+      <li>I ordered 10 needles, but was surprised when I looked into the envelope upon receipt of delivery to find only 1 of the 10 needles I&#x27;d ordered &amp; paid for!</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> Perfect for weaving hair, for placing ornaments in braids, etc.  </li>
+<li> This is absolutly the best needle to do sew-in with, I do not stick myself or the client at all..</li>
+<li> The curved needle is the best for all jobs.  </li>
+<li> lol</li>
+<li> Am happy.</li>
+<li> this needle is great and it does its job.</li>
+<li> Great.</li>
+<li> After using this needle to make my own clip in extensions, I feel like more equipped to write a review.</li>
+<li> it&#x27;s okay</li>
+<li> For the price I would think it would be more than one.</li>
+<li> Open to ordering again though, this is a good seller with good service.</li>
+<li> It was cheap</li>
+<li> That is the only downside to using this needle otherwise it is great.</li>
+<li> Its smaller than what it is in the picture by the way, but thats good</li>
+<li> I made my own DIY Halo Hair extension and even though I&#x27;ve never worked with a curved needle before, it was really easy to go through multiple wefts of hair.</li>
+<li> They responded fairly quickly, saying they&#x27;d look into it &amp; w</li>
+<li> Got it before the due date which is good.</li>
+<li> I&#x27;m ordering the straight needle right now!</li>
+<li> I know better next time to order several more.</li>
+<li> The straight needke I lost.</li>
+<li> straight just like the picture.</li>
+<li> Pictured is 1 curved needle and 1 straight needle.</li>
+<li> but i could have just went to Hobby Lobby and found a straight needle for more than half the cost</li>
+<li> I ordered 10 needles, but was surprised when I looked into the envelope upon receipt of delivery to find only 1 of the 10 needles I&#x27;d ordered &amp; paid for!</li>
+<li> the past the needles tips were considerably less sharp, perfect so you didn&#x27;t have to worry about stabbing your clients head!</li>
+<li> Needles are way to sharp to use for sewing extensions on a human</li>
+<li> ive stabbed myself numerous times and I am very careful when it comes to doing hair.</li>
+<li> /in the week I received the other 9 needles</li>
+<li> I immediately contacted the company thru Amazon&#x27;s site, requesting either a refund or the other 9 needles to be sent.</li>
+<li> the curved needle is very sharp.</li>
+<li> The curve needle was too small and would poke me sometimes.</li>
+<li> I&#x27;m not sure what else I need or can say about this.</li>
+<li> If you are going to use this needle have a hard surface like a phone to use to push the needle through the extensions if you sew two wefts together and wrap a shirt around your thumbs twice so it does not hurt.</li>
+<li> I bought this online because the base doesn&#x27;t even carry this in the bx.  </li>
+<li> This is horrible!</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> \\&quot;The pic of product should match the description. Pictured is 1 curved needle and 1 straight needle. I was under the impression that I was getting \\&quot;One set\\&quot; of needles one curved and one straight just like the picture. I&#x27;m not a pro at ordering this type of product so I think pic should match what u get. Open to ordering again though, this is a good seller with good service. I&#x27;m ordering the straight needle right now!</li>
+    <li> The straight needke I lost. The curve needle was too small and would poke me sometimes. And then it broke on me in the middle of a sew in.</li>
+    <li> I bought this online because the base doesn&#x27;t even carry this in the bx.  I didn&#x27;t give it a 5 because it was only one.  I thought there would be two inside to make the weaving easier..... I know better next time to order several more.</li>
+    <li> this needle is great and it does its job. Its smaller than what it is in the picture by the way, but thats good</li>
+    <li> For the price I would think it would be more than one. I should read the reviews. It&#x27;s over price for one needle</li>
+    <li> After using this needle to make my own clip in extensions, I feel like more equipped to write a review. What I do not like about using this needle is that after sewing your hair together it leaves your thumbs in pain. If you are going to use this needle have a hard surface like a phone to use to push the needle through the extensions if you sew two wefts together and wrap a shirt around your thumbs twice so it does not hurt. That is the only downside to using this needle otherwise it is great. I would purchase again.</li>
+    <li> it&#x27;s okay but i could have just went to Hobby Lobby and found a straight needle for more than half the cost</li>
+    <li> One ear doesn&#x27;t work. This is horrible!</li>
+    <li> I made my own DIY Halo Hair extension and even though I&#x27;ve never worked with a curved needle before, it was really easy to go through multiple wefts of hair.</li>
+    <li> Got it before the due date which is good. Took 5 day. Thought it would be longer. No dislike. Am happy.</li>
+    <li> This was not a weave needle for hair. I received some to weave fabric. It was cheap and I didn&#x27;t worry about sending them back.</li>
+    <li> Needles are way to sharp to use for sewing extensions on a human head!&lt;br /&gt;In the past the needles tips were considerably less sharp, perfect so you didn&#x27;t have to worry about stabbing your clients head!</li>
+    <li> I ordered 10 needles, but was surprised when I looked into the envelope upon receipt of delivery to find only 1 of the 10 needles I&#x27;d ordered &amp; paid for! I immediately contacted the company thru Amazon&#x27;s site, requesting either a refund or the other 9 needles to be sent. They responded fairly quickly, saying they&#x27;d look into it &amp; w/in the week I received the other 9 needles</li>
+    <li> the curved needle is very sharp. ive stabbed myself numerous times and I am very careful when it comes to doing hair.</li>
+    <li> Perfect for weaving hair, for placing ornaments in braids, etc.  The curved needle is the best for all jobs.  Great.</li>
+    <li> This is absolutly the best needle to do sew-in with, I do not stick myself or the client at all..lol</li>
+    <li> It&#x27;s a needle and it works as intended. I&#x27;m not sure what else I need or can say about this.</li>
+</ol>
+
+
+
+

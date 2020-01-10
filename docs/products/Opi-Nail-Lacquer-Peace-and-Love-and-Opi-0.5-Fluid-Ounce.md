@@ -1,0 +1,114 @@
+---
+title: Opi Nail Lacquer, Peace and Love and Opi, 0.5 Fluid Ounce,
+description: Opi Nail Lacquer, Peace and Love and Opi, 0.5 Fluid Ounce,
+author: Suvojit Manna,
+tags: Opi Nail Lacquer, Peace and Love and Opi, 0.5 Fluid Ounce,
+publishedAt: Fri Jan 10 2020 14:59:11 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:59:11 GMT+0530 (India Standard Time),
+---
+
+# [Opi Nail Lacquer, Peace and Love and Opi, 0.5 Fluid Ounce](https://products.checkmycream.com/products/Opi-Nail-Lacquer-Peace-and-Love-and-Opi-0.5-Fluid-Ounce.html)
+
+### Positive Reviews
+
+<ol>
+      <li>Best color ever!!!!</li>
+      <li>another wonderful opi color.</li>
+      <li>It looks beautiful, getting a ton of compliments.</li>
+      <li>Great product.</li>
+      <li>ladies LOVE this color and want to know what it is and where I got it!!  </li>
+      <li>I&#x27;m in love with this polish!</li>
+      <li>The way the color changes as you look at it is amazing.</li>
+      <li>Everything is good about this color and how quickly it was delivered.</li>
+      <li>Nice and easy to apply and it lasts for almost 1 week.</li>
+      <li>Love this polish.  </li>
+      <li>This is my daughter&#x27;s and granddaughter&#x27;s favorite nail polish.  </li>
+      <li>I love it for the beach.</li>
+      <li>I love this shade.</li>
+      <li>it appears to be more often than the purplish color in the photo.</li>
+      <li>This polish changes color in the light, it&#x27;s unusual but beautiful.</li>
+      <li>It changes color depending on teh light</li>
+      <li>This one reflects light and changes colors which I have discovered that I like.</li>
+      <li>O.P.I. is fast becoming my favorite polish.</li>
+      <li>Really cool color--looks holographic.</li>
+      <li>so this is my new favorite.</li>
+      <li>I picked this color for fun, but seriously have received SO many compliments on this striking and chameleon like polish!  </li>
+      <li>I don&#x27;t believe it to be the original when it starts peeling off the next day.</li>
+      <li>I love dark, unusual colors</li>
+      <li>goes on smooth, stays on for a long time.</li>
+      <li>I thought this would be closer to a gun metal gray, when it has hints of both purple and green, but I still love it.</li>
+      <li>Great base for light glitter coat on toe nails for the beach.</li>
+      <li>Like any other polish, make sure you let it dry between coats and it will last quite a while without chipping!</li>
+      <li>Not only a waste of money but a lengthy clean up as well.</li>
+      <li>Exactly the shade of grey I have been looking for for a very long time.</li>
+      <li>I put a new top coat on every other day and my mani-pedi lasted at least 3 weeks w/o chipping or peeling!</li>
+      <li>It&#x27;s dark metallic gray with flecks of purple and green depending on the light.</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> Best color ever!!!!</li>
+<li> another wonderful opi color.</li>
+<li> It looks beautiful, getting a ton of compliments.</li>
+<li> Great product.</li>
+<li> ladies LOVE this color and want to know what it is and where I got it!!  </li>
+<li> I&#x27;m in love with this polish!</li>
+<li> The way the color changes as you look at it is amazing.</li>
+<li> Everything is good about this color and how quickly it was delivered.</li>
+<li> Nice and easy to apply and it lasts for almost 1 week.</li>
+<li> Love this polish.  </li>
+<li> This is my daughter&#x27;s and granddaughter&#x27;s favorite nail polish.  </li>
+<li> I love it for the beach.</li>
+<li> I love this shade.</li>
+<li> it appears to be more often than the purplish color in the photo.</li>
+<li> This polish changes color in the light, it&#x27;s unusual but beautiful.</li>
+<li> It changes color depending on teh light</li>
+<li> This one reflects light and changes colors which I have discovered that I like.</li>
+<li> O.P.I. is fast becoming my favorite polish.</li>
+<li> Really cool color--looks holographic.</li>
+<li> so this is my new favorite.</li>
+<li> I picked this color for fun, but seriously have received SO many compliments on this striking and chameleon like polish!  </li>
+<li> I don&#x27;t believe it to be the original when it starts peeling off the next day.</li>
+<li> I love dark, unusual colors</li>
+<li> goes on smooth, stays on for a long time.</li>
+<li> I thought this would be closer to a gun metal gray, when it has hints of both purple and green, but I still love it.</li>
+<li> Great base for light glitter coat on toe nails for the beach.</li>
+<li> Like any other polish, make sure you let it dry between coats and it will last quite a while without chipping!</li>
+<li> Not only a waste of money but a lengthy clean up as well.</li>
+<li> Exactly the shade of grey I have been looking for for a very long time.</li>
+<li> I put a new top coat on every other day and my mani-pedi lasted at least 3 weeks w/o chipping or peeling!</li>
+<li> It&#x27;s dark metallic gray with flecks of purple and green depending on the light.</li>
+<li> Stays on longer than other polishes.</li>
+<li> The thing is you need to use OPI base 2 coats color, then OPI Extreme Shine Top coat.</li>
+<li> and I don&#x27;t care for the dark green hue</li>
+<li> I don&#x27;t usually wear dark colors.  </li>
+<li> No good.</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> Didn&#x27;t realize it was pearlized..</li>
+    <li> Just 3 days after receiving this bottle of polish the neck snapped off while trying to open bottle. It spilled on furniture and quite simply was a mess.&lt;br /&gt;There was a flaw in the bottle. Not only a waste of money but a lengthy clean up as well.</li>
+    <li> another wonderful opi color. goes on smooth, stays on for a long time.</li>
+    <li> I picked this color for fun, but seriously have received SO many compliments on this striking and chameleon like polish!  It doesn&#x27;t matter where I&#x27;m at...parties, shopping, church, etc...ladies LOVE this color and want to know what it is and where I got it!!  Like any other polish, make sure you let it dry between coats and it will last quite a while without chipping!</li>
+    <li> Exactly the shade of grey I have been looking for for a very long time.</li>
+    <li> It looks beautiful, getting a ton of compliments. Nice and easy to apply and it lasts for almost 1 week. I will buy this color again.</li>
+    <li> Best color ever!!!! The thing is you need to use OPI base 2 coats color, then OPI Extreme Shine Top coat. I put a new top coat on every other day and my mani-pedi lasted at least 3 weeks w/o chipping or peeling!</li>
+    <li> No good. I don&#x27;t believe it to be the original when it starts peeling off the next day.</li>
+    <li> I thought this would be closer to a gun metal gray, when it has hints of both purple and green, but I still love it.</li>
+    <li> It changes color depending on teh light and I don&#x27;t care for the dark green hue it appears to be more often than the purplish color in the photo.</li>
+    <li> This is my daughter&#x27;s and granddaughter&#x27;s favorite nail polish.  The way the color changes as you look at it is amazing.</li>
+    <li> This polish changes color in the light, it&#x27;s unusual but beautiful. I love dark, unusual colors so this is my new favorite. It&#x27;s dark metallic gray with flecks of purple and green depending on the light.</li>
+    <li> Everything is good about this color and how quickly it was delivered.</li>
+    <li> Great product. Stays on longer than other polishes. This is the only brand I&#x27;ll buy from now on!</li>
+    <li> Love this polish.  I don&#x27;t usually wear dark colors.  This one reflects light and changes colors which I have discovered that I like.</li>
+    <li> Really cool color--looks holographic.</li>
+    <li> I&#x27;m in love with this polish! O.P.I. is fast becoming my favorite polish.</li>
+    <li> I love this shade. It changes color in different lighting. I love it for the beach. Great base for light glitter coat on toe nails for the beach.</li>
+</ol>
+
+
+
+

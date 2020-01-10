@@ -3,8 +3,8 @@ title: Tropic Isle Living- Jamaican Black Castor Oil-8oz Plastic PET Bottle,
 description: Tropic Isle Living- Jamaican Black Castor Oil-8oz Plastic PET Bottle,
 author: Suvojit Manna,
 tags: Tropic Isle Living- Jamaican Black Castor Oil-8oz Plastic PET Bottle,
-publishedAt: Thu Jan 09 2020 19:08:30 GMT+0530 (India Standard Time),
-modifiedAt: Thu Jan 09 2020 19:08:30 GMT+0530 (India Standard Time),
+publishedAt: Fri Jan 10 2020 14:59:46 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:59:46 GMT+0530 (India Standard Time),
 ---
 
 # [Tropic Isle Living- Jamaican Black Castor Oil-8oz Plastic PET Bottle](https://products.checkmycream.com/products/Tropic-Isle-Living-Jamaican-Black-Castor-Oil-8oz-Plastic-PET-Bottle.html)
@@ -12,211 +12,211 @@ modifiedAt: Thu Jan 09 2020 19:08:30 GMT+0530 (India Standard Time),
 ### Positive Reviews
 
 <ol>
-      <li>Wonderful stuff...</li>
-      <li>Here in this form it was perfect.</li>
-      <li>Is great!</li>
-      <li>This is one of the best products I ever purchased.</li>
-      <li>It doesn&#x27;t smell the greatest</li>
-      <li>It&#x27;s great!</li>
-      <li>That was the best decision that I could have made.  </li>
-      <li>It worked great!!</li>
-      <li>lol!</li>
-      <li>I got this product for an excellent price and the quantity is excellent too.  </li>
-      <li>The best is yet to come.</li>
-      <li>Excellent product my hair has thickened up alot.</li>
-      <li>Excellent product.</li>
-      <li>but I cut it with mint and everything is great!</li>
-      <li>The quality is awesome.  </li>
-      <li>the best for edges and thickness for hair</li>
-      <li>Wonderful results.</li>
-      <li>LOVE IT!!!!!</li>
+      <li>A great buy!</li>
+      <li>I am still using this oil with excellent results.</li>
+      <li>Awesome helps your hair grown.</li>
+      <li>I love this stuff!!!!! :D</li>
+      <li>It&#x27;s great to use after a wash to seal the hair, but that&#x27;s it!!  </li>
       <li>Great product!</li>
+      <li>Wonderful stuff...</li>
+      <li>and I was happy!</li>
+      <li>Here in this form it was perfect.</li>
       <li>I believe it&#x27;s best if you just add this to products you already use, rather than using it by itself</li>
       <li>Happy Hair Growing(HHG)!</li>
+      <li>Best product to grow my hair</li>
+      <li>it is awesome and its a MUST in any hair regiment.</li>
+      <li>and the smell isn&#x27;t the best but its bearable, so I mix it with a bit of my conditioner</li>
+      <li>I love this product!!!!!!!!</li>
+      <li>And that would be perfect for Spring break.&lt;br /&gt;&lt;br</li>
+      <li>Great product!</li>
+      <li>the product is wonderful</li>
+      <li>The best Castor Oil ever!!!</li>
+      <li>Its a great product for naturals!</li>
+      <li>I received this product and it is awesome.</li>
+      <li>I found that it is best to mix it with something like Shea Moisture Curl Enhancing Smoothie.</li>
+      <li>Best Stuff</li>
+      <li>Wonderful oil can be used for just about everything!</li>
+      <li>One of the best moisturizers that I have used.  </li>
+      <li>An excellent product!</li>
+      <li>JBCO is an awesome product.</li>
+      <li>Best ever to promote hair growth!</li>
+      <li>Is great!</li>
       <li>Excellent product.</li>
       <li>This stuff works great!</li>
+      <li>This is an awesome product for sealing in moisture..</li>
+      <li>Works great on skin and hair!</li>
+      <li>Awesome!!</li>
+      <li>Excellent product.</li>
+      <li>My hair has done wonderful using this product.</li>
+      <li>Got a lot of product for a wonderful price!!</li>
+      <li>Great product!</li>
+      <li>Excellent product.</li>
+      <li>This stuff is great!!!</li>
+      <li>Tropic Isle is excellent.  </li>
+      <li>This is a great product!</li>
+      <li>This is one of the best products I ever purchased.</li>
+      <li>After reading reviews of this oil I decided to use it alone, I&#x27;ve been happy ever since!</li>
+      <li>and i have seen awesome results!</li>
+      <li>Best oil treatment I ever tried :D</li>
+      <li>I&#x27;m very happy with this product.</li>
+      <li>Excellent, Came on time, I needed it!</li>
+      <li>LOVE IT!!!!!</li>
+      <li>Just wonderful will recommend!!!</li>
+      <li>This oil is great!</li>
+      <li>Amazing!!!!!!!!!!</li>
+      <li>This was a perfect purchase.</li>
       <li>Beautiful, luscious hair!     </li>
+      <li>This is a great product!  </li>
+      <li>JBCO IS THE BEST!</li>
+      <li>, It makes my hair feel great!</li>
+      <li>Really great oil!</li>
       <li>Priceless!</li>
+      <li>It doesn&#x27;t smell the greatest</li>
+      <li>Does not smell the greatest.</li>
+      <li>everyone said great things about it!!!</li>
+      <li>Great product!</li>
+      <li>Best product out there for hair growth, you wanna see length?</li>
+      <li>It&#x27;s great!</li>
       <li>I LOVE THIS PRODUCT!!!!!!!</li>
+      <li>this stuff is great!</li>
       <li>LOL!  </li>
+      <li>This stuff is awesome.</li>
+      <li>Perfect product for a person with baby hair.</li>
+      <li>Excellent product, grew my sides after 6 months.</li>
+      <li>That was the best decision that I could have made.  </li>
+      <li>IT IS REAL GOOD</li>
       <li>After reading the glorifying reviews and wonderful things about this product I couldn&#x27;t wait to give it a try.</li>
       <li>Arrived in time, perfect for my hair.</li>
-      <li>I am very pleased with the product!!</li>
-      <li>Works perfectly for my needs which is moisturizing hair and skin.</li>
-      <li>I&#x27;ve been using JBCO since Feb 2010 via recommendations from internet sources and have found this product to work WONDERFULLY.</li>
-      <li>This product worked great for me but as we all know what works for one may not for another, but give it a chance!</li>
-      <li>Awesome product.</li>
-      <li>lol!</li>
-      <li>Wonderful!!</li>
-      <li>Love it!!!!</li>
-      <li>but, my hair grew an inch, my hair is sooooo stubborn, that inch was the best thing that ever happened to me...</li>
-      <li>The smell isn&#x27;t great, but it works!</li>
-      <li>very impressed.</li>
-      <li>Loving it!!!!</li>
-      <li>It is a wonderful scalp conditioner, keeps dandruff at bay, and your hair WILL grow!</li>
-      <li>It&#x27;s the best thing that ever happened to my hair.</li>
-      <li>Best oil in the world!</li>
-      <li>The best thing I&#x27;ve found to do with castor oil is to massage it into my scalp and saturate my hair with it.</li>
-      <li>This is a great product because it&#x27;s one of the rear oils that I know of that nourishes and moisturizes hair!</li>
-      <li>I mix it with my daughter&#x27;s hair products, and I am seeing excellent results for both myself and my daughter.  </li>
-      <li>Wonderful</li>
-      <li>Great stuff!</li>
-      <li>Works great!</li>
-      <li>the best stuff i ever used in the winter for my hair and skin.</li>
-      <li>great product!</li>
-      <li>Great buy!</li>
-      <li>I am a VERY happy customer!</li>
-      <li>So my review is on the service itself which is awesome.</li>
-      <li>Awesome!</li>
-      <li>JBCO absorbs wonderfully into the hair.</li>
-      <li>IT IS GREAT!!!</li>
-      <li>Excellent product to grow hairline in.</li>
-      <li>I&#x27;m very happy</li>
-      <li>This is an awesome product.</li>
-      <li>My hairs best friend.</li>
-      <li>it makes your hair texture great and repair and regrow!!!</li>
-      <li>I&#x27;m very happy with my purchase!</li>
-      <li>Best thing about it is I didn&#x27;t even use a portion of the bottle yet.</li>
-      <li>A great buy!</li>
-      <li>This stuff is amazing!!!!</li>
-      <li>This is a great product!  </li>
-      <li>Great product!</li>
-      <li>and I&#x27;m very happy I deceided to try it!</li>
-      <li>very happy 5 stars!</li>
-      <li>Although the smell isn&#x27;t the best.</li>
-      <li>this stuff is awesome.</li>
-      <li>The smell is not the best</li>
-      <li>Over all great stuff!!!</li>
-      <li>great for my lashes too!!</li>
-      <li>Lol Will continue!</li>
-      <li>GREAT PRODUCT!!!</li>
-      <li>Perfect thing for my edges!!  </li>
-      <li>Works for rapid growth excellent product!</li>
-      <li>I love it!!!!!!!  </li>
-      <li>I am so happy I purchased it!!!!!</li>
-      <li>So it doesn&#x27;t has the best smell but it works</li>
-      <li>This oil is great and is everything that it&#x27;s said to be!  </li>
-      <li>I admit it&#x27;s not the greatest smell</li>
-      <li>I&#x27;ve been using it for over a year and have received magnificent results with hair strengthening, thickening and growth.</li>
-      <li>I was impressed with that.  </li>
-      <li>LITERALLY SHOUTING FROM THE ROOFTOPS WITH JOY!!</li>
-      <li>&amp; now I can officially say my face is flawless.</li>
+      <li>Awesome Product...</li>
       <li>The product itself is great!</li>
-      <li>Perfect product for a person with baby hair.</li>
-      <li>This stuff is awesome.</li>
-      <li>this stuff is great!</li>
-      <li>Great product!</li>
-      <li>, It makes my hair feel great!</li>
-      <li>Amazing!!!!!!!!!!</li>
-      <li>This oil is great!</li>
-      <li>I&#x27;m very happy with this product.</li>
-      <li>Best oil treatment I ever tried :D</li>
-      <li>After reading reviews of this oil I decided to use it alone, I&#x27;ve been happy ever since!</li>
+      <li>&amp; now I can officially say my face is flawless.</li>
+      <li>Very happy.</li>
+      <li>AND THE SMELL IS NOT THE BEST.</li>
+      <li>LITERALLY SHOUTING FROM THE ROOFTOPS WITH JOY!!</li>
+      <li>I am very pleased with the product!!</li>
+      <li>I was impressed with that.  </li>
+      <li>I&#x27;ve been using it for over a year and have received magnificent results with hair strengthening, thickening and growth.</li>
+      <li>All I have is one word to say awesome.</li>
+      <li>It makes for a wonderful hair conditioner.  </li>
+      <li>really excellent quality.</li>
+      <li>I admit it&#x27;s not the greatest smell</li>
+      <li>This is wonderful for hair growth and strengthening plus it&#x27;s a great moisturizer!</li>
+      <li>The best there is.</li>
+      <li>Best product yet, that I have been</li>
+      <li>This oil is great and is everything that it&#x27;s said to be!  </li>
+      <li>This is the best castor oil I have used.</li>
+      <li>Excellent product, it helps thicken my hair &amp; helps my hair grow!</li>
+      <li>Great price!</li>
+      <li>So it doesn&#x27;t has the best smell but it works</li>
+      <li>Im very happy with the results.</li>
+      <li>Amazing!!!!!</li>
+      <li>Works perfectly for my needs which is moisturizing hair and skin.</li>
+      <li>I am so happy I purchased it!!!!!</li>
 </ol>
 
 
 <h2>Negative Reviews</h2>
 <ol>
-<li> Wonderful stuff...</li>
-<li> Here in this form it was perfect.</li>
-<li> Is great!</li>
-<li> This is one of the best products I ever purchased.</li>
-<li> It doesn&#x27;t smell the greatest</li>
-<li> It&#x27;s great!</li>
-<li> That was the best decision that I could have made.  </li>
-<li> It worked great!!</li>
-<li> lol!</li>
-<li> I got this product for an excellent price and the quantity is excellent too.  </li>
-<li> The best is yet to come.</li>
-<li> Excellent product my hair has thickened up alot.</li>
-<li> Excellent product.</li>
-<li> but I cut it with mint and everything is great!</li>
-<li> The quality is awesome.  </li>
-<li> the best for edges and thickness for hair</li>
-<li> Wonderful results.</li>
-<li> LOVE IT!!!!!</li>
+<li> A great buy!</li>
+<li> I am still using this oil with excellent results.</li>
+<li> Awesome helps your hair grown.</li>
+<li> I love this stuff!!!!! :D</li>
+<li> It&#x27;s great to use after a wash to seal the hair, but that&#x27;s it!!  </li>
 <li> Great product!</li>
+<li> Wonderful stuff...</li>
+<li> and I was happy!</li>
+<li> Here in this form it was perfect.</li>
 <li> I believe it&#x27;s best if you just add this to products you already use, rather than using it by itself</li>
 <li> Happy Hair Growing(HHG)!</li>
+<li> Best product to grow my hair</li>
+<li> it is awesome and its a MUST in any hair regiment.</li>
+<li> and the smell isn&#x27;t the best but its bearable, so I mix it with a bit of my conditioner</li>
+<li> I love this product!!!!!!!!</li>
+<li> And that would be perfect for Spring break.&lt;br /&gt;&lt;br</li>
+<li> Great product!</li>
+<li> the product is wonderful</li>
+<li> The best Castor Oil ever!!!</li>
+<li> Its a great product for naturals!</li>
+<li> I received this product and it is awesome.</li>
+<li> I found that it is best to mix it with something like Shea Moisture Curl Enhancing Smoothie.</li>
+<li> Best Stuff</li>
+<li> Wonderful oil can be used for just about everything!</li>
+<li> One of the best moisturizers that I have used.  </li>
+<li> An excellent product!</li>
+<li> JBCO is an awesome product.</li>
+<li> Best ever to promote hair growth!</li>
+<li> Is great!</li>
 <li> Excellent product.</li>
 <li> This stuff works great!</li>
+<li> This is an awesome product for sealing in moisture..</li>
+<li> Works great on skin and hair!</li>
+<li> Awesome!!</li>
+<li> Excellent product.</li>
+<li> My hair has done wonderful using this product.</li>
+<li> Got a lot of product for a wonderful price!!</li>
+<li> Great product!</li>
+<li> Excellent product.</li>
+<li> This stuff is great!!!</li>
+<li> Tropic Isle is excellent.  </li>
+<li> This is a great product!</li>
+<li> This is one of the best products I ever purchased.</li>
+<li> After reading reviews of this oil I decided to use it alone, I&#x27;ve been happy ever since!</li>
+<li> and i have seen awesome results!</li>
+<li> Best oil treatment I ever tried :D</li>
+<li> I&#x27;m very happy with this product.</li>
+<li> Excellent, Came on time, I needed it!</li>
+<li> LOVE IT!!!!!</li>
+<li> Just wonderful will recommend!!!</li>
+<li> This oil is great!</li>
+<li> Amazing!!!!!!!!!!</li>
+<li> This was a perfect purchase.</li>
 <li> Beautiful, luscious hair!     </li>
+<li> This is a great product!  </li>
+<li> JBCO IS THE BEST!</li>
+<li> , It makes my hair feel great!</li>
+<li> Really great oil!</li>
 <li> Priceless!</li>
+<li> It doesn&#x27;t smell the greatest</li>
+<li> Does not smell the greatest.</li>
+<li> everyone said great things about it!!!</li>
+<li> Great product!</li>
+<li> Best product out there for hair growth, you wanna see length?</li>
+<li> It&#x27;s great!</li>
 <li> I LOVE THIS PRODUCT!!!!!!!</li>
+<li> this stuff is great!</li>
 <li> LOL!  </li>
+<li> This stuff is awesome.</li>
+<li> Perfect product for a person with baby hair.</li>
+<li> Excellent product, grew my sides after 6 months.</li>
+<li> That was the best decision that I could have made.  </li>
+<li> IT IS REAL GOOD</li>
 <li> After reading the glorifying reviews and wonderful things about this product I couldn&#x27;t wait to give it a try.</li>
 <li> Arrived in time, perfect for my hair.</li>
-<li> I am very pleased with the product!!</li>
-<li> Works perfectly for my needs which is moisturizing hair and skin.</li>
-<li> I&#x27;ve been using JBCO since Feb 2010 via recommendations from internet sources and have found this product to work WONDERFULLY.</li>
-<li> This product worked great for me but as we all know what works for one may not for another, but give it a chance!</li>
-<li> Awesome product.</li>
-<li> lol!</li>
-<li> Wonderful!!</li>
-<li> Love it!!!!</li>
-<li> but, my hair grew an inch, my hair is sooooo stubborn, that inch was the best thing that ever happened to me...</li>
-<li> The smell isn&#x27;t great, but it works!</li>
-<li> very impressed.</li>
-<li> Loving it!!!!</li>
-<li> It is a wonderful scalp conditioner, keeps dandruff at bay, and your hair WILL grow!</li>
-<li> It&#x27;s the best thing that ever happened to my hair.</li>
-<li> Best oil in the world!</li>
-<li> The best thing I&#x27;ve found to do with castor oil is to massage it into my scalp and saturate my hair with it.</li>
-<li> This is a great product because it&#x27;s one of the rear oils that I know of that nourishes and moisturizes hair!</li>
-<li> I mix it with my daughter&#x27;s hair products, and I am seeing excellent results for both myself and my daughter.  </li>
-<li> Wonderful</li>
-<li> Great stuff!</li>
-<li> Works great!</li>
-<li> the best stuff i ever used in the winter for my hair and skin.</li>
-<li> great product!</li>
-<li> Great buy!</li>
-<li> I am a VERY happy customer!</li>
-<li> So my review is on the service itself which is awesome.</li>
-<li> Awesome!</li>
-<li> JBCO absorbs wonderfully into the hair.</li>
-<li> IT IS GREAT!!!</li>
-<li> Excellent product to grow hairline in.</li>
-<li> I&#x27;m very happy</li>
-<li> This is an awesome product.</li>
-<li> My hairs best friend.</li>
-<li> it makes your hair texture great and repair and regrow!!!</li>
-<li> I&#x27;m very happy with my purchase!</li>
-<li> Best thing about it is I didn&#x27;t even use a portion of the bottle yet.</li>
-<li> A great buy!</li>
-<li> This stuff is amazing!!!!</li>
-<li> This is a great product!  </li>
-<li> Great product!</li>
-<li> and I&#x27;m very happy I deceided to try it!</li>
-<li> very happy 5 stars!</li>
-<li> Although the smell isn&#x27;t the best.</li>
-<li> this stuff is awesome.</li>
-<li> The smell is not the best</li>
-<li> Over all great stuff!!!</li>
-<li> great for my lashes too!!</li>
-<li> Lol Will continue!</li>
-<li> GREAT PRODUCT!!!</li>
-<li> Perfect thing for my edges!!  </li>
-<li> Works for rapid growth excellent product!</li>
-<li> I love it!!!!!!!  </li>
-<li> I am so happy I purchased it!!!!!</li>
-<li> So it doesn&#x27;t has the best smell but it works</li>
-<li> This oil is great and is everything that it&#x27;s said to be!  </li>
-<li> I admit it&#x27;s not the greatest smell</li>
-<li> I&#x27;ve been using it for over a year and have received magnificent results with hair strengthening, thickening and growth.</li>
-<li> I was impressed with that.  </li>
-<li> LITERALLY SHOUTING FROM THE ROOFTOPS WITH JOY!!</li>
-<li> &amp; now I can officially say my face is flawless.</li>
+<li> Awesome Product...</li>
 <li> The product itself is great!</li>
-<li> Perfect product for a person with baby hair.</li>
-<li> This stuff is awesome.</li>
-<li> this stuff is great!</li>
-<li> Great product!</li>
-<li> , It makes my hair feel great!</li>
-<li> Amazing!!!!!!!!!!</li>
-<li> This oil is great!</li>
-<li> I&#x27;m very happy with this product.</li>
-<li> Best oil treatment I ever tried :D</li>
-<li> After reading reviews of this oil I decided to use it alone, I&#x27;ve been happy ever since!</li>
+<li> &amp; now I can officially say my face is flawless.</li>
+<li> Very happy.</li>
+<li> AND THE SMELL IS NOT THE BEST.</li>
+<li> LITERALLY SHOUTING FROM THE ROOFTOPS WITH JOY!!</li>
+<li> I am very pleased with the product!!</li>
+<li> I was impressed with that.  </li>
+<li> I&#x27;ve been using it for over a year and have received magnificent results with hair strengthening, thickening and growth.</li>
+<li> All I have is one word to say awesome.</li>
+<li> It makes for a wonderful hair conditioner.  </li>
+<li> really excellent quality.</li>
+<li> I admit it&#x27;s not the greatest smell</li>
+<li> This is wonderful for hair growth and strengthening plus it&#x27;s a great moisturizer!</li>
+<li> The best there is.</li>
+<li> Best product yet, that I have been</li>
+<li> This oil is great and is everything that it&#x27;s said to be!  </li>
+<li> This is the best castor oil I have used.</li>
+<li> Excellent product, it helps thicken my hair &amp; helps my hair grow!</li>
+<li> Great price!</li>
+<li> So it doesn&#x27;t has the best smell but it works</li>
+<li> Im very happy with the results.</li>
+<li> Amazing!!!!!</li>
+<li> Works perfectly for my needs which is moisturizing hair and skin.</li>
+<li> I am so happy I purchased it!!!!!</li>
 </ol>
 
 <h2>All Reviews</h2>
@@ -1899,6 +1899,7 @@ modifiedAt: Thu Jan 09 2020 19:08:30 GMT+0530 (India Standard Time),
     <li> That is all. I believe it is making my edges come back in...slowly but surely. Will be ordering more shortly.</li>
     <li> This product is great it does not take a lot of it to work in hair.  I will say this stuff work miracles for my edges.</li>
 </ol>
+
 
 
 

@@ -3,8 +3,8 @@ title: Escali 100% Pure Badger Shaving Brush,
 description: Escali 100% Pure Badger Shaving Brush,
 author: Suvojit Manna,
 tags: Escali 100% Pure Badger Shaving Brush,
-publishedAt: Thu Jan 09 2020 19:08:30 GMT+0530 (India Standard Time),
-modifiedAt: Thu Jan 09 2020 19:08:30 GMT+0530 (India Standard Time),
+publishedAt: Fri Jan 10 2020 14:59:55 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:59:55 GMT+0530 (India Standard Time),
 ---
 
 # [Escali 100% Pure Badger Shaving Brush](https://products.checkmycream.com/products/Escali-100percent-Pure-Badger-Shaving-Brush.html)
@@ -12,211 +12,211 @@ modifiedAt: Thu Jan 09 2020 19:08:30 GMT+0530 (India Standard Time),
 ### Positive Reviews
 
 <ol>
+      <li>Awesome brush to add to your shaving kit.</li>
+      <li>and I shall be very happy</li>
+      <li>excellent quality in the workmanship!!d</li>
+      <li>This is a wonderful badger brush for the price.</li>
+      <li>Performs magnificently.</li>
+      <li>and he&#x27;s happy!</li>
+      <li>The shaving cream is excellent-</li>
+      <li>Works perfectly!  </li>
+      <li>Very happy with purchase.</li>
+      <li>He loves this brush and the bristles have stayed in awesome shape!  </li>
+      <li>I get the BEST shave every day!</li>
+      <li>I am very happy with it.</li>
+      <li>Excellent value.</li>
+      <li>brush is not the best quality, then again...</li>
+      <li>Great product!!!</li>
+      <li>Excellent brush.</li>
+      <li>I&#x27;m very happy with my choice</li>
+      <li>I was very happy with this brush.  </li>
       <li>Wonderful brush.  </li>
+      <li>Excellent customer service</li>
+      <li>Great value!</li>
+      <li>Excellent product.  </li>
+      <li>and this one is excellent.</li>
+      <li>The brush fits perfectly in the holder slot.</li>
+      <li>Best shaving brush I&#x27;v ever had.</li>
+      <li>It is the best deal on Amazon for this type of product.</li>
+      <li>it has worked wonderfully.</li>
+      <li>Excellent size.</li>
+      <li>This brush is awesome for the price.</li>
+      <li>Worked perfectly in the beginning</li>
+      <li>Great Transaction!</li>
       <li>Best shaving brush ever!</li>
+      <li>A great product!</li>
+      <li>I have been very impressed.</li>
+      <li>product works best after about 2-3 uses.  </li>
+      <li>Awesome product!</li>
+      <li>The brush works great!</li>
+      <li>am so happy with this product!</li>
+      <li>He said it helps the soap lather and feels wonderful on his skin!&lt;br /&gt;I</li>
+      <li>and I have found this to be an excellent brush for lathering up.</li>
+      <li>Excellent quality.</li>
+      <li>Perfect balance of stiffness and comfort when applying shaving soap.</li>
+      <li>Best shave I&#x27;ve ever had!</li>
       <li>Awesome quality, works well.</li>
+      <li>This brush is awesome.  </li>
+      <li>Excellent quality.</li>
+      <li>Pokey yet brushy - perfect shaving compliment to my safety</li>
+      <li>Excellent product and lives up to its description</li>
+      <li>I&#x27;m very happy with it.</li>
+      <li>Excellent product.  </li>
+      <li>I&#x27;m very happy with the product and the price.  </li>
+      <li>The quality of this product is awesome.</li>
+      <li>Excellent starter brush for the price.</li>
+      <li>and I&#x27;m very happy with it</li>
+      <li>A great shaving brush!  </li>
+      <li>It holds warmth well and the handle is excellent.</li>
+      <li>and it provides an awesome lather.  </li>
+      <li>He is very happy with it.</li>
+      <li>If you are thinking about using a shave brush, this is the best trial brush to use.</li>
+      <li>but I am very impressed.  </li>
+      <li>The quality of the fur is great!</li>
+      <li>and this brush is perfect for me.</li>
+      <li>The brush spreads evenly and feels great!</li>
+      <li>The price is perfect.</li>
+      <li>I replaced that cheapo brush with this one and have been very happy with the upgrade.</li>
+      <li>Excellent quality.</li>
+      <li>Best brush I&#x27;ve ever owned, priced perfectly!</li>
       <li>Awesome brush!</li>
+      <li>Great shaving brush!</li>
+      <li>Works wonderfully with shave soap.</li>
+      <li>Seems to be of excellent quality and value.</li>
       <li>Great value for the price!!</li>
+      <li>I find it holds a lot of moisture and is perfect for lathering my face.</li>
+      <li>Excellent shaving brush.</li>
+      <li>It&#x27;s great quality for the price!</li>
+      <li>Excellent, fits stand perfectly as well</li>
+      <li>This does the job perfectly.</li>
+      <li>Great Brush for the price!</li>
+      <li>This shaving brush is EXCELLENT!</li>
+      <li>I understand why it&#x27;s the #1 best seller.  </li>
       <li>BUT after I received it I was impressed.</li>
+      <li>Excellent gift for the man in your life or a treat for yourself.&lt;br /&gt;&lt;br /&gt;Have</li>
+      <li>Everyone&#x27;s happy!</li>
+      <li>Great brush!</li>
+      <li>Great affordable product !</li>
+      <li>I am very happy with it.  </li>
       <li>A great brush!</li>
       <li>Soft,lathers well,and a great price!</li>
+      <li>To give a comparison, for my husband I bought the Edwin Jagger best badger brush.</li>
+      <li>Otherwise it was an excellent purchase, and I would recommend this item.</li>
+      <li>Works great!  </li>
+      <li>Excellent product for the price!</li>
       <li>Works great!</li>
+      <li>and he&#x27;s THRILLED!!!</li>
+      <li>Perfect brush can&#x27;t go a day of shaving with out it</li>
       <li>I am very happy with it.</li>
-      <li>My brush arrived just as pictured in perfect condition, a bit before the estimated shipping date.</li>
-      <li>I think I got a really great deal!</li>
-      <li>Great value!</li>
-      <li>Perfect and creamy!</li>
-      <li>The best way to get apply shave soap for a close shave.</li>
-      <li>My husband wasn&#x27;t entiry impressed with this brush.</li>
-      <li>Absolutely excellent.</li>
-      <li>Excellent for the price.</li>
-      <li>EXCELLENT PRODUCT LINE AND RECOMMENDED TO ALL OTHERS</li>
-      <li>Some of the best boar brushes cost $40-50 (vs $100-200 for</li>
-      <li>Excellent shaving brush!</li>
-      <li>Wonderful badger hair softness .&lt;br</li>
-      <li>Bought this brush for my boyfriend, hes very happy with it</li>
-      <li>Excellent product.  </li>
-      <li>Very happy with purhase</li>
-      <li>Awesome brush!</li>
-      <li>Great buy!</li>
-      <li>Supurb product and value, excellent service.</li>
-      <li>Great brush!</li>
-      <li>Excellent!</li>
-      <li>Great bush!</li>
-      <li>Great Brush!  </li>
-      <li>A really good value!!</li>
-      <li>and I&#x27;m impressed by this one.  </li>
-      <li>It fits the Escali stand perfectly.</li>
-      <li>This is a great brush!  </li>
-      <li>Although bargain-priced, it delivers excellent performance.  </li>
-      <li>Works great!</li>
-      <li>Otherwise it&#x27;s an awesome product.</li>
-      <li>He ordered these  and is very happy with his razors and shaving equipment.</li>
-      <li>This brush is awesome!</li>
-      <li>He is very happy with it!</li>
-      <li>and I have to say I am very happy with this brush.</li>
-      <li>The lather is great!</li>
-      <li>Pricing-wise this brush is perfect.  </li>
-      <li>Both products are excellent.</li>
-      <li>Best brush and service, with all products.</li>
-      <li>Great brush!</li>
-      <li>Excellent item.  </li>
-      <li>The best badger hair brush ever</li>
-      <li>Excellent brush for the price.</li>
-      <li>Great shaving brush!!!</li>
-      <li>Great bang for the buck!!</li>
-      <li>I am very happy with this purchase.</li>
-      <li>Excellent product and service</li>
-      <li>but I consider this to be an excellent brush.  </li>
-      <li>The reviews are excellent for a reason.</li>
-      <li>Husband is very happy with brush quality.</li>
-      <li>Your badger shaving brush is excellent.  </li>
-      <li>If your on a budget this will get you going, otherwise spend 40 - 100 on something in best badger, as you will want to anyways</li>
-      <li>The badger shaving brush is an excellent value.  </li>
-      <li>Brush works perfectly as described.</li>
-      <li>While this is not the softest, fanciest or best brush on the market it does work.</li>
-      <li>Great shave!</li>
-      <li>says it does a great job and was just what he wanted!</li>
-      <li>Best shaving experiance I have had yet.</li>
-      <li>I have never tried shaving soap before I bought this brush and this brush is perfect.</li>
-      <li>Best buy for the dollar value!</li>
-      <li>Excellent product.  </li>
-      <li>but the brush performs excellent</li>
-      <li>Awesome Price.  </li>
-      <li>Excellent gift for introducing a friend to \\&quot;wet-shaving\\&quot;.  </li>
-      <li>This was top-notch quality for a bargain price.  </li>
-      <li>Perfect for the job!!</li>
-      <li>Had it for a year now and still holding up great!</li>
-      <li>Best deal you&#x27;ll find on a badger brush.</li>
-      <li>An excellent buy.</li>
-      <li>I found that it applies the cream best when doing swirls rather than</li>
-      <li>Very great product.</li>
-      <li>Learned of it through my brother in law, am impressed with the quality.</li>
-      <li>Great Quality Brush!!</li>
-      <li>Great quality!</li>
-      <li>Great Product!</li>
-      <li>Excellent quality for the price.</li>
-      <li>/&gt;It was delivered in no time, so the merchant, Perella&#x27;s - Amazon Marketplace, has done a great job!</li>
-      <li>Great product!  </li>
-      <li>and I am very happy with the quality of the brush.</li>
-      <li>Soap &#x3D; a great shave!</li>
-      <li>Great product!</li>
-      <li>Excellent and quality brush for the money!</li>
-      <li>and it works wonderfully.</li>
-      <li>According to my husband: Perfect size, perfect texture, perfect price.</li>
-      <li>I&#x27;m very happy with this brush.</li>
-      <li>That being said, it&#x27;s not the best of the bunch.</li>
-      <li>This is a great brush !  </li>
-      <li>What a revelation both these products are superb and I am getting the closest shave I have ever had in 20 years.</li>
-      <li>I know there are lots of wonderful reviews of this brush, but I guess I got a lemon.</li>
       <li>It may not be the best shaving brush out there</li>
-      <li>I am very happy with it.  </li>
-      <li>Great affordable product !</li>
+      <li>After 5-7 uses it works perfectly.</li>
+      <li>Awesome brush.</li>
+      <li>I was very happy with this brush.  </li>
 </ol>
 
 
 <h2>Negative Reviews</h2>
 <ol>
+<li> Awesome brush to add to your shaving kit.</li>
+<li> and I shall be very happy</li>
+<li> excellent quality in the workmanship!!d</li>
+<li> This is a wonderful badger brush for the price.</li>
+<li> Performs magnificently.</li>
+<li> and he&#x27;s happy!</li>
+<li> The shaving cream is excellent-</li>
+<li> Works perfectly!  </li>
+<li> Very happy with purchase.</li>
+<li> He loves this brush and the bristles have stayed in awesome shape!  </li>
+<li> I get the BEST shave every day!</li>
+<li> I am very happy with it.</li>
+<li> Excellent value.</li>
+<li> brush is not the best quality, then again...</li>
+<li> Great product!!!</li>
+<li> Excellent brush.</li>
+<li> I&#x27;m very happy with my choice</li>
+<li> I was very happy with this brush.  </li>
 <li> Wonderful brush.  </li>
+<li> Excellent customer service</li>
+<li> Great value!</li>
+<li> Excellent product.  </li>
+<li> and this one is excellent.</li>
+<li> The brush fits perfectly in the holder slot.</li>
+<li> Best shaving brush I&#x27;v ever had.</li>
+<li> It is the best deal on Amazon for this type of product.</li>
+<li> it has worked wonderfully.</li>
+<li> Excellent size.</li>
+<li> This brush is awesome for the price.</li>
+<li> Worked perfectly in the beginning</li>
+<li> Great Transaction!</li>
 <li> Best shaving brush ever!</li>
+<li> A great product!</li>
+<li> I have been very impressed.</li>
+<li> product works best after about 2-3 uses.  </li>
+<li> Awesome product!</li>
+<li> The brush works great!</li>
+<li> am so happy with this product!</li>
+<li> He said it helps the soap lather and feels wonderful on his skin!&lt;br /&gt;I</li>
+<li> and I have found this to be an excellent brush for lathering up.</li>
+<li> Excellent quality.</li>
+<li> Perfect balance of stiffness and comfort when applying shaving soap.</li>
+<li> Best shave I&#x27;ve ever had!</li>
 <li> Awesome quality, works well.</li>
+<li> This brush is awesome.  </li>
+<li> Excellent quality.</li>
+<li> Pokey yet brushy - perfect shaving compliment to my safety</li>
+<li> Excellent product and lives up to its description</li>
+<li> I&#x27;m very happy with it.</li>
+<li> Excellent product.  </li>
+<li> I&#x27;m very happy with the product and the price.  </li>
+<li> The quality of this product is awesome.</li>
+<li> Excellent starter brush for the price.</li>
+<li> and I&#x27;m very happy with it</li>
+<li> A great shaving brush!  </li>
+<li> It holds warmth well and the handle is excellent.</li>
+<li> and it provides an awesome lather.  </li>
+<li> He is very happy with it.</li>
+<li> If you are thinking about using a shave brush, this is the best trial brush to use.</li>
+<li> but I am very impressed.  </li>
+<li> The quality of the fur is great!</li>
+<li> and this brush is perfect for me.</li>
+<li> The brush spreads evenly and feels great!</li>
+<li> The price is perfect.</li>
+<li> I replaced that cheapo brush with this one and have been very happy with the upgrade.</li>
+<li> Excellent quality.</li>
+<li> Best brush I&#x27;ve ever owned, priced perfectly!</li>
 <li> Awesome brush!</li>
+<li> Great shaving brush!</li>
+<li> Works wonderfully with shave soap.</li>
+<li> Seems to be of excellent quality and value.</li>
 <li> Great value for the price!!</li>
+<li> I find it holds a lot of moisture and is perfect for lathering my face.</li>
+<li> Excellent shaving brush.</li>
+<li> It&#x27;s great quality for the price!</li>
+<li> Excellent, fits stand perfectly as well</li>
+<li> This does the job perfectly.</li>
+<li> Great Brush for the price!</li>
+<li> This shaving brush is EXCELLENT!</li>
+<li> I understand why it&#x27;s the #1 best seller.  </li>
 <li> BUT after I received it I was impressed.</li>
+<li> Excellent gift for the man in your life or a treat for yourself.&lt;br /&gt;&lt;br /&gt;Have</li>
+<li> Everyone&#x27;s happy!</li>
+<li> Great brush!</li>
+<li> Great affordable product !</li>
+<li> I am very happy with it.  </li>
 <li> A great brush!</li>
 <li> Soft,lathers well,and a great price!</li>
+<li> To give a comparison, for my husband I bought the Edwin Jagger best badger brush.</li>
+<li> Otherwise it was an excellent purchase, and I would recommend this item.</li>
+<li> Works great!  </li>
+<li> Excellent product for the price!</li>
 <li> Works great!</li>
+<li> and he&#x27;s THRILLED!!!</li>
+<li> Perfect brush can&#x27;t go a day of shaving with out it</li>
 <li> I am very happy with it.</li>
-<li> My brush arrived just as pictured in perfect condition, a bit before the estimated shipping date.</li>
-<li> I think I got a really great deal!</li>
-<li> Great value!</li>
-<li> Perfect and creamy!</li>
-<li> The best way to get apply shave soap for a close shave.</li>
-<li> My husband wasn&#x27;t entiry impressed with this brush.</li>
-<li> Absolutely excellent.</li>
-<li> Excellent for the price.</li>
-<li> EXCELLENT PRODUCT LINE AND RECOMMENDED TO ALL OTHERS</li>
-<li> Some of the best boar brushes cost $40-50 (vs $100-200 for</li>
-<li> Excellent shaving brush!</li>
-<li> Wonderful badger hair softness .&lt;br</li>
-<li> Bought this brush for my boyfriend, hes very happy with it</li>
-<li> Excellent product.  </li>
-<li> Very happy with purhase</li>
-<li> Awesome brush!</li>
-<li> Great buy!</li>
-<li> Supurb product and value, excellent service.</li>
-<li> Great brush!</li>
-<li> Excellent!</li>
-<li> Great bush!</li>
-<li> Great Brush!  </li>
-<li> A really good value!!</li>
-<li> and I&#x27;m impressed by this one.  </li>
-<li> It fits the Escali stand perfectly.</li>
-<li> This is a great brush!  </li>
-<li> Although bargain-priced, it delivers excellent performance.  </li>
-<li> Works great!</li>
-<li> Otherwise it&#x27;s an awesome product.</li>
-<li> He ordered these  and is very happy with his razors and shaving equipment.</li>
-<li> This brush is awesome!</li>
-<li> He is very happy with it!</li>
-<li> and I have to say I am very happy with this brush.</li>
-<li> The lather is great!</li>
-<li> Pricing-wise this brush is perfect.  </li>
-<li> Both products are excellent.</li>
-<li> Best brush and service, with all products.</li>
-<li> Great brush!</li>
-<li> Excellent item.  </li>
-<li> The best badger hair brush ever</li>
-<li> Excellent brush for the price.</li>
-<li> Great shaving brush!!!</li>
-<li> Great bang for the buck!!</li>
-<li> I am very happy with this purchase.</li>
-<li> Excellent product and service</li>
-<li> but I consider this to be an excellent brush.  </li>
-<li> The reviews are excellent for a reason.</li>
-<li> Husband is very happy with brush quality.</li>
-<li> Your badger shaving brush is excellent.  </li>
-<li> If your on a budget this will get you going, otherwise spend 40 - 100 on something in best badger, as you will want to anyways</li>
-<li> The badger shaving brush is an excellent value.  </li>
-<li> Brush works perfectly as described.</li>
-<li> While this is not the softest, fanciest or best brush on the market it does work.</li>
-<li> Great shave!</li>
-<li> says it does a great job and was just what he wanted!</li>
-<li> Best shaving experiance I have had yet.</li>
-<li> I have never tried shaving soap before I bought this brush and this brush is perfect.</li>
-<li> Best buy for the dollar value!</li>
-<li> Excellent product.  </li>
-<li> but the brush performs excellent</li>
-<li> Awesome Price.  </li>
-<li> Excellent gift for introducing a friend to \\&quot;wet-shaving\\&quot;.  </li>
-<li> This was top-notch quality for a bargain price.  </li>
-<li> Perfect for the job!!</li>
-<li> Had it for a year now and still holding up great!</li>
-<li> Best deal you&#x27;ll find on a badger brush.</li>
-<li> An excellent buy.</li>
-<li> I found that it applies the cream best when doing swirls rather than</li>
-<li> Very great product.</li>
-<li> Learned of it through my brother in law, am impressed with the quality.</li>
-<li> Great Quality Brush!!</li>
-<li> Great quality!</li>
-<li> Great Product!</li>
-<li> Excellent quality for the price.</li>
-<li> /&gt;It was delivered in no time, so the merchant, Perella&#x27;s - Amazon Marketplace, has done a great job!</li>
-<li> Great product!  </li>
-<li> and I am very happy with the quality of the brush.</li>
-<li> Soap &#x3D; a great shave!</li>
-<li> Great product!</li>
-<li> Excellent and quality brush for the money!</li>
-<li> and it works wonderfully.</li>
-<li> According to my husband: Perfect size, perfect texture, perfect price.</li>
-<li> I&#x27;m very happy with this brush.</li>
-<li> That being said, it&#x27;s not the best of the bunch.</li>
-<li> This is a great brush !  </li>
-<li> What a revelation both these products are superb and I am getting the closest shave I have ever had in 20 years.</li>
-<li> I know there are lots of wonderful reviews of this brush, but I guess I got a lemon.</li>
 <li> It may not be the best shaving brush out there</li>
-<li> I am very happy with it.  </li>
-<li> Great affordable product !</li>
+<li> After 5-7 uses it works perfectly.</li>
+<li> Awesome brush.</li>
+<li> I was very happy with this brush.  </li>
 </ol>
 
 <h2>All Reviews</h2>
@@ -5055,6 +5055,7 @@ modifiedAt: Thu Jan 09 2020 19:08:30 GMT+0530 (India Standard Time),
     <li> Works perfectly!  Great brush.  Would highly recommend.</li>
     <li> it has a horrible smell</li>
 </ol>
+
 
 
 

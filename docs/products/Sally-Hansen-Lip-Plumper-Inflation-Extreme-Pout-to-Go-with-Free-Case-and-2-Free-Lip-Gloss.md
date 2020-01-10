@@ -1,0 +1,123 @@
+---
+title: Sally Hansen Lip Plumper Inflation Extreme Pout to Go with Free Case &amp; 2 Free Lip Gloss,
+description: Sally Hansen Lip Plumper Inflation Extreme Pout to Go with Free Case &amp; 2 Free Lip Gloss,
+author: Suvojit Manna,
+tags: Sally Hansen Lip Plumper Inflation Extreme Pout to Go with Free Case &amp; 2 Free Lip Gloss,
+publishedAt: Fri Jan 10 2020 14:59:39 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:59:39 GMT+0530 (India Standard Time),
+---
+
+# [Sally Hansen Lip Plumper Inflation Extreme Pout to Go with Free Case &amp; 2 Free Lip Gloss](https://products.checkmycream.com/products/Sally-Hansen-Lip-Plumper-Inflation-Extreme-Pout-to-Go-with-Free-Case-and-2-Free-Lip-Gloss.html)
+
+### Positive Reviews
+
+<ol>
+      <li>Best lip plumper on the market !</li>
+      <li>Oh and the smell i can live without!!!!!!!!</li>
+      <li>on great not too sticky.</li>
+      <li>It was a great price and the lip plumper delivered as the description read.</li>
+      <li>good deal</li>
+      <li>I loved the cinnamon flavor and scent.</li>
+      <li>Loved the case.</li>
+      <li>Grand daughter has it as a coin purse now, lol.</li>
+      <li>I liked the cinnamon smell.</li>
+      <li>Love love love the smell!!</li>
+      <li>sure you prepare your lips  by brushing them before with toothbrush</li>
+      <li>The price was more inline, also.</li>
+      <li>Love this stuff , can&#x27;t get it in stores anymore?</li>
+      <li>My lips stayed moist and healthy looking for hours.</li>
+      <li>I was expecting a bit more but is ok.</li>
+      <li>the free case is cute and sassy....</li>
+      <li>The same great product.</li>
+      <li>The package arrived on time and I was excited to see what I had purchased.</li>
+      <li>The best on the market .. at last for me&lt;br /&gt;it really blow up my lips maybe too much ..</li>
+      <li>After more research, I understand that none of these &amp;#34;lip inflators&amp;#34; really work, and these are a bit too shiny for my taste.</li>
+      <li>i wasnt wowed by the plumping effect of the plumping extreme gloss.tingles and has a great cinnamon taste  and glossy shine</li>
+      <li>I gave 2 stars because it was shipped quickly.  </li>
+      <li>Nice and simple colors.&lt;br /&gt;Goes</li>
+      <li>The coloring is the only really nice thing about it.</li>
+      <li>and when i first used this product i felt the tingles</li>
+      <li>Arrived on time and was the same great product i expected!</li>
+      <li>Great item works all day doesn&#x27;t go away and makes my lips big and fluffy</li>
+      <li>It really did not do anything for my lips</li>
+      <li>Doesnt do too much to help.</li>
+      <li>Not to much of a  differents</li>
+      <li>Do not waste your money</li>
+      <li>As far as the plumping ?</li>
+      <li>u get the clear and a pink and red color gloss</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> Best lip plumper on the market !</li>
+<li> Oh and the smell i can live without!!!!!!!!</li>
+<li> on great not too sticky.</li>
+<li> It was a great price and the lip plumper delivered as the description read.</li>
+<li> good deal</li>
+<li> I loved the cinnamon flavor and scent.</li>
+<li> Loved the case.</li>
+<li> Grand daughter has it as a coin purse now, lol.</li>
+<li> I liked the cinnamon smell.</li>
+<li> Love love love the smell!!</li>
+<li> sure you prepare your lips  by brushing them before with toothbrush</li>
+<li> The price was more inline, also.</li>
+<li> Love this stuff , can&#x27;t get it in stores anymore?</li>
+<li> My lips stayed moist and healthy looking for hours.</li>
+<li> I was expecting a bit more but is ok.</li>
+<li> the free case is cute and sassy....</li>
+<li> The same great product.</li>
+<li> The package arrived on time and I was excited to see what I had purchased.</li>
+<li> The best on the market .. at last for me&lt;br /&gt;it really blow up my lips maybe too much ..</li>
+<li> After more research, I understand that none of these &amp;#34;lip inflators&amp;#34; really work, and these are a bit too shiny for my taste.</li>
+<li> i wasnt wowed by the plumping effect of the plumping extreme gloss.tingles and has a great cinnamon taste  and glossy shine</li>
+<li> I gave 2 stars because it was shipped quickly.  </li>
+<li> Nice and simple colors.&lt;br /&gt;Goes</li>
+<li> The coloring is the only really nice thing about it.</li>
+<li> and when i first used this product i felt the tingles</li>
+<li> Arrived on time and was the same great product i expected!</li>
+<li> Great item works all day doesn&#x27;t go away and makes my lips big and fluffy</li>
+<li> It really did not do anything for my lips</li>
+<li> Doesnt do too much to help.</li>
+<li> Not to much of a  differents</li>
+<li> Do not waste your money</li>
+<li> As far as the plumping ?</li>
+<li> u get the clear and a pink and red color gloss</li>
+<li> but this one didnt do anything i think its because it has been stored for so long that it has lost its values so it didnt work for me &#x3D;-</li>
+<li> I saw absolutely no difference to our lips (daughter, friends...).  </li>
+<li> Don&#x27;t waste your money.</li>
+<li> The gloss is nice...sheer, not too sticky, stays on for a few hours but the plumper....</li>
+<li> Moisturizes and a hint of color with the small ones.</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> Doesn&#x27;t say on or plump lips as stated</li>
+    <li> Doesn&#x27;t work as it says.</li>
+    <li> Great item works all day doesn&#x27;t go away and makes my lips big and fluffy&lt;br /&gt;Greatt fruity taste. Too</li>
+    <li> I was expecting a bit more but is ok.</li>
+    <li> Nice and simple colors.&lt;br /&gt;Goes on great not too sticky.</li>
+    <li> After more research, I understand that none of these &amp;#34;lip inflators&amp;#34; really work, and these are a bit too shiny for my taste.</li>
+    <li> I liked the cinnamon smell. However I did not see visbile plumping. The color did not suit me. I threw the color out and used the plumper for lip gloss.</li>
+    <li> Love love love the smell!! As far as the plumping ? Not to much of a  differents</li>
+    <li> The gloss is nice...sheer, not too sticky, stays on for a few hours but the plumper....i haven&#x27;t noticed any difference in the shape of my lips but i am still using it for another week or so....maybe by then, my lips will respond to the product....the free case is cute and sassy....would i repurchase this? probably</li>
+    <li> Yep! The same great product. The price was more inline, also.</li>
+    <li> i had one from the store before they discontinue them and when i applied it it gave me like a tingle sensation but this one didnt do anything i think its because it has been stored for so long that it has lost its values so it didnt work for me &#x3D;-</li>
+    <li> Love this stuff , can&#x27;t get it in stores anymore?</li>
+    <li> Loved the case. Grand daughter has it as a coin purse now, lol. Moisturizes and a hint of color with the small ones. Doesn&#x27;t cake or flake on lips</li>
+    <li> i wasnt wowed by the plumping effect of the plumping extreme gloss.tingles and has a great cinnamon taste  and glossy shine but my lips looked the same!! good deal u get the clear and a pink and red color gloss also!1shine i give it a ten..plumping a 2!</li>
+    <li> I think this is a gimmick.  I saw absolutely no difference to our lips (daughter, friends...).  I gave 2 stars because it was shipped quickly.  Don&#x27;t waste your money.</li>
+    <li> It really did not do anything for my lips it just makes them look shiny and when i first used this product i felt the tingles but now i don&#x27;t. Get it if you want a foul smelling lip gloss. The coloring is the only really nice thing about it. Oh and the smell i can live without!!!!!!!!</li>
+    <li> Best lip plumper on the market ! Arrived on time and was the same great product i expected! Its a must have!</li>
+    <li> Doesnt do too much to help.</li>
+    <li> The package arrived on time and I was excited to see what I had purchased. It was a great price and the lip plumper delivered as the description read. I loved the cinnamon flavor and scent. My lips stayed moist and healthy looking for hours. Will definitely get this again!</li>
+    <li> The best on the market .. at last for me&lt;br /&gt;it really blow up my lips maybe too much .. well working for me&lt;br /&gt;make sure you prepare your lips  by brushing them before with toothbrush</li>
+    <li> I have used it and another one she had in a gold case.  It works well.</li>
+    <li> I have ordered several of these sets and they do work as advertised.  I am &amp;#34;very satisfied&amp;#34; with the results.&lt;br /&gt;&amp;#34;Nichol Lynn&amp;#34;</li>
+    <li> Do not waste your money</li>
+</ol>
+
+
+
+

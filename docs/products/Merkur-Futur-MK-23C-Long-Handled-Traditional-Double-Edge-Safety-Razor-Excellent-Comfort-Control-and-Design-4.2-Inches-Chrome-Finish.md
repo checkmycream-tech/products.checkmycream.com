@@ -3,8 +3,8 @@ title: Merkur Futur MK 23C Long-Handled Traditional Double Edge Safety Razor - E
 description: Merkur Futur MK 23C Long-Handled Traditional Double Edge Safety Razor - Excellent Comfort, Control, and Design - 4.2 Inches, Chrome Finish,
 author: Suvojit Manna,
 tags: Merkur Futur MK 23C Long-Handled Traditional Double Edge Safety Razor - Excellent Comfort, Control, and Design - 4.2 Inches, Chrome Finish,
-publishedAt: Thu Jan 09 2020 19:08:22 GMT+0530 (India Standard Time),
-modifiedAt: Thu Jan 09 2020 19:08:22 GMT+0530 (India Standard Time),
+publishedAt: Fri Jan 10 2020 14:59:11 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:59:11 GMT+0530 (India Standard Time),
 ---
 
 # [Merkur Futur MK 23C Long-Handled Traditional Double Edge Safety Razor - Excellent Comfort, Control, and Design - 4.2 Inches, Chrome Finish](https://products.checkmycream.com/products/Merkur-Futur-MK-23C-Long-Handled-Traditional-Double-Edge-Safety-Razor-Excellent-Comfort-Control-and-Design-4.2-Inches-Chrome-Finish.html)
@@ -12,211 +12,211 @@ modifiedAt: Thu Jan 09 2020 19:08:22 GMT+0530 (India Standard Time),
 ### Positive Reviews
 
 <ol>
-      <li>One of my best buys on Amazon.</li>
-      <li>This Merkur razor is a perfect size.</li>
-      <li>RAZOR IS AMAZING! !!!!</li>
-      <li>Awesome product.</li>
-      <li>Could have been a tad heavier , but gives the best shave I&#x27;ve had in years.</li>
-      <li>tall and this fits my hand perfectly.</li>
-      <li>For the price it is excellent.</li>
-      <li>It clam shells the blades perfectly</li>
-      <li>Best shaver I have had!</li>
-      <li>switching to a safety razor from the Venus drugstore was the best thing i&#x27;ve done for my legs.</li>
-      <li>Ended up buying an electric Panasonic shaver and it has been the best.  </li>
-      <li>seems to be a perfect marriage of the two .</li>
-      <li>Very happy with the product</li>
-      <li>The best part is the blades are 10 for a dollar fifty.</li>
-      <li>I have an Edwin Jagger DE89 and that is an awesome razor</li>
-      <li>HOWEVER, it is the best shave</li>
-      <li>I like the non-adjustables the best, so I decided to give Merkur another shot with the Model 180.</li>
-      <li>I am very happy with</li>
-      <li>Awesome Awesome Awesome</li>
-      <li>angry.&lt;br /&gt;&lt;br /&gt;I have not cut myself with this razor yet, and feel it places the blade at a perfect angle.</li>
-      <li>Been shaving with this one for over a year now, and its still perfect.</li>
-      <li>This is a wonderful razor!</li>
-      <li>It was the best shave of my life.</li>
-      <li>Beautiful!  </li>
-      <li>This one works like a charm and he is very happy with it.</li>
-      <li>this is the best item I have ever raked my face with.</li>
-      <li>I did find that the best blades for this razor and my face are 7AM blades (not 7 o&#x27;clock).</li>
-      <li>I get the best shave I have ever had.  </li>
-      <li>and it does an excellent job.</li>
-      <li>It works and feels wonderful.</li>
-      <li>I researched blogs, reviews on Amazon, and read just anything that I could find information on the best shave with or without cost considered.  </li>
-      <li>Great buy for a beginner like me!</li>
-      <li>Great razor for a man!</li>
-      <li>He states that it is the best razor.</li>
-      <li>Practice makes perfect with this razor.  </li>
-      <li>a great shave!</li>
-      <li>Best razor you can buy.  </li>
-      <li>/am impressed!    </li>
-      <li>Razor works great!</li>
-      <li>The Merkur Model 180 is an excellent razor.</li>
-      <li>The sample Merkur blade is came with was excellent as well, it lasted 6 days before it needed to be replaced.</li>
-      <li>This razor works wonderfully for shaving body hair.</li>
-      <li>Excellent product!</li>
-      <li>And I was really impressed.  </li>
-      <li>I buy my blades in bulk-packs of 100 for for fractions of what you&#x27;d pay for the 5-blade store brands, and I get a perfect shave every time.  </li>
-      <li>The heft and weight of the razor are really impressive.</li>
-      <li>a perfect match and well-balanced.</li>
-      <li>I&#x27;m very happy with the weight, grip, and handle length.  </li>
-      <li>I feel like I accidentally picked out the best safety razor I could have!</li>
-      <li>It is absolutely great!    </li>
-      <li>The craftsmanship of this instrument is simply excellent.</li>
-      <li>and I&#x27;m really impressed!  </li>
-      <li>Wonderful combo.  </li>
-      <li>Lets just say its friggen great!    </li>
-      <li>Build quality excellent, no chrome issues.&lt;br</li>
-      <li>They are wonderful blades.</li>
-      <li>I am very happy with this product.</li>
-      <li>Truly the best shaves of my life!  </li>
-      <li>This razor is excellent.</li>
-      <li>Did it restore a lost tradition of manhood that put me in touch with the greatest generation?  </li>
-      <li>Great razor!  </li>
-      <li>And I have to say its a great thing!</li>
-      <li>Excellent product!!!!!</li>
-      <li>Best razor ever.</li>
-      <li>Great shave!</li>
-      <li>One of the best gifts I have ever given.</li>
-      <li>Awesome product!</li>
-      <li>Very good quality and fashionable!</li>
-      <li>This is the best shaver money can buy.</li>
+      <li>I&#x27;m a happy guy!</li>
+      <li>This razor is great!</li>
+      <li>The etchings on the handle make for a perfect grip.</li>
       <li>, I&#x27;m very impressed.</li>
+      <li>Very happy with this purchase.</li>
+      <li>what a great RAZOR!</li>
+      <li>This was one of the best decisions I have made it a while.</li>
+      <li>One of my best buys on Amazon.</li>
+      <li>Let me tell you, this was the best shave of my life.</li>
+      <li>Excellent weight and balance.</li>
+      <li>Best razor</li>
+      <li>This is an excellent razor.  </li>
+      <li>Craftsmanship is excellent.</li>
+      <li>Happy shaving ... and \\&quot;shave on\\&quot;!</li>
+      <li>Best move that I have ever made.</li>
+      <li>This product is excellent.</li>
+      <li>I&#x27;m so happy I found this!</li>
       <li>I picked it because I believed it to be the best one.</li>
       <li>After using it, he still agrees that it is the best he could use.</li>
+      <li>This is an excellent razor.  </li>
+      <li>This one is excellent.</li>
+      <li>I&#x27;m looking forward to finding the perfect blade.&lt;br /&gt;&lt;br</li>
+      <li>you will be very happy, and will save a lot of money along the way!</li>
+      <li>This item is wonderful, went beyond what i was expecting,</li>
+      <li>The &amp;#34;russian &amp;#34; blades are the best for my skin and contours.</li>
+      <li>This Merkur razor is a perfect size.</li>
       <li>I got the best shave in my 25+ years of shaving.  </li>
+      <li>I have been so impressed</li>
+      <li>/&gt;Overall ... I consider this an excellent product.</li>
+      <li>Excellent quality.</li>
+      <li>I read an awesome review regarding the Merkur</li>
+      <li>The angle at which the blade must be kept in relation to the skin that is being shaved has to be perfect.</li>
+      <li>Get it along with some great shaving oil and some feather blades!</li>
+      <li>then Merkur is the best bet.</li>
+      <li>Best shaving razor that I&#x27;ve used.</li>
+      <li>As do I, great close shave!</li>
+      <li>Its balanced and its a perfect weight.</li>
+      <li>I&#x27;m very happy with this purchase.</li>
+      <li>It&#x27;s chrome-like finish is very attractive to a man</li>
+      <li>/&gt;The razor is the perfect size and weight.  </li>
+      <li>RAZOR IS AMAZING! !!!!</li>
+      <li>It does the job perfectly.  </li>
+      <li>This razor will give you the best shave of your life.</li>
+      <li>I&#x27;m very happy with this razor.  </li>
+      <li>If you want to save money, have the greatest shave of your life, and learn to appreciate the art of shaving, then this razor is for you.</li>
+      <li>This razor takes some getting used to, but once your do, is excellent at what it does.</li>
+      <li>The construction is excellent.</li>
+      <li>Great blade!</li>
+      <li>It is the type of razor my grandfather used to use and he was just awesome.</li>
+      <li>The best shave without a striaght razor.</li>
+      <li>Best Shave I have ever had!</li>
+      <li>Excellent product!</li>
+      <li>Shaving is great now!</li>
+      <li>Excellent product.</li>
+      <li>Excellent quality.  </li>
+      <li>Well, I&#x27;m here to say that this is a great razor for women, too!</li>
+      <li>Excellent razor.</li>
+      <li>Works great!</li>
       <li>and the results are AWESOME...</li>
+      <li>Time will tell, but for now I am very happy with the results I&#x27;m getting.  </li>
+      <li>I was simply impressed!  </li>
       <li>MERKUR is the bEST...</li>
       <li>Great craftmanship I might add!</li>
+      <li>Best shave I have ever had, using Wilkinson Blades.  </li>
+      <li>This product is awesome and gives a perfect shave.</li>
+      <li>The weight and length of the handle work perfectly in order to apply the perfect amount of pressure to the skin without razor burn or discomfort.</li>
+      <li>It is the best.</li>
+      <li>Excellent way to spice up shaving.</li>
       <li>Weight and balance are about perfect, and I do like the longer handle of this model.  </li>
+      <li>Best shave I ever had.</li>
+      <li>Simply awesome and close shave.</li>
+      <li>When you buy it get the variety pack of blades and find the best one for you.</li>
+      <li>best part</li>
+      <li>Feathers, Hospital Use Personnas and Gillette Silver Blues work the best for me in that order.</li>
       <li>That said, I would say this is as close to perfect as you can get if you are a newcomer to DE shaving as I was.  </li>
+      <li>I find the weight and grip of this razor to be excellent.</li>
       <li>On the advice of others I bought some Feather blades, and they are awesome.  </li>
       <li>Might as well treat it the best I can.</li>
+      <li>I was Impressed with the shave</li>
       <li>The journey ended at one of the world&#x27;s oldest &amp; best razor makers, Merkur.  </li>
+      <li>Wonderful.  </li>
       <li>All great!</li>
-      <li>The blade secures perfectly with the handle screwed in, so there is no wobbling at all.</li>
-      <li>closest and best shaves</li>
-      <li>I can now say that my face is happy!</li>
-      <li>This razor provides the best combination of comfort and closeness that I have found in a razor.</li>
-      <li>I find that that the feather blades give me the best shave.</li>
-      <li>And when the Quattro came out, I thought I found the perfect razor.</li>
-      <li>Holding the razor, the feel of it is wonderful.  </li>
-      <li>Yes, i tried taking my time and keeping the blade at 30 degrees AND shaving with the grain and not against the grain(which is has always worked best for me)</li>
-      <li>But even with the shave soap and the Fusion, I got the best shave of my life.</li>
-      <li>I am very happy with this and also purchased a 100 count pack of personna blades (under $13.00).&lt;br /&gt;&lt;br /&gt;I</li>
-      <li>Excellent quality and competence in services.</li>
-      <li>This one is perfectly rounded, and does not.</li>
-      <li>My skin is happy!  </li>
-      <li>I&#x27;ve been using it with Derby blades and very happy, now!</li>
-      <li>I have been using this for about 3 months with flawless results.</li>
-      <li>The shave itself is wonderful</li>
-      <li>Happy shaving gentlemen!</li>
-      <li>This razor is awesome.</li>
+      <li>best razor that i have ever owned.</li>
+      <li>I am very happy that I did.</li>
+      <li>I&#x27;m very happy with this razor and have been recommending it to all my friends.</li>
+      <li>Awesome product.</li>
+      <li>Try differant blades so that you find the one that works best for you.</li>
+      <li>Excellent product that produces a great shave!  </li>
+      <li>this is the best safety razor  </li>
+      <li>&amp;#34;Wilkinson Sword Classic&amp;#34; works best for me.</li>
+      <li>It is awesome.</li>
+      <li>Best shave</li>
+      <li>Best safety razor I have ever bought.</li>
+      <li>My dad is very happy with this razor.</li>
+      <li>This is the best shaver money can buy.</li>
+      <li>Could have been a tad heavier , but gives the best shave I&#x27;ve had in years.</li>
+      <li>Very good quality and fashionable!</li>
+      <li>I have been using it for 6 months now and I am very happy with it.</li>
+      <li>I bought this razor about 2 months ago, it has been one of the best decisions I&#x27;ve made regarding how I shave my face.  </li>
+      <li>My approach was finding all the pieces that had the best reviews vs. price.</li>
 </ol>
 
 
 <h2>Negative Reviews</h2>
 <ol>
-<li> One of my best buys on Amazon.</li>
-<li> This Merkur razor is a perfect size.</li>
-<li> RAZOR IS AMAZING! !!!!</li>
-<li> Awesome product.</li>
-<li> Could have been a tad heavier , but gives the best shave I&#x27;ve had in years.</li>
-<li> tall and this fits my hand perfectly.</li>
-<li> For the price it is excellent.</li>
-<li> It clam shells the blades perfectly</li>
-<li> Best shaver I have had!</li>
-<li> switching to a safety razor from the Venus drugstore was the best thing i&#x27;ve done for my legs.</li>
-<li> Ended up buying an electric Panasonic shaver and it has been the best.  </li>
-<li> seems to be a perfect marriage of the two .</li>
-<li> Very happy with the product</li>
-<li> The best part is the blades are 10 for a dollar fifty.</li>
-<li> I have an Edwin Jagger DE89 and that is an awesome razor</li>
-<li> HOWEVER, it is the best shave</li>
-<li> I like the non-adjustables the best, so I decided to give Merkur another shot with the Model 180.</li>
-<li> I am very happy with</li>
-<li> Awesome Awesome Awesome</li>
-<li> angry.&lt;br /&gt;&lt;br /&gt;I have not cut myself with this razor yet, and feel it places the blade at a perfect angle.</li>
-<li> Been shaving with this one for over a year now, and its still perfect.</li>
-<li> This is a wonderful razor!</li>
-<li> It was the best shave of my life.</li>
-<li> Beautiful!  </li>
-<li> This one works like a charm and he is very happy with it.</li>
-<li> this is the best item I have ever raked my face with.</li>
-<li> I did find that the best blades for this razor and my face are 7AM blades (not 7 o&#x27;clock).</li>
-<li> I get the best shave I have ever had.  </li>
-<li> and it does an excellent job.</li>
-<li> It works and feels wonderful.</li>
-<li> I researched blogs, reviews on Amazon, and read just anything that I could find information on the best shave with or without cost considered.  </li>
-<li> Great buy for a beginner like me!</li>
-<li> Great razor for a man!</li>
-<li> He states that it is the best razor.</li>
-<li> Practice makes perfect with this razor.  </li>
-<li> a great shave!</li>
-<li> Best razor you can buy.  </li>
-<li> /am impressed!    </li>
-<li> Razor works great!</li>
-<li> The Merkur Model 180 is an excellent razor.</li>
-<li> The sample Merkur blade is came with was excellent as well, it lasted 6 days before it needed to be replaced.</li>
-<li> This razor works wonderfully for shaving body hair.</li>
-<li> Excellent product!</li>
-<li> And I was really impressed.  </li>
-<li> I buy my blades in bulk-packs of 100 for for fractions of what you&#x27;d pay for the 5-blade store brands, and I get a perfect shave every time.  </li>
-<li> The heft and weight of the razor are really impressive.</li>
-<li> a perfect match and well-balanced.</li>
-<li> I&#x27;m very happy with the weight, grip, and handle length.  </li>
-<li> I feel like I accidentally picked out the best safety razor I could have!</li>
-<li> It is absolutely great!    </li>
-<li> The craftsmanship of this instrument is simply excellent.</li>
-<li> and I&#x27;m really impressed!  </li>
-<li> Wonderful combo.  </li>
-<li> Lets just say its friggen great!    </li>
-<li> Build quality excellent, no chrome issues.&lt;br</li>
-<li> They are wonderful blades.</li>
-<li> I am very happy with this product.</li>
-<li> Truly the best shaves of my life!  </li>
-<li> This razor is excellent.</li>
-<li> Did it restore a lost tradition of manhood that put me in touch with the greatest generation?  </li>
-<li> Great razor!  </li>
-<li> And I have to say its a great thing!</li>
-<li> Excellent product!!!!!</li>
-<li> Best razor ever.</li>
-<li> Great shave!</li>
-<li> One of the best gifts I have ever given.</li>
-<li> Awesome product!</li>
-<li> Very good quality and fashionable!</li>
-<li> This is the best shaver money can buy.</li>
+<li> I&#x27;m a happy guy!</li>
+<li> This razor is great!</li>
+<li> The etchings on the handle make for a perfect grip.</li>
 <li> , I&#x27;m very impressed.</li>
+<li> Very happy with this purchase.</li>
+<li> what a great RAZOR!</li>
+<li> This was one of the best decisions I have made it a while.</li>
+<li> One of my best buys on Amazon.</li>
+<li> Let me tell you, this was the best shave of my life.</li>
+<li> Excellent weight and balance.</li>
+<li> Best razor</li>
+<li> This is an excellent razor.  </li>
+<li> Craftsmanship is excellent.</li>
+<li> Happy shaving ... and \\&quot;shave on\\&quot;!</li>
+<li> Best move that I have ever made.</li>
+<li> This product is excellent.</li>
+<li> I&#x27;m so happy I found this!</li>
 <li> I picked it because I believed it to be the best one.</li>
 <li> After using it, he still agrees that it is the best he could use.</li>
+<li> This is an excellent razor.  </li>
+<li> This one is excellent.</li>
+<li> I&#x27;m looking forward to finding the perfect blade.&lt;br /&gt;&lt;br</li>
+<li> you will be very happy, and will save a lot of money along the way!</li>
+<li> This item is wonderful, went beyond what i was expecting,</li>
+<li> The &amp;#34;russian &amp;#34; blades are the best for my skin and contours.</li>
+<li> This Merkur razor is a perfect size.</li>
 <li> I got the best shave in my 25+ years of shaving.  </li>
+<li> I have been so impressed</li>
+<li> /&gt;Overall ... I consider this an excellent product.</li>
+<li> Excellent quality.</li>
+<li> I read an awesome review regarding the Merkur</li>
+<li> The angle at which the blade must be kept in relation to the skin that is being shaved has to be perfect.</li>
+<li> Get it along with some great shaving oil and some feather blades!</li>
+<li> then Merkur is the best bet.</li>
+<li> Best shaving razor that I&#x27;ve used.</li>
+<li> As do I, great close shave!</li>
+<li> Its balanced and its a perfect weight.</li>
+<li> I&#x27;m very happy with this purchase.</li>
+<li> It&#x27;s chrome-like finish is very attractive to a man</li>
+<li> /&gt;The razor is the perfect size and weight.  </li>
+<li> RAZOR IS AMAZING! !!!!</li>
+<li> It does the job perfectly.  </li>
+<li> This razor will give you the best shave of your life.</li>
+<li> I&#x27;m very happy with this razor.  </li>
+<li> If you want to save money, have the greatest shave of your life, and learn to appreciate the art of shaving, then this razor is for you.</li>
+<li> This razor takes some getting used to, but once your do, is excellent at what it does.</li>
+<li> The construction is excellent.</li>
+<li> Great blade!</li>
+<li> It is the type of razor my grandfather used to use and he was just awesome.</li>
+<li> The best shave without a striaght razor.</li>
+<li> Best Shave I have ever had!</li>
+<li> Excellent product!</li>
+<li> Shaving is great now!</li>
+<li> Excellent product.</li>
+<li> Excellent quality.  </li>
+<li> Well, I&#x27;m here to say that this is a great razor for women, too!</li>
+<li> Excellent razor.</li>
+<li> Works great!</li>
 <li> and the results are AWESOME...</li>
+<li> Time will tell, but for now I am very happy with the results I&#x27;m getting.  </li>
+<li> I was simply impressed!  </li>
 <li> MERKUR is the bEST...</li>
 <li> Great craftmanship I might add!</li>
+<li> Best shave I have ever had, using Wilkinson Blades.  </li>
+<li> This product is awesome and gives a perfect shave.</li>
+<li> The weight and length of the handle work perfectly in order to apply the perfect amount of pressure to the skin without razor burn or discomfort.</li>
+<li> It is the best.</li>
+<li> Excellent way to spice up shaving.</li>
 <li> Weight and balance are about perfect, and I do like the longer handle of this model.  </li>
+<li> Best shave I ever had.</li>
+<li> Simply awesome and close shave.</li>
+<li> When you buy it get the variety pack of blades and find the best one for you.</li>
+<li> best part</li>
+<li> Feathers, Hospital Use Personnas and Gillette Silver Blues work the best for me in that order.</li>
 <li> That said, I would say this is as close to perfect as you can get if you are a newcomer to DE shaving as I was.  </li>
+<li> I find the weight and grip of this razor to be excellent.</li>
 <li> On the advice of others I bought some Feather blades, and they are awesome.  </li>
 <li> Might as well treat it the best I can.</li>
+<li> I was Impressed with the shave</li>
 <li> The journey ended at one of the world&#x27;s oldest &amp; best razor makers, Merkur.  </li>
+<li> Wonderful.  </li>
 <li> All great!</li>
-<li> The blade secures perfectly with the handle screwed in, so there is no wobbling at all.</li>
-<li> closest and best shaves</li>
-<li> I can now say that my face is happy!</li>
-<li> This razor provides the best combination of comfort and closeness that I have found in a razor.</li>
-<li> I find that that the feather blades give me the best shave.</li>
-<li> And when the Quattro came out, I thought I found the perfect razor.</li>
-<li> Holding the razor, the feel of it is wonderful.  </li>
-<li> Yes, i tried taking my time and keeping the blade at 30 degrees AND shaving with the grain and not against the grain(which is has always worked best for me)</li>
-<li> But even with the shave soap and the Fusion, I got the best shave of my life.</li>
-<li> I am very happy with this and also purchased a 100 count pack of personna blades (under $13.00).&lt;br /&gt;&lt;br /&gt;I</li>
-<li> Excellent quality and competence in services.</li>
-<li> This one is perfectly rounded, and does not.</li>
-<li> My skin is happy!  </li>
-<li> I&#x27;ve been using it with Derby blades and very happy, now!</li>
-<li> I have been using this for about 3 months with flawless results.</li>
-<li> The shave itself is wonderful</li>
-<li> Happy shaving gentlemen!</li>
-<li> This razor is awesome.</li>
+<li> best razor that i have ever owned.</li>
+<li> I am very happy that I did.</li>
+<li> I&#x27;m very happy with this razor and have been recommending it to all my friends.</li>
+<li> Awesome product.</li>
+<li> Try differant blades so that you find the one that works best for you.</li>
+<li> Excellent product that produces a great shave!  </li>
+<li> this is the best safety razor  </li>
+<li> &amp;#34;Wilkinson Sword Classic&amp;#34; works best for me.</li>
+<li> It is awesome.</li>
+<li> Best shave</li>
+<li> Best safety razor I have ever bought.</li>
+<li> My dad is very happy with this razor.</li>
+<li> This is the best shaver money can buy.</li>
+<li> Could have been a tad heavier , but gives the best shave I&#x27;ve had in years.</li>
+<li> Very good quality and fashionable!</li>
+<li> I have been using it for 6 months now and I am very happy with it.</li>
+<li> I bought this razor about 2 months ago, it has been one of the best decisions I&#x27;ve made regarding how I shave my face.  </li>
+<li> My approach was finding all the pieces that had the best reviews vs. price.</li>
 </ol>
 
 <h2>All Reviews</h2>
@@ -3970,6 +3970,7 @@ modifiedAt: Thu Jan 09 2020 19:08:22 GMT+0530 (India Standard Time),
     <li> After all these years, finally using the safety razor full time without ever turning back. Forget the Mach 10000, the super twenty blade rocket powered razor, the wet dry electric skin ripping worst shave ever styles! Save your skin and your money and shave like a man again!</li>
     <li> This is my first ever DE safety razor. My father always used a Gillette Mach 2 cartridge razor and passed that onto me. The Gillette Mach 2 razors irritated my skin and overall left me with a dissatisfying shave due to the discomfort of the blades. With the help of a few educational videos, I learned my way around safety razors and shaved with the Merkur for the first time this morning. Being overly cautious since it was my first shave, it took me about 15 minutes. I also used Barbasol Sensitive Skin shaving cream that I got from my local pharmacy (I&#x27;ll attempt to make the switch to using a mug, brush, and paste later on) and Astra Superior Platinum blades that I also bought here on Amazon. With 2 passes, my skin was baby smooth with absolutely no stubble or irritation. The Merkur not only delivers a quality shave, but feels solidly constructed in your hand. The etchings on the handle make for a perfect grip. The weight adds to the feeling of security and stability. Aesthetically, it&#x27;s a work of art. I&#x27;d make the same purchase again and again. It saves money in the long run and more than satisfied shavers everywhere.</li>
 </ol>
+
 
 
 

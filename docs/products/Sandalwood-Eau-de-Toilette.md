@@ -1,0 +1,161 @@
+---
+title: Sandalwood - Eau de Toilette,
+description: Sandalwood - Eau de Toilette,
+author: Suvojit Manna,
+tags: Sandalwood - Eau de Toilette,
+publishedAt: Fri Jan 10 2020 14:59:28 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:59:28 GMT+0530 (India Standard Time),
+---
+
+# [Sandalwood - Eau de Toilette](https://products.checkmycream.com/products/Sandalwood-Eau-de-Toilette.html)
+
+### Positive Reviews
+
+<ol>
+      <li>Happy Customer!</li>
+      <li>Amazon has a great price on it !</li>
+      <li>Not overbearing and has a wonderful manly pleasant spice smell.  </li>
+      <li>Great scent, man or woman, actually.&lt;br /&gt;------&lt;br /&gt;Later...</li>
+      <li>The fragrance is great, but the sprayer on the bottle is defective.  </li>
+      <li>This is a very warm, sensuous fragrance that either a man or a woman could wear.  </li>
+      <li>It pleasantly lasts for hours (6+).  </li>
+      <li>Price was excellent - below $30 and had free shipping.</li>
+      <li>Good price for a quality product.  </li>
+      <li>Good purchase and my wife loves it.</li>
+      <li>A good alternative is Chill from Curve.</li>
+      <li>is amazing stuff.</li>
+      <li>Love it.</li>
+      <li>this is my favorite sandalwood fragrance.</li>
+      <li>I have been looking for Sandalo from Zara and unfortunatly I have not been able to find it</li>
+      <li>It is my all time favorite</li>
+      <li>LOVE this scent by</li>
+      <li>I&#x27;ve used this for years I love the smell of it not flowery.</li>
+      <li>With the addition of spicy notes of cypress, zesty bergamot and vetiver with a hint of fine lavender accords, it does so with a pinch more</li>
+      <li>and it still smells great 8 hrs later</li>
+      <li>My Wife and I enjoy the a el of sandalwood...</li>
+      <li>A good mix of various ingredients to highlight the sandalwood and make it more pronounce but not over powering.</li>
+      <li>Across time, countries and empires, sandalwood&#x27;s rich aroma has tantalised and teased.</li>
+      <li>It is truely unique.</li>
+      <li>Ok scent did not use it very often</li>
+      <li>I recently have experienced what is claimed to be pure sandalwood</li>
+      <li>item came quickly and I would recommend this purchase.</li>
+      <li>It has a subtle aroma that is very pleasant.</li>
+      <li>Sandalwood has a distinct fragrance that differentiates it from others and it lasts.  </li>
+      <li>People say it&#x27;s unsex; however I feel it&#x27;s more a masculine scent.</li>
+      <li>Just fresh</li>
+      <li>I love this product, sadly it is no longer available at my local Crabtree &amp; Evelyn store.&lt;br /&gt;&lt;br</li>
+      <li>All in all, very good, long lasting, pleasing to both the wearer and the recipient nose within range.</li>
+      <li>it&#x27;s probably a bit more than sandalwood alone as it is a perfume and not an essential oil.</li>
+      <li>and it was very raw and unrefined as when compared with this scent, which I have already described as most delightful and complex in its effect.</li>
+      <li>I was really in the market for a more pure or different smelling sandalwood scent, however for the price, I really like this.</li>
+      <li>you really want me to rate something, you should not set a minimum number of words in order for me to do it.  </li>
+      <li>This indicates to me that they use essence of oil verses straight alcohol.</li>
+      <li>, thats the real deal.</li>
+      <li>This is far from it!!!</li>
+      <li>At any rate, it is definitely more masculine than some of the other sandalwood colognes.  </li>
+      <li>I stopped buying the new version.</li>
+      <li>Off the official description &amp;#34;Woody, spicy and enduring, Indian Sandalwood is a classic, utterly masculine fragrance.</li>
+      <li>A very masculine sandalwood cologne.</li>
+      <li>Came new in box (NIB) which is exactly what I want for future sale.</li>
+      <li>I was very pleasantly surprised when I found my package waiting for me today.  </li>
+      <li>/&gt;The box is confusing: it says C&amp;E for men on the top, but the side says the sandalwood scent appeals to both men and women.  </li>
+      <li>That being said, the scent left is warm, complex, and intoxicating.&lt;br /&gt;&lt;br</li>
+      <li>I occasionally use a sandalwood after shave balm made from another manufacturer that really enhances this product; I am going to try their balm next.</li>
+      <li>I was expecting the sultry, exotic, heady scent of C&amp;E&#x27;s Sandalwood last purchased a few years ago and found this one to be a watered down version.</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> Happy Customer!</li>
+<li> Amazon has a great price on it !</li>
+<li> Not overbearing and has a wonderful manly pleasant spice smell.  </li>
+<li> Great scent, man or woman, actually.&lt;br /&gt;------&lt;br /&gt;Later...</li>
+<li> The fragrance is great, but the sprayer on the bottle is defective.  </li>
+<li> This is a very warm, sensuous fragrance that either a man or a woman could wear.  </li>
+<li> It pleasantly lasts for hours (6+).  </li>
+<li> Price was excellent - below $30 and had free shipping.</li>
+<li> Good price for a quality product.  </li>
+<li> Good purchase and my wife loves it.</li>
+<li> A good alternative is Chill from Curve.</li>
+<li> is amazing stuff.</li>
+<li> Love it.</li>
+<li> this is my favorite sandalwood fragrance.</li>
+<li> I have been looking for Sandalo from Zara and unfortunatly I have not been able to find it</li>
+<li> It is my all time favorite</li>
+<li> LOVE this scent by</li>
+<li> I&#x27;ve used this for years I love the smell of it not flowery.</li>
+<li> With the addition of spicy notes of cypress, zesty bergamot and vetiver with a hint of fine lavender accords, it does so with a pinch more</li>
+<li> and it still smells great 8 hrs later</li>
+<li> My Wife and I enjoy the a el of sandalwood...</li>
+<li> A good mix of various ingredients to highlight the sandalwood and make it more pronounce but not over powering.</li>
+<li> Across time, countries and empires, sandalwood&#x27;s rich aroma has tantalised and teased.</li>
+<li> It is truely unique.</li>
+<li> Ok scent did not use it very often</li>
+<li> I recently have experienced what is claimed to be pure sandalwood</li>
+<li> item came quickly and I would recommend this purchase.</li>
+<li> It has a subtle aroma that is very pleasant.</li>
+<li> Sandalwood has a distinct fragrance that differentiates it from others and it lasts.  </li>
+<li> People say it&#x27;s unsex; however I feel it&#x27;s more a masculine scent.</li>
+<li> Just fresh</li>
+<li> I love this product, sadly it is no longer available at my local Crabtree &amp; Evelyn store.&lt;br /&gt;&lt;br</li>
+<li> All in all, very good, long lasting, pleasing to both the wearer and the recipient nose within range.</li>
+<li> it&#x27;s probably a bit more than sandalwood alone as it is a perfume and not an essential oil.</li>
+<li> and it was very raw and unrefined as when compared with this scent, which I have already described as most delightful and complex in its effect.</li>
+<li> I was really in the market for a more pure or different smelling sandalwood scent, however for the price, I really like this.</li>
+<li> you really want me to rate something, you should not set a minimum number of words in order for me to do it.  </li>
+<li> This indicates to me that they use essence of oil verses straight alcohol.</li>
+<li> , thats the real deal.</li>
+<li> This is far from it!!!</li>
+<li> At any rate, it is definitely more masculine than some of the other sandalwood colognes.  </li>
+<li> I stopped buying the new version.</li>
+<li> Off the official description &amp;#34;Woody, spicy and enduring, Indian Sandalwood is a classic, utterly masculine fragrance.</li>
+<li> A very masculine sandalwood cologne.</li>
+<li> Came new in box (NIB) which is exactly what I want for future sale.</li>
+<li> I was very pleasantly surprised when I found my package waiting for me today.  </li>
+<li> /&gt;The box is confusing: it says C&amp;E for men on the top, but the side says the sandalwood scent appeals to both men and women.  </li>
+<li> That being said, the scent left is warm, complex, and intoxicating.&lt;br /&gt;&lt;br</li>
+<li> I occasionally use a sandalwood after shave balm made from another manufacturer that really enhances this product; I am going to try their balm next.</li>
+<li> I was expecting the sultry, exotic, heady scent of C&amp;E&#x27;s Sandalwood last purchased a few years ago and found this one to be a watered down version.</li>
+<li> Only problem is it doesn&#x27;t last long enough,&lt;br /&gt;&lt;br</li>
+<li> /&gt;I would amend that as it strikes me as not entirely masculine, au contraire, no.</li>
+<li> This sandalwood scent gets drowned out by the overtones of spice shortly after application.  </li>
+<li> Smell faded easily,I think its not original sandalwood that im expecting</li>
+<li> Not sure what has happened to the formula or maybe it&#x27;s just a sign of the times.</li>
+<li> aromatic but not overwhelming.</li>
+<li> The scent is complex; earthy, spicy, with hints of clove and sandalwood.</li>
+<li> and I&#x27;m afraid I&#x27;m wasting the product.</li>
+<li> It is so terrible</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> CosmeticHall rocks!!  I placed my order and within 2 days I received my product, even though I was emailed telling me is would to arrive a week later.  I was very pleasantly surprised when I found my package waiting for me today.  Thank you!</li>
+    <li> I&#x27;ve used this for years I love the smell of it not flowery. Just fresh</li>
+    <li> My Wife and I enjoy the a el of sandalwood... This is far from it!!! It is so terrible I had to give it away. I have been looking for Sandalo from Zara and unfortunatly I have not been able to find it, thats the real deal. A good alternative is Chill from Curve.</li>
+    <li> Ok scent did not use it very often</li>
+    <li> It does not the same aroma as the one I bought from the store. It feels diluted and lost all its fragrance.</li>
+    <li> A very masculine sandalwood cologne. A good mix of various ingredients to highlight the sandalwood and make it more pronounce but not over powering. All in all, very good, long lasting, pleasing to both the wearer and the recipient nose within range.</li>
+    <li> this is my favorite sandalwood fragrance. my husband wears it every day. it lasts all day. aromatic but not overwhelming.</li>
+    <li> It was a gift for my daughter for her birthday....she has been using it for years and loves it!  Amazon has a great price on it !</li>
+    <li> The scent is complex; earthy, spicy, with hints of clove and sandalwood. I was really in the market for a more pure or different smelling sandalwood scent, however for the price, I really like this. People say it&#x27;s unsex; however I feel it&#x27;s more a masculine scent. I used 2 sprays on my skin and 3-4 sprayed on my clothing this morning and it still smells great 8 hrs later (I walk 1 mile to work). This indicates to me that they use essence of oil verses straight alcohol. I occasionally use a sandalwood after shave balm made from another manufacturer that really enhances this product; I am going to try their balm next. Happy Customer!</li>
+    <li> The fragrance is great, but the sprayer on the bottle is defective.  I have a heck of a time trying to use it and I&#x27;m afraid I&#x27;m wasting the product.</li>
+    <li> Good price for a quality product.  Sandalwood has a distinct fragrance that differentiates it from others and it lasts.  Love it.</li>
+    <li> This EDT is not the same fragrance that it used to be..Yrs ago it was listed as containing Mysore sandlewood. I stopped buying the new version.</li>
+    <li> This is a very warm, sensuous fragrance that either a man or a woman could wear.  It has a subtle aroma that is very pleasant.</li>
+    <li> Something has changed here. I was expecting the sultry, exotic, heady scent of C&amp;E&#x27;s Sandalwood last purchased a few years ago and found this one to be a watered down version. Not sure what has happened to the formula or maybe it&#x27;s just a sign of the times.</li>
+    <li> Not impressed, mediocre at best.  Was it watered-down?&lt;br /&gt;2nd time trying purchase sandalwood perfume online, both disappointed.&lt;br /&gt;Change course. Only shop at brick mortar store for perfume from now on.</li>
+    <li> LOVE this scent by E&amp;C. There are 2 versions - one made from the USA and one from UK. These were the USA ones and had the identical scent. Came new in box (NIB) which is exactly what I want for future sale. Price was excellent - below $30 and had free shipping.</li>
+    <li> This sandalwood scent gets drowned out by the overtones of spice shortly after application.  That being said, the scent left is warm, complex, and intoxicating.&lt;br /&gt;&lt;br /&gt;The box is confusing: it says C&amp;E for men on the top, but the side says the sandalwood scent appeals to both men and women.  I assume its for men but could work for women.  At any rate, it is definitely more masculine than some of the other sandalwood colognes.  It pleasantly lasts for hours (6+).  Good purchase and my wife loves it.</li>
+    <li> Note this is for the &#x27;Crabtree &amp; Evelyn Sandalwood&#x27; and NOT &#x27;Crabtree &amp; Evelyn Indian Sandalwood&#x27;. Amazon is listing this review in both places.&lt;br /&gt;This is amazing stuff. it&#x27;s probably a bit more than sandalwood alone as it is a perfume and not an essential oil. That said, i never tire of this. Off the official description &amp;#34;Woody, spicy and enduring, Indian Sandalwood is a classic, utterly masculine fragrance. Across time, countries and empires, sandalwood&#x27;s rich aroma has tantalised and teased. With the addition of spicy notes of cypress, zesty bergamot and vetiver with a hint of fine lavender accords, it does so with a pinch more panache.:&lt;br /&gt;&lt;br /&gt;I would amend that as it strikes me as not entirely masculine, au contraire, no. But you will find nothing like this at any department store women&#x27; or men&#x27;s perfume counter. I would second that woody, spicy with a bit of floral. Great scent, man or woman, actually.&lt;br /&gt;------&lt;br /&gt;Later...I recently have experienced what is claimed to be pure sandalwood and it was very raw and unrefined as when compared with this scent, which I have already described as most delightful and complex in its effect.</li>
+    <li> Only problem is it doesn&#x27;t last long enough,&lt;br /&gt;&lt;br /&gt;If you really want me to rate something, you should not set a minimum number of words in order for me to do it.  The stars should be enough.</li>
+    <li> Smell faded easily,I think its not original sandalwood that im expecting cause I have it before no wonder I dont have chance to select or test</li>
+    <li> Not overbearing and has a wonderful manly pleasant spice smell.  I use it with the after shave balm.  It is truely unique.</li>
+    <li> I love this product, sadly it is no longer available at my local Crabtree &amp; Evelyn store.&lt;br /&gt;&lt;br /&gt;This item came quickly and I would recommend this purchase.</li>
+    <li> I&#x27;ve worn this scent since the 80&#x27;s...It is my all time favorite and I can&#x27;t imagine not having it. I do wish they still made the talcum powder</li>
+</ol>
+
+
+
+

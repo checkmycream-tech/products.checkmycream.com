@@ -1,0 +1,179 @@
+---
+title: Supersmile Professional Whitening Toothpaste,
+description: Supersmile Professional Whitening Toothpaste,
+author: Suvojit Manna,
+tags: Supersmile Professional Whitening Toothpaste,
+publishedAt: Fri Jan 10 2020 15:00:01 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:01 GMT+0530 (India Standard Time),
+---
+
+# [Supersmile Professional Whitening Toothpaste](https://products.checkmycream.com/products/Supersmile-Professional-Whitening-Toothpaste.html)
+
+### Positive Reviews
+
+<ol>
+      <li>LOL</li>
+      <li>I have been happy with all of their products.</li>
+      <li>Great Product, I been using supersmile toothpaste for twenty years .</li>
+      <li>The cinnamon flavor was great fro freshening breath though.</li>
+      <li>service were good.</li>
+      <li>The Supersmile Cinnamon Burst Toothpaste is very refreshing.  </li>
+      <li>I love Supersmile toothpaste!</li>
+      <li>It&#x27;s refreshing!</li>
+      <li>This toothpaste has a pleasant texture and mild flavor.</li>
+      <li>I have found that bleaching works best for me overall, but Supersmile is certainly the best whitening toothpaste currently available.</li>
+      <li>It applied very smoothly.</li>
+      <li>:)</li>
+      <li>I have always been extremely satisfied with the quality of their products.</li>
+      <li>It was more runny and liquid than the Mandarin Mint and had a better mouth-feel.</li>
+      <li>I cannot say that I actually love the whitening in Supersmile toothpastes, but they do not contain silica or SLS.</li>
+      <li>I love the cinnamon flavor.</li>
+      <li>I love it</li>
+      <li>Okay.  </li>
+      <li>Like the mint better</li>
+      <li>Here are my mandatory 16 words to be able to send this review.&lt;br /&gt;Bad</li>
+      <li>I love Supersmile products...</li>
+      <li>However, this flavor is more of a cloves taste than cinnamon.</li>
+      <li>Will purchase more.</li>
+      <li>I love this toothpaste.  </li>
+      <li>Your results may be better than mine, because everyone&#x27;s teeth varies in ease of whitening.</li>
+      <li>For the best results though, one has to use this toothpaste in conjunction with bleaching, proper dietary habits, flossing, etc.</li>
+      <li>I love it.  </li>
+      <li>This cinnamon flavor tastes great, whitens teeth, and doesn&#x27;t make my teeth feel sensitive.</li>
+      <li>Love this toothpaste, it&#x27;s my absolute favorite!</li>
+      <li>I have considered that with my complexion (Asian), my teeth will not look as bright as if my skin was maybe more tan to produce a contrast.</li>
+      <li>Even doing all the above, I have never gotten my teeth to the dazzling whiteness, as seen on TV.</li>
+      <li>It makes my mouth feel clean just like the original supersmile toothpaste.  </li>
+      <li>Not my favorite flavor but certainly is a burst of flavor.</li>
+      <li>This brand is our favorite because teeth feel so much cleaner.</li>
+      <li>The cinnamon flavor in this is so bold that I smelled it through Amazon&#x27;s packaging.</li>
+      <li>This cinnamon toothpaste is a very savory and surprisingly almost natural tasting toothpaste.</li>
+      <li>It&#x27;s a nice change from the overwhelming mint flavor of other toothpastes, and I can tell the difference in my teeth when I use it consistently.</li>
+      <li>I will comment, however, that the flavor is not quite the same kind of cinnamon found in cinnamon candies, nor will your breath smell as though you&#x27;ve been chewing on a cinnamon stick.</li>
+      <li>This product has a nice cinnamon taste, and it is purportedly easier on ones tooth enamel than regular toothpaste.</li>
+      <li>You can see  your dirt being washed right off your toothbrush.</li>
+      <li>It wasn&#x27;t a hot cinnamon...</li>
+      <li>The flavor is just right, not overpowering but very tasty.  </li>
+      <li>This toothpaste leaves my teeth so smooth and clean feeling, like nothing else out there and with absolutely no sensitivity issues.</li>
+      <li>how do you really know if your teeth are whiter ?</li>
+      <li>It really works as advertised</li>
+      <li>I find that with repeated usage it will lighten the teeth several shades, so it does work better than regular whitening toothpastes.</li>
+      <li>One tube really goes a long way, and with Amazon&#x27;s discounted price this toothpaste is definitely a worthy investment.  </li>
+      <li>Although the Supersmile mint flavor sensitizes my teeth, it also whitens a little better.</li>
+      <li>As for the whitening, it works to lighten maybe a few shades at the most.</li>
+      <li>In addition, golden tones may accentuate yellow hues, even if they were not that noticeable on another person.</li>
+      <li>: It did not make my teeth feel sensitive.</li>
+      <li>I also didnt notice the whitening with this one nearly as drastically.</li>
+      <li>Regardless, this is definitely a natural improvement to my teeth before using Supersmile.</li>
+      <li>SuperSmile has always been worth the price to me but the sometimes I&#x27;m just not in the mood for the overly minty flavors (ie icy mint)</li>
+      <li>my teeth are nice and white, you only need to use a little bit, and it last a long time.</li>
+      <li>Definitely not bad, just a little different.  </li>
+      <li>Flavor aside, the toothpaste on your dry toothbrush somewhat glides onto your teeth with normal application.</li>
+      <li>well (part of the tube was liquid and part was super hard paste material).</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> LOL</li>
+<li> I have been happy with all of their products.</li>
+<li> Great Product, I been using supersmile toothpaste for twenty years .</li>
+<li> The cinnamon flavor was great fro freshening breath though.</li>
+<li> service were good.</li>
+<li> The Supersmile Cinnamon Burst Toothpaste is very refreshing.  </li>
+<li> I love Supersmile toothpaste!</li>
+<li> It&#x27;s refreshing!</li>
+<li> This toothpaste has a pleasant texture and mild flavor.</li>
+<li> I have found that bleaching works best for me overall, but Supersmile is certainly the best whitening toothpaste currently available.</li>
+<li> It applied very smoothly.</li>
+<li> :)</li>
+<li> I have always been extremely satisfied with the quality of their products.</li>
+<li> It was more runny and liquid than the Mandarin Mint and had a better mouth-feel.</li>
+<li> I cannot say that I actually love the whitening in Supersmile toothpastes, but they do not contain silica or SLS.</li>
+<li> I love the cinnamon flavor.</li>
+<li> I love it</li>
+<li> Okay.  </li>
+<li> Like the mint better</li>
+<li> Here are my mandatory 16 words to be able to send this review.&lt;br /&gt;Bad</li>
+<li> I love Supersmile products...</li>
+<li> However, this flavor is more of a cloves taste than cinnamon.</li>
+<li> Will purchase more.</li>
+<li> I love this toothpaste.  </li>
+<li> Your results may be better than mine, because everyone&#x27;s teeth varies in ease of whitening.</li>
+<li> For the best results though, one has to use this toothpaste in conjunction with bleaching, proper dietary habits, flossing, etc.</li>
+<li> I love it.  </li>
+<li> This cinnamon flavor tastes great, whitens teeth, and doesn&#x27;t make my teeth feel sensitive.</li>
+<li> Love this toothpaste, it&#x27;s my absolute favorite!</li>
+<li> I have considered that with my complexion (Asian), my teeth will not look as bright as if my skin was maybe more tan to produce a contrast.</li>
+<li> Even doing all the above, I have never gotten my teeth to the dazzling whiteness, as seen on TV.</li>
+<li> It makes my mouth feel clean just like the original supersmile toothpaste.  </li>
+<li> Not my favorite flavor but certainly is a burst of flavor.</li>
+<li> This brand is our favorite because teeth feel so much cleaner.</li>
+<li> The cinnamon flavor in this is so bold that I smelled it through Amazon&#x27;s packaging.</li>
+<li> This cinnamon toothpaste is a very savory and surprisingly almost natural tasting toothpaste.</li>
+<li> It&#x27;s a nice change from the overwhelming mint flavor of other toothpastes, and I can tell the difference in my teeth when I use it consistently.</li>
+<li> I will comment, however, that the flavor is not quite the same kind of cinnamon found in cinnamon candies, nor will your breath smell as though you&#x27;ve been chewing on a cinnamon stick.</li>
+<li> This product has a nice cinnamon taste, and it is purportedly easier on ones tooth enamel than regular toothpaste.</li>
+<li> You can see  your dirt being washed right off your toothbrush.</li>
+<li> It wasn&#x27;t a hot cinnamon...</li>
+<li> The flavor is just right, not overpowering but very tasty.  </li>
+<li> This toothpaste leaves my teeth so smooth and clean feeling, like nothing else out there and with absolutely no sensitivity issues.</li>
+<li> how do you really know if your teeth are whiter ?</li>
+<li> It really works as advertised</li>
+<li> I find that with repeated usage it will lighten the teeth several shades, so it does work better than regular whitening toothpastes.</li>
+<li> One tube really goes a long way, and with Amazon&#x27;s discounted price this toothpaste is definitely a worthy investment.  </li>
+<li> Although the Supersmile mint flavor sensitizes my teeth, it also whitens a little better.</li>
+<li> As for the whitening, it works to lighten maybe a few shades at the most.</li>
+<li> In addition, golden tones may accentuate yellow hues, even if they were not that noticeable on another person.</li>
+<li> : It did not make my teeth feel sensitive.</li>
+<li> I also didnt notice the whitening with this one nearly as drastically.</li>
+<li> Regardless, this is definitely a natural improvement to my teeth before using Supersmile.</li>
+<li> SuperSmile has always been worth the price to me but the sometimes I&#x27;m just not in the mood for the overly minty flavors (ie icy mint)</li>
+<li> my teeth are nice and white, you only need to use a little bit, and it last a long time.</li>
+<li> Definitely not bad, just a little different.  </li>
+<li> Flavor aside, the toothpaste on your dry toothbrush somewhat glides onto your teeth with normal application.</li>
+<li> well (part of the tube was liquid and part was super hard paste material).</li>
+<li> so I didn&#x27;t waste my money on an entire new set.  </li>
+<li> I did not find it unpleasant (and in contrast, I find a low-key flavor more compatible with breakfast than something overpoweringly minty).  </li>
+<li> Supersmile is expensive toothpaste, but the question is, is it worth the price?</li>
+<li> I have tried colgate and other name brands</li>
+<li> Tried the toothpaste and can&#x27;t wait to try the other products.</li>
+<li> After a few brush strokes, however, it does foam with your saliva.  </li>
+<li> It slowly whitens your teeth without the gum sensitivity I was getting from other bleaching products.</li>
+<li> This one was a bit disappointing due to it seemed not to be mixed</li>
+<li> I can eat and drink cold items without feeling pangs in the same why other bleaching toothpastes have.  </li>
+<li> is very subtle.</li>
+<li> The downside is that it is expensive, and I don&#x27;t think that it is the miracle product as portrayed on infomercials.</li>
+<li> I like the way it cleans my teeth, but my husband says it makes my breath stink very badly.  </li>
+<li> Maybe it&#x27;s just me, but this flavor is disgusting</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> I like the way it cleans my teeth, but my husband says it makes my breath stink very badly.  I had to quit using it.</li>
+    <li> I love Supersmile toothpaste! I have always been extremely satisfied with the quality of their products. This one was a bit disappointing due to it seemed not to be mixed well (part of the tube was liquid and part was super hard paste material). I also didnt notice the whitening with this one nearly as drastically. The cinnamon flavor was great fro freshening breath though.</li>
+    <li> One tube really goes a long way, and with Amazon&#x27;s discounted price this toothpaste is definitely a worthy investment.  I will comment, however, that the flavor is not quite the same kind of cinnamon found in cinnamon candies, nor will your breath smell as though you&#x27;ve been chewing on a cinnamon stick. The aroma itself is perplexing, but I know for a fact it&#x27;s not cinnamon. I did not find it unpleasant (and in contrast, I find a low-key flavor more compatible with breakfast than something overpoweringly minty).  Flavor aside, the toothpaste on your dry toothbrush somewhat glides onto your teeth with normal application. After a few brush strokes, however, it does foam with your saliva.  It really works as advertised: It did not make my teeth feel sensitive. I can eat and drink cold items without feeling pangs in the same why other bleaching toothpastes have.  As for the whitening, it works to lighten maybe a few shades at the most. I noticed some improvement around 2 weeks after use, but I worry this may have been a placebo effect. By now (one month later), my teeth does look as though it got two shades lighter, and it also seems that this may be the limit to its lightening properties. I have considered that with my complexion (Asian), my teeth will not look as bright as if my skin was maybe more tan to produce a contrast. In addition, golden tones may accentuate yellow hues, even if they were not that noticeable on another person. Regardless, this is definitely a natural improvement to my teeth before using Supersmile.</li>
+    <li> I have been using this brand for a year now and my teeth are whiter. It is pricy. I prefer the cinnamon flavor. I have tried colgate and other name brands but they didn&#x27;t whiten my teeth, even though they promised to do so.</li>
+    <li> This brand is our favorite because teeth feel so much cleaner. The baking soda is non abrasive cleaner. However, this flavor is more of a cloves taste than cinnamon. Not my favorite flavor but certainly is a burst of flavor.</li>
+    <li> I love this toothpaste.  The flavor is just right, not overpowering but very tasty.  I have been happy with all of their products.</li>
+    <li> This cinnamon flavor tastes great, whitens teeth, and doesn&#x27;t make my teeth feel sensitive. Although the Supersmile mint flavor sensitizes my teeth, it also whitens a little better.</li>
+    <li> I love it.  Teeth are getting whiter.  Tried the toothpaste and can&#x27;t wait to try the other products. Buy it</li>
+    <li> Should make the Gum in this flavor. It&#x27;s refreshing! Will purchase more. This is the 2nd step of a 3 step program.</li>
+    <li> Really works, brightens smiles in a few uses. You can see  your dirt being washed right off your toothbrush. Yummy!</li>
+    <li> This toothpaste has a pleasant texture and mild flavor. I think the &amp;#34;burst&amp;#34; is a bit of an exaggeration! It&#x27;s a nice change from the overwhelming mint flavor of other toothpastes, and I can tell the difference in my teeth when I use it consistently.</li>
+    <li> Okay.  Like the mint better</li>
+    <li> SuperSmile has always been worth the price to me but the sometimes I&#x27;m just not in the mood for the overly minty flavors (ie icy mint) Cinnamon burst does the trick and the cinnamon is very subtle.</li>
+    <li> Great Product, I been using supersmile toothpaste for twenty years . I love it my teeth are nice and white, you only need to use a little bit, and it last a long time. I love the cinnamon flavor.</li>
+    <li> This cinnamon toothpaste is a very savory and surprisingly almost natural tasting toothpaste. I cannot say that I actually love the whitening in Supersmile toothpastes, but they do not contain silica or SLS. The cinnamon flavor in this is so bold that I smelled it through Amazon&#x27;s packaging. The essential oils were leaking through the metal tab on the tubes opening. It was more runny and liquid than the Mandarin Mint and had a better mouth-feel. It applied very smoothly.</li>
+    <li> I like it.  It slowly whitens your teeth without the gum sensitivity I was getting from other bleaching products. :)</li>
+    <li> Supersmile is expensive toothpaste, but the question is, is it worth the price? Answer, maybe. I have used this product off and on for several years. I find that with repeated usage it will lighten the teeth several shades, so it does work better than regular whitening toothpastes. For the best results though, one has to use this toothpaste in conjunction with bleaching, proper dietary habits, flossing, etc. for the overall whitest teeth. Even doing all the above, I have never gotten my teeth to the dazzling whiteness, as seen on TV. I guess for that one must go to veneers, sigh. This product has a nice cinnamon taste, and it is purportedly easier on ones tooth enamel than regular toothpaste. The downside is that it is expensive, and I don&#x27;t think that it is the miracle product as portrayed on infomercials. Your results may be better than mine, because everyone&#x27;s teeth varies in ease of whitening. I have found that bleaching works best for me overall, but Supersmile is certainly the best whitening toothpaste currently available. My suggestion is to give it a try and see how it works for you.</li>
+    <li> I sometimes wonder if simple baking soda from time to time would do the same thing. Companies charge big prices for item such as this.&lt;br /&gt;&lt;br /&gt;The taste if alright, but how do you really know if your teeth are whiter ? Come on now.</li>
+    <li> Here are my mandatory 16 words to be able to send this review.&lt;br /&gt;Bad system for people to have to do this now.&lt;br /&gt;Product and service were good.</li>
+    <li> I love Supersmile products... I am on auto-delivery with QVC for the supersize set of the toothpaste and accelerator.  It seems that the accelerator always lasts longer then the toothpaste in the set so I wanted to buy a separate toothpaste so I didn&#x27;t waste my money on an entire new set.  The Supersmile Cinnamon Burst Toothpaste is very refreshing.  It makes my mouth feel clean just like the original supersmile toothpaste.  The cinnamon does at an extra burst of flavor to the monotonous chore though.  It tastes a lot like chewing on Trident Cinnamon Gum.  Definitely not bad, just a little different.  If you like cinnamon gum, go for it.  It wasn&#x27;t a hot cinnamon...I noticed no sensitivity on my gums as I am one that can&#x27;t use white strips because of the gum sensitivity.</li>
+    <li> Love this toothpaste, it&#x27;s my absolute favorite! This toothpaste leaves my teeth so smooth and clean feeling, like nothing else out there and with absolutely no sensitivity issues.Maybe it&#x27;s just me, but this flavor is disgusting LOL</li>
+</ol>
+
+
+
+

@@ -1,0 +1,105 @@
+---
+title: Victoria&#x27;s Secret Sexy Little Things Love Rocks Scented Body Lotion,
+description: Victoria&#x27;s Secret Sexy Little Things Love Rocks Scented Body Lotion,
+author: Suvojit Manna,
+tags: Victoria&#x27;s Secret Sexy Little Things Love Rocks Scented Body Lotion,
+publishedAt: Fri Jan 10 2020 15:00:02 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:02 GMT+0530 (India Standard Time),
+---
+
+# [Victoria&#x27;s Secret Sexy Little Things Love Rocks Scented Body Lotion](https://products.checkmycream.com/products/Victoria&#x27;s-Secret-Sexy-Little-Things-Love-Rocks-Scented-Body-Lotion.html)
+
+### Positive Reviews
+
+<ol>
+      <li>Smells awesome!</li>
+      <li>Why did they ever discontinue this magnificent scent?!</li>
+      <li>one of the best fragrance vs has out there...</li>
+      <li>Smell so good!</li>
+      <li>it was a great gift idea.</li>
+      <li>Also it makes a great gift for someone you care about.</li>
+      <li>I love this perfume lotion it stays on for hours great  </li>
+      <li>Very pleased with the timing and how my order was delivered.</li>
+      <li>Gifted it to a friend and she loved it...</li>
+      <li>Thinking it would be a nice floral smell</li>
+      <li>and i love this scent</li>
+      <li>I&#x27;m sure my step daughter will love this lotion.</li>
+      <li>I&#x27;m so glad I found it here</li>
+      <li>This is my moms favorite scent, and since its been discontinued I found this on here and had to get it for her.</li>
+      <li>I love this scent, I can&#x27;t believe they discontinued it.</li>
+      <li>LOVE this lotion...</li>
+      <li>, i was excited to find it and will probably buy more.</li>
+      <li>It was easy to place my order.</li>
+      <li>Love it, thank you for the quick delivery</li>
+      <li>Not bad at all.</li>
+      <li>Love the smell ,not oily last all day. ..</li>
+      <li>I&#x27;m in love with it and hope they&#x27;ll bring it back.</li>
+      <li>Fast shipping, quality product.</li>
+      <li>It came fairly fast as well.</li>
+      <li>very her...</li>
+      <li>was glad to find this...very hard to get at the mall.</li>
+      <li>I was so bummed out when Victoria Secret stopped carrying the Love Rocks line.</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> Smells awesome!</li>
+<li> Why did they ever discontinue this magnificent scent?!</li>
+<li> one of the best fragrance vs has out there...</li>
+<li> Smell so good!</li>
+<li> it was a great gift idea.</li>
+<li> Also it makes a great gift for someone you care about.</li>
+<li> I love this perfume lotion it stays on for hours great  </li>
+<li> Very pleased with the timing and how my order was delivered.</li>
+<li> Gifted it to a friend and she loved it...</li>
+<li> Thinking it would be a nice floral smell</li>
+<li> and i love this scent</li>
+<li> I&#x27;m sure my step daughter will love this lotion.</li>
+<li> I&#x27;m so glad I found it here</li>
+<li> This is my moms favorite scent, and since its been discontinued I found this on here and had to get it for her.</li>
+<li> I love this scent, I can&#x27;t believe they discontinued it.</li>
+<li> LOVE this lotion...</li>
+<li> , i was excited to find it and will probably buy more.</li>
+<li> It was easy to place my order.</li>
+<li> Love it, thank you for the quick delivery</li>
+<li> Not bad at all.</li>
+<li> Love the smell ,not oily last all day. ..</li>
+<li> I&#x27;m in love with it and hope they&#x27;ll bring it back.</li>
+<li> Fast shipping, quality product.</li>
+<li> It came fairly fast as well.</li>
+<li> very her...</li>
+<li> was glad to find this...very hard to get at the mall.</li>
+<li> I was so bummed out when Victoria Secret stopped carrying the Love Rocks line.</li>
+<li> This is hands down my favorite lotion..when Victoria Secret quit carrying it , I was bummed:( Thank you so much for carrying it and It was shipped very quickly!</li>
+<li> Wish I could buy it at the Victoria Secret Store...</li>
+<li> Victoria&#x27;s Secret quit carrying this product.  </li>
+<li> To me it smells like a mans cologne very disappointed.</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> This is hands down my favorite lotion..when Victoria Secret quit carrying it , I was bummed:( Thank you so much for carrying it and It was shipped very quickly!</li>
+    <li> I love this perfume lotion it stays on for hours great  Also it makes a great gift for someone you care about. I would recommend it!</li>
+    <li> I love this scent, I can&#x27;t believe they discontinued it. I&#x27;m so glad I found it here</li>
+    <li> Love the smell ,not oily last all day. ..one of the best fragrance vs has out there...will keep buying this. .</li>
+    <li> Why did they ever discontinue this magnificent scent?! I&#x27;m in love with it and hope they&#x27;ll bring it back. I&#x27;ve bought a total of 7 bottles already on amazon.</li>
+    <li> This is my favorite fragrance, and I was sad when the stores stops selling it.  Now I&#x27;m on cloud nine...</li>
+    <li> Love it, thank you for the quick delivery</li>
+    <li> Wife loves it and so do I !</li>
+    <li> To me it smells like a mans cologne very disappointed. Thinking it would be a nice floral smell it being a woman&#x27;s lotion.</li>
+    <li> Fast shipping, quality product.</li>
+    <li> Victoria&#x27;s Secret quit carrying this product.  Would recommend it.  Had several compliments of this and their body spray.  Would recommend to anyone.  Received before the scheduled delivery date.</li>
+    <li> was glad to find this...very hard to get at the mall. it was a great gift idea.</li>
+    <li> I was so bummed out when Victoria Secret stopped carrying the Love Rocks line. I decided to check Amazon. It was easy to place my order. Very pleased with the timing and how my order was delivered. LOVE this lotion...just waiting for my body spray. I will definitely be using Amazon for my future orders.</li>
+    <li> Smells awesome! Product prolongs scent if used along with perfume.  Wish I could buy it at the Victoria Secret Store... Big fan!</li>
+    <li> This is my moms favorite scent, and since its been discontinued I found this on here and had to get it for her. Of course she loves it. It came fairly fast as well.</li>
+    <li> Gifted it to a friend and she loved it...very her...</li>
+    <li> Smell so good! I will recommend this a friend... I&#x27;m sure my step daughter will love this lotion. Not bad at all.</li>
+    <li> couldnt find it anywhere and i love this scent, i was excited to find it and will probably buy more.</li>
+</ol>
+
+
+
+

@@ -1,0 +1,86 @@
+---
+title: Betty Dain Tough Love Shampoo Cape, Velcro Closure, 1 Pound,
+description: Betty Dain Tough Love Shampoo Cape, Velcro Closure, 1 Pound,
+author: Suvojit Manna,
+tags: Betty Dain Tough Love Shampoo Cape, Velcro Closure, 1 Pound,
+publishedAt: Fri Jan 10 2020 14:59:52 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:59:52 GMT+0530 (India Standard Time),
+---
+
+# [Betty Dain Tough Love Shampoo Cape, Velcro Closure, 1 Pound](https://products.checkmycream.com/products/Betty-Dain-Tough-Love-Shampoo-Cape-Velcro-Closure-1-Pound.html)
+
+### Positive Reviews
+
+<ol>
+      <li>it works great!</li>
+      <li>With the velcro closure, this was perfect for arthritic hands!  </li>
+      <li>the price was great</li>
+      <li>Feels great to be able to wash hair in shower again!  </li>
+      <li>I loved the design and</li>
+      <li>For the stylish ladies</li>
+      <li>cute cape and covers every penny</li>
+      <li>In love- wish I had gotten this sooner</li>
+      <li>Its better as a color cape</li>
+      <li>My wife love the look but not the material.</li>
+      <li>Perfect for hair coloring, I just reverse the cape so that the longer side is in the back.</li>
+      <li>She wanted something different from her classmates and this fit the bill perfectly!</li>
+      <li>cheap material, returned</li>
+      <li>Ok but I was expecting different material</li>
+      <li>Thanks.</li>
+      <li>I really needed one of these for when I cut my husband&#x27;s hair...</li>
+      <li>Vivid colors add a lot to the cape.</li>
+      <li>Very cute print but quality was a little less than expected.</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> it works great!</li>
+<li> With the velcro closure, this was perfect for arthritic hands!  </li>
+<li> the price was great</li>
+<li> Feels great to be able to wash hair in shower again!  </li>
+<li> I loved the design and</li>
+<li> For the stylish ladies</li>
+<li> cute cape and covers every penny</li>
+<li> In love- wish I had gotten this sooner</li>
+<li> Its better as a color cape</li>
+<li> My wife love the look but not the material.</li>
+<li> Perfect for hair coloring, I just reverse the cape so that the longer side is in the back.</li>
+<li> She wanted something different from her classmates and this fit the bill perfectly!</li>
+<li> cheap material, returned</li>
+<li> Ok but I was expecting different material</li>
+<li> Thanks.</li>
+<li> I really needed one of these for when I cut my husband&#x27;s hair...</li>
+<li> Vivid colors add a lot to the cape.</li>
+<li> Very cute print but quality was a little less than expected.</li>
+<li> Only con is that it is stiffer than expected.</li>
+<li> so she could shower without getting it wet.  </li>
+<li> Vinyl cape, on the thin side.</li>
+<li> sorry..</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> Looks satin in the picture but it is actually plastic vinyl like a shower curtain, not at all what you expect from the picture</li>
+    <li> For the stylish ladies</li>
+    <li> I don&#x27;t like it... sorry..</li>
+    <li> cute cape and covers every penny</li>
+    <li> My friend needed something to cover a dressing at the clavicle so she could shower without getting it wet.  With the velcro closure, this was perfect for arthritic hands!  Feels great to be able to wash hair in shower again!  Thanks.</li>
+    <li> cheap material, returned</li>
+    <li> Ok but I was expecting different material</li>
+    <li> it gets the job done but is short on the shoulders</li>
+    <li> Just as pictured. Only con is that it is stiffer than expected. Vivid colors add a lot to the cape.</li>
+    <li> Perfect for hair coloring, I just reverse the cape so that the longer side is in the back.</li>
+    <li> My wife love the look but not the material. Its better as a color cape</li>
+    <li> Vinyl cape, on the thin side. Very cute print but quality was a little less than expected.</li>
+    <li> In love- wish I had gotten this sooner</li>
+    <li> She is attending hair school and someone stole some of her supplies.  I loved the design and the price was great so I purchased this for her with the matching apron.  She loves it.</li>
+    <li> I gave to granddaughter who just completed beauty school.</li>
+    <li> My daughter in cosmetology school loves these capes.  I also got her the matching apron to wear when she works outside of school.  She wanted something different from her classmates and this fit the bill perfectly!</li>
+    <li> I really needed one of these for when I cut my husband&#x27;s hair...it works great!</li>
+</ol>
+
+
+
+

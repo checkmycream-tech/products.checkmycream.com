@@ -1,0 +1,281 @@
+---
+title: Listerine Total Care Stain Remover Mouthwash,
+description: Listerine Total Care Stain Remover Mouthwash,
+author: Suvojit Manna,
+tags: Listerine Total Care Stain Remover Mouthwash,
+publishedAt: Fri Jan 10 2020 14:59:55 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:59:55 GMT+0530 (India Standard Time),
+---
+
+# [Listerine Total Care Stain Remover Mouthwash](https://products.checkmycream.com/products/Listerine-Total-Care-Stain-Remover-Mouthwash.html)
+
+### Positive Reviews
+
+<ol>
+      <li>BEST ORAL HYGIENE PRODUCT I HAVE EVER PURCHASED!</li>
+      <li>perfectly clean.&lt;br /&gt;&lt;br</li>
+      <li>product is actually wonderful.  </li>
+      <li>time i try i get incredible tooth aches all over!!!</li>
+      <li>It is the best whitening rinse I&#x27;ve used</li>
+      <li>Plus Whitening is the BEST mouthwash out there that I have found.</li>
+      <li>Its the BEST!!</li>
+      <li>if you&#x27;re listening, Listerine--it would be great if you could isolate that ingredient and substitute something else for it.</li>
+      <li>It does its job with great results.&lt;br /&gt;&lt;br</li>
+      <li>Since when has mouthwash ever tasted good?</li>
+      <li>to the good things.</li>
+      <li>:) Happy customer</li>
+      <li>If you can take it, I&#x27;m sure it&#x27;s great for your teeth.</li>
+      <li>I have used Listerine products for years and have been very pleased.</li>
+      <li>have never gotten better reviews from my dentist!</li>
+      <li>product literally keeps my mouth smelling amazing even after Ive had</li>
+      <li>/&gt;(1)Burn, baby, burn.&lt;br /&gt;(2)Leaves a nice dried-out mouth feel.&lt;br</li>
+      <li>This is part of what makes this rinse so effective.  </li>
+      <li>I am still swollen, and the inside of my mouth is in pain kind of like the way canker sores feel.</li>
+      <li>Don&#x27;t expect to be able to taste anything for a good 30 minutes after using it.&lt;br /&gt;&lt;br</li>
+      <li>I couldn&#x27;t smell yummy delicious things people would normally smell.  </li>
+      <li>dont really care if it doesn&#x27;t prevent gum disease like it claims, but it prevents cavities effectively and is VERY healthy for my teeth!  </li>
+      <li>My teeth feel squeaky clean afterwards, mouth has good breath all day</li>
+      <li>/&gt;It is not the most pleasant tasting, and it does sort of froth up like peroxide does, but that is how it works and it is worth it.</li>
+      <li>, I buy it because of its many advertised features as well.</li>
+      <li>/&gt;After using this for 3 weeks now, my teeth have whitened many shades and are healthier than ever.&lt;br /&gt;&lt;br</li>
+      <li>Still I think it is up to everyone to decide for themselves if they love this product or not.&lt;br /&gt;Take</li>
+      <li>/&gt;i check to see if my teeth have become more whiter or dimmer but to my surprise it dimmed my teeth</li>
+      <li>the most fresh.&lt;br /&gt;After a thorough rinse</li>
+      <li>(incredible sensitive pain)</li>
+      <li>I researched some more and found that some mouthwashes with peroxide causes it.</li>
+      <li>This has to be the most refreshing, and whitening mouthwash i&#x27;ve ever used.</li>
+      <li>I find this product to be just about my favorite mouthwash.</li>
+      <li>I would LOVE a whitening mouthwash, but not one that makes me want to throw up.</li>
+      <li>I will give it a couple more days to heal before I decide to go see a doctor.</li>
+      <li>I however, LOVE to test my limits.</li>
+      <li>To me, it is more than a mouthwash.</li>
+      <li>But after I survived the initial sensations, I found myself really impressed with the feeling of my mouth for the rest of the day (yes!</li>
+      <li>Ok</li>
+      <li>It&#x27;s okay for 10/20 seconds.  </li>
+      <li>My teeth are for sure whiter after 3 weeks of this stuff.</li>
+      <li>You are either going to love it</li>
+      <li>I can&#x27;t believe they are able to sell this in stores.</li>
+      <li>being said, some people will not be able to tolerate the stinging/burning sensation felt when using this product, or they will not be a fan of the foam resulting from the peroxide in the product.</li>
+      <li>Hydrogen peroxide is a very safe and powerful antiseptic and bleaching agent.</li>
+      <li>This is a great product if you can handle the burn, but if you want something lighter yet effective, I&#x27;d go with Listerine Whitening Restoring (in the white bottle)</li>
+      <li>My boyfriend commented on the improving shade of my teeth, too - they are becoming whiter!&lt;br /&gt;&lt;br</li>
+      <li>I love Listerine and use it every time I brush, so I was excited to try this product.  </li>
+      <li>Since it&#x27;s really strong, you can probably get away with it by mixing 75% water.</li>
+      <li>My husband is what&#x27;s called a \\&quot;nontaster\\&quot; and this mouthwash is completely fine to him.&lt;br /&gt;&lt;br</li>
+      <li>Its fine, no problems there.  </li>
+      <li>I did and it worked fine,</li>
+      <li>I don&#x27;t mind the foam that much, though, because I know it&#x27;s largely responsible for a pretty impressive reduction in coffee/tea stains.</li>
+      <li>I also find this to be accurate.</li>
+      <li>and I could tell a HUGE difference.</li>
+      <li>I can&#x27;t even enjoy juices or soda without the taste of this product in my mouth almost making me want to puke.</li>
+      <li>it was light tan and fuzzy</li>
+      <li>I haven&#x27;t thrown it away yet because Im so cheap</li>
+      <li>I love how my mouth feels and how fresh my breath is.</li>
+      <li>I love it very much</li>
+      <li>the original doesn&#x27;t.</li>
+      <li>But I have used original Listerine since 1991</li>
+      <li>don&#x27;t normally write reviews for products, but I honestly feel that this is something special.  </li>
+      <li>It keeps my bands clean and removes staining along the gumline of my teeth.</li>
+      <li>After swishing for 1 minute it really made my mouth feel clean, which is why it gets 1 more star</li>
+      <li>It burns significantly about 10 seconds in, but quickly subsides.</li>
+      <li>My mouth feels super clean after use</li>
+      <li>Overall, I think it&#x27;s a good product</li>
+      <li>It leaves my mouth feeling squeaky clean and fresh ALL DAY.</li>
+      <li>far as the mouth wash is concerned, it is quite true that it is extremely potent.</li>
+      <li>I think this is what surprised me more than the burn.  </li>
+      <li>I, *rarely* ever do this, but I am going to have to agree with the majority of the commenters here.</li>
+      <li>I&#x27;d say it is totally worth the money and getting used to its off putting taste</li>
+      <li>But it is worth it.  </li>
+      <li>tasters,\\&quot; as he or she is actually right on the ball.</li>
+      <li>That&#x27;s just about right for these reviews.&lt;br /&gt;&lt;br</li>
+      <li>The results of this product are not only amazing, but noticeable even after the first use!&lt;br /&gt;I</li>
+      <li>every time I rinse with it, my mouth feels really slippery and clean.  </li>
+      <li>The bands used for Radiance braces are specific and they stain VERY  easily.</li>
+      <li>However, if you love it, your teeth will feel like they&#x27;re in a whole new world.</li>
+      <li>I honestly don&#x27;t know how I stood it for that long.</li>
+      <li>I finished brushing, and filled my gob with my new Listerine plus whitining.... and BAM.</li>
+      <li>my tongue still tingles a little, which is a good sign; it&#x27;s still working.</li>
+      <li>Ive never experienced a more refreshing, squeaky clean, fresh breath fortifying mouth wash.&lt;br /&gt;&lt;br</li>
+      <li>but I wish it hadn&#x27;t after trying it the first time.</li>
+      <li>I used for 3 weeks exactly per the directions.</li>
+      <li>The other day I went to CVS to purchase more of this product and they were all out!  </li>
+      <li>It takes about a full day to two days until food and drink tastes normal again.  </li>
+      <li>i used this product for the first time i rinsed for 1 minute as recommended in the directions</li>
+      <li>now.&lt;br /&gt;&lt;br /&gt;You can really feel the difference!  </li>
+      <li>but it does the exact opposite&lt;</li>
+      <li>It was obvious that I could use the Listerine more than Julie; willingly I uncapped the bottle.</li>
+      <li>first of all it claims to \\&quot;whiten teeth noticeably\\&quot;</li>
+      <li>I bought it to help keep my teeth white, gums healthy and freshen my breath.  </li>
+      <li>I have experimented with more than 5 different types of mouthwash in my lifetime.  </li>
+      <li>I am calling the doctor first thing in the morning and throwing the wash away</li>
+      <li>After about a week of using this once a day I found that my tongue felt like I had burned it on hot coffee.  </li>
+      <li>It would be like sticking your hand on a hot iron and hoping you might get used to it.  </li>
+      <li>I just used it for the first time today</li>
+      <li>Bough this at the store basically because it was the most expensive and had a good looking bottle.  </li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> BEST ORAL HYGIENE PRODUCT I HAVE EVER PURCHASED!</li>
+<li> perfectly clean.&lt;br /&gt;&lt;br</li>
+<li> product is actually wonderful.  </li>
+<li> time i try i get incredible tooth aches all over!!!</li>
+<li> It is the best whitening rinse I&#x27;ve used</li>
+<li> Plus Whitening is the BEST mouthwash out there that I have found.</li>
+<li> Its the BEST!!</li>
+<li> if you&#x27;re listening, Listerine--it would be great if you could isolate that ingredient and substitute something else for it.</li>
+<li> It does its job with great results.&lt;br /&gt;&lt;br</li>
+<li> Since when has mouthwash ever tasted good?</li>
+<li> to the good things.</li>
+<li> :) Happy customer</li>
+<li> If you can take it, I&#x27;m sure it&#x27;s great for your teeth.</li>
+<li> I have used Listerine products for years and have been very pleased.</li>
+<li> have never gotten better reviews from my dentist!</li>
+<li> product literally keeps my mouth smelling amazing even after Ive had</li>
+<li> /&gt;(1)Burn, baby, burn.&lt;br /&gt;(2)Leaves a nice dried-out mouth feel.&lt;br</li>
+<li> This is part of what makes this rinse so effective.  </li>
+<li> I am still swollen, and the inside of my mouth is in pain kind of like the way canker sores feel.</li>
+<li> Don&#x27;t expect to be able to taste anything for a good 30 minutes after using it.&lt;br /&gt;&lt;br</li>
+<li> I couldn&#x27;t smell yummy delicious things people would normally smell.  </li>
+<li> dont really care if it doesn&#x27;t prevent gum disease like it claims, but it prevents cavities effectively and is VERY healthy for my teeth!  </li>
+<li> My teeth feel squeaky clean afterwards, mouth has good breath all day</li>
+<li> /&gt;It is not the most pleasant tasting, and it does sort of froth up like peroxide does, but that is how it works and it is worth it.</li>
+<li> , I buy it because of its many advertised features as well.</li>
+<li> /&gt;After using this for 3 weeks now, my teeth have whitened many shades and are healthier than ever.&lt;br /&gt;&lt;br</li>
+<li> Still I think it is up to everyone to decide for themselves if they love this product or not.&lt;br /&gt;Take</li>
+<li> /&gt;i check to see if my teeth have become more whiter or dimmer but to my surprise it dimmed my teeth</li>
+<li> the most fresh.&lt;br /&gt;After a thorough rinse</li>
+<li> (incredible sensitive pain)</li>
+<li> I researched some more and found that some mouthwashes with peroxide causes it.</li>
+<li> This has to be the most refreshing, and whitening mouthwash i&#x27;ve ever used.</li>
+<li> I find this product to be just about my favorite mouthwash.</li>
+<li> I would LOVE a whitening mouthwash, but not one that makes me want to throw up.</li>
+<li> I will give it a couple more days to heal before I decide to go see a doctor.</li>
+<li> I however, LOVE to test my limits.</li>
+<li> To me, it is more than a mouthwash.</li>
+<li> But after I survived the initial sensations, I found myself really impressed with the feeling of my mouth for the rest of the day (yes!</li>
+<li> Ok</li>
+<li> It&#x27;s okay for 10/20 seconds.  </li>
+<li> My teeth are for sure whiter after 3 weeks of this stuff.</li>
+<li> You are either going to love it</li>
+<li> I can&#x27;t believe they are able to sell this in stores.</li>
+<li> being said, some people will not be able to tolerate the stinging/burning sensation felt when using this product, or they will not be a fan of the foam resulting from the peroxide in the product.</li>
+<li> Hydrogen peroxide is a very safe and powerful antiseptic and bleaching agent.</li>
+<li> This is a great product if you can handle the burn, but if you want something lighter yet effective, I&#x27;d go with Listerine Whitening Restoring (in the white bottle)</li>
+<li> My boyfriend commented on the improving shade of my teeth, too - they are becoming whiter!&lt;br /&gt;&lt;br</li>
+<li> I love Listerine and use it every time I brush, so I was excited to try this product.  </li>
+<li> Since it&#x27;s really strong, you can probably get away with it by mixing 75% water.</li>
+<li> My husband is what&#x27;s called a \\&quot;nontaster\\&quot; and this mouthwash is completely fine to him.&lt;br /&gt;&lt;br</li>
+<li> Its fine, no problems there.  </li>
+<li> I did and it worked fine,</li>
+<li> I don&#x27;t mind the foam that much, though, because I know it&#x27;s largely responsible for a pretty impressive reduction in coffee/tea stains.</li>
+<li> I also find this to be accurate.</li>
+<li> and I could tell a HUGE difference.</li>
+<li> I can&#x27;t even enjoy juices or soda without the taste of this product in my mouth almost making me want to puke.</li>
+<li> it was light tan and fuzzy</li>
+<li> I haven&#x27;t thrown it away yet because Im so cheap</li>
+<li> I love how my mouth feels and how fresh my breath is.</li>
+<li> I love it very much</li>
+<li> the original doesn&#x27;t.</li>
+<li> But I have used original Listerine since 1991</li>
+<li> don&#x27;t normally write reviews for products, but I honestly feel that this is something special.  </li>
+<li> It keeps my bands clean and removes staining along the gumline of my teeth.</li>
+<li> After swishing for 1 minute it really made my mouth feel clean, which is why it gets 1 more star</li>
+<li> It burns significantly about 10 seconds in, but quickly subsides.</li>
+<li> My mouth feels super clean after use</li>
+<li> Overall, I think it&#x27;s a good product</li>
+<li> It leaves my mouth feeling squeaky clean and fresh ALL DAY.</li>
+<li> far as the mouth wash is concerned, it is quite true that it is extremely potent.</li>
+<li> I think this is what surprised me more than the burn.  </li>
+<li> I, *rarely* ever do this, but I am going to have to agree with the majority of the commenters here.</li>
+<li> I&#x27;d say it is totally worth the money and getting used to its off putting taste</li>
+<li> But it is worth it.  </li>
+<li> tasters,\\&quot; as he or she is actually right on the ball.</li>
+<li> That&#x27;s just about right for these reviews.&lt;br /&gt;&lt;br</li>
+<li> The results of this product are not only amazing, but noticeable even after the first use!&lt;br /&gt;I</li>
+<li> every time I rinse with it, my mouth feels really slippery and clean.  </li>
+<li> The bands used for Radiance braces are specific and they stain VERY  easily.</li>
+<li> However, if you love it, your teeth will feel like they&#x27;re in a whole new world.</li>
+<li> I honestly don&#x27;t know how I stood it for that long.</li>
+<li> I finished brushing, and filled my gob with my new Listerine plus whitining.... and BAM.</li>
+<li> my tongue still tingles a little, which is a good sign; it&#x27;s still working.</li>
+<li> Ive never experienced a more refreshing, squeaky clean, fresh breath fortifying mouth wash.&lt;br /&gt;&lt;br</li>
+<li> but I wish it hadn&#x27;t after trying it the first time.</li>
+<li> I used for 3 weeks exactly per the directions.</li>
+<li> The other day I went to CVS to purchase more of this product and they were all out!  </li>
+<li> It takes about a full day to two days until food and drink tastes normal again.  </li>
+<li> i used this product for the first time i rinsed for 1 minute as recommended in the directions</li>
+<li> now.&lt;br /&gt;&lt;br /&gt;You can really feel the difference!  </li>
+<li> but it does the exact opposite&lt;</li>
+<li> It was obvious that I could use the Listerine more than Julie; willingly I uncapped the bottle.</li>
+<li> first of all it claims to \\&quot;whiten teeth noticeably\\&quot;</li>
+<li> I bought it to help keep my teeth white, gums healthy and freshen my breath.  </li>
+<li> I have experimented with more than 5 different types of mouthwash in my lifetime.  </li>
+<li> I am calling the doctor first thing in the morning and throwing the wash away</li>
+<li> After about a week of using this once a day I found that my tongue felt like I had burned it on hot coffee.  </li>
+<li> It would be like sticking your hand on a hot iron and hoping you might get used to it.  </li>
+<li> I just used it for the first time today</li>
+<li> Bough this at the store basically because it was the most expensive and had a good looking bottle.  </li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> I used this once and then poured the bottle down the drain.  Started out as a normal-tasting mouthwash, but after swishing for a minute and it started foaming, the taste became bad, and after spitting it out the taste and sensation got much worse.  I had to rinse my mouth with water immediately and pop in some gum to kill the flavor and the sensation of foamy glue on my teeth.&lt;br /&gt;It may work to clean my teeth, but there are many other products that aren&#x27;t so unpleasant!</li>
+    <li> There are two different products out there, Listerine Total Care and Listerine Total Care Plus Whitening, with very different experiences!  Amazon links the 2 together so I can&#x27;t comment separately.&lt;br /&gt;&lt;br /&gt;Listerine Total Care (5 stars)&lt;br /&gt; - This is like normal Listerine with some added fluoride.  Experience is the same as Listerine except that you aren&#x27;t supposed to eat or drink for 30 minutes to let the fluoride sit on your teeth.&lt;br /&gt;&lt;br /&gt;Listerine Total Care Plus Whitening (1 star)&lt;br /&gt; - Whoa this stuff is terrible!  It like the dentist version of pop rocks!  There is a continuous foaming action that requires you to spit for the next 10 minutes.</li>
+    <li> Listerine Total Care Plus Whitening is the BEST mouthwash out there that I have found. It is intense, but, to me, I feel it is actually WORKING and puts all other mouthwashes out there to shame. I have been using it for about 9 months. I bought it for my grown children who are now hooked on it as well. It leaves my mouth feeling squeaky clean and fresh ALL DAY. I will never use any other mouthwash ever again. To me, it is more than a mouthwash. I use it every morning and at night before I go to bed. If I don&#x27;t use it I feel like I didn&#x27;t brush my teeth at all. Its the BEST!!</li>
+    <li> I don&#x27;t know why, but this mouthwash caused me intense pain in my teeth. I don&#x27;t have especially sensitive teeth or receded gums. The second I began to swish it around my mouth I felt sharp, intense, \\&quot;prickly\\&quot; pain on my teeth (not the rest of my mouth) and quickly washed my mouth out with water. I don&#x27;t know if it&#x27;s the \\&quot;whitening\\&quot; chemicals or the \\&quot;remineralization\\&quot; minerals, but I had to throw this stuff out. THUMBS DOWN.</li>
+    <li> As a long-time Listerine fan, this product caught my eye in the store but I wish it hadn&#x27;t after trying it the first time. I cannot remember a product with a worse aftertaste, but I have to say that I will abondon this product at this point and wish I could return it. I cannot comment on its effectiveness since I simply cannot stand the taste long enough to give it a fair chance. But until the fix the taste issue, I cannot recommend this product at all.</li>
+    <li> So, I smoke cigarettes and drink coffee...Why wouldn&#x27;t I try this...Holy %^! It is probably THE worst taste I have ever experienced! WOW! I mean, I have done the white stripes and yeah it has that peroxide taste to it but this, again WOW! Does not even remotely have a minty fresh breathe feeling at all either. I will not recommend this.</li>
+    <li> Compared to other mouthwashes I&#x27;ve tried, this leaves my mouth the most fresh.&lt;br /&gt;After a thorough rinse, my teeth feel like they&#x27;ve just gotten a cleaning from the dentist.&lt;br /&gt;Plaque is extinct.</li>
+    <li> NEVER again will i ever buy this mouthwash my experience was so bad that i dumped the entire bottle down the drain&lt;br /&gt;okay first of all it claims to \\&quot;whiten teeth noticeably\\&quot; but it does the exact opposite&lt;br /&gt;when i used this product for the first time i rinsed for 1 minute as recommended in the directions then i spit out&lt;br /&gt;&lt;br /&gt;(it tastes like chemicals by the way) anyways i spit out and my tongue starts burning like crazy i had to rinse with cold water&lt;br /&gt;i check to see if my teeth have become more whiter or dimmer but to my surprise it dimmed my teeth yellow!!&lt;br /&gt;second time i try i get incredible tooth aches all over!!! (incredible sensitive pain) i do not have weak enamel&lt;br /&gt;it was so painful that i had to spit out at 34 seconds i checked if my teeth were any whiter but they were the same!!&lt;br /&gt;&lt;br /&gt;i just dumped this stuff down the drain and complained to Listerine, moral of the story?? DONT BUY TERRIBLE</li>
+    <li> I was at my Mom&#x27;s house a few weeks ago and noticed Listerine Total Care sitting by the sink. I&#x27;ve always had terrible dentist visits and I am always self conscious about bad breath. Oddly enough, I&#x27;ve never tried using mouthwash.&lt;br /&gt;While at her house, I tried a swig of the Total Care after brushing my teeth. Wow. It burns. I struggled to keep swishing for the whole minute it asks you to. But after I survived the initial sensations, I found myself really impressed with the feeling of my mouth for the rest of the day (yes! the entire day my mouth felt extra clean).&lt;br /&gt;&lt;br /&gt;I bought some of this stuff for myself and have actually looked forward to brushing my teeth in the morning and evening because my mouth is starting to feel healthier day by day. My boyfriend commented on the improving shade of my teeth, too - they are becoming whiter!&lt;br /&gt;&lt;br /&gt;Love this stuff. Buy it.</li>
+    <li> This stuff is horrid!!!! I bought it to help keep my teeth white, gums healthy and freshen my breath.  Very dissapointed, the hydrogen peroxide makes your mouth foam for 10 min after spitting it out and it tastes awful. There was absolutely NO minty flavor. My taste buds still feel numb 24 hrs later...Dumped it down the drain! Don&#x27;t buy this!!!</li>
+    <li> Actually, I like this product and have no problem with it&#x27;s effectiveness or taste.  But I notice a white crud building around the base of the neck of the bottle; I assume this is just splashing from when I pour it into my glass.  The dried stuff actually has to be chipped away with a nailfile or scissors.  No big deal of course, but just wondered if anyone else has noticed this.</li>
+    <li> So I tried this product because it was recommended to me by my dentist. I have long been a Listerine fan and used their old products for many years. However after my recent visit I had a lot of cavities. My dentist suggested I try the new total care add it had fluoride. I love it very much however I could really do with out the foaming action. I feel and look like im rabid with the amount of foaming. Otherwise I have not had any issue with taste, pain during use, or anything like that at all. In fact I think those who are complaining about taste are pansies. Since when has mouthwash ever tasted good? Its like cough syrup. It never will taste like candy. Then you&#x27;ll just drink it. Anyway once the foamy goes away I love how my mouth feels and how fresh my breath is. I do think I will continue using it if I can get over the foamy.</li>
+    <li> We I ve been using for  a month  and did notice that my teeth were getting whiter the stuff burned at first and tasted like crap but I pushed on. and still used it only once a day. Las week I noticed a funny feeling in the back of my throught on my tongue it stated getting worse so I checked out the back of my mouth in to my horror it was light tan and fuzzy looking I have never had a problem like this befor so I looked on the internet and found out I now have a hairy tongue. I researched some more and found that some mouthwashes with peroxide causes it. I am calling the doctor first thing in the morning and throwing the wash away hopefully it will go away I will never use again</li>
+    <li> The taste is so bad I had to throw it away on my first try. It&#x27;s like Chinese herbal medicine (the bad kind).</li>
+    <li> I tried this as a free sample on a regular bottle of listerine first of all.  Burned alot more the the normal listerine and made my toung numb to different taste.  I asked my dentist and she said just dilute it in water and try it.  I did and it worked fine, so, I had my mom buy me a normal sized bottle which I&#x27;m using now... was using...&lt;br /&gt;&lt;br /&gt;Been using the normal size for 2 weeks until today... Its causing my molars to become very sensative.  I won&#x27;t be using this anymore, and will prolly just go back to the normal antiseptic listerine.&lt;br /&gt;&lt;br /&gt;As far as the taste... Its fine, no problems there.  Also, the effects apart from the numb toung and sensative teeth were good.  After swishing for 1 minute it really made my mouth feel clean, which is why it gets 1 more star then a one star rating</li>
+    <li> Reading these reviews, I was surprised there were people who like the taste of this mouthwash. I used it just once, and it tasted like rotten meat. I am not exaggerating. And reading the other reviews that said it tasted bad, I started thinking maybe there is an ingredient in here that certain people&#x27;s taste buds interpret as terrible.&lt;br /&gt;&lt;br /&gt;About 25% of the population are \\&quot;supertasters\\&quot; It&#x27;s a recessive inherited trait and people who have it are more sensitive to bitter tastes and have several times more tastebuds than the rest of the population. Some supertasters experience intense burning sensations that other people don&#x27;t.  It&#x27;s something that can be confirmed by a very simple saliva test.&lt;br /&gt;&lt;br /&gt;I&#x27;m a supertaster. My husband is what&#x27;s called a \\&quot;nontaster\\&quot; and this mouthwash is completely fine to him.&lt;br /&gt;&lt;br /&gt;If about 25% of the population are supertasters, you would expect 25% of reviews to be negative based on either 1. taste, 2. burning sensation. That&#x27;s just about right for these reviews.&lt;br /&gt;&lt;br /&gt;So if you&#x27;re listening, Listerine--it would be great if you could isolate that ingredient and substitute something else for it. I would LOVE a whitening mouthwash, but not one that makes me want to throw up.</li>
+    <li> Bough this at the store basically because it was the most expensive and had a good looking bottle.  I do not recommend it.  It burns more than alcohol and makes my teeth sensitive, probably due to the whitening agent.</li>
+    <li> I don&#x27;t really write a lot of reviews but everyone should know that to avoid this product.  After a week of using this, my mouth starts to create canker sores so I stopped and washed it off with Hydrogen Peroxide to get rid of the sores. Since it&#x27;s really strong, you can probably get away with it by mixing 75% water.</li>
+    <li> I purchased this Listerine Total plus Whitening a few days ago, and I loved it so much I wanted to see what other people were saying about it.&lt;br /&gt;&lt;br /&gt;Im disappointed to find that theres a lot of weak people complaining about the burning and pain.&lt;br /&gt;&lt;br /&gt;This product is actually wonderful.  Ive never experienced a more refreshing, squeaky clean, fresh breath fortifying mouth wash.&lt;br /&gt;&lt;br /&gt;This product literally keeps my mouth smelling amazing even after Ive had my lunch.&lt;br /&gt;&lt;br /&gt;Also every time I rinse with it, my mouth feels really slippery and clean.  I can FEEL it killing germs and plaque.&lt;br /&gt;&lt;br /&gt;Anyways, I just wanted to put in my two cents because I dont want this product being taken off the shelf just because people cant stand the pain.&lt;br /&gt;&lt;br /&gt;NO PAIN NO GAIN people.</li>
+    <li> I find this product to be just about my favorite mouthwash. The only thing I don&#x27;t like about it is the fact that it takes a while for my mouth to clear out the foam resulting from a fairly high hydrogen peroxide content. I don&#x27;t mind the foam that much, though, because I know it&#x27;s largely responsible for a pretty impressive reduction in coffee/tea stains. I like the way it tastes, and though I can&#x27;t offer any proof that it really does build enamel, etc., I buy it because of its many advertised features as well. For some people with sensitive teeth, the hydrogen peroxide effect might be too intense.</li>
+    <li> This mouthwash is certainly not for everyone.  It stings. It foams.  It has a medicinal quality to it.  But it is worth it.  I use less than the suggested amount, and I still have to really try to keep it swishing around in my mouth for a full minute.  I can see the foam staying in the areas where I have plaque after spitting it out. I am using it only at night so far, and I can feel the difference in my teeth. I have been using whitening goop from the dentist, but plan to just use this from now on.&lt;br /&gt;&lt;br /&gt;Not for the faint of heart, but for those of us with problem teeth who are willing to do what it takes to keep them healthy, this product rocks!</li>
+    <li> Just bought a bottle. It burns significantly about 10 seconds in, but quickly subsides. If you have a low pain tolerance, this probably isnt the product for you. If you can take it, I&#x27;m sure it&#x27;s great for your teeth.</li>
+    <li> I too was intrigued by all of the claims made by this mouthwash. I didn&#x27;t use it long enough to know if it works because it is the most horrendous tasting mouthwash I have ever encountered. I haven&#x27;t thrown it away yet because Im so cheap so every once in a while I try it again thinking it can&#x27;t be that bad and IT IS WORSE than I remember. Stay far away.</li>
+    <li> My teeth are stronger and whiter now.&lt;br /&gt;&lt;br /&gt;You can really feel the difference!  :) Happy customer here.&lt;br /&gt;&lt;br /&gt;I dont really care if it doesn&#x27;t prevent gum disease like it claims, but it prevents cavities effectively and is VERY healthy for my teeth!  I recommend to everybody!</li>
+    <li> I just don&#x27;t understand these horrid reviews I&#x27;ve been reading. This has to be the most refreshing, and whitening mouthwash i&#x27;ve ever used. My teeth feel squeaky clean afterwards, mouth has good breath all day and I mean ALL day. I do not wake up with morning breath anymore and my teeth have whitened considerably.&lt;br /&gt;To all people who can&#x27;t handle this mouthwash, sorry you have a low pain tolerance and dirty mouth. I actually look forward to that intense burn because I know it is cleaning my mouth, the more you use it the less it burns too.&lt;br /&gt;After using this for 3 weeks now, my teeth have whitened many shades and are healthier than ever.&lt;br /&gt;&lt;br /&gt;So to all people thinking about buying this mouthwash, do yourself a favor and get it. You won&#x27;t regret it.</li>
+    <li> WTF Listerine?!?  Yes, it kills germs and whitens teeth, and DESTROYS YOUR MOUTH! I&#x27;ve never had a mouthwash like this.  It takes about a full day to two days until food and drink tastes normal again.  I&#x27;m tossing this and going back to traditional mouthwash.</li>
+    <li> I have experimented with more than 5 different types of mouthwash in my lifetime.  None of those have come even remotely close to the results provided by this particular mouthwash.&lt;br /&gt;&lt;br /&gt;I switched to Listerine Total Care+Whitening after my teeth were stained yellow from Crest Total Care mouthwash.  At first, I didn&#x27;t realize that this mouthwash contained alcohol, and received a shocking welcome.  However, I have no problem giving up 2 slightly painful minutes each day (1 minute in the morning and 1 at night) in order to experience perfectly white teeth that feel stronger and a mouth that feels perfectly clean.&lt;br /&gt;&lt;br /&gt;I don&#x27;t normally write reviews for products, but I honestly feel that this is something special.  After my numerous experiences with other mouthwashes, I can assure you that this is the real deal and will promote dramatic effects immediately.  The other day I went to CVS to purchase more of this product and they were all out!  I ran to Rite Aid instead, and bought out their entire supply of 10 just so I never have to worry about running out during the next year.  BEST ORAL HYGIENE PRODUCT I HAVE EVER PURCHASED!</li>
+    <li> Ok - so yeah this stuff burns very badly. I have trouble keeping it in my mouth for a minute but I have NEVER experienced any raw feeling or not being able to taste foods. Maybe some people are keeping the product in too long or using too much. You don&#x27;t need a lot at all. I use it only at night so maybe that is why I have never noticed not being able to eat or my mouth feeling raw so I definetely recommend using it at night. My mouth feels super clean after use but I don&#x27;t use it everyday because it does hurt.</li>
+    <li> It tastes horrible. I&#x27;ve been using a couple of other Listerine products with no physical issues and decided to try this one. It has the consistency of spit and tastes the way the bottle return smells. Whether or not it works, I can&#x27;t say, it doesn&#x27;t burn or tingle the way other Listerine products do. I can&#x27;t stand the taste and will be throwing mine out.</li>
+    <li> First time I used this product I noticed the horrible taste. But I dealt with it and used it for a few more days. About 4 days in and I wake up with an extreme pain in my lower gums. As I look in the mirror I notice my gums are oozing blood. A few days later of no use and it has worsened. My gums are peeling off layers and the pain has worsened, much like a serious burn. DO NOT USE THIS PRODUCT!! I&#x27;ve read other reviews and this is not uncommon.</li>
+    <li> ...to avoid this:&lt;br /&gt;&lt;br /&gt;(1)Burn, baby, burn.&lt;br /&gt;(2)Leaves a nice dried-out mouth feel.&lt;br /&gt;(3) Tastes like hospital with overtones of burning rubber. Yum!</li>
+    <li> Screw the burn. I can live with that. I can even live with the weird foam. Its the bad taste that drives me crazy.</li>
+    <li> But holy foaming foaming Batman!  I think this is what surprised me more than the burn.  Oh yes it burns.  But I have used original Listerine since 1991 so I expected this.&lt;br /&gt;&lt;br /&gt;The foaming is hydrogen peroxide, as I discovered.  But this is a known whitening and antiseptic agent.  This is part of what makes this rinse so effective.  Between that and the alcohol there will not be a single bacterium left in your mouth.&lt;br /&gt;&lt;br /&gt;Stick with it, if you can.  Its definitely brutal when using it, but I have noticed a difference in my teeth and gums.  Something I have found helpful is to spit a few drops out if the foam gets to be too much during the minute.  Then you have room in your mouth again to swish.  Again, a very harsh 60 seconds for the old mouth.  But its a very small sacrifice for the improvement of my oral health and appearance.</li>
+    <li> Julie and I are both white teeth people. We brush regularly; see the dentist; and floss! One day, Thomas ran out of his Scope. Julie had been nursing her bottle of Total Care Listerine for nearly a year and was down to her last dose. We had unequal dinner. I added onion to my burger. It was obvious that I could use the Listerine more than Julie; willingly I uncapped the bottle. Wish and swish the vomit was supposed to work! What did I do to deserve this punishment? What ever I did I&#x27;m so sorry! Julie I will never do it again!&lt;br /&gt;Julie found complete solace with an immediate understanding that her year of sipping the rotten milk made her teeth stronger and her willpower apparently has no tarter and her enamel is stronger than mine; however, this stuff can not be recommended other than as part of a dental punishment regime.</li>
+    <li> I have been using this product ever since it was introduced. It burns like crazy initially, and that feeling never fully goes away. But, you could say that you build a certain amount of &amp;#34;tolerance&amp;#34; for one key reason. THE PRODUCT WORKS!!!! The results of this product are not only amazing, but noticeable even after the first use!&lt;br /&gt;I have never gotten better reviews from my dentist! My teeth are whiter, cleaner, and definitely healthier. (Just ask my dentist!)&lt;br /&gt;That being said, some people will not be able to tolerate the stinging/burning sensation felt when using this product, or they will not be a fan of the foam resulting from the peroxide in the product. Still I think it is up to everyone to decide for themselves if they love this product or not.&lt;br /&gt;Take a chance and buy it. If you hate it, it&#x27;s not the end of the world. However, if you love it, your teeth will feel like they&#x27;re in a whole new world. (Cheesy, I know, but it&#x27;s so true!)</li>
+    <li> This product contains both alcohol and hydrogen peroxide.  When combined they create a very intense sensation that for me borders on the line of painful.  After about a week of using this once a day I found that my tongue felt like I had burned it on hot coffee.  At first I though that I must have had something to eat/drink that was just too hot, but even after avoiding anything too hot or spicy for a week my tongue felt worse.  It then occurred to me that the only thing that I had changed in my routine was the mouthwash.  After nearly 3 weeks of quitting the mouthwash and still avoiding anything that could further hurt my tongue, it&#x27;s now healed.&lt;br /&gt;&lt;br /&gt;I will not recommend this product to anyone nor will I ever purchase again.  There are other mouthwashes that have the fluoride properties that don&#x27;t contain alcohol that are much better.</li>
+    <li> Although we think this has the aftertaste of a dirty mushroom, we like it and use subscribe &amp; save to get it delivered each month.</li>
+    <li> I was grossed out by the extreme amount of foam excreting from my mouth upon spitting it out. I slowly started to see that it was working. instantly i saw my teeth in a shade or two whiter than just after brushing. I was and am still amazed at how fast this stuff worked. People tend to hate this product for it&#x27;s severe strength and taste. I however, LOVE to test my limits. This product DEFINITELY gave me a run for my money. my tongue still tingles a little, which is a good sign; it&#x27;s still working. I tried the regular Total care for months now, and switching over to this was a drastic change.... The foam did make me sick a bit, but it&#x27;s the Hydrogen Peroxide, so i really cannot be angry at it... as that is it&#x27;s job. I rate this a 5 star only because it does everything it&#x27;s supposed to and this is only day 1 of usage! I might become a frequent buyer of this product. Time will tell though.</li>
+    <li> After using listerine total plus whitening a couple times, I started feeling a numbing sensation. I thought it was just doing its job. The last time I used it, it burned like you would expect but I tried to swoosh as long as I could. Maybe after 30 sec the pain was escruciating! My eyes were tearing up, and I had to rinse with very cold water. Before I knew it, my lips and my cheeks began to swell. This is day 3, and all I can eat is frozen yogurt (no chunks) and popsicles. I am still swollen, and the inside of my mouth is in pain kind of like the way canker sores feel. My gums are still inflamed. I will give it a couple more days to heal before I decide to go see a doctor. I have decided to call the company which is part of Johnson n Johnson. If you read other reviews, apparently this has happened to other people. I don&#x27;t know how this is FDA approved.</li>
+    <li> I have Radiance braces. If you don&#x27;t know, these are braces made of polished sapphire. The brackets look like glass on my teeth. They are clear, but different from ceramic braces. The bands used for Radiance braces are specific and they stain VERY  easily. Walking around with yellowed, slightly brown bands for a month between orthodontist visits when they get changed is embarassing. This Listerine Total Care Plus Whitening helps keep the band from staining and/or removes the stains. Even whitening toothpaste does not remove the stains, but this mouthwash does. I use a Waterpik and pour a capful of this Listerine in. It keeps my bands clean and removes staining along the gumline of my teeth. I smoke, so I do get some yellowing. This mouthwash has helped tremendously.&lt;br /&gt;&lt;br /&gt;It is not the most pleasant tasting, and it does sort of froth up like peroxide does, but that is how it works and it is worth it. I stopped using it for a month and I could tell a HUGE difference. My orthodontist also noticed that my bands were more discolored than usual. I went back to using this Listerine and the problems were gone. If you can stand the subtle burning sensation and the taste, it is totally worth it.</li>
+    <li> Quiet possibly the WORST mouthwash I&#x27;ve ever used. After one week I poured the entire bottle down the sink and threw it away. It tastes awful, burned and foamed up in my mouth, EW. And I lost my since of taste for 2 weeks! My taste buds were either burned off or numbed, I literally couldn&#x27;t taste ANYTHING, salt..spice NOTHING.</li>
+    <li> Maybe I got an extra strong batch of this stuff, but it&#x27;s like Listerine on steroids. Swooshing it around for an entire minute is too much for me (I&#x27;m such a baby) so I do two sets of 30 seconds, one when I get into the shower, the other just before I get out. My teeth are for sure whiter after 3 weeks of this stuff. I&#x27;ve recently started using Total Care in the mornings, and Whitening Restoring at night, so my teeth get the benefits of both mouth washes (which has been working well).&lt;br /&gt;Over all.... This is a great product if you can handle the burn, but if you want something lighter yet effective, I&#x27;d go with Listerine Whitening Restoring (in the white bottle)</li>
+    <li> First let me say, I&#x27;m currently in the Navy SEAL PST program.  I can take pain, but this product has to be the worst thing ever created.  It&#x27;s okay for 10/20 seconds.  After that It will literally burn your tongue and mouth until the point of your body will naturally start crying.  After using it for one week, my tongue has sores on it.  Don&#x27;t buy this product ever.</li>
+    <li> I love Listerine and use it every time I brush, so I was excited to try this product.  I finished brushing, and filled my gob with my new Listerine plus whitining.... and BAM. It was like  my mouth was on fire, and I was being stabbed in the gums.  For those who have read A Song of Ice and Fire -  Imagine what it would be like to rinse your mouth with wildfire.  As my eyes watered, and my mouth ached, I had to spit after about ten seconds, and I&#x27;m a listerine veteran - I can handle old-school Listerine just fine, but not this abomination of liquid hell-fire was well beyond my limits of toleration.</li>
+    <li> I, *rarely* ever do this, but I am going to have to agree with the majority of the commenters here. You are either going to love it or you are going to hate it. There&#x27;s no in between, literally. One particular review caught my attention, the individual who spoke about the \\&quot;super tasters,\\&quot; as he or she is actually right on the ball. I am a molecular biologist and what the individual said is quite accurate. Some people do have a genetic predisposition to have more sensitive bitter taste buds and as a consequence, more likely to get \\&quot;burned\\&quot; by this mouth wash.&lt;br /&gt;&lt;br /&gt;As far as the mouth wash is concerned, it is quite true that it is extremely potent. If you have tried the original Total Care, you should know that this one will be a step above that because it contains hydrogen peroxide and other antiseptics the original doesn&#x27;t. It also contains 21.6% alcohol (a relatively high percentage). In addition many of you won&#x27;t be crazy about the large amount of foam resulting from the hydrogen peroxide. Another commenter said he/she felt his/her taste buds knocked out after the use of this product. I also find this to be accurate. Don&#x27;t expect to be able to taste anything for a good 30 minutes after using it.&lt;br /&gt;&lt;br /&gt;Now to the good things. As the biologist that I am, I can ascert you that while uncomfortable, it is very beneficial to your overall smile. Hydrogen peroxide is a very safe and powerful antiseptic and bleaching agent. It also has a very active anticavity fluoride ion concentration that will strengthen your teeth and kill bacteria that cause cavities, while forming a shield to prevent further enamel break down. It also contains anti-plaque and tartar control ingredients such as eucalyptol, methyl salicyclate, thymol and menthol.  This is without exaggeration absolute and complete Total Care. If your taste buds allow you, stick through it and you will see a dramatic improvement in your smile.</li>
+    <li> After using this for one week I started to notice my sense of smell acting funny.  I couldn&#x27;t smell yummy delicious things people would normally smell.  I thought I was sick, but after 3 weeks nothing went away.  I began to smell a funny smell in my nose constantly regardless of where I was or what I was doing.  It took me a while to realize that it&#x27;s the smell of the Listerine!  After stopping this (it&#x27;s been about 3-4 weeks now) I&#x27;m still smelling that awful smell of listernine.  I also taste it whenever I eat ANYTHING.  It has absolutely changed the way I smell and taste and I cannot recommend this product to any sane person.  I can&#x27;t even enjoy juices or soda without the taste of this product in my mouth almost making me want to puke.</li>
+    <li> I hope that you strongly consider the many negative reviews of this product before you consider putting it in your mouth! I used it for about 2 weeks about 2 months ago and my mouth still hasn&#x27;t healed yet. I have blisters in the lining of my mouth and under my tongue. My mouth is dry and sticky. It is such a terrible feeling. I just keep thinking that it will heal but nothing has helped. I went to the dentist last week. He told me he thought it would take maybe 6 months for it to completely heal. I am considering seeing another doctor. This is all due to the use of this horrible product. I can&#x27;t believe they are able to sell this in stores. I bought this at Walmart. I think a law suit is in order! How can they produce a product that would do this to someone???</li>
+    <li> I do not understand the constant reviews saying this mouthwash is bad due to it burning or it tastes horrible. IT&#x27;S MOUTHWASH!!!! It is not supposed to be something you pour on your waffles. Also if it burns, that means it is doing it&#x27;s job. Burning all the crap from your mouths. I just don&#x27;t understand these people. It is technically medicine, so it should be treated as such. It does its job with great results.&lt;br /&gt;&lt;br /&gt;IN THE END 5 STARS!!!!</li>
+    <li> I have used Listerine products for years and have been very pleased. This product is an exception.  It is beyond horrible.  It burns so badly I have to spit it out within seconds.  A root canal is preferable to using this mouthwash.  I tried every day for a week thinking maybe my mouth would get accustomed to it but no way.  It would be like sticking your hand on a hot iron and hoping you might get used to it.  If that weren&#x27;t bad enough it leaves a slimy coating in your mouth.  Thank you Listerine for wasting my money.  I won&#x27;t be buying your products in the future.</li>
+    <li> I used for 3 weeks exactly per the directions. I honestly don&#x27;t know how I stood it for that long. It burns. But after a few uses I thought my teeth looked whiter. Probably was wishful thinking. Then the back of my tongue started to feel funny. Like I had a piece of paper stuck on it. My tongue was brown and furry looking. It was &#x27;black hairy tongue&#x27;. How gross. I did quite a bit of research and found that mouthwash products containing peroxide can cause this. Luckily it&#x27;s pretty harmless, just disgusting. Thank you listerine!</li>
+    <li> I just used it for the first time today and I really don&#x27;t get the people who say it burns a lot. It didn&#x27;t seem to burn anywhere NEAR as much as regular Listerine. The only thing that was truly different was the foaming sensation and it wasn&#x27;t all that unpleasant, although it did take some extra spitting to get it out. Overall, I think it&#x27;s a good product and I plan to use it exclusively from now on.</li>
+    <li> The first time I used this I was so disgusted by it I put it in my medicine cabinet and let it sit there for a week. I then remembered I cost about $7--so I should use it. I hate the taste, but a week later I&#x27;m comfortable to say, my teeth are about 2 shades whiter, just from a nightly rinse. It is the best whitening rinse I&#x27;ve used and I&#x27;m noticing that my taste buds are slowly acquiring the mint taste instead of the hydrogen peroxide. I&#x27;d say it is totally worth the money and getting used to its off putting taste/feel in your mouth.</li>
+</ol>
+
+
+
+

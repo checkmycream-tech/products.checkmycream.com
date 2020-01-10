@@ -3,8 +3,8 @@ title: Waterpik Ultra Cordless Plus Water Flosser WP450 1 ea,
 description: Waterpik Ultra Cordless Plus Water Flosser WP450 1 ea,
 author: Suvojit Manna,
 tags: Waterpik Ultra Cordless Plus Water Flosser WP450 1 ea,
-publishedAt: Thu Jan 09 2020 19:08:23 GMT+0530 (India Standard Time),
-modifiedAt: Thu Jan 09 2020 19:08:23 GMT+0530 (India Standard Time),
+publishedAt: Fri Jan 10 2020 14:59:15 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:59:15 GMT+0530 (India Standard Time),
 ---
 
 # [Waterpik Ultra Cordless Plus Water Flosser WP450 1 ea](https://products.checkmycream.com/products/Waterpik-Ultra-Cordless-Plus-Water-Flosser-WP450-1-ea.html)
@@ -12,211 +12,211 @@ modifiedAt: Thu Jan 09 2020 19:08:23 GMT+0530 (India Standard Time),
 ### Positive Reviews
 
 <ol>
-      <li>That product works GREAT!!!!!!!!!!!!!!!!!!!!!!!!!  </li>
-      <li>It worked wonderful for 1 year then the battery died!</li>
-      <li>My teeth feel wonderful after I use the waterpik.  </li>
-      <li>I do everything in a rush in the mornings and the water pik is an excellent compliment to my procrastination.  </li>
-      <li>For the price I think this item is great!</li>
-      <li>Absolutely wonderful product.  </li>
-      <li>Since it uses NiCad batteries, it&#x27;s best to drain the batteries before recharging.</li>
-      <li>It was an excellent recommendation!  </li>
-      <li>Even just using water makes your teeth feel great!</li>
-      <li>My dentist says I have the best gums of any patient he has in his practice</li>
-      <li>My dentist says I have the best gums of any patient he has in his practice</li>
-      <li>Best regards;    </li>
-      <li>Excellent water pik; recommended by consumer reports.</li>
-      <li>, I now use it on the norm and am very happy with the results.  </li>
-      <li>Each user must find a method to hold and operate the tool within its limitations and best capabilities.</li>
-      <li>It&#x27;s great!</li>
-      <li>and this is the best one.  </li>
-      <li>WP-100 Ultra Water Flosser and I used it for 10 months, it is excellent</li>
-      <li>/&gt;The purchase was flawless, got it in two days.&lt;br</li>
-      <li>the water-flosser, excellent for my gums.&lt;br /&gt;&lt;br</li>
-      <li>I returned it for the fullsize model and it is excellent.</li>
-      <li>The best way to preserve battery life is to not use it, I have yet to see any product that lasts forever</li>
-      <li>Excellent!  </li>
       <li>I am very happy with this product.  </li>
-      <li>/&gt;Ergonomics - Perfect.</li>
-      <li>THE SHOWER IS THE PERFECT PLACE</li>
+      <li>Best thing you could do for dental care besides the electric tooth brush...</li>
+      <li>This is a great product!  </li>
+      <li>Have been told by hygienist that my mouth is in great shape!</li>
+      <li>This is the best battery operated product that Waterpik has come up with</li>
+      <li>Works great in the shower!</li>
+      <li>and she&#x27;s very happy.</li>
+      <li>Also great since it messages the gums!!!</li>
+      <li>The Waterpik cordless was recommended by my dentist for cleaning between my bridgework and gums and once I became used to using it, about three (3) times, I found that it was doing a excellent job</li>
       <li>This product is wonderful!!  </li>
-      <li>It is perfect for braces now that you dont have to work around with the flossing thread between the wires.   </li>
-      <li>I think that this waterpik waterflosser is the best I have ever had</li>
-      <li>How great!  </li>
-      <li>[[ASIN:B000UWAWQU Waterpik Ultra Cordless Dental Water Jet]]    Very happy to travel with this product!  </li>
-      <li>Great buy!</li>
-      <li>It is the best one I have ever used.  </li>
-      <li>Also  being a self contained unit not needing a seperate resvoir is the best,</li>
-      <li>Works perfectly.  </li>
-      <li>This product is just perfect.</li>
-      <li>GREAT PRODUCT!  </li>
-      <li>So I purchased this model as it said it is best for bridgework and implants.</li>
-      <li>Best thing about the cordless unit, to me, was Amazon&#x27;s excellent return policy.</li>
-      <li>I am very happy with this purchase.</li>
-      <li>I find the water reservoir is the perfect size.</li>
-      <li>It is an excellent appliance.</li>
-      <li>&lt;br /&gt;flosser and was very happy.</li>
       <li>One of the best things I&#x27;ve ever bought.</li>
+      <li>Wife is very happy!!!</li>
+      <li>works great!  </li>
+      <li>&lt;br /&gt;flosser and was very happy.</li>
       <li>Great product!  </li>
+      <li>I have the corded Waterpik Ultra (WP-100) which is excellent.  </li>
       <li>Performs flawlessly.</li>
       <li>This Water Pik is perfect.</li>
-      <li>/&gt;Works great!</li>
-      <li>This Waterpik eliminated 90% of the buildup around the braces and my son had his best ortho appointment ever after using this product.</li>
-      <li>This pik is a perfect size.  </li>
-      <li>but for me it is perfect.</li>
-      <li>This cleans those areas wonderfully.  </li>
-      <li>The idea of waterfloss is great and it works!!!</li>
-      <li>Very happy with this type of unit.  </li>
-      <li>It&#x27;s great!</li>
-      <li>This is a wonderful flosser for those who just can&#x27;t deal with the string type floss.</li>
-      <li>these products are wonderful!</li>
-      <li>I have braces, but even if I didn&#x27;t this is the best thing for your oral health.</li>
-      <li>My husband is very happy with this water flosser.  </li>
-      <li>Best when used in the shower.&lt;br /&gt;&lt;br</li>
-      <li>Yes, I have to fill it up 3-4 times, but the balance of size and speed is perfect.  </li>
-      <li>I am very happy with this product.</li>
-      <li>I would like to commend the seller for excellent customer service.</li>
-      <li>It works great!  </li>
-      <li>Best of luck to all reading this.</li>
-      <li>It is wonderful.</li>
-      <li>This is awesome!  </li>
-      <li>My dentist recommended this, and I am thoroughly impressed while using this.&lt;br /&gt;Easy</li>
-      <li>Water pressure is excellent.  </li>
-      <li>Great value!</li>
-      <li>best thing i ordered on line this year yet.&lt;br /&gt;Made</li>
-      <li>Great buy!</li>
-      <li>Best thing you could do for dental care besides the electric tooth brush...</li>
-      <li>So do try it but don&#x27;t expect it to be perfect.</li>
-      <li>I was very impressed</li>
-      <li>I shopped around and this was the best price.</li>
-      <li>I am happy Waterpik exists!</li>
-      <li>It is awesome to have something like this on you when you travel.</li>
-      <li>This is an excellent product, until it dies.  </li>
-      <li>worked real good when it Worked.</li>
-      <li>Great Product!!</li>
-      <li>This product does everything needed to keep your gums in excellent shape.</li>
-      <li>Very happy!  </li>
-      <li>Excellent cordless battery.</li>
-      <li>EXCELLENT PRICE &amp; MY DENTIST SAYS MY GUMS LOOK LIKE A TEENAGERS!!!</li>
-      <li>By the way, the AMAZON price is the best around.  </li>
-      <li>, this does a great job!</li>
-      <li>Best product ever I bought for my health.</li>
-      <li>I have taken excellent care of it, use it according to directions, and it has now stopped working.</li>
-      <li>And as for good dental health...PRICELESS!!!</li>
-      <li>and I have noticed that my teeth feel real good when I use them!</li>
-      <li>excellent product.</li>
-      <li>But now I can say that it perfectly does its job.</li>
-      <li>Very happy; can&#x27;t wait to use it!</li>
-      <li>Both hygenists were impressed,  and so am</li>
-      <li>Wonderful product.</li>
-      <li>Best of both worlds.&lt;br /&gt;-Unit feels like quality, and performs well.&lt;br /&gt;-Different</li>
-      <li>Try it and see for yourself if your Hygienist isn&#x27;t impressed!</li>
-      <li>it&#x27;s perfect for me.</li>
       <li>Great water pik!</li>
+      <li>and this is the best one.  </li>
+      <li>and when I brought and received this product and I was very happy.</li>
+      <li>This is an excellent product, until it dies.  </li>
+      <li>Great Product!!</li>
+      <li>excellent product and service</li>
+      <li>This is one of the best inventions for your mouth!!</li>
+      <li>Perfect for travel.  </li>
+      <li>It is an excellent appliance.</li>
+      <li>/&gt;Works great!</li>
+      <li>I find the water reservoir is the perfect size.</li>
+      <li>I am very happy with this purchase.</li>
+      <li>and it does the job and is perfect.</li>
+      <li>it&#x27;s perfect for me.</li>
+      <li>so you can see which ones you like the best.</li>
+      <li>The cordless feature is wonderful and it comes with a sampling of tips</li>
+      <li>Best thing about the cordless unit, to me, was Amazon&#x27;s excellent return policy.</li>
+      <li>It worked wonderful for 1 year then the battery died!</li>
+      <li>My Waterpik Waterflosser is wonderful.  </li>
+      <li>My teeth feel wonderful after I use the waterpik.  </li>
+      <li>I do everything in a rush in the mornings and the water pik is an excellent compliment to my procrastination.  </li>
+      <li>GOOD LUCK!!!</li>
+      <li>For the price I think this item is great!</li>
+      <li>THE SHOWER IS THE PERFECT PLACE</li>
+      <li>/&gt;The purchase was flawless, got it in two days.&lt;br</li>
+      <li>Excellent and reliable no matter where I am.</li>
+      <li>It was the best appointment I had in yrs.  </li>
+      <li>the water-flosser, excellent for my gums.&lt;br /&gt;&lt;br</li>
+      <li>Absolutely wonderful product.  </li>
+      <li>So I purchased this model as it said it is best for bridgework and implants.</li>
+      <li>Works great!</li>
+      <li>find the Waterpik Waterflosser Cordless Plus an excellent product for water flossing away from home.  </li>
+      <li>Try it and see for yourself if your Hygienist isn&#x27;t impressed!</li>
+      <li>Works perfect &amp; showed up as promised.</li>
+      <li>I use to think these products were just gimmicks, until my dentist reccommend that i get one, now i am sold, I have had mine for about two weeks and its working perfect for me..</li>
+      <li>I was very impressed</li>
+      <li>This product does everything needed to keep your gums in excellent shape.</li>
+      <li>Make your dentist happy; get flossing!</li>
+      <li>Awesome product.</li>
+      <li>Best of both worlds.&lt;br /&gt;-Unit feels like quality, and performs well.&lt;br /&gt;-Different</li>
+      <li>and it appeared to have the best reviews with one caveat.  </li>
+      <li>I feel very happy.</li>
+      <li>Works excellent.</li>
+      <li>this is an excellent buy.</li>
+      <li>This Waterpik eliminated 90% of the buildup around the braces and my son had his best ortho appointment ever after using this product.</li>
+      <li>Amazon offered the best price, as always.</li>
+      <li>The jet stream can be adjusted and does an excellent job of loosening items between the teeth or in the gum-line.</li>
+      <li>I have used the Waterpik Ultra for some time and I am very happy with it.  </li>
+      <li>As ordered is a perfect review.</li>
+      <li>BECAUSE OF IMPLANTS AND CROWNS I FOUND MY WATERPIK TO BE WONDERFUL.  </li>
+      <li>excellent cleaning.</li>
+      <li>Excellent product.</li>
+      <li>GREAT PRODUCT!  </li>
+      <li>Great!</li>
+      <li>It is awesome to have something like this on you when you travel.</li>
+      <li>I am very happy with this product.&lt;br /&gt;&lt;br /&gt;I</li>
+      <li>This pik is a perfect size.  </li>
+      <li>this waterflosser works perfectly!</li>
+      <li>but for me it is perfect.</li>
+      <li>Very happy with this product</li>
+      <li>This cleans those areas wonderfully.  </li>
+      <li>Since it uses NiCad batteries, it&#x27;s best to drain the batteries before recharging.</li>
+      <li>The idea of waterfloss is great and it works!!!</li>
+      <li>Excellent!  </li>
+      <li>Perfect!</li>
+      <li>the switch is not flexible,and the water pressure cannot satisfied me!!!!!!!!!!!!!!!!!!!!!!!</li>
+      <li>has worked perfectly.</li>
+      <li>My dentist said I have greatly improved!</li>
+      <li>Wish I knew about this wonderful item years ago.  </li>
+      <li>Very happy with this type of unit.  </li>
+      <li>best thing i ordered on line this year yet.&lt;br /&gt;Made</li>
+      <li>It was an excellent recommendation!  </li>
+      <li>It&#x27;s great!</li>
+      <li>/&gt;Amazon is usually awesome, but this is almost unforgivable..</li>
+      <li>It works great!</li>
+      <li>Wonderful product.</li>
+      <li>WONDERFUL !</li>
+      <li>Waterpik Waterflossers have always been GREAT products!  </li>
+      <li>This product is just perfect.</li>
+      <li>Works perfectly.  </li>
+      <li>These devices get an incredible amount of debris out of your teeth!</li>
+      <li>Very happy!  </li>
 </ol>
 
 
 <h2>Negative Reviews</h2>
 <ol>
-<li> That product works GREAT!!!!!!!!!!!!!!!!!!!!!!!!!  </li>
-<li> It worked wonderful for 1 year then the battery died!</li>
-<li> My teeth feel wonderful after I use the waterpik.  </li>
-<li> I do everything in a rush in the mornings and the water pik is an excellent compliment to my procrastination.  </li>
-<li> For the price I think this item is great!</li>
-<li> Absolutely wonderful product.  </li>
-<li> Since it uses NiCad batteries, it&#x27;s best to drain the batteries before recharging.</li>
-<li> It was an excellent recommendation!  </li>
-<li> Even just using water makes your teeth feel great!</li>
-<li> My dentist says I have the best gums of any patient he has in his practice</li>
-<li> My dentist says I have the best gums of any patient he has in his practice</li>
-<li> Best regards;    </li>
-<li> Excellent water pik; recommended by consumer reports.</li>
-<li> , I now use it on the norm and am very happy with the results.  </li>
-<li> Each user must find a method to hold and operate the tool within its limitations and best capabilities.</li>
-<li> It&#x27;s great!</li>
-<li> and this is the best one.  </li>
-<li> WP-100 Ultra Water Flosser and I used it for 10 months, it is excellent</li>
-<li> /&gt;The purchase was flawless, got it in two days.&lt;br</li>
-<li> the water-flosser, excellent for my gums.&lt;br /&gt;&lt;br</li>
-<li> I returned it for the fullsize model and it is excellent.</li>
-<li> The best way to preserve battery life is to not use it, I have yet to see any product that lasts forever</li>
-<li> Excellent!  </li>
 <li> I am very happy with this product.  </li>
-<li> /&gt;Ergonomics - Perfect.</li>
-<li> THE SHOWER IS THE PERFECT PLACE</li>
+<li> Best thing you could do for dental care besides the electric tooth brush...</li>
+<li> This is a great product!  </li>
+<li> Have been told by hygienist that my mouth is in great shape!</li>
+<li> This is the best battery operated product that Waterpik has come up with</li>
+<li> Works great in the shower!</li>
+<li> and she&#x27;s very happy.</li>
+<li> Also great since it messages the gums!!!</li>
+<li> The Waterpik cordless was recommended by my dentist for cleaning between my bridgework and gums and once I became used to using it, about three (3) times, I found that it was doing a excellent job</li>
 <li> This product is wonderful!!  </li>
-<li> It is perfect for braces now that you dont have to work around with the flossing thread between the wires.   </li>
-<li> I think that this waterpik waterflosser is the best I have ever had</li>
-<li> How great!  </li>
-<li> [[ASIN:B000UWAWQU Waterpik Ultra Cordless Dental Water Jet]]    Very happy to travel with this product!  </li>
-<li> Great buy!</li>
-<li> It is the best one I have ever used.  </li>
-<li> Also  being a self contained unit not needing a seperate resvoir is the best,</li>
-<li> Works perfectly.  </li>
-<li> This product is just perfect.</li>
-<li> GREAT PRODUCT!  </li>
-<li> So I purchased this model as it said it is best for bridgework and implants.</li>
-<li> Best thing about the cordless unit, to me, was Amazon&#x27;s excellent return policy.</li>
-<li> I am very happy with this purchase.</li>
-<li> I find the water reservoir is the perfect size.</li>
-<li> It is an excellent appliance.</li>
-<li> &lt;br /&gt;flosser and was very happy.</li>
 <li> One of the best things I&#x27;ve ever bought.</li>
+<li> Wife is very happy!!!</li>
+<li> works great!  </li>
+<li> &lt;br /&gt;flosser and was very happy.</li>
 <li> Great product!  </li>
+<li> I have the corded Waterpik Ultra (WP-100) which is excellent.  </li>
 <li> Performs flawlessly.</li>
 <li> This Water Pik is perfect.</li>
-<li> /&gt;Works great!</li>
-<li> This Waterpik eliminated 90% of the buildup around the braces and my son had his best ortho appointment ever after using this product.</li>
-<li> This pik is a perfect size.  </li>
-<li> but for me it is perfect.</li>
-<li> This cleans those areas wonderfully.  </li>
-<li> The idea of waterfloss is great and it works!!!</li>
-<li> Very happy with this type of unit.  </li>
-<li> It&#x27;s great!</li>
-<li> This is a wonderful flosser for those who just can&#x27;t deal with the string type floss.</li>
-<li> these products are wonderful!</li>
-<li> I have braces, but even if I didn&#x27;t this is the best thing for your oral health.</li>
-<li> My husband is very happy with this water flosser.  </li>
-<li> Best when used in the shower.&lt;br /&gt;&lt;br</li>
-<li> Yes, I have to fill it up 3-4 times, but the balance of size and speed is perfect.  </li>
-<li> I am very happy with this product.</li>
-<li> I would like to commend the seller for excellent customer service.</li>
-<li> It works great!  </li>
-<li> Best of luck to all reading this.</li>
-<li> It is wonderful.</li>
-<li> This is awesome!  </li>
-<li> My dentist recommended this, and I am thoroughly impressed while using this.&lt;br /&gt;Easy</li>
-<li> Water pressure is excellent.  </li>
-<li> Great value!</li>
-<li> best thing i ordered on line this year yet.&lt;br /&gt;Made</li>
-<li> Great buy!</li>
-<li> Best thing you could do for dental care besides the electric tooth brush...</li>
-<li> So do try it but don&#x27;t expect it to be perfect.</li>
-<li> I was very impressed</li>
-<li> I shopped around and this was the best price.</li>
-<li> I am happy Waterpik exists!</li>
-<li> It is awesome to have something like this on you when you travel.</li>
-<li> This is an excellent product, until it dies.  </li>
-<li> worked real good when it Worked.</li>
-<li> Great Product!!</li>
-<li> This product does everything needed to keep your gums in excellent shape.</li>
-<li> Very happy!  </li>
-<li> Excellent cordless battery.</li>
-<li> EXCELLENT PRICE &amp; MY DENTIST SAYS MY GUMS LOOK LIKE A TEENAGERS!!!</li>
-<li> By the way, the AMAZON price is the best around.  </li>
-<li> , this does a great job!</li>
-<li> Best product ever I bought for my health.</li>
-<li> I have taken excellent care of it, use it according to directions, and it has now stopped working.</li>
-<li> And as for good dental health...PRICELESS!!!</li>
-<li> and I have noticed that my teeth feel real good when I use them!</li>
-<li> excellent product.</li>
-<li> But now I can say that it perfectly does its job.</li>
-<li> Very happy; can&#x27;t wait to use it!</li>
-<li> Both hygenists were impressed,  and so am</li>
-<li> Wonderful product.</li>
-<li> Best of both worlds.&lt;br /&gt;-Unit feels like quality, and performs well.&lt;br /&gt;-Different</li>
-<li> Try it and see for yourself if your Hygienist isn&#x27;t impressed!</li>
-<li> it&#x27;s perfect for me.</li>
 <li> Great water pik!</li>
+<li> and this is the best one.  </li>
+<li> and when I brought and received this product and I was very happy.</li>
+<li> This is an excellent product, until it dies.  </li>
+<li> Great Product!!</li>
+<li> excellent product and service</li>
+<li> This is one of the best inventions for your mouth!!</li>
+<li> Perfect for travel.  </li>
+<li> It is an excellent appliance.</li>
+<li> /&gt;Works great!</li>
+<li> I find the water reservoir is the perfect size.</li>
+<li> I am very happy with this purchase.</li>
+<li> and it does the job and is perfect.</li>
+<li> it&#x27;s perfect for me.</li>
+<li> so you can see which ones you like the best.</li>
+<li> The cordless feature is wonderful and it comes with a sampling of tips</li>
+<li> Best thing about the cordless unit, to me, was Amazon&#x27;s excellent return policy.</li>
+<li> It worked wonderful for 1 year then the battery died!</li>
+<li> My Waterpik Waterflosser is wonderful.  </li>
+<li> My teeth feel wonderful after I use the waterpik.  </li>
+<li> I do everything in a rush in the mornings and the water pik is an excellent compliment to my procrastination.  </li>
+<li> GOOD LUCK!!!</li>
+<li> For the price I think this item is great!</li>
+<li> THE SHOWER IS THE PERFECT PLACE</li>
+<li> /&gt;The purchase was flawless, got it in two days.&lt;br</li>
+<li> Excellent and reliable no matter where I am.</li>
+<li> It was the best appointment I had in yrs.  </li>
+<li> the water-flosser, excellent for my gums.&lt;br /&gt;&lt;br</li>
+<li> Absolutely wonderful product.  </li>
+<li> So I purchased this model as it said it is best for bridgework and implants.</li>
+<li> Works great!</li>
+<li> find the Waterpik Waterflosser Cordless Plus an excellent product for water flossing away from home.  </li>
+<li> Try it and see for yourself if your Hygienist isn&#x27;t impressed!</li>
+<li> Works perfect &amp; showed up as promised.</li>
+<li> I use to think these products were just gimmicks, until my dentist reccommend that i get one, now i am sold, I have had mine for about two weeks and its working perfect for me..</li>
+<li> I was very impressed</li>
+<li> This product does everything needed to keep your gums in excellent shape.</li>
+<li> Make your dentist happy; get flossing!</li>
+<li> Awesome product.</li>
+<li> Best of both worlds.&lt;br /&gt;-Unit feels like quality, and performs well.&lt;br /&gt;-Different</li>
+<li> and it appeared to have the best reviews with one caveat.  </li>
+<li> I feel very happy.</li>
+<li> Works excellent.</li>
+<li> this is an excellent buy.</li>
+<li> This Waterpik eliminated 90% of the buildup around the braces and my son had his best ortho appointment ever after using this product.</li>
+<li> Amazon offered the best price, as always.</li>
+<li> The jet stream can be adjusted and does an excellent job of loosening items between the teeth or in the gum-line.</li>
+<li> I have used the Waterpik Ultra for some time and I am very happy with it.  </li>
+<li> As ordered is a perfect review.</li>
+<li> BECAUSE OF IMPLANTS AND CROWNS I FOUND MY WATERPIK TO BE WONDERFUL.  </li>
+<li> excellent cleaning.</li>
+<li> Excellent product.</li>
+<li> GREAT PRODUCT!  </li>
+<li> Great!</li>
+<li> It is awesome to have something like this on you when you travel.</li>
+<li> I am very happy with this product.&lt;br /&gt;&lt;br /&gt;I</li>
+<li> This pik is a perfect size.  </li>
+<li> this waterflosser works perfectly!</li>
+<li> but for me it is perfect.</li>
+<li> Very happy with this product</li>
+<li> This cleans those areas wonderfully.  </li>
+<li> Since it uses NiCad batteries, it&#x27;s best to drain the batteries before recharging.</li>
+<li> The idea of waterfloss is great and it works!!!</li>
+<li> Excellent!  </li>
+<li> Perfect!</li>
+<li> the switch is not flexible,and the water pressure cannot satisfied me!!!!!!!!!!!!!!!!!!!!!!!</li>
+<li> has worked perfectly.</li>
+<li> My dentist said I have greatly improved!</li>
+<li> Wish I knew about this wonderful item years ago.  </li>
+<li> Very happy with this type of unit.  </li>
+<li> best thing i ordered on line this year yet.&lt;br /&gt;Made</li>
+<li> It was an excellent recommendation!  </li>
+<li> It&#x27;s great!</li>
+<li> /&gt;Amazon is usually awesome, but this is almost unforgivable..</li>
+<li> It works great!</li>
+<li> Wonderful product.</li>
+<li> WONDERFUL !</li>
+<li> Waterpik Waterflossers have always been GREAT products!  </li>
+<li> This product is just perfect.</li>
+<li> Works perfectly.  </li>
+<li> These devices get an incredible amount of debris out of your teeth!</li>
+<li> Very happy!  </li>
 </ol>
 
 <h2>All Reviews</h2>
@@ -1814,6 +1814,7 @@ modifiedAt: Thu Jan 09 2020 19:08:23 GMT+0530 (India Standard Time),
     <li> I bought this for my mother who loved it. It broke after 6 months. She called Waterpik, asked for a replacement -and Waterpik sent her a new one! So far so good...</li>
     <li> Less than two months in, probably two dozen uses and it won&#x27;t hold a charge. FAIL. LAME. RIPOFF. Of course the return expired in only 30 days. In my opinion Amazon should stand behind this. Avoid this thing. When it worked it made for a nice travel option. Now it&#x27;s landfill bound. Inexcusable.</li>
 </ol>
+
 
 
 

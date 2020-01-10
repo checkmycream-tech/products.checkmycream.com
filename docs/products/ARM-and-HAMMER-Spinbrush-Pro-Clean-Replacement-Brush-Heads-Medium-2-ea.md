@@ -1,0 +1,379 @@
+---
+title: ARM &amp; HAMMER Spinbrush Pro-Clean Replacement Brush Heads, Medium 2 ea,
+description: ARM &amp; HAMMER Spinbrush Pro-Clean Replacement Brush Heads, Medium 2 ea,
+author: Suvojit Manna,
+tags: ARM &amp; HAMMER Spinbrush Pro-Clean Replacement Brush Heads, Medium 2 ea,
+publishedAt: Fri Jan 10 2020 14:59:57 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:59:57 GMT+0530 (India Standard Time),
+---
+
+# [ARM &amp; HAMMER Spinbrush Pro-Clean Replacement Brush Heads, Medium 2 ea](https://products.checkmycream.com/products/ARM-and-HAMMER-Spinbrush-Pro-Clean-Replacement-Brush-Heads-Medium-2-ea.html)
+
+### Positive Reviews
+
+<ol>
+      <li>These are great toothbrushes/heads for the price!</li>
+      <li>Fits perfectly too.</li>
+      <li>These do the trick for extending the life and hygiene of my kids rechargeable toothbrushes, but they don&#x27;t work perfectly.</li>
+      <li>Perfect</li>
+      <li>Still the price is great and he can still brush his teeth!</li>
+      <li>Perfect match for replacement.</li>
+      <li>This is an excellent product</li>
+      <li>Already used this and it works perfectly.</li>
+      <li>and they are just great!</li>
+      <li>I have these on the auto order to get a set every 6 months - this is the best price anywhere</li>
+      <li>This is an excellent battery operated toothbrush replacement brush heads.</li>
+      <li>And, Amazon is one of the best places to get what you need.</li>
+      <li>Fits our spinbrush handles perfectly.</li>
+      <li>Excellent product - good prices!</li>
+      <li>Very good product.</li>
+      <li>it does a very good job of keeping plaque off my teeth.</li>
+      <li>Great price &amp; great quality.</li>
+      <li>It is a great product for the price.</li>
+      <li>Great replacement heads.</li>
+      <li>I like to use an electric toothbrush and the Spinbrush works great for me.  </li>
+      <li>These brushes do a great job.</li>
+      <li>Great deal for the combo.</li>
+      <li>A great place to get Spinbrushes is at Amazon - what don&#x27;t they have??  </li>
+      <li>Great job of cleaning.</li>
+      <li>great purchase.</li>
+      <li>Great price.  </li>
+      <li>Price was great.  </li>
+      <li>spinbrush proclean replacement heads are great.</li>
+      <li>Great value on replacement heads.</li>
+      <li>They were a great deal</li>
+      <li>and I find that it does a great job in cleaning my teeth.</li>
+      <li>The Crest Spinbrush is really a great product for a great price.</li>
+      <li>I love the electric toothbrush and i was looking for an inexpensive price for the heads all over and amazon had the best</li>
+      <li>Always satisfied with ordering from Amazon, they have the best sellers!</li>
+      <li>These heads are a great price and fit my Crest Spinbrush perfectly.</li>
+      <li>The item came in good time and fit the spinbrush perfectly and works great would buy again for the price.  </li>
+      <li>easy to replace and the best tooth brush</li>
+      <li>Fit on toothbrush perfectly.</li>
+      <li>They fit my spinbrush perfectly!</li>
+      <li>these spinbrush replacement heads do a good job of cleaning my teeth.</li>
+      <li>these are good replacement heads for the crest spinbrush.</li>
+      <li>Amazon Prime reorder is the best price and convenience available at this time.</li>
+      <li>/&gt;Arrived on time and in good condition.</li>
+      <li>These fit excellently on the handle.</li>
+      <li>The product is good quality</li>
+      <li>As advertised... good replacement product.</li>
+      <li>Works well, is an OEM replacement at a fair price</li>
+      <li>This is a good product.</li>
+      <li>product is good.</li>
+      <li>They appear to be of good quality.</li>
+      <li>I haven&#x27;t had a cavity in over a decade, I&#x27;ll take that as a good sign.</li>
+      <li>and a good price.</li>
+      <li>Auto ship is a good option.</li>
+      <li>Good price for a good Spinbrush head replacement</li>
+      <li>It would not have been a good deal if I had had to include the shipping.  </li>
+      <li>It&#x27;s very easy on the enamel and great on the gums.  </li>
+      <li>I am very pleased with my purchase of the Spin Brush.</li>
+      <li>Replacements are great love brushing my teeth.</li>
+      <li>Love these toothbrushes and was happy to find these replacement heads.</li>
+      <li>These toothbruch replacement heads cost a fortune in my neighborhood, so I was so glad to find them for a great price on Amazon</li>
+      <li>We are very satisfied with the quality of the product,too.</li>
+      <li>love that!  </li>
+      <li>I know the spin brush is doing most of the work as they stick it in their mouth for 2 seconds!</li>
+      <li>Easy to install, feels great, &amp; durable.</li>
+      <li>These fit perfectly and worked just fine.  </li>
+      <li>Now I&#x27;m a happy user as Amazon sells them cheaper, ships them free and no tax.</li>
+      <li>and it&#x27;s nice to know I can buy replacement heads.</li>
+      <li>I can&#x27;t always find the heads I need, so I was pleased to find these at Amazon.com at a good price.  </li>
+      <li>So nice to find them in the &amp;#34;soft&amp;#34; version instead of medium.</li>
+      <li>Good price - love this product</li>
+      <li>No to compare with high end products but for the price they are perfect.</li>
+      <li>High quality product, which works perfectly with my Spinbrush.</li>
+      <li>Either way, clean teeth are clean teeth, and if you&#x27;re going to buy something, might as well get it at the best price you can.</li>
+      <li>/&gt;I would tell everybody to get this toothbrush it makes my mouth feel so clean!!</li>
+      <li>Perfect replacement for the new spinbrush I bought in a thrift store.</li>
+      <li>These are good quality, and are easy to change.  </li>
+      <li>I am a penny pincher, and this is the best pricing I have found so far.</li>
+      <li>a good fit for my rechargable unit.  </li>
+      <li>My dentist said that spin brushes are better for your teeth than the manual kind... and my kid brushes longer.  </li>
+      <li>Just what I needed to keep my teeth bright and clean.</li>
+      <li>They clean well, and are a good value.</li>
+      <li>it is the first battery-powered toothbrush that I have owned and it is great.</li>
+      <li>It does a good job on keeping my teeth clean, and being able to replace the brush heads</li>
+      <li>Kids (mine) brush better with the spinbrush.</li>
+      <li>:)</li>
+      <li>I checked in most stores and found that what I paid for these 2 replacement heads would be the price of 1 in most retail stores.</li>
+      <li>This was much more convenient that shopping</li>
+      <li>and I just love it.</li>
+      <li>I am really pleased with the spinbrush-</li>
+      <li>My husband thanked me for thinking of him :-)</li>
+      <li>Im extremely pleased with my purchase.</li>
+      <li>love this toothbrush.</li>
+      <li>You can buy these for a better price than at any store.</li>
+      <li>Can&#x27;t ask for more than that.</li>
+      <li>Got it fast at a great price.</li>
+      <li>I think it is better than the manual toothbrush.</li>
+      <li>My wife and I love this product.  </li>
+      <li>I love my spinbrush...</li>
+      <li>I have been using this for two years and am pleased with it&#x27;s results.  </li>
+      <li>A MUCH better price here on Amazon then at the store.</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> These are great toothbrushes/heads for the price!</li>
+<li> Fits perfectly too.</li>
+<li> These do the trick for extending the life and hygiene of my kids rechargeable toothbrushes, but they don&#x27;t work perfectly.</li>
+<li> Perfect</li>
+<li> Still the price is great and he can still brush his teeth!</li>
+<li> Perfect match for replacement.</li>
+<li> This is an excellent product</li>
+<li> Already used this and it works perfectly.</li>
+<li> and they are just great!</li>
+<li> I have these on the auto order to get a set every 6 months - this is the best price anywhere</li>
+<li> This is an excellent battery operated toothbrush replacement brush heads.</li>
+<li> And, Amazon is one of the best places to get what you need.</li>
+<li> Fits our spinbrush handles perfectly.</li>
+<li> Excellent product - good prices!</li>
+<li> Very good product.</li>
+<li> it does a very good job of keeping plaque off my teeth.</li>
+<li> Great price &amp; great quality.</li>
+<li> It is a great product for the price.</li>
+<li> Great replacement heads.</li>
+<li> I like to use an electric toothbrush and the Spinbrush works great for me.  </li>
+<li> These brushes do a great job.</li>
+<li> Great deal for the combo.</li>
+<li> A great place to get Spinbrushes is at Amazon - what don&#x27;t they have??  </li>
+<li> Great job of cleaning.</li>
+<li> great purchase.</li>
+<li> Great price.  </li>
+<li> Price was great.  </li>
+<li> spinbrush proclean replacement heads are great.</li>
+<li> Great value on replacement heads.</li>
+<li> They were a great deal</li>
+<li> and I find that it does a great job in cleaning my teeth.</li>
+<li> The Crest Spinbrush is really a great product for a great price.</li>
+<li> I love the electric toothbrush and i was looking for an inexpensive price for the heads all over and amazon had the best</li>
+<li> Always satisfied with ordering from Amazon, they have the best sellers!</li>
+<li> These heads are a great price and fit my Crest Spinbrush perfectly.</li>
+<li> The item came in good time and fit the spinbrush perfectly and works great would buy again for the price.  </li>
+<li> easy to replace and the best tooth brush</li>
+<li> Fit on toothbrush perfectly.</li>
+<li> They fit my spinbrush perfectly!</li>
+<li> these spinbrush replacement heads do a good job of cleaning my teeth.</li>
+<li> these are good replacement heads for the crest spinbrush.</li>
+<li> Amazon Prime reorder is the best price and convenience available at this time.</li>
+<li> /&gt;Arrived on time and in good condition.</li>
+<li> These fit excellently on the handle.</li>
+<li> The product is good quality</li>
+<li> As advertised... good replacement product.</li>
+<li> Works well, is an OEM replacement at a fair price</li>
+<li> This is a good product.</li>
+<li> product is good.</li>
+<li> They appear to be of good quality.</li>
+<li> I haven&#x27;t had a cavity in over a decade, I&#x27;ll take that as a good sign.</li>
+<li> and a good price.</li>
+<li> Auto ship is a good option.</li>
+<li> Good price for a good Spinbrush head replacement</li>
+<li> It would not have been a good deal if I had had to include the shipping.  </li>
+<li> It&#x27;s very easy on the enamel and great on the gums.  </li>
+<li> I am very pleased with my purchase of the Spin Brush.</li>
+<li> Replacements are great love brushing my teeth.</li>
+<li> Love these toothbrushes and was happy to find these replacement heads.</li>
+<li> These toothbruch replacement heads cost a fortune in my neighborhood, so I was so glad to find them for a great price on Amazon</li>
+<li> We are very satisfied with the quality of the product,too.</li>
+<li> love that!  </li>
+<li> I know the spin brush is doing most of the work as they stick it in their mouth for 2 seconds!</li>
+<li> Easy to install, feels great, &amp; durable.</li>
+<li> These fit perfectly and worked just fine.  </li>
+<li> Now I&#x27;m a happy user as Amazon sells them cheaper, ships them free and no tax.</li>
+<li> and it&#x27;s nice to know I can buy replacement heads.</li>
+<li> I can&#x27;t always find the heads I need, so I was pleased to find these at Amazon.com at a good price.  </li>
+<li> So nice to find them in the &amp;#34;soft&amp;#34; version instead of medium.</li>
+<li> Good price - love this product</li>
+<li> No to compare with high end products but for the price they are perfect.</li>
+<li> High quality product, which works perfectly with my Spinbrush.</li>
+<li> Either way, clean teeth are clean teeth, and if you&#x27;re going to buy something, might as well get it at the best price you can.</li>
+<li> /&gt;I would tell everybody to get this toothbrush it makes my mouth feel so clean!!</li>
+<li> Perfect replacement for the new spinbrush I bought in a thrift store.</li>
+<li> These are good quality, and are easy to change.  </li>
+<li> I am a penny pincher, and this is the best pricing I have found so far.</li>
+<li> a good fit for my rechargable unit.  </li>
+<li> My dentist said that spin brushes are better for your teeth than the manual kind... and my kid brushes longer.  </li>
+<li> Just what I needed to keep my teeth bright and clean.</li>
+<li> They clean well, and are a good value.</li>
+<li> it is the first battery-powered toothbrush that I have owned and it is great.</li>
+<li> It does a good job on keeping my teeth clean, and being able to replace the brush heads</li>
+<li> Kids (mine) brush better with the spinbrush.</li>
+<li> :)</li>
+<li> I checked in most stores and found that what I paid for these 2 replacement heads would be the price of 1 in most retail stores.</li>
+<li> This was much more convenient that shopping</li>
+<li> and I just love it.</li>
+<li> I am really pleased with the spinbrush-</li>
+<li> My husband thanked me for thinking of him :-)</li>
+<li> Im extremely pleased with my purchase.</li>
+<li> love this toothbrush.</li>
+<li> You can buy these for a better price than at any store.</li>
+<li> Can&#x27;t ask for more than that.</li>
+<li> Got it fast at a great price.</li>
+<li> I think it is better than the manual toothbrush.</li>
+<li> My wife and I love this product.  </li>
+<li> I love my spinbrush...</li>
+<li> I have been using this for two years and am pleased with it&#x27;s results.  </li>
+<li> A MUCH better price here on Amazon then at the store.</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> I had to buy two, the deal I could not pass up!  Going to a store, I would have paid twice, or three times as much.  I will buy from this site again.</li>
+    <li> I thought these were Crest because I have a Crest Spinbrush.  They are not Crest, and will not work with my toothbrush.</li>
+    <li> I received the ProClean &#x27;Sonic&#x27; Replacement Heads in error and realized the mistake only after opening the package. This head does not fit my brush.</li>
+    <li> I purchased these to replace my old heads. They&#x27;re not cheap but they were less expensive than in the stores. I like how well they clean my teeth. I feel like it&#x27;s getting all of my teeth thoroughly clean and polishing them as well.</li>
+    <li> I checked in most stores and found that what I paid for these 2 replacement heads would be the price of 1 in most retail stores.</li>
+    <li> Just what I needed! Product description is spot on. Thank you!!</li>
+    <li> My dentist said that spin brushes are better for your teeth than the manual kind... and my kid brushes longer.  Since he doesn&#x27;t crush down on them, they last longer as well.</li>
+    <li> Good price - love this product</li>
+    <li> although I like it, but I paid a lot for the shipping.</li>
+    <li> These heads are a great price and fit my Crest Spinbrush perfectly. Can&#x27;t ask for more than that. Definitely recommend.</li>
+    <li> I couldn&#x27;t find this product at any local stores. I found it on Amazon at a very competitive price. We try to teach our kids about recycling and not wasting, or throwing away items that can be re-used. That&#x27;s why we bought the replacement heads, so that we wouldn&#x27;t have to throw away the Spinbrush. We are very satisfied with the quality of the product,too.</li>
+    <li> I like to use an electric toothbrush and the Spinbrush works great for me.  I use it once every day and it lasts for months.  I feel like I have cleaned my teeth very well.</li>
+    <li> Easy to install, feels great, &amp; durable.</li>
+    <li> This is my second order already. I&#x27;ve been buying replacement heads since I switched to Spinbrush toothbrush last year. ([[ASIN:B000QS59ZM Spinbrush Prowhitening Battery Powered Toothbrush, Soft (Colors May Vary)]])&lt;br /&gt;&lt;br /&gt;The package includes 2 replacement heads and the package is intact. I don&#x27;t have any complaints about this product. I like Spinbrush ProClean toothbrush since it&#x27;s very affordable and works very well. The replacement is quite easy. Normally I replace the head every 3 months, so one package lasts 6 months. Definitely would recommend to anyone.</li>
+    <li> love it and love the price a whole 10 cents when I purchased them here they were almost six dollars</li>
+    <li> The brushes work well. It was a great buy for less than I would have got it for at a department store.</li>
+    <li> This is an excellent product</li>
+    <li> Its too bad that the spin brush is no longer made. That was one of the better type of electric tooth brushes. I am down to the last one. These brushes do a great job.</li>
+    <li> My  son gave me my first Spinbrush love it. Replacements are great love brushing my teeth.</li>
+    <li> It cannot totally fits, but can also work.</li>
+    <li> It&#x27;s difficult to find these bristles in retail stores, but Amazon (of course) had them in stock at a great price. High quality product, which works perfectly with my Spinbrush.</li>
+    <li> I love my spinbrush...and it&#x27;s nice to know I can buy replacement heads.</li>
+    <li> Just what I ordered and needed!</li>
+    <li> These are high quality, well-priced, and best of all, they are available in the Subscribe and Save program, so no more worn out, soiled toothbrush!</li>
+    <li> Somedays it&#x27;s just easier to order the thing you need via Amazon than try and search it out at the local super markets.  This is one of those things.</li>
+    <li> These were a great deal but could only be purchased as add-ons.  That was OK because I had other things to order.  It would not have been a good deal if I had had to include the shipping.  I can see where you are coming from with add-ons, but will not order them again unless I have a large purchase in the future.</li>
+    <li> There were so many negative reviews about these not fitting that I was very skeptical. They fit my spinbrush perfectly!</li>
+    <li> I guess there isn&#x27;t much to say, it&#x27;s the refill, not the brush itself. You have to replace the heads every so often and this is it. Kids (mine) brush better with the spinbrush.</li>
+    <li> Needed replacement brushes for my spin brush.  Price was great.  If you have a spin brush, these refillable just right</li>
+    <li> my kids suck at brushing at least I know the spin brush is doing most of the work as they stick it in their mouth for 2 seconds!</li>
+    <li> This spinbrush head is exactly the type of low-cost alternative most people need for an automatic toothbrush.  However, my experience is that replacement heads are nearly impossible to locate locally.  Hence, the Amazon purchase.</li>
+    <li> once starting using the spin brush - nothing else is good enough - I have these on the auto order to get a set every 6 months - this is the best price anywhere I&#x27;ve seen</li>
+    <li> The product is good quality and I have used it for along time and it&#x27;s still holding up.  I will definitely buy this same product when my current one wears out.</li>
+    <li> Just what I needed to keep my teeth bright and clean. I will order them again.</li>
+    <li> These toothbruch replacement heads cost a fortune in my neighborhood, so I was so glad to find them for a great price on Amazon and they are just great!</li>
+    <li> I am really pleased with the spinbrush- it does a very good job of keeping plaque off my teeth. The refills are hard to find in the store, so I was glad to find i could get them from Amazon, and have a subscription that brings me new ones every month.  We get them monthly, and my wife and i replace our brush heads.  Very satisfactory.  and a good price.</li>
+    <li> Amazon lists this is a replacement head for the Spinbrush Pro.  It isn&#x27;t.  It doesn&#x27;t fit that product.  Now I&#x27;ve got to waste my time dealing with a return on a $9 item.  Straighten this out, Amazon.</li>
+    <li> I would purchase again.</li>
+    <li> this is a replacement head for the spinbrush which works very well for me. They should be relaced every three months or so.</li>
+    <li> These toothbrush heads belong on the toothbrushes we use when we travel; they have a somewhat bigger head than most and do a very good job of cleaning teeth.</li>
+    <li> I usually buy these at the grocery store, but this price could not be beat.  I love my spin brush.</li>
+    <li> These replacement heads work fine. Been using for a couple of weeks and no problems.</li>
+    <li> These replacement heads did not fit the spinbrush that I ordered, the ad showed that they were sold with it.</li>
+    <li> Way over packaged!!! Seriously this small plastic item came in a large heavy duty durable plastic protective container. Way overdone! Otherwise the product was just what I wanted.</li>
+    <li> I always purchase this brand of soft bristles for my replacement toothbrush. It lasts for about three months, which is normal.</li>
+    <li> Ordered when ordered new toothbrush. Great deal for the combo. Easy to replace heads. Bristles are soft, clean product and packaging.</li>
+    <li> Great replacement heads. I would buy again. My dentist says the turning brushes are better for the gums and I have been doing better.</li>
+    <li> whats not to like...?? its replacement heads... click it in watch it spin get whit teeth that&#x27;s it buy it</li>
+    <li> just what I needed and much cheaper</li>
+    <li> I bought two sets of heads. The pro whitening ones fit my spinbrush a little better than the proclean and i prefer the feel of the pro whitening when i am using the spinbrush.</li>
+    <li> these are good replacement heads for the crest spinbrush. these spinbrush replacement heads do a good job of cleaning my teeth.</li>
+    <li> I must be the odd man out because I have the replaceable head meant for the rechargeable spin brush and I can&#x27;t get the arrow to line up. I still use it but the head keeps coming loose I have tried the Pro Clean and Pro Whitening because both state they can be used on the rechargeable brush and have the same problem.</li>
+    <li> A MUCH better price here on Amazon then at the store. I have ordered this item on several occasions and never had any problems. The Crest Spinbrush is really a great product for a great price. Especially when you compare it to the other electronic toothbrushes that I have reviewed. I also have only used Crest Toothpaste my entire life. I stand behind all of the Crest products. I dare you to try and find this cheaper. I am a penny pincher, and this is the best pricing I have found so far.</li>
+    <li> I&#x27;ve been using the Arm&amp;Hammer (formerly Crest) SpinBrush Pro for several years and I go through these pretty quickly, it seems. I have a hard time finding the soft bristled replacements in stores though.</li>
+    <li> Not available locally anymore, these are just what we needed!</li>
+    <li> Spinbrush is the only way I can brush my teeth!!</li>
+    <li> Great price.  I bought them as an add on.  They were a great deal and I used them on my brushes.</li>
+    <li> Just what I ordered. Perfect</li>
+    <li> Easy to use. Feel like I&#x27;m getting teeth a better clean. Less costly than other powered toothbrushes. I prefer this brush head that looks more like the traditional toothbrush.</li>
+    <li> Fit on toothbrush perfectly. A bit overpriced.</li>
+    <li> These are great toothbrushes/heads for the price! They clean well, and are a good value. I&#x27;ve been using them for a couple of years now.</li>
+    <li> Have a hard time for me finding these and glad I did  ,now the price is right and fits my Spin rechargeable which I love to use .</li>
+    <li> A great place to get Spinbrushes is at Amazon - what don&#x27;t they have??  We try to get a bunch of stuff at one time and that works out well.  And, Amazon is one of the best places to get what you need.</li>
+    <li> Fits securely onto the base.  Change out as recommended and you won&#x27;t have a problem.  Auto ship is a good option.</li>
+    <li> The price on this product is very competitively priced and pretty much work with all Crest/Arm and Hammer  brushes. This keeps us from having to replace our old Crest toothbrushes since the old styles have been phased out.</li>
+    <li> Fits our spinbrush handles perfectly. Provides new brushes at an affordable price. Arrived on time, just as advertised. Will purchase again!</li>
+    <li> Good brush but wears out kind of fast.  I find it comfortable on my teeth and would buy it again in the future.</li>
+    <li> This was a good price point compared to the local stores.  Though, I&#x27;ve found that the brushes tend to go out rather fast (Somewhere in the 1.5 month to 2 month range).&lt;br /&gt;&lt;br /&gt;I&#x27;m sure some of it is them being soft heads, but I&#x27;d like to see them last a little longer before giving way.</li>
+    <li> i don&#x27;t understand why most electric toothbrushes are so expensive? i love my Arm &amp; Hammer spinbrush so much! and buying my replacement heads on Amazon beats going to a Rite Aid and hoping they&#x27;ll have some in stock. Rite Aid is the most depressing place on earth.</li>
+    <li> Spinbrush proclean soft bristle fits good.</li>
+    <li> Wish they included a new cover for these too. But they fit and that&#x27;s what counts.</li>
+    <li> this spin brush works well in cleaning my teeth. It is gentle on my gums and the color changes to signal when to change the brush head. I think it is better than the manual toothbrush.</li>
+    <li> What can I say...there toothbrush heads! lol&lt;br /&gt;&lt;br /&gt;Arrived on time and in good condition. Works great to get those teeth clean as long as you keep up on the batteries!</li>
+    <li> The main reason I love these: I can order on Subscribe and Save and it&#x27;s an automatic reminder for me and my kids to change their toothbrush head!  Delivery is a snap...love that!  Highly recommend these!</li>
+    <li> You can buy these for a better price than at any store. They make your toothbrush feel like new again.</li>
+    <li> These are great little toothbrushes....and the replacement brushes are very reasonably priced.</li>
+    <li> The brush heads are the same and fit the same as my&lt;br /&gt;toothbrush.  This was much more convenient that shopping&lt;br /&gt;around.</li>
+    <li> Apparently my toothbrush has been phased out...?  So I was concerned these might not work.  I had a Crest Spinbrush Pro.  These fit perfectly and worked just fine.  They&#x27;re no different than the old ones I replaced, which is odd to me, considering Arm &amp; Hammer and Crest aren&#x27;t under the same parent company.  In any case, they are authentic Arm &amp; Hammer replacement heads, they fit the Crest brushes as well, and they&#x27;re cheaper than the store (especially with subscribe &amp; save).</li>
+    <li> spinbrush proclean replacement heads are great. easy to replace and the best tooth brush i&#x27;ve ever used.i really notice the difference from my regular tooth brush. my dentist notices too.</li>
+    <li> It works exactly as advertised and I really like using it.  My teeth feel really clean after using the Spinbrush.</li>
+    <li> I&#x27;m just glad I bought the right replacement head for my toothbrush this time. Seems like I&#x27;m always accidentally buying the wrong brand.</li>
+    <li> Pretty hard for &amp;#34;soft &amp;#34; brushes!</li>
+    <li> Love these toothbrushes and was happy to find these replacement heads. They fit as they should and as always, Amazon was less expensive than the local drugstore. So nice to find them in the &amp;#34;soft&amp;#34; version instead of medium.</li>
+    <li> I cant say enough good about the spinbrush. I have the one that charges on base and I just love it. Great job of cleaning.</li>
+    <li> Has been about 3 weeks and still working fine.  I would say these are just like the originals.(without the mark up)</li>
+    <li> Works well and less expensive purchased this way.</li>
+    <li> Easy to install, and I love the feel of a new brush head when it&#x27;s time to change.  They clean my teeth well enough that my Dentist gives me high marks.  :)</li>
+    <li> I ordered this product after checking the photo(which is the correct one for me)and got a different brushhead, which does not fit my spinbrush.  What a disappointment.</li>
+    <li> These are just what I needed for my Arm &amp; Hammer SpinBrush.  FYI the Crest SpinBrush uses different heads than the A&amp;H one.  They look the same and they will fit but the Crest only have the rotating head and not the other moving part (I found this out the hard way).</li>
+    <li> Good price for a good Spinbrush head replacement</li>
+    <li> I love the electric toothbrush and i was looking for an inexpensive price for the heads all over and amazon had the best price!&lt;br /&gt;&lt;br /&gt;I would tell everybody to get this toothbrush it makes my mouth feel so clean!!</li>
+    <li> love this toothbrush. it is the first battery-powered toothbrush that I have owned and it is great. The heads are extremely easy to change out and hold up really well.</li>
+    <li> These work the same as buying them from the store... arrived on time and much better than regular toothbrush! Love those smooth clean teeth!</li>
+    <li> I love these little guys! They work great, and I get them on automatic order every 2 months to switch out the old ones. I would definitely recommend!</li>
+    <li> Great value on replacement heads. They fit most tooth brushes made by  Spin brush Proclean.&lt;br /&gt;Can&#x27;t go wrong on the price.</li>
+    <li> My husband has sensitive teeth, and he has found that this SpinBrush works the best over a manual toothbrush; he also uses the sensitive toothpaste.  These are good quality, and are easy to change.  If you cannot afford the expensive electric toothbrushes, get a SpinBrush and these replacement heads; make sure you get them on Subscribe and Save.</li>
+    <li> What more can I say than a satisfied wife......so if you ave been married as long as I have you know what I mean, when Mommy is happy, everyone is happy.</li>
+    <li> I&#x27;ve been using my spinbrush for years now, as it was a gift from a family member. It does a good job on keeping my teeth clean, and being able to replace the brush heads keeps the brush as good as new. I haven&#x27;t had a cavity in over a decade, I&#x27;ll take that as a good sign.</li>
+    <li> We like this spin brush &amp; these heads. They seems to work well for daily use &amp; in last one year my teeth &amp; gums are healthier.</li>
+    <li> since I started using spinbrush i have not gone back to regular toothbrushes this brushes does such a good job of cleaning your teeth that you mouth feels as if you had just left the dentist office. great product highly recommended thank you</li>
+    <li> It looked the same as the head I wanted to replace but it didn&#x27;t align properly. The arrows on the head and neck of the brush are about 30 degrees off.</li>
+    <li> 5-20-13.  We have used the Spinbrush Proclean Replacement Heads, Soft, 2-pack  since this product was brought to market a number of years go under the brand of Crest. The prices have increased significantly over the years with Walmart being the lowest price. However, Walmart is the same price as amazon.com and you have to take the time to go and purchase them - if they are in stock.  Amazon Prime reorder is the best price and convenience available at this time.</li>
+    <li> product is good. I use to use this brushes and they do the job well. No to compare with high end products but for the price they are perfect.</li>
+    <li> It&#x27;s a toothbrush. It works.</li>
+    <li> Perfect replacement for the new spinbrush I bought in a thrift store.</li>
+    <li> I am very pleased with my purchase of the Spin Brush. It has bristles that are not too soft or to firm. It vibrates at a rate that gets my teeth really clean.</li>
+    <li> These type of replacement heads are always insanely expensive, but not a bad deal for a product that does its job.</li>
+    <li> This is an excellent battery operated toothbrush replacement brush heads. Excellent product - good prices! I will absolutely buy again!</li>
+    <li> I got what I paid for.  THey are the spinbrush brand ones.  You will get what you order with this</li>
+    <li> I&#x27;ve been using the spinbrush for a few years now and always thought the heads were too expensive. Now I&#x27;m a happy user as Amazon sells them cheaper, ships them free and no tax. I use rechargeable batteries in mine to be as green as possible, but I do Have to &amp;#34;replace&amp;#34; them more frequently.</li>
+    <li> I&#x27;d recommend this product to anyone.  This is the exact replacement for the spin brush.  It keeps pretty good and works well.</li>
+    <li> The interesting thing is sometimes, it&#x27;s cheaper to buy two new toothbrushes as opposed to just buying the replacement heads.  It&#x27;s a good toothbrush overall.</li>
+    <li> order on a regular basis.  a good fit for my rechargable unit.  price is right.  we will keep the orders coming</li>
+    <li> As advertised... good replacement product.</li>
+    <li> I actually love these better than the Oral B high dollar brushes!  The drastic price difference is a savings you just can&#x27;t pass up.  Were shipped quickly and well packaged.  Always satisfied with ordering from Amazon, they have the best sellers!</li>
+    <li> Exactly what is described, package came intact and on time. This toothbrush in general is very good and I would highly recommend it.</li>
+    <li> They where What I needed for my Spin Brushes. Now I have one with me evey where. and three to spare</li>
+    <li> It arrived as expected, on time and as described. Already used this and it works perfectly. It is a great product for the price. I would highly recommend.</li>
+    <li> and very inexpensive compared to all the others. I see a lot of sellers selling &amp;#34;Crest spinbrush&amp;#34; but am not sure if they work on the arm &amp; hammer brush, I asked the vendor who said he has sold several and only one person said it didn&#x27;t fit.&lt;br /&gt;&lt;br /&gt;If anyone knows if they are compatible, please let me know or if I buy the Crest brand I will update this entry.</li>
+    <li> I prefer the battery-powered toothbrushes with inter-changeable heads.  I can&#x27;t always find the heads I need, so I was pleased to find these at Amazon.com at a good price.  They fit my toothbrush and perform well.  I like that the diminishing blue color on the tip of the bristles indicates when it is time to change heads.  I prefer the soft bristles.  Amazon offers a choice of bristle strength and designs, so make sure you get the one you want by reading the product description carefully.  I appreciate the reviews of other customers, so I try to do my part by reviewing products I feel are worthwhile.  This is a good product.</li>
+    <li> I received two as expected.  When they go on, they are not perfectly aligned but still works well.</li>
+    <li> These are definitely soft I guess I should have paid attention when I bought them. I would have like them a bit stiffer but this is what I would expect if I wanted to order (soft) replacement heads for my Spinbrush.</li>
+    <li> The Spinbrush Proclean was just as was expected for replacement heads.  What else is there to say about this product?</li>
+    <li> I have been using this for two years and am pleased with it&#x27;s results.  It&#x27;s very easy on the enamel and great on the gums.  Just change the batteries regularly and you will get maximum performance.</li>
+    <li> Great price &amp; great quality. Perfect match for replacement. Im extremely pleased with my purchase. I would highly recommended this product.</li>
+    <li> My husband thanked me for thinking of him :-)</li>
+    <li> if you turn the new heads the full amount it binds the action, I backed it off a little and it works fine</li>
+    <li> Does the job. Cleans the teeth well. You still need to floss though because it can&#x27;t clean between the teeth.</li>
+    <li> I use this as replacement for my Spinbrush. Shipped fast, got tired looking in stores for it. Got it fast at a great price.</li>
+    <li> Shipment was on time and properly packaged for transit. Brush fits well on to my battery motor/driven brush holder. Very good product.</li>
+    <li> great replacement for mt brush and keeps  me from buying a new brush every month or so.</li>
+    <li> This product is what I have been using for some time. It cleans well and I like it much better than the old fashioned tooth brush at my age.</li>
+    <li> These do the trick for extending the life and hygiene of my kids rechargeable toothbrushes, but they don&#x27;t work perfectly. My son cries that his doesn&#x27;t spin when he powers his brush on. Still the price is great and he can still brush his teeth!</li>
+    <li> Works well, is an OEM replacement at a fair price</li>
+    <li> incredibly easy to replace. great purchase.</li>
+    <li> Makes your teeth feel polished, smooth, and very clean.  It feels like I&#x27;ve just been to the dentist and had a cleaning.</li>
+    <li> I found these cheaper here on amazon then at walmart... only a few dollars, sure, but combined with my prime 2-day shipping, it is definitely convenient to save money, and get stuff right to my door fast fast fast. The toothbrush heads work just fine, exactly the way they should.&lt;br /&gt;&lt;br /&gt;I&#x27;m not sure if the design has changed slightly, but they don&#x27;t twist straight onto the toothbrush body like my other heads did. These lock on fine, but sit at a bit of a funny angle from the front part of the handle. It still works fine, but it&#x27;s a little annoying. Either way, clean teeth are clean teeth, and if you&#x27;re going to buy something, might as well get it at the best price you can. I found that here on amazon.</li>
+    <li> The item came in good time and fit the spinbrush perfectly and works great would buy again for the price.  I would recommend to a friend</li>
+    <li> Exactly as advertised.</li>
+    <li> As advertised, no problems.</li>
+    <li> Low price with quick delivery.  Fits perfectly too.</li>
+    <li> I have used this before and I find that it does a great job in cleaning my teeth.</li>
+    <li> Product as advertised.</li>
+    <li> didn&#x27;t fit my brush anymore</li>
+    <li> These spinbrush proclean replacement heads are wonderful except that I accidentally ordered the wrong ones. I may as well just get the rest of the unit. The heads are uniquely shaped with different sized bristles for accurate and thorough cleaning. They appear to be of good quality.</li>
+    <li> $5 versus $7+ in stores is not a bad price. As long as the spinbrushes continue working, I&#x27;ll buy these replacement heads.</li>
+    <li> My wife and I love this product.  The replacement heads are not terribly expensive.  We tried Phillips Sonic Care toothbrushes (also purchased on the Amazon website), and found that they are actually inferior to the Spinbrush toothbrushes.  We will be loyal users of this product for years to come.</li>
+    <li> The Spinbrush is a high quality, low cost product and the replacement heads do exactly what they&#x27;re supposed to do as replacement heads.</li>
+    <li> I was tired of buying all new handles and heads. These fit excellently on the handle. Now, I not only save money, but I don&#x27;t have to worry about having empty handles in the closet!</li>
+    <li> HARD TO FIND IN LOCAL STORES.  DON&#x27;T LAST QUITE AS LONG AS I&#x27;D LIKE. BUT LIKE THE ACTION.</li>
+</ol>
+
+
+
+

@@ -1,0 +1,38 @@
+---
+title: {{seo.title}},
+description: {{seo.description}},
+author: {{author}},
+tags: {{seo.tags}},
+publishedAt: {{created_at}},
+modifiedAt: {{updated_at}},
+---
+
+# [{{title}}](https://products.checkmycream.com/products/{{slug}}.html)
+
+### Positive Reviews
+
+<ol>
+  {{#each positive_reviews}}
+      <li>{{this}}</li>
+  {{/each}}
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+{{#each negative_reviews}}
+<li> {{this}}</li>
+{{/each}}
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+{{#each reviews}}
+    <li> {{this}}</li>
+{{/each}}
+</ol>
+
+
+
+

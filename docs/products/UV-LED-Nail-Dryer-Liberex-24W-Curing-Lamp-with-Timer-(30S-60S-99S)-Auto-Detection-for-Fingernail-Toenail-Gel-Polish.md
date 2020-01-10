@@ -3,8 +3,8 @@ title: UV LED Nail Dryer, Liberex 24W Curing Lamp with Timer (30S, 60S, 99S) Aut
 description: UV LED Nail Dryer, Liberex 24W Curing Lamp with Timer (30S, 60S, 99S) Auto Detection for Fingernail Toenail Gel Polish,
 author: Suvojit Manna,
 tags: UV LED Nail Dryer, Liberex 24W Curing Lamp with Timer (30S, 60S, 99S) Auto Detection for Fingernail Toenail Gel Polish,
-publishedAt: Thu Jan 09 2020 19:08:35 GMT+0530 (India Standard Time),
-modifiedAt: Thu Jan 09 2020 19:08:35 GMT+0530 (India Standard Time),
+publishedAt: Fri Jan 10 2020 15:00:15 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:15 GMT+0530 (India Standard Time),
 ---
 
 # [UV LED Nail Dryer, Liberex 24W Curing Lamp with Timer (30S, 60S, 99S) Auto Detection for Fingernail Toenail Gel Polish](https://products.checkmycream.com/products/UV-LED-Nail-Dryer-Liberex-24W-Curing-Lamp-with-Timer-(30S-60S-99S)-Auto-Detection-for-Fingernail-Toenail-Gel-Polish.html)
@@ -12,211 +12,211 @@ modifiedAt: Thu Jan 09 2020 19:08:35 GMT+0530 (India Standard Time),
 ### Positive Reviews
 
 <ol>
+      <li>This thing is great!  </li>
+      <li>The best UV nail dryer!</li>
+      <li>The best what I bought for my nails !</li>
       <li>Works superbly just like the salons.</li>
+      <li>I was told by my nail tech that LED lamps are the best which explains some issues I&#x27;ve had with this uv lamp.</li>
+      <li>then I came across this dyer and read all the reviews and it very great.</li>
+      <li>and it works great!</li>
+      <li>I didn&#x27;t know anything about UV lights before buying this product but after doing some research, this seemed to be the best deal with the best reviews!  </li>
+      <li>Cures each coat in 2-3 minutes, works great!</li>
+      <li>Very happy with this lamp!</li>
+      <li>so amazed really happy with this product!!</li>
+      <li>She is extremely happy with the product!  </li>
+      <li>*Use rubbing alcohol after curing polish to get the perfect salon feel- not sticky nails!</li>
+      <li>I purchased all CND products and worked perfectly the 1st time.  </li>
       <li>Works perfect!</li>
-      <li>Great lamp!</li>
+      <li>Its perfect.</li>
+      <li>Perfect for at home gel manicures.  </li>
       <li>Great product!</li>
+      <li>Great lamp!</li>
+      <li>This is a great product!</li>
+      <li>Excellent company to do business with!</li>
+      <li>Great product!</li>
+      <li>happy DIY nails ladies!</li>
+      <li>Works great!  </li>
+      <li>Perfect for gel  nails.</li>
       <li>Perfect size and great value!</li>
+      <li>this is the perfect lamp.</li>
+      <li>great value!!</li>
+      <li>A great buy!!!</li>
+      <li>This nail dryer works great!  </li>
+      <li>It cures my Gelish nails and gives them a great shine!</li>
+      <li>and her nails look great!</li>
+      <li>Great buy!</li>
       <li>Perfect even for feet.</li>
+      <li>This machine works awesome,  </li>
+      <li>The price also makes me feel like I got the best deal around!!</li>
+      <li>This lamp is GREAT!!!  </li>
+      <li>perfect!!</li>
+      <li>I have beautiful shellaced nails!</li>
+      <li>This dryer is the best thing that I have found for under $300</li>
+      <li>works great!!!...</li>
+      <li>Works great!</li>
+      <li>It has excellent power and plenty of room for two hands or feet.</li>
+      <li>but I can&#x27;t wait to try out gels and applying tips. :D</li>
+      <li>I am so happy with this product!  </li>
+      <li>Wonderful company.</li>
+      <li>If you can&#x27;t afford an LED, I truly feel this is the best buy out there.  </li>
+      <li>Very happy with my purchase..works great!</li>
+      <li>I use it with the cnd polish and it cures perfectly.</li>
       <li>Works great!!</li>
+      <li>I am very happy with this dryer.</li>
+      <li>Very great product.  </li>
+      <li>it&#x27;s awesome......</li>
+      <li>Great product, would recommend it to a friend!</li>
+      <li>This product works great!</li>
+      <li>Excellent product.  </li>
+      <li>and it cures perfectly!</li>
+      <li>It is the brand my nail tech put on my nails, so I knew IBD WAS GREAT!  </li>
+      <li>But using Opi products together give you a wonderful outcome.  </li>
+      <li>This Dryer is great!  </li>
+      <li>It&#x27;s the best.</li>
+      <li>Wonderful!...</li>
+      <li>This nail dryer is awesome.  </li>
       <li>It works perfect and drying time is a breeze!!</li>
+      <li>They are wonderful to work with.  </li>
+      <li>Very very impressed!</li>
+      <li>Amazed and happy!</li>
+      <li>Awesome product!</li>
+      <li>Great buy!</li>
+      <li>my manicure still looks PERFECT.</li>
+      <li>excellent!</li>
+      <li>THIS IS THE BEST INVESTMENT FOR MY NAILS</li>
+      <li>Great value!</li>
       <li>and I&#x27;ve been so impressed I have purchased another one as a gift.</li>
+      <li>Great  product!!</li>
+      <li>The lamp worked perfect.</li>
+      <li>Very satisfied!!!!!</li>
+      <li>Absolutely awesome product.  </li>
+      <li>The bulbs were included and they snapped in &amp; illuminated perfect.</li>
+      <li>This product works perfectly she said.</li>
+      <li>Great Product!!!</li>
+      <li>Works great!</li>
+      <li>This lamp is perfect.</li>
+      <li>Works great!</li>
+      <li>UV Nail Dryer is AWESOME!  </li>
       <li>Just used this UV nail dryer and it works so great!</li>
+      <li>For me, it is wonderful.  </li>
+      <li>I am loving it!!!</li>
+      <li>it came out perfect.</li>
+      <li>Even my brother was impressed when he saw it.</li>
+      <li>at a great price!!</li>
+      <li>Arrived wuickly and works perfectly with OPI Axxium polish.</li>
+      <li>My nails turned out great!  </li>
       <li>I did my research on this and its perfect!!!!!!!  </li>
       <li>and it&#x27;s just perfect.  </li>
       <li>Excellent lamp.  </li>
-      <li>It is the best gel dryer I&#x27;ve had!</li>
-      <li>Works great!</li>
-      <li>Great price!</li>
-      <li>Excellent, nails came out shinier using this unit com pared with another one that I have.</li>
-      <li>Price was the best out there.</li>
-      <li>This was a wonderful purchase.</li>
-      <li>Quality product--does great!</li>
-      <li>This is amazing!!!</li>
-      <li>Works great! !</li>
-      <li>Works great!  </li>
-      <li>I was so impressed, at this price</li>
-      <li>My wife and three daughters use this every week or so and it has worked perfectly for a year.</li>
-      <li>and this one does an excellent job.  </li>
-      <li>Perfect nails every time.  </li>
-      <li>It&#x27;s an excellent price for how well it works.</li>
-      <li>Bought this lamp after reading the reviews and I&#x27;m very happy with it.</li>
-      <li>Works great!</li>
-      <li>Works wonderfully.</li>
-      <li>Awesome product!!</li>
-      <li>Very happy with this product.</li>
-      <li>I read marvelous reviews on this</li>
-      <li>This dryer works great!  </li>
-      <li>It&#x27;s perfect!</li>
-      <li>it&#x27;s great!!</li>
-      <li>Wonderful product.</li>
-      <li>This product is great!</li>
-      <li>I ordered this product and think it is awesome.  </li>
-      <li>Plus, the price and quality are exceptional!!</li>
-      <li>and the packaging was great!  </li>
-      <li>Great Buy!</li>
-      <li>LOVE IT woul buy it anytime again,Thank You!!!!!</li>
-      <li>This thing is great!  </li>
-      <li>Excellent product for the price.</li>
-      <li>We are very happy with the purchase.</li>
-      <li>Happy painting!</li>
-      <li>Awesome product !!  </li>
-      <li>I was getting something so awesome.</li>
-      <li>I am very happy with it.</li>
-      <li>It is a wonderful size.</li>
-      <li>Works perfectly.  </li>
-      <li>This is wonderful!!!</li>
-      <li>Great product!  </li>
-      <li>I had no idea what nail dryer would be the best</li>
-      <li>This lamp cured my gel polish in no time and they were perfect!</li>
-      <li>Works perfect!</li>
-      <li>I felt this was the BEST value for the money because 1)</li>
+      <li>awesome transaction and awesome product!</li>
+      <li>and they turned out perfect.</li>
+      <li>Works excellent.</li>
       <li>Great product!</li>
-      <li>So great that the manicurist in my salon ordered one to use on her clients!</li>
-      <li>I am very happy with it and now always have my nails done!</li>
-      <li>I am very happy with the way it cures the gel product.  </li>
-      <li>knew then that it was time to come to Amazon and start looking for the perfect products to outfit my set with, that I was going to treat myself to something super-girly for my 40th birthday, and gel manicure components were gonna be IT!</li>
-      <li>With the color on, they&#x27;re feminine and beautiful!</li>
-      <li>With the color on, they&#x27;re feminine and beautiful!</li>
-      <li>Awesome item!  </li>
-      <li>Very happy with the unit.  </li>
-      <li>Product arrived on time and in perfect condition.  </li>
-      <li>We use it with CND Shellac products and have been very satisfied!!</li>
-      <li>These gloves are the very best.</li>
-      <li>It works great with gel polishes and builder gels!</li>
-      <li>My nails look awesome for a fraction of the salon cost.</li>
-      <li>this is the best lamp i have ever used.</li>
-      <li>This dryer works great!  </li>
-      <li>Changed my gel nails for the best.  </li>
-      <li>This uv lamp is excellent!!!!!</li>
-      <li>Arrived wuickly and works perfectly with OPI Axxium polish.</li>
-      <li>Excellent product.  </li>
-      <li>this is the perfect lamp.</li>
-      <li>Great product!</li>
-      <li>I didn&#x27;t know anything about UV lights before buying this product but after doing some research, this seemed to be the best deal with the best reviews!  </li>
-      <li>I have beautiful shellaced nails!</li>
-      <li>I am so happy with this product!  </li>
-      <li>Works great!</li>
-      <li>UV Nail Dryer is AWESOME!  </li>
-      <li>B005MG86TY]]&lt;br /&gt;&lt;br /&gt;REMEMBER:  After you cure the Top Coat it WILL BE TACKY!!!!  </li>
-      <li>Well, it helps cure your nail coating and looks shiney and beautiful after removing it!  </li>
-      <li>, some great tips posted on here!&lt;br /&gt;&lt;br /&gt;I 100% recommend this UV dryer!</li>
-      <li>Perfect for at home gel nails</li>
-      <li>The price was excellent.  </li>
-      <li>I&#x27;m very happy with it.</li>
-      <li>Great product!  </li>
-      <li>Very happy with this purchase.</li>
-      <li>So Happy I Have this!!!</li>
-      <li>Excellent product !</li>
-      <li>Very happy with my purchase and the service provided.</li>
-      <li>It is great!  </li>
-      <li>Very pleased with my purchase!!!</li>
-      <li>Perfect for salon manicures at home.  </li>
 </ol>
 
 
 <h2>Negative Reviews</h2>
 <ol>
+<li> This thing is great!  </li>
+<li> The best UV nail dryer!</li>
+<li> The best what I bought for my nails !</li>
 <li> Works superbly just like the salons.</li>
+<li> I was told by my nail tech that LED lamps are the best which explains some issues I&#x27;ve had with this uv lamp.</li>
+<li> then I came across this dyer and read all the reviews and it very great.</li>
+<li> and it works great!</li>
+<li> I didn&#x27;t know anything about UV lights before buying this product but after doing some research, this seemed to be the best deal with the best reviews!  </li>
+<li> Cures each coat in 2-3 minutes, works great!</li>
+<li> Very happy with this lamp!</li>
+<li> so amazed really happy with this product!!</li>
+<li> She is extremely happy with the product!  </li>
+<li> *Use rubbing alcohol after curing polish to get the perfect salon feel- not sticky nails!</li>
+<li> I purchased all CND products and worked perfectly the 1st time.  </li>
 <li> Works perfect!</li>
-<li> Great lamp!</li>
+<li> Its perfect.</li>
+<li> Perfect for at home gel manicures.  </li>
 <li> Great product!</li>
+<li> Great lamp!</li>
+<li> This is a great product!</li>
+<li> Excellent company to do business with!</li>
+<li> Great product!</li>
+<li> happy DIY nails ladies!</li>
+<li> Works great!  </li>
+<li> Perfect for gel  nails.</li>
 <li> Perfect size and great value!</li>
+<li> this is the perfect lamp.</li>
+<li> great value!!</li>
+<li> A great buy!!!</li>
+<li> This nail dryer works great!  </li>
+<li> It cures my Gelish nails and gives them a great shine!</li>
+<li> and her nails look great!</li>
+<li> Great buy!</li>
 <li> Perfect even for feet.</li>
+<li> This machine works awesome,  </li>
+<li> The price also makes me feel like I got the best deal around!!</li>
+<li> This lamp is GREAT!!!  </li>
+<li> perfect!!</li>
+<li> I have beautiful shellaced nails!</li>
+<li> This dryer is the best thing that I have found for under $300</li>
+<li> works great!!!...</li>
+<li> Works great!</li>
+<li> It has excellent power and plenty of room for two hands or feet.</li>
+<li> but I can&#x27;t wait to try out gels and applying tips. :D</li>
+<li> I am so happy with this product!  </li>
+<li> Wonderful company.</li>
+<li> If you can&#x27;t afford an LED, I truly feel this is the best buy out there.  </li>
+<li> Very happy with my purchase..works great!</li>
+<li> I use it with the cnd polish and it cures perfectly.</li>
 <li> Works great!!</li>
+<li> I am very happy with this dryer.</li>
+<li> Very great product.  </li>
+<li> it&#x27;s awesome......</li>
+<li> Great product, would recommend it to a friend!</li>
+<li> This product works great!</li>
+<li> Excellent product.  </li>
+<li> and it cures perfectly!</li>
+<li> It is the brand my nail tech put on my nails, so I knew IBD WAS GREAT!  </li>
+<li> But using Opi products together give you a wonderful outcome.  </li>
+<li> This Dryer is great!  </li>
+<li> It&#x27;s the best.</li>
+<li> Wonderful!...</li>
+<li> This nail dryer is awesome.  </li>
 <li> It works perfect and drying time is a breeze!!</li>
+<li> They are wonderful to work with.  </li>
+<li> Very very impressed!</li>
+<li> Amazed and happy!</li>
+<li> Awesome product!</li>
+<li> Great buy!</li>
+<li> my manicure still looks PERFECT.</li>
+<li> excellent!</li>
+<li> THIS IS THE BEST INVESTMENT FOR MY NAILS</li>
+<li> Great value!</li>
 <li> and I&#x27;ve been so impressed I have purchased another one as a gift.</li>
+<li> Great  product!!</li>
+<li> The lamp worked perfect.</li>
+<li> Very satisfied!!!!!</li>
+<li> Absolutely awesome product.  </li>
+<li> The bulbs were included and they snapped in &amp; illuminated perfect.</li>
+<li> This product works perfectly she said.</li>
+<li> Great Product!!!</li>
+<li> Works great!</li>
+<li> This lamp is perfect.</li>
+<li> Works great!</li>
+<li> UV Nail Dryer is AWESOME!  </li>
 <li> Just used this UV nail dryer and it works so great!</li>
+<li> For me, it is wonderful.  </li>
+<li> I am loving it!!!</li>
+<li> it came out perfect.</li>
+<li> Even my brother was impressed when he saw it.</li>
+<li> at a great price!!</li>
+<li> Arrived wuickly and works perfectly with OPI Axxium polish.</li>
+<li> My nails turned out great!  </li>
 <li> I did my research on this and its perfect!!!!!!!  </li>
 <li> and it&#x27;s just perfect.  </li>
 <li> Excellent lamp.  </li>
-<li> It is the best gel dryer I&#x27;ve had!</li>
-<li> Works great!</li>
-<li> Great price!</li>
-<li> Excellent, nails came out shinier using this unit com pared with another one that I have.</li>
-<li> Price was the best out there.</li>
-<li> This was a wonderful purchase.</li>
-<li> Quality product--does great!</li>
-<li> This is amazing!!!</li>
-<li> Works great! !</li>
-<li> Works great!  </li>
-<li> I was so impressed, at this price</li>
-<li> My wife and three daughters use this every week or so and it has worked perfectly for a year.</li>
-<li> and this one does an excellent job.  </li>
-<li> Perfect nails every time.  </li>
-<li> It&#x27;s an excellent price for how well it works.</li>
-<li> Bought this lamp after reading the reviews and I&#x27;m very happy with it.</li>
-<li> Works great!</li>
-<li> Works wonderfully.</li>
-<li> Awesome product!!</li>
-<li> Very happy with this product.</li>
-<li> I read marvelous reviews on this</li>
-<li> This dryer works great!  </li>
-<li> It&#x27;s perfect!</li>
-<li> it&#x27;s great!!</li>
-<li> Wonderful product.</li>
-<li> This product is great!</li>
-<li> I ordered this product and think it is awesome.  </li>
-<li> Plus, the price and quality are exceptional!!</li>
-<li> and the packaging was great!  </li>
-<li> Great Buy!</li>
-<li> LOVE IT woul buy it anytime again,Thank You!!!!!</li>
-<li> This thing is great!  </li>
-<li> Excellent product for the price.</li>
-<li> We are very happy with the purchase.</li>
-<li> Happy painting!</li>
-<li> Awesome product !!  </li>
-<li> I was getting something so awesome.</li>
-<li> I am very happy with it.</li>
-<li> It is a wonderful size.</li>
-<li> Works perfectly.  </li>
-<li> This is wonderful!!!</li>
-<li> Great product!  </li>
-<li> I had no idea what nail dryer would be the best</li>
-<li> This lamp cured my gel polish in no time and they were perfect!</li>
-<li> Works perfect!</li>
-<li> I felt this was the BEST value for the money because 1)</li>
+<li> awesome transaction and awesome product!</li>
+<li> and they turned out perfect.</li>
+<li> Works excellent.</li>
 <li> Great product!</li>
-<li> So great that the manicurist in my salon ordered one to use on her clients!</li>
-<li> I am very happy with it and now always have my nails done!</li>
-<li> I am very happy with the way it cures the gel product.  </li>
-<li> knew then that it was time to come to Amazon and start looking for the perfect products to outfit my set with, that I was going to treat myself to something super-girly for my 40th birthday, and gel manicure components were gonna be IT!</li>
-<li> With the color on, they&#x27;re feminine and beautiful!</li>
-<li> With the color on, they&#x27;re feminine and beautiful!</li>
-<li> Awesome item!  </li>
-<li> Very happy with the unit.  </li>
-<li> Product arrived on time and in perfect condition.  </li>
-<li> We use it with CND Shellac products and have been very satisfied!!</li>
-<li> These gloves are the very best.</li>
-<li> It works great with gel polishes and builder gels!</li>
-<li> My nails look awesome for a fraction of the salon cost.</li>
-<li> this is the best lamp i have ever used.</li>
-<li> This dryer works great!  </li>
-<li> Changed my gel nails for the best.  </li>
-<li> This uv lamp is excellent!!!!!</li>
-<li> Arrived wuickly and works perfectly with OPI Axxium polish.</li>
-<li> Excellent product.  </li>
-<li> this is the perfect lamp.</li>
-<li> Great product!</li>
-<li> I didn&#x27;t know anything about UV lights before buying this product but after doing some research, this seemed to be the best deal with the best reviews!  </li>
-<li> I have beautiful shellaced nails!</li>
-<li> I am so happy with this product!  </li>
-<li> Works great!</li>
-<li> UV Nail Dryer is AWESOME!  </li>
-<li> B005MG86TY]]&lt;br /&gt;&lt;br /&gt;REMEMBER:  After you cure the Top Coat it WILL BE TACKY!!!!  </li>
-<li> Well, it helps cure your nail coating and looks shiney and beautiful after removing it!  </li>
-<li> , some great tips posted on here!&lt;br /&gt;&lt;br /&gt;I 100% recommend this UV dryer!</li>
-<li> Perfect for at home gel nails</li>
-<li> The price was excellent.  </li>
-<li> I&#x27;m very happy with it.</li>
-<li> Great product!  </li>
-<li> Very happy with this purchase.</li>
-<li> So Happy I Have this!!!</li>
-<li> Excellent product !</li>
-<li> Very happy with my purchase and the service provided.</li>
-<li> It is great!  </li>
-<li> Very pleased with my purchase!!!</li>
-<li> Perfect for salon manicures at home.  </li>
 </ol>
 
 <h2>All Reviews</h2>
@@ -2102,6 +2102,7 @@ modifiedAt: Thu Jan 09 2020 19:08:35 GMT+0530 (India Standard Time),
     <li> I got this for doing gel nails at home. It came promptly, before any of the polishes I ordered, which was a frustrating wait. I have never used one before but the set up is pretty self explanatory and quick.&lt;br /&gt;&lt;br /&gt;It&#x27;s big enough for both hands or feet, which is perfect when doing a friend&#x27;s nails. While gel polishes have varying times to cure polish depending on brand or color, since those recommendations are based off of a 36 watt UV dryer, and this is a 54 watt dryer, the minimum time has always worked for me.&lt;br /&gt;&lt;br /&gt;The only possible issue I might see for people is that it didn&#x27;t really have much of an instruction manual, but I&#x27;m one of those people who puts stuff together first and only looks at the manual if there&#x27;s a problem. And as I said, this was really simple to put together so that isn&#x27;t an issue for me, but might be for someone else.&lt;br /&gt;&lt;br /&gt;This was a great buy. I will likely buy it again if it breaks (within a reasonable amount of time) and I definitely recommend it.</li>
     <li> I researched nail dryers for a long time before purchase and I&#x27;m very happy with his - it&#x27;s large enough to fit your whole hand with several convenient time options. I usually do not use the fan, but is nice to have as a feature.</li>
 </ol>
+
 
 
 

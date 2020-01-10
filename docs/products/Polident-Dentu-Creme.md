@@ -1,0 +1,82 @@
+---
+title: Polident Dentu-Creme,
+description: Polident Dentu-Creme,
+author: Suvojit Manna,
+tags: Polident Dentu-Creme,
+publishedAt: Fri Jan 10 2020 14:59:55 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:59:55 GMT+0530 (India Standard Time),
+---
+
+# [Polident Dentu-Creme](https://products.checkmycream.com/products/Polident-Dentu-Creme.html)
+
+### Positive Reviews
+
+<ol>
+      <li>This is the best toothpaste for me</li>
+      <li>THIS IS VERY GOOD</li>
+      <li>Great productIon.com.</li>
+      <li>good service</li>
+      <li>Good stuff.</li>
+      <li>great product, it does what it says it will do and keeps the dentures fresh.</li>
+      <li>Nothing more to say - it is toothpaste.</li>
+      <li>But I&#x27;ve used this Dentu Crème for many years.</li>
+      <li>so glad you do.  </li>
+      <li>This is better that the paste</li>
+      <li>They did feel clean though.</li>
+      <li>Excellent ,hard to find in retail stores, at a reasonable price.</li>
+      <li>It was just what I was looking for, and hadn&#x27;t been able to locate it at my local drug stores.&lt;br /&gt;Thank you.</li>
+      <li>It was exactly what we wanted.</li>
+      <li>I wouldn&#x27;t use any other kind.</li>
+      <li>my dentures seems so much cleaner.</li>
+      <li>Apparently a lot of stores don&#x27;t sell this anymore</li>
+      <li>THE NEAR FUTURE.</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> This is the best toothpaste for me</li>
+<li> THIS IS VERY GOOD</li>
+<li> Great productIon.com.</li>
+<li> good service</li>
+<li> Good stuff.</li>
+<li> great product, it does what it says it will do and keeps the dentures fresh.</li>
+<li> Nothing more to say - it is toothpaste.</li>
+<li> But I&#x27;ve used this Dentu Crème for many years.</li>
+<li> so glad you do.  </li>
+<li> This is better that the paste</li>
+<li> They did feel clean though.</li>
+<li> Excellent ,hard to find in retail stores, at a reasonable price.</li>
+<li> It was just what I was looking for, and hadn&#x27;t been able to locate it at my local drug stores.&lt;br /&gt;Thank you.</li>
+<li> It was exactly what we wanted.</li>
+<li> I wouldn&#x27;t use any other kind.</li>
+<li> my dentures seems so much cleaner.</li>
+<li> Apparently a lot of stores don&#x27;t sell this anymore</li>
+<li> THE NEAR FUTURE.</li>
+<li> It was everything I expected.</li>
+<li> It is so hard to find it in the stores.</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> It was just what I was looking for, and hadn&#x27;t been able to locate it at my local drug stores.&lt;br /&gt;Thank you.</li>
+    <li> It was everything I expected. It is so hard to find it in the stores.You are a Godsend.</li>
+    <li> did what it was supposed to</li>
+    <li> The Product Features section of this product description is incorrect. This product is a denture toothpaste, not an overnight soak type of product.</li>
+    <li> This is the best toothpaste for me</li>
+    <li> THIS IS VERY GOOD BUT FOR SOME REASON THE STORES AROUND HERE  HAVE QUIT CARRYING IT.  I WILL BE PURCHASING AGAIN THE NEAR FUTURE.</li>
+    <li> Excellent ,hard to find in retail stores, at a reasonable price.</li>
+    <li> It was exactly what we wanted.</li>
+    <li> This is better that the paste</li>
+    <li> This is the only tooth paste I use for my dentures. For some reason I haven&#x27;t found out yet, the drug stores and grocery stores are out and I just couldn&#x27;t find ANYWHERE to buy it from. Then I just decided to try Amazon, and as you can see, I can finally get it again. But I&#x27;ve used this Dentu Crème for many years. I wouldn&#x27;t use any other kind. Good stuff.</li>
+    <li> great product, it does what it says it will do and keeps the dentures fresh.</li>
+    <li> Great productIon.com. good service</li>
+    <li> Apparently a lot of stores don&#x27;t sell this anymore so glad you do.  Nothing more to say - it is toothpaste.</li>
+    <li> Reasonably priced and not locally available. my dentures seems so much cleaner.</li>
+    <li> I don&#x27;t care for this product. Couldn&#x27;t get the taste off my teeth. They did feel clean though.</li>
+</ol>
+
+
+
+

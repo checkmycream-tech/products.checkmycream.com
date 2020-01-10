@@ -1,0 +1,159 @@
+---
+title: Max Factor Lipfinity Two Step Lip Colour,
+description: Max Factor Lipfinity Two Step Lip Colour,
+author: Suvojit Manna,
+tags: Max Factor Lipfinity Two Step Lip Colour,
+publishedAt: Fri Jan 10 2020 14:59:39 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:59:39 GMT+0530 (India Standard Time),
+---
+
+# [Max Factor Lipfinity Two Step Lip Colour](https://products.checkmycream.com/products/Max-Factor-Lipfinity-Two-Step-Lip-Colour.html)
+
+### Positive Reviews
+
+<ol>
+      <li>Best lipstick EVER!  </li>
+      <li>best I have read in ages&lt;br /&gt;How</li>
+      <li>Street Sweeper is wonderful</li>
+      <li>Best lipstick I have found with staying power.</li>
+      <li>just the best - never comes off after I apply in the morning.</li>
+      <li>I rate this product as the best Iever used it stays on all day compared to others I have used</li>
+      <li>The color is  just perfect for me.</li>
+      <li>so glad to have found it again here on ebay!!  </li>
+      <li>Great product, good colour, looks good on everyone</li>
+      <li>This color is the best I ever found, and just like everything we fall in love with product wise anymore, it ends up getting discontinued.</li>
+      <li>loved the colour - stays on for hours.</li>
+      <li>Gorgeous colour.</li>
+      <li>Exceptional product; can&#x27;t understand why Revlon stopped selling it.</li>
+      <li>all those topics like Unions and Enancipation and The Holocaust can all be in onE book and interconnected is just outstanding!</li>
+      <li>But what is now being sold and for a lot more money is not as good.</li>
+      <li>So pleased to be able to purchase my loved product.</li>
+      <li>Love love love this colour!  </li>
+      <li>Came on time and a very secure box.  </li>
+      <li>Absolutely love it.</li>
+      <li>So glad I could find this item on Amazon as I couldn&#x27;t find it in any stores.</li>
+      <li>I am pleased to have found it on Amazon.    </li>
+      <li>This is my favorite.</li>
+      <li>Love this lipstick.</li>
+      <li>This is my favorite lipstick.</li>
+      <li>Enjoyed the product.  </li>
+      <li>Glad I found it on Amazon.</li>
+      <li>I have used this product and color for many years and can no longer purchase it in the store.so I buy a supply on line</li>
+      <li>My favorite lipstick and</li>
+      <li>Love it.</li>
+      <li>It&#x27;s worth it!!&#x27;</li>
+      <li>Thanks to amazon I can continue to enjoy my favorite lipstick.</li>
+      <li>It&#x27;s not an easy color to find and Amazon is one of those rare places that carries it.</li>
+      <li>A great product now hard to find.  </li>
+      <li>It&#x27;s a great long lasting lipstick that doesn&#x27;t dry my lips and one that I&#x27;ve used for many years.  </li>
+      <li>Used this product for years and in the beginning it really stayed on even when you ate.</li>
+      <li>Thanks Amazon for providing this product.</li>
+      <li>I don&#x27;t know why they stopped selling it in the US, but I&#x27;m very grateful that I can get it on amazon - even if it has to come from across the pond.</li>
+      <li>It really lasts, and I like the color.</li>
+      <li>I hope the product will be available for a long time, because I will be a repeat customer.</li>
+      <li>It&#x27;s a classic.</li>
+      <li>I love the color &amp;#34;Sultry&amp;#34; and the fact that it is long lasting.</li>
+      <li>Love the color it is a little deeper than my natural lip color</li>
+      <li>Then, suddenly, it was no longer available in local stores.    </li>
+      <li>So natural.  </li>
+      <li>Shipped directly from the manufacturer works for me.</li>
+      <li>The color is slightly different than it was originally -- a bit lighter with less depth.  </li>
+      <li>I am looking for something new and lasting.</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> Best lipstick EVER!  </li>
+<li> best I have read in ages&lt;br /&gt;How</li>
+<li> Street Sweeper is wonderful</li>
+<li> Best lipstick I have found with staying power.</li>
+<li> just the best - never comes off after I apply in the morning.</li>
+<li> I rate this product as the best Iever used it stays on all day compared to others I have used</li>
+<li> The color is  just perfect for me.</li>
+<li> so glad to have found it again here on ebay!!  </li>
+<li> Great product, good colour, looks good on everyone</li>
+<li> This color is the best I ever found, and just like everything we fall in love with product wise anymore, it ends up getting discontinued.</li>
+<li> loved the colour - stays on for hours.</li>
+<li> Gorgeous colour.</li>
+<li> Exceptional product; can&#x27;t understand why Revlon stopped selling it.</li>
+<li> all those topics like Unions and Enancipation and The Holocaust can all be in onE book and interconnected is just outstanding!</li>
+<li> But what is now being sold and for a lot more money is not as good.</li>
+<li> So pleased to be able to purchase my loved product.</li>
+<li> Love love love this colour!  </li>
+<li> Came on time and a very secure box.  </li>
+<li> Absolutely love it.</li>
+<li> So glad I could find this item on Amazon as I couldn&#x27;t find it in any stores.</li>
+<li> I am pleased to have found it on Amazon.    </li>
+<li> This is my favorite.</li>
+<li> Love this lipstick.</li>
+<li> This is my favorite lipstick.</li>
+<li> Enjoyed the product.  </li>
+<li> Glad I found it on Amazon.</li>
+<li> I have used this product and color for many years and can no longer purchase it in the store.so I buy a supply on line</li>
+<li> My favorite lipstick and</li>
+<li> Love it.</li>
+<li> It&#x27;s worth it!!&#x27;</li>
+<li> Thanks to amazon I can continue to enjoy my favorite lipstick.</li>
+<li> It&#x27;s not an easy color to find and Amazon is one of those rare places that carries it.</li>
+<li> A great product now hard to find.  </li>
+<li> It&#x27;s a great long lasting lipstick that doesn&#x27;t dry my lips and one that I&#x27;ve used for many years.  </li>
+<li> Used this product for years and in the beginning it really stayed on even when you ate.</li>
+<li> Thanks Amazon for providing this product.</li>
+<li> I don&#x27;t know why they stopped selling it in the US, but I&#x27;m very grateful that I can get it on amazon - even if it has to come from across the pond.</li>
+<li> It really lasts, and I like the color.</li>
+<li> I hope the product will be available for a long time, because I will be a repeat customer.</li>
+<li> It&#x27;s a classic.</li>
+<li> I love the color &amp;#34;Sultry&amp;#34; and the fact that it is long lasting.</li>
+<li> Love the color it is a little deeper than my natural lip color</li>
+<li> Then, suddenly, it was no longer available in local stores.    </li>
+<li> So natural.  </li>
+<li> Shipped directly from the manufacturer works for me.</li>
+<li> The color is slightly different than it was originally -- a bit lighter with less depth.  </li>
+<li> I am looking for something new and lasting.</li>
+<li> My absolute favourite, hard to find</li>
+<li> The only down-side to Lipfinity is that it, for me at least, tends to driy my lips by day&#x27;s end.</li>
+<li> but when I do pick it up its hard to put down&lt;br /&gt;The</li>
+<li> and if you are going for a subtle evening.</li>
+<li> Was having a difficult time finding this product in my area.</li>
+<li> The color goes well with whatever I ware, just wish it was not so expensive with the handling and shipping costs</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> I have used this product for years, but it has recently been removed from store shelves.  I am pleased to have found it on Amazon.    It really lasts, and I like the color.</li>
+    <li> So glad I could find this item on Amazon as I couldn&#x27;t find it in any stores. It&#x27;s a great long lasting lipstick that doesn&#x27;t dry my lips and one that I&#x27;ve used for many years.  Thanks Amazon for providing this product.</li>
+    <li> My favourite color - for both day and if you are going for a subtle evening.</li>
+    <li> My absolute favourite, hard to find so I stock up wherever I find it.  Goes with everything both day and night.</li>
+    <li> Used this product for years and in the beginning it really stayed on even when you ate. But what is now being sold and for a lot more money is not as good. I am looking for something new and lasting.</li>
+    <li> Enjoyed the product.  Will buy again, any sales for the product have used this product before and will continue to use it</li>
+    <li> Came on time and a very secure box.  Love this lipstick.</li>
+    <li> Was having a difficult time finding this product in my area.Glad I found it on Amazon. This is my favorite. The color is  just perfect for me.</li>
+    <li> This is my favorite lipstick. I&#x27;ve been wearing it for years. I don&#x27;t know why they stopped selling it in the US, but I&#x27;m very grateful that I can get it on amazon - even if it has to come from across the pond. It&#x27;s worth it!!&#x27;</li>
+    <li> I have used this for years. I love the color &amp;#34;Sultry&amp;#34; and the fact that it is long lasting. I can no longer find it in the stores but an internet search found it for me. Shipped directly from the manufacturer works for me. So pleased to be able to purchase my loved product.</li>
+    <li> It&#x27;s not an easy color to find and Amazon is one of those rare places that carries it. I like the color for fall and winter.</li>
+    <li> I rate this product as the best Iever used it stays on all day compared to others I have used</li>
+    <li> This color is the best I ever found, and just like everything we fall in love with product wise anymore, it ends up getting discontinued. Max Factored needs to bring back this shade!!</li>
+    <li> The color goes well with whatever I ware, just wish it was not so expensive with the handling and shipping costs</li>
+    <li> Thanks to amazon I can continue to enjoy my favorite lipstick. Best lipstick I have found with staying power. Love it.</li>
+    <li> loved the colour - stays on for hours.</li>
+    <li> Max Factor&#x27;sI use this lipstick all tghe time...and have for years!&lt;br /&gt;The Street Sweeper is wonderful&lt;br /&gt;I am not finished but when I do pick it up its hard to put down&lt;br /&gt;The best I have read in ages&lt;br /&gt;How all those topics like Unions and Enancipation and The Holocaust can all be in onE book and interconnected is just outstanding!</li>
+    <li> This seems to be the only place I can find Lipfinity.  My favorite lipstick and when I see the color I want, I jump at the chance to order it.</li>
+    <li> I haved Max Factor Infnitity for years. Then, suddenly, it was no longer available in local stores.    I did an Internet search and found it on your site. I hope the product will be available for a long time, because I will be a repeat customer.</li>
+    <li> Best lipstick EVER!  Wish I could buy it in the states.</li>
+    <li> Great product, good colour, looks good on everyone</li>
+    <li> This is my one and only lip color product.  The color works well for me (doesn&#x27;t change to &amp;#34;something different&amp;#34; upon application).  The only down-side to Lipfinity is that it, for me at least, tends to driy my lips by day&#x27;s end.</li>
+    <li> I have used this product and color for many years and can no longer purchase it in the store.so I buy a supply on line</li>
+    <li> A great product now hard to find.  The color is slightly different than it was originally -- a bit lighter with less depth.  Exceptional product; can&#x27;t understand why Revlon stopped selling it.</li>
+    <li> Love the color it is a little deeper than my natural lip color it makes my look POP.</li>
+    <li> Gorgeous colour. Doesnt even feel like I&#x27;ve got lipstick on. Absolutely love it.</li>
+    <li> Max Factor was always my favorite...hard to find in stores...</li>
+    <li> just the best - never comes off after I apply in the morning.</li>
+    <li> Item arrived as described and pictured, and within time frame.</li>
+    <li> Love love love this colour!  So natural.  I&#x27;ve used it for years, so glad to have found it again here on ebay!!  Max Factor need to re-introduce this colour!  It&#x27;s a classic.</li>
+</ol>
+
+
+
+

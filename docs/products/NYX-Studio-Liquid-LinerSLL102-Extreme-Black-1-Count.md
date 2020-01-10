@@ -1,0 +1,153 @@
+---
+title: NYX Studio Liquid Liner,SLL102 Extreme Black, 1 Count,
+description: NYX Studio Liquid Liner,SLL102 Extreme Black, 1 Count,
+author: Suvojit Manna,
+tags: NYX Studio Liquid Liner,SLL102 Extreme Black, 1 Count,
+publishedAt: Fri Jan 10 2020 14:59:55 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:59:55 GMT+0530 (India Standard Time),
+---
+
+# [NYX Studio Liquid Liner,SLL102 Extreme Black, 1 Count](https://products.checkmycream.com/products/NYX-Studio-Liquid-LinerSLL102-Extreme-Black-1-Count.html)
+
+### Positive Reviews
+
+<ol>
+      <li>and I am very happy with the results!</li>
+      <li>my cat-eye looks perfect by the end of the day.</li>
+      <li>It took a while to learn how to apply it with the sorta flimsy brush, but after that i can apply it perfectly.</li>
+      <li>I&#x27;ve been looking for the most perfect Liquid eyeliner, and had not had any luck...until I found this</li>
+      <li>Wonderful application wand with a fantastic formula.</li>
+      <li>My favorite liquid eyeliner that I have ever used!</li>
+      <li>This eyeliner from NYX is amazing.</li>
+      <li>Amazing!The deliver was ok and in a good time.</li>
+      <li>The brush is nice too because it allows me freedom to make my cateyes</li>
+      <li>Favorite liquid eyeliner.</li>
+      <li>It&#x27;s okay, I prefer a felt tip though.</li>
+      <li>But this one is my favorite.</li>
+      <li>Most of the eyeliner clumps and peels off.&lt;br</li>
+      <li>All in all, I really love the color and staying power of this eyeliner.</li>
+      <li>This tactic steadies my hand so I get a nice smooth line.</li>
+      <li>This is my favorite eyeliner.</li>
+      <li>The color really is &amp;#34;extreme black,&amp;#34; it lasts most of the day (starts to come off after maybe 5 hours), and the formula is really nice.</li>
+      <li>perhaps I should have tried to return it, but I didn&#x27;t even bother, I just got another one at the store, and this one is now chillin at the bottom of my huge makeup bag never to be seen again.</li>
+      <li>I love how when I work a 12 hour shift my eyeliner stays exactly where I put it.</li>
+      <li>From high end to very cheap ones.</li>
+      <li>Arrived quickly</li>
+      <li>This is by far my favorite eyeliner.</li>
+      <li>I&#x27;ve tried many liquid eyeliners before and this one is by far the hardest to apply.</li>
+      <li>This eyeliner was exactly what I was looking for.</li>
+      <li>Thanks for the sell!</li>
+      <li>I have tried many different types of liners.</li>
+      <li>must say it&#x27;s exactly what I was looking for</li>
+      <li>always one of my favorite liquid liners for a low price!</li>
+      <li>I have purchased another NYX brand eyeliner and the container was a little longer in shape, and for some reason applied onto the skin smoother and when I removed it off my eyes it came off more easily.  </li>
+      <li>Normally l love NYX liners, but the one I received was dry.</li>
+      <li>I just really don&#x27;t like the applicator that comes with it.</li>
+      <li>: I wear primer underneath, though that should never matter with liquid eyeliner, and I know how to use liquid eyeliner very well - my problem isn&#x27;t application based.&lt;br /&gt;&lt;br</li>
+      <li>It lasts so long yet comes off easily with water.</li>
+      <li>This product in particular gives me the thinnest line of any liquid eyeliner I&#x27;ve ever used.</li>
+      <li>I love this liner, especially for it&#x27;s price, and I may need to order a second bottle soon.</li>
+      <li>I have highly oily skin (and eyelids)</li>
+      <li>I love how dark it is also!</li>
+      <li>Its so long lasting and not horribly difficult to apply (if you are used to applying liquid, its just fine).</li>
+      <li>/&gt;&lt;br /&gt;I have no idea if there&#x27;s any way to keep this from happening when I use eyeliner (until I can get a new eyeliner), so if anyone knows please tell me.</li>
+      <li>Great to do a dramatic wing!</li>
+      <li>i got this a second time after running out of my first one.</li>
+      <li>The only problem is more with this style of liner than of this product, but it can thicken due to exposure to air.</li>
+      <li>(6 hours later), it looks like it was my first time trying to use liquid eyeliner,</li>
+      <li>I&#x27;m surprised by how long-lasting this eyeliner is...</li>
+      <li>For a very long time I had been using Wet and Wild&#x27;s liquid eyeliner, which is dark,cheap and easy to apply, but fell short in its durability.</li>
+      <li>I also found that sometimes I have to apply multiple layers in order to make it look like a true black color</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> and I am very happy with the results!</li>
+<li> my cat-eye looks perfect by the end of the day.</li>
+<li> It took a while to learn how to apply it with the sorta flimsy brush, but after that i can apply it perfectly.</li>
+<li> I&#x27;ve been looking for the most perfect Liquid eyeliner, and had not had any luck...until I found this</li>
+<li> Wonderful application wand with a fantastic formula.</li>
+<li> My favorite liquid eyeliner that I have ever used!</li>
+<li> This eyeliner from NYX is amazing.</li>
+<li> Amazing!The deliver was ok and in a good time.</li>
+<li> The brush is nice too because it allows me freedom to make my cateyes</li>
+<li> Favorite liquid eyeliner.</li>
+<li> It&#x27;s okay, I prefer a felt tip though.</li>
+<li> But this one is my favorite.</li>
+<li> Most of the eyeliner clumps and peels off.&lt;br</li>
+<li> All in all, I really love the color and staying power of this eyeliner.</li>
+<li> This tactic steadies my hand so I get a nice smooth line.</li>
+<li> This is my favorite eyeliner.</li>
+<li> The color really is &amp;#34;extreme black,&amp;#34; it lasts most of the day (starts to come off after maybe 5 hours), and the formula is really nice.</li>
+<li> perhaps I should have tried to return it, but I didn&#x27;t even bother, I just got another one at the store, and this one is now chillin at the bottom of my huge makeup bag never to be seen again.</li>
+<li> I love how when I work a 12 hour shift my eyeliner stays exactly where I put it.</li>
+<li> From high end to very cheap ones.</li>
+<li> Arrived quickly</li>
+<li> This is by far my favorite eyeliner.</li>
+<li> I&#x27;ve tried many liquid eyeliners before and this one is by far the hardest to apply.</li>
+<li> This eyeliner was exactly what I was looking for.</li>
+<li> Thanks for the sell!</li>
+<li> I have tried many different types of liners.</li>
+<li> must say it&#x27;s exactly what I was looking for</li>
+<li> always one of my favorite liquid liners for a low price!</li>
+<li> I have purchased another NYX brand eyeliner and the container was a little longer in shape, and for some reason applied onto the skin smoother and when I removed it off my eyes it came off more easily.  </li>
+<li> Normally l love NYX liners, but the one I received was dry.</li>
+<li> I just really don&#x27;t like the applicator that comes with it.</li>
+<li> : I wear primer underneath, though that should never matter with liquid eyeliner, and I know how to use liquid eyeliner very well - my problem isn&#x27;t application based.&lt;br /&gt;&lt;br</li>
+<li> It lasts so long yet comes off easily with water.</li>
+<li> This product in particular gives me the thinnest line of any liquid eyeliner I&#x27;ve ever used.</li>
+<li> I love this liner, especially for it&#x27;s price, and I may need to order a second bottle soon.</li>
+<li> I have highly oily skin (and eyelids)</li>
+<li> I love how dark it is also!</li>
+<li> Its so long lasting and not horribly difficult to apply (if you are used to applying liquid, its just fine).</li>
+<li> /&gt;&lt;br /&gt;I have no idea if there&#x27;s any way to keep this from happening when I use eyeliner (until I can get a new eyeliner), so if anyone knows please tell me.</li>
+<li> Great to do a dramatic wing!</li>
+<li> i got this a second time after running out of my first one.</li>
+<li> The only problem is more with this style of liner than of this product, but it can thicken due to exposure to air.</li>
+<li> (6 hours later), it looks like it was my first time trying to use liquid eyeliner,</li>
+<li> I&#x27;m surprised by how long-lasting this eyeliner is...</li>
+<li> For a very long time I had been using Wet and Wild&#x27;s liquid eyeliner, which is dark,cheap and easy to apply, but fell short in its durability.</li>
+<li> I also found that sometimes I have to apply multiple layers in order to make it look like a true black color</li>
+<li> It doesn&#x27;t pick up the product very well, and it&#x27;s extremely thin, long and flimsy and if you aren&#x27;t careful you can really goof up the line.</li>
+<li> so I have an affinity for products that other people don&#x27;t, generally.</li>
+<li> I&#x27;m not one to heed all the warnings about when to discard makeup products, but when this starts to get thick or flake, just buy a new one.</li>
+<li> Even if it&#x27;s only half gone.</li>
+<li> The applicator is a long thin brush and the eyeliner stays put really well.</li>
+<li> After using this liquid liner I will never go back to previous products I&#x27;ve used.</li>
+<li> I have used a few liners and they either flaked, faded, or applied strangely.</li>
+<li> On the down side, I really do NOT like the applicator that comes with it.</li>
+<li> I bought this in black and I&#x27;ve had problems with it clumping and peeling off.&lt;br /&gt;Note</li>
+<li> or like a little kid trying to play with their mom&#x27;s makeup.</li>
+<li> Goes on very dark.</li>
+<li> I sometimes am to lazy to wash it off at night.</li>
+<li> My secret with liquid liners of this type is to rest the brush on the lashes when I draw the line, almost like I&#x27;m lining the roots of my eyelashes.</li>
+<li> The bad thing about this liquid liner is it flakes very bad, and the applicator makes it sort of difficult to apply</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> I&#x27;m surprised by how long-lasting this eyeliner is... my cat-eye looks perfect by the end of the day. While wearing this poduct, I accidentally rubbed my eyes without thinking and it didn&#x27;t smudge at all. On the down side, I really do NOT like the applicator that comes with it. I&#x27;ve tried many liquid eyeliners before and this one is by far the hardest to apply. It doesn&#x27;t pick up the product very well, and it&#x27;s extremely thin, long and flimsy and if you aren&#x27;t careful you can really goof up the line. I also found that sometimes I have to apply multiple layers in order to make it look like a true black color - I have only noticed this problem if I&#x27;m wearing eyeshadow.  All in all, I really love the color and staying power of this eyeliner. I just really don&#x27;t like the applicator that comes with it.</li>
+    <li> I bought this in black and I&#x27;ve had problems with it clumping and peeling off.&lt;br /&gt;Note: I wear primer underneath, though that should never matter with liquid eyeliner, and I know how to use liquid eyeliner very well - my problem isn&#x27;t application based.&lt;br /&gt;&lt;br /&gt;By the end of the day though (6 hours later), it looks like it was my first time trying to use liquid eyeliner, or like a little kid trying to play with their mom&#x27;s makeup. Most of the eyeliner clumps and peels off.&lt;br /&gt;&lt;br /&gt;I have no idea if there&#x27;s any way to keep this from happening when I use eyeliner (until I can get a new eyeliner), so if anyone knows please tell me.</li>
+    <li> It&#x27;s okay, I prefer a felt tip though.</li>
+    <li> Normally l love NYX liners, but the one I received was dry. Maybe it was sitting on the shelf for a while, I don&#x27;t know. perhaps I should have tried to return it, but I didn&#x27;t even bother, I just got another one at the store, and this one is now chillin at the bottom of my huge makeup bag never to be seen again.</li>
+    <li> I only wish that it was matte instead of a all shiny. Arrived quickly</li>
+    <li> Amazing!The deliver was ok and in a good time. All expectations suplied. ! Thanks for the sell! I recomend it!</li>
+    <li> I purchased this eyeliner at Ulta.com, and I am not at all displeased! For a very long time I had been using Wet and Wild&#x27;s liquid eyeliner, which is dark,cheap and easy to apply, but fell short in its durability. This eyeliner from NYX is amazing. Its so long lasting and not horribly difficult to apply (if you are used to applying liquid, its just fine). I have highly oily skin (and eyelids) and eyeliner tends to smudge all over my face, but this liner stays put. I love how dark it is also!</li>
+    <li> The bad thing about this liquid liner is it flakes very bad, and the applicator makes it sort of difficult to apply</li>
+    <li> My favorite liquid eyeliner that I have ever used! The color really is &amp;#34;extreme black,&amp;#34; it lasts most of the day (starts to come off after maybe 5 hours), and the formula is really nice. It took a while to learn how to apply it with the sorta flimsy brush, but after that i can apply it perfectly. It lasts so long yet comes off easily with water. After a while it will start to crack but I just touch it up as needed. I love this liner, especially for it&#x27;s price, and I may need to order a second bottle soon.</li>
+    <li> always one of my favorite liquid liners for a low price! i got this a second time after running out of my first one. shipping was on time and this stuff stays on all day.</li>
+    <li> I have purchased another NYX brand eyeliner and the container was a little longer in shape, and for some reason applied onto the skin smoother and when I removed it off my eyes it came off more easily.  This one tends to clump after attempting to remove it off my eyes.  I am having to try to peel it off, instead of washing it off.  Won&#x27;t be buying this one again.</li>
+    <li> This is my favorite eyeliner. I love how when I work a 12 hour shift my eyeliner stays exactly where I put it. The brush is nice too because it allows me freedom to make my cateyes however I like it.</li>
+    <li> This is by far my favorite eyeliner. I have used a few liners and they either flaked, faded, or applied strangely. This one does none of that. I&#x27;m definitely going to repurchase this in the future.</li>
+    <li> This eyeliner was exactly what I was looking for. The applicator is a long thin brush and the eyeliner stays put really well. I learned to put on makeup in the theater so I have an affinity for products that other people don&#x27;t, generally. My secret with liquid liners of this type is to rest the brush on the lashes when I draw the line, almost like I&#x27;m lining the roots of my eyelashes. This tactic steadies my hand so I get a nice smooth line. This product in particular gives me the thinnest line of any liquid eyeliner I&#x27;ve ever used. The only problem is more with this style of liner than of this product, but it can thicken due to exposure to air. I&#x27;m not one to heed all the warnings about when to discard makeup products, but when this starts to get thick or flake, just buy a new one. Even if it&#x27;s only half gone.</li>
+    <li> I&#x27;ve been looking for the most perfect Liquid eyeliner, and had not had any luck...until I found this item.&lt;br /&gt;I must say it&#x27;s exactly what I was looking for and I am very happy with the results! would defiantly recommend this product&lt;br /&gt;to anyone else who seems to be having problems with their liquid eyeliner.</li>
+    <li> My favourite drug store liquid liner! Doesn&#x27;t flake or smear like others sometimes do. Great to do a dramatic wing!</li>
+    <li> After using this liquid liner I will never go back to previous products I&#x27;ve used. Wonderful application wand with a fantastic formula. It survived a waterpark!!</li>
+    <li> Favorite liquid eyeliner. I have tried many different types of liners. From high end to very cheap ones. But this one is my favorite. Goes on very dark. it does not smudge. I sometimes am to lazy to wash it off at night. When I wake it is still on!</li>
+</ol>
+
+
+
+

@@ -1,0 +1,151 @@
+---
+title: Giorgio Fedon White Pearls with Silver Loop Eyeglass Necklace,
+description: Giorgio Fedon White Pearls with Silver Loop Eyeglass Necklace,
+author: Suvojit Manna,
+tags: Giorgio Fedon White Pearls with Silver Loop Eyeglass Necklace,
+publishedAt: Fri Jan 10 2020 15:00:04 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:04 GMT+0530 (India Standard Time),
+---
+
+# [Giorgio Fedon White Pearls with Silver Loop Eyeglass Necklace](https://products.checkmycream.com/products/Giorgio-Fedon-White-Pearls-with-Silver-Loop-Eyeglass-Necklace.html)
+
+### Positive Reviews
+
+<ol>
+      <li>I&#x27;m very happy with this strand of pearl-like beads for carrying by reading glasses.  </li>
+      <li>I am ever in the market for eye-glass holder necklaces, and this &amp;#34;pearl&amp;#34; one goes perfectly with a costume I am wearing in a show.</li>
+      <li>daughter loves it - successful gift!!</li>
+      <li>so this is perfect!</li>
+      <li>It is well made and attractive.  </li>
+      <li>Excellent way to have your glasses handy when you cannot carry a purse.  </li>
+      <li>Makes a great gift and doesn&#x27;t say &amp;#34;granny chain&amp;#34;</li>
+      <li>It looks great whether it&#x27;s holding glasses or not.</li>
+      <li>Attractive.  </li>
+      <li>Very nice and sturdy.</li>
+      <li>It looks good and enables her to carry her glasses without her purse.  </li>
+      <li>It looks good, but a couple tugs and on it from my kids</li>
+      <li>It&#x27;s stylish and practical and she really loved it!</li>
+      <li>It is attractive and very easy to use.  </li>
+      <li>Very, very cute.</li>
+      <li>Love it!</li>
+      <li>I love it.  </li>
+      <li>I like this much better than the chains that hook on the sides.</li>
+      <li>Very fasionable and great for wearing in the office or an evening out.  </li>
+      <li>The perfect present for anyone who wears glasses but doesn&#x27;t need them all the time..</li>
+      <li>I love this necklace and I never lose my readers.  </li>
+      <li>Just what I was looking for, love the look of the pearls, works well</li>
+      <li>I love these</li>
+      <li>Holds the glasses in better than hanging on a shirt collar.</li>
+      <li>Not only beautiful but practical!</li>
+      <li>I have gotten so many compliments on this.  </li>
+      <li>There has been quite a lot of interest shown in the holder and on more than one occasion</li>
+      <li>It holds the my glasses very securely, therefore, not afraid of losing them and having them handy when needed.</li>
+      <li>Its plastic, its light, it cheap.</li>
+      <li>Comfortable to wear too.</li>
+      <li>Very inexpensive but looks nice.</li>
+      <li>There are several things I liked about this spectacle holder.</li>
+      <li>Also, it shipped right away.  </li>
+      <li>At first, they think it&#x27;s a pearl necklace with my husband&#x27;s wedding ring on it.</li>
+      <li>they&#x27;re so pretty</li>
+      <li>I really like it, as it also looks like a necklace.  </li>
+      <li>, very durable  </li>
+      <li>And they really get it when I put my glasses on it.</li>
+      <li>It is made very well</li>
+      <li>Firstly it looks much more elegant than the usual &#x27; Granny type&#x27; and is very well made and there are several styles to choose from.</li>
+      <li>I don&#x27;t like the more conventional chains because they add weight to the ears.</li>
+      <li>each time I put it on just doesn&#x27;t look high quality.</li>
+      <li>I purchased this for my new retail associate job.  </li>
+      <li>so had to pay the postage costs which nearly doubled the price, although I think they are worth it and would definitely recommend them.</li>
+      <li>it&#x27;s quite classy looking.</li>
+      <li>I have positive comments from other women when I wear it.  </li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> I&#x27;m very happy with this strand of pearl-like beads for carrying by reading glasses.  </li>
+<li> I am ever in the market for eye-glass holder necklaces, and this &amp;#34;pearl&amp;#34; one goes perfectly with a costume I am wearing in a show.</li>
+<li> daughter loves it - successful gift!!</li>
+<li> so this is perfect!</li>
+<li> It is well made and attractive.  </li>
+<li> Excellent way to have your glasses handy when you cannot carry a purse.  </li>
+<li> Makes a great gift and doesn&#x27;t say &amp;#34;granny chain&amp;#34;</li>
+<li> It looks great whether it&#x27;s holding glasses or not.</li>
+<li> Attractive.  </li>
+<li> Very nice and sturdy.</li>
+<li> It looks good and enables her to carry her glasses without her purse.  </li>
+<li> It looks good, but a couple tugs and on it from my kids</li>
+<li> It&#x27;s stylish and practical and she really loved it!</li>
+<li> It is attractive and very easy to use.  </li>
+<li> Very, very cute.</li>
+<li> Love it!</li>
+<li> I love it.  </li>
+<li> I like this much better than the chains that hook on the sides.</li>
+<li> Very fasionable and great for wearing in the office or an evening out.  </li>
+<li> The perfect present for anyone who wears glasses but doesn&#x27;t need them all the time..</li>
+<li> I love this necklace and I never lose my readers.  </li>
+<li> Just what I was looking for, love the look of the pearls, works well</li>
+<li> I love these</li>
+<li> Holds the glasses in better than hanging on a shirt collar.</li>
+<li> Not only beautiful but practical!</li>
+<li> I have gotten so many compliments on this.  </li>
+<li> There has been quite a lot of interest shown in the holder and on more than one occasion</li>
+<li> It holds the my glasses very securely, therefore, not afraid of losing them and having them handy when needed.</li>
+<li> Its plastic, its light, it cheap.</li>
+<li> Comfortable to wear too.</li>
+<li> Very inexpensive but looks nice.</li>
+<li> There are several things I liked about this spectacle holder.</li>
+<li> Also, it shipped right away.  </li>
+<li> At first, they think it&#x27;s a pearl necklace with my husband&#x27;s wedding ring on it.</li>
+<li> they&#x27;re so pretty</li>
+<li> I really like it, as it also looks like a necklace.  </li>
+<li> , very durable  </li>
+<li> And they really get it when I put my glasses on it.</li>
+<li> It is made very well</li>
+<li> Firstly it looks much more elegant than the usual &#x27; Granny type&#x27; and is very well made and there are several styles to choose from.</li>
+<li> I don&#x27;t like the more conventional chains because they add weight to the ears.</li>
+<li> each time I put it on just doesn&#x27;t look high quality.</li>
+<li> I purchased this for my new retail associate job.  </li>
+<li> so had to pay the postage costs which nearly doubled the price, although I think they are worth it and would definitely recommend them.</li>
+<li> it&#x27;s quite classy looking.</li>
+<li> I have positive comments from other women when I wear it.  </li>
+<li> and I like to layer with other necklaces.</li>
+<li> will look for other styles.</li>
+<li> One of the reasons It has not gained the 5th star is that I felt it could be a little heavier</li>
+<li> read about these Spectacle Holders on The Grommet and bought them from Amazon.com because I found they were not easily available in the UK</li>
+<li> and I&#x27;m not sure if it will make it.</li>
+<li> I use this product at least four times a week.  </li>
+<li> You can&#x27;t go wrong with this one.</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> Very, very cute. Broke immediately.</li>
+    <li> I bought this for my mom for Christmas. It&#x27;s stylish and practical and she really loved it! It can hold both reading glasses and sunglasses!</li>
+    <li> Hey, it does the job. Its plastic, its light, it cheap. I bought it for my Housekeeper who keeps loosing her glasses. It looks good, but a couple tugs and on it from my kids and I&#x27;m not sure if it will make it.</li>
+    <li> Excellent way to have your glasses handy when you cannot carry a purse.  It is attractive and very easy to use.  I have positive comments from other women when I wear it.  they always want to know where I got it.  Very inexpensive but looks nice.</li>
+    <li> I love these they&#x27;re so pretty and I got 2 pairs. I use them as a lanyard at work and it will hold my glasses as well. Comfortable to wear too.</li>
+    <li> Looks like a super-nice necklace and I like to layer with other necklaces. Holds the glasses in better than hanging on a shirt collar. I don&#x27;t like the more conventional chains because they add weight to the ears.</li>
+    <li> I have gotten so many compliments on this.  I love it.  I will order an extra one.  I did will look for other styles.</li>
+    <li> Attractive.  Practical.  At&lt;br /&gt;Last  !  The perfect present for anyone who wears glasses but doesn&#x27;t need them all the time.. A necklace with a difference .</li>
+    <li> Everyone loves this. At first, they think it&#x27;s a pearl necklace with my husband&#x27;s wedding ring on it. When they look closer, they realize it&#x27;s not. And they really get it when I put my glasses on it.</li>
+    <li> I wanted a dressier badge-holder for days when I wore a dress and could not hook my badge to a pair of pants or a skirt so this is perfect!</li>
+    <li> Very nice and sturdy.</li>
+    <li> There are several things I liked about this spectacle holder. Firstly it looks much more elegant than the usual &#x27; Granny type&#x27; and is very well made and there are several styles to choose from. I don&#x27;t mind using them inside or outside of the home because they look so &#x27;neat&#x27;! Family and friends also appreciate them because the cry of &#x27;has anyone seen my glasses&#x27; is seldom heard now! There has been quite a lot of interest shown in the holder and on more than one occasion I have been asked where I purchased them etc. One of the reasons It has not gained the 5th star is that I felt it could be a little heavier (although I do realise that the weight of spectacles has to be taken in to account) so it hangs like a necklace when I have my specs on my nose.&lt;br /&gt;I read about these Spectacle Holders on The Grommet and bought them from Amazon.com because I found they were not easily available in the UK so had to pay the postage costs which nearly doubled the price, although I think they are worth it and would definitely recommend them.</li>
+    <li> My wife loves the style for when we go out to eat. It looks good and enables her to carry her glasses without her purse.  I would recommend this to anyone.</li>
+    <li> I purchased this for my new retail associate job.  I really like it, as it also looks like a necklace.  It is made very well, very durable  I use this product at least four times a week.  I receive a lot of complements on it.  Also recommended it to co-workers.</li>
+    <li> daughter loves it - successful gift!!</li>
+    <li> I love this necklace and I never lose my readers.  I like this much better than the chains that hook on the sides.</li>
+    <li> Not only beautiful but practical!</li>
+    <li> Actually have never worn it....each time I put it on just doesn&#x27;t look high quality.</li>
+    <li> I am ever in the market for eye-glass holder necklaces, and this &amp;#34;pearl&amp;#34; one goes perfectly with a costume I am wearing in a show. Love it!</li>
+    <li> Very fasionable and great for wearing in the office or an evening out.  It holds the my glasses very securely, therefore, not afraid of losing them and having them handy when needed.</li>
+    <li> it&#x27;s quite classy looking. It looks great whether it&#x27;s holding glasses or not. You can&#x27;t go wrong with this one. Makes a great gift and doesn&#x27;t say &amp;#34;granny chain&amp;#34;</li>
+    <li> I&#x27;m very happy with this strand of pearl-like beads for carrying by reading glasses.  It is well made and attractive.  Also, it shipped right away.  I&#x27;m thinking of buying it in another color.</li>
+    <li> Just what I was looking for, love the look of the pearls, works well, I was always leaving my glasses around the officeand  now I know just wherethey  are.  Would recommend product.</li>
+</ol>
+
+
+
+

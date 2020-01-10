@@ -1,0 +1,120 @@
+---
+title: Pro Gold Small Carbide File. Small Barrel. Coarse Bit. Fits 3/32&quot;,
+description: Pro Gold Small Carbide File. Small Barrel. Coarse Bit. Fits 3/32&quot;,
+author: Suvojit Manna,
+tags: Pro Gold Small Carbide File. Small Barrel. Coarse Bit. Fits 3/32&quot;,
+publishedAt: Fri Jan 10 2020 15:00:12 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:12 GMT+0530 (India Standard Time),
+---
+
+# [Pro Gold Small Carbide File. Small Barrel. Coarse Bit. Fits 3/32&quot;](https://products.checkmycream.com/products/Pro-Gold-Small-Carbide-File.-Small-Barrel.-Coarse-Bit.-Fits-332&quot;.html)
+
+### Positive Reviews
+
+<ol>
+      <li>Its a must have and a great product!</li>
+      <li>so i buy all the time when its needed is very good</li>
+      <li>I bought this bit to go with a home nail drill i bought and it fits great and works wonderful.</li>
+      <li>great tool.</li>
+      <li>This drill bit works great.</li>
+      <li>Recieved it in good time.</li>
+      <li>Works great - will buy again, for sure.</li>
+      <li>Love it!</li>
+      <li>Works amazing, files the nail in seconds and way better than the sandpaper bits.</li>
+      <li>In love love LOVE with this nail bit!</li>
+      <li>I would have said ok.</li>
+      <li>I love this drill bit</li>
+      <li>Absolutely love it.</li>
+      <li>It takes off acrylic and gels better than sanding bands.</li>
+      <li>Love it..looking for a smoother one too.</li>
+      <li>So glad that I purchased this.</li>
+      <li>Definitely the best bit I have ever used.</li>
+      <li>and I&#x27;m so glad I got it.  </li>
+      <li>Worksgreat, wasn&#x27;t sure if it would fit my drill</li>
+      <li>I have yet to do a full set of acrylic nails, but I am able to fix a couple nails and file the nail after acrylic he been applied to smooth the nail and make it thinner if need be.</li>
+      <li>This was one of my first carbide bits</li>
+      <li>I have better results using a coarse nail file.</li>
+      <li>You can boil it in hot water to sterilize it.</li>
+      <li>Exactly as described.</li>
+      <li>The shafts was bent so it doesn&#x27;t spin straight.</li>
+      <li>It makes filing my acrylic and gel nails so much faster.</li>
+      <li>Better than expected and gets the job done.</li>
+      <li>My nails are super long so it takes me forever, but this had definitely made my life easy.</li>
+      <li>Fits right in my efile (I bought a Vogue Manicurist one on Amazon), doesn&#x27;t jiggle loose, gets the job done!</li>
+      <li>I&#x27;ve purchased these in different sizes and corseness and each one is made to last and does the job very well!</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> Its a must have and a great product!</li>
+<li> so i buy all the time when its needed is very good</li>
+<li> I bought this bit to go with a home nail drill i bought and it fits great and works wonderful.</li>
+<li> great tool.</li>
+<li> This drill bit works great.</li>
+<li> Recieved it in good time.</li>
+<li> Works great - will buy again, for sure.</li>
+<li> Love it!</li>
+<li> Works amazing, files the nail in seconds and way better than the sandpaper bits.</li>
+<li> In love love LOVE with this nail bit!</li>
+<li> I would have said ok.</li>
+<li> I love this drill bit</li>
+<li> Absolutely love it.</li>
+<li> It takes off acrylic and gels better than sanding bands.</li>
+<li> Love it..looking for a smoother one too.</li>
+<li> So glad that I purchased this.</li>
+<li> Definitely the best bit I have ever used.</li>
+<li> and I&#x27;m so glad I got it.  </li>
+<li> Worksgreat, wasn&#x27;t sure if it would fit my drill</li>
+<li> I have yet to do a full set of acrylic nails, but I am able to fix a couple nails and file the nail after acrylic he been applied to smooth the nail and make it thinner if need be.</li>
+<li> This was one of my first carbide bits</li>
+<li> I have better results using a coarse nail file.</li>
+<li> You can boil it in hot water to sterilize it.</li>
+<li> Exactly as described.</li>
+<li> The shafts was bent so it doesn&#x27;t spin straight.</li>
+<li> It makes filing my acrylic and gel nails so much faster.</li>
+<li> Better than expected and gets the job done.</li>
+<li> My nails are super long so it takes me forever, but this had definitely made my life easy.</li>
+<li> Fits right in my efile (I bought a Vogue Manicurist one on Amazon), doesn&#x27;t jiggle loose, gets the job done!</li>
+<li> I&#x27;ve purchased these in different sizes and corseness and each one is made to last and does the job very well!</li>
+<li> and then i find out it was a large file instead of the small</li>
+<li> i ordered a small carbide file, instead i got a large.</li>
+<li> This \\&quot;small coarse bit\\&quot; is too coarse for me.</li>
+<li> Works like a charm, shaves the work time down to half.</li>
+<li> Very sharp and well made, but not the tool that I needed.</li>
+<li> Was disappointed as it didn&#x27;t fit my sander.</li>
+<li> It fits in drill very tight.</li>
+<li> worst part is that I paid almost $4 in shipping and handling fees for this tiny item, only to find out the item was being held at the post office for insufficient postage-</li>
+<li> Not good</li>
+<li> was confused when item arrived.</li>
+<li> satisfying!i choose them care fully and was afraid at firt</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> Better than expected and gets the job done.</li>
+    <li> Gets the job done. My nails are super long so it takes me forever, but this had definitely made my life easy. Cuts through the gel polish &amp; acrylic.</li>
+    <li> I bought this bit to go with a home nail drill i bought and it fits great and works wonderful.</li>
+    <li> Fits right in my efile (I bought a Vogue Manicurist one on Amazon), doesn&#x27;t jiggle loose, gets the job done! Works great - will buy again, for sure. No need to pay upwards of $20 for one.</li>
+    <li> Definitely the best bit I have ever used. Absolutely love it.</li>
+    <li> great tool. Love it..looking for a smoother one too.</li>
+    <li> Exactly as described. Packed well for shipping.</li>
+    <li> Received silver without asking! Not good the customer would like to have the choice to exchange or not. I would have said ok.</li>
+    <li> This \\&quot;small coarse bit\\&quot; is too coarse for me. Very sharp and well made, but not the tool that I needed. I have better results using a coarse nail file.</li>
+    <li> Recieved it in good time. Worksgreat, wasn&#x27;t sure if it would fit my drill but it did. Would definately order again.</li>
+    <li> This was one of my first carbide bits and I&#x27;m so glad I got it.  It makes filing my acrylic and gel nails so much faster.</li>
+    <li> The shafts was bent so it doesn&#x27;t spin straight.</li>
+    <li> In love love LOVE with this nail bit! I have yet to do a full set of acrylic nails, but I am able to fix a couple nails and file the nail after acrylic he been applied to smooth the nail and make it thinner if need be. Works amazing, files the nail in seconds and way better than the sandpaper bits.</li>
+    <li> I love this drill bit and I had ordered an electric salon nail file that came with several bits but this one wasn&#x27;t included. So glad that I purchased this. Its a must have and a great product!</li>
+    <li> was confused when item arrived. i ordered a small carbide file, instead i got a large. worst part is that I paid almost $4 in shipping and handling fees for this tiny item, only to find out the item was being held at the post office for insufficient postage- so i had to pay an extra $2 to actually receive it... and then i find out it was a large file instead of the small i wanted...... gah!</li>
+    <li> This drill bit works great. It takes off acrylic and gels better than sanding bands. It fits in drill very tight. It also last a lot longer and you can wash it in soap and water. You can boil it in hot water to sterilize it. I will be ordering another one.</li>
+    <li> Was disappointed as it didn&#x27;t fit my sander.</li>
+    <li> this is also a item that you must have in a salondoing acryl or gels ! a lot of the items i bought till now are satisfying!i choose them care fully and was afraid at firt but now a know them so i buy all the time when its needed is very good</li>
+    <li> Got this upon a recommendation from a friend.  Works like a charm, shaves the work time down to half. Love it!</li>
+    <li> I&#x27;ve purchased these in different sizes and corseness and each one is made to last and does the job very well!</li>
+</ol>
+
+
+
+

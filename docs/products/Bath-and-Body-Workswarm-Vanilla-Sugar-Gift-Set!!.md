@@ -1,0 +1,82 @@
+---
+title: Bath and Body Works,warm Vanilla Sugar Gift Set!!,
+description: Bath and Body Works,warm Vanilla Sugar Gift Set!!,
+author: Suvojit Manna,
+tags: Bath and Body Works,warm Vanilla Sugar Gift Set!!,
+publishedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
+---
+
+# [Bath and Body Works,warm Vanilla Sugar Gift Set!!](https://products.checkmycream.com/products/Bath-and-Body-Workswarm-Vanilla-Sugar-Gift-Set!!.html)
+
+### Positive Reviews
+
+<ol>
+      <li>Was for my mother and her birthday...surprised her and was perfect.</li>
+      <li>Shipped on Time- Great Quality</li>
+      <li>Smells great, feels great.</li>
+      <li>Came in gift wrap and smells great</li>
+      <li>Warm Vanilla is the best flavor ever.  </li>
+      <li>Products are great.</li>
+      <li>Love it!</li>
+      <li>I&#x27;ve been getting warm vanilla sugar from Bath and Body Works for years,  it seems that over the years it has lost that lovely scent that I am use to.</li>
+      <li>The lotions smell nothing like vanilla and the body spray smells more of alcohol than anything else.</li>
+      <li>I was looking forward to that because it adds a cute touch to the gift, but overall this was a good purchase.</li>
+      <li>I love it so much.</li>
+      <li>Love the Scent very soft and semi sweet</li>
+      <li>I know she&#x27;ll love it because she loves the scent, but obviously I haven&#x27;t given it to her since it is before Christmas.&lt;br</li>
+      <li>Such a refreshing fragrance</li>
+      <li>It really detracts from the products as a gift.</li>
+      <li>So now I pay double the amount, because of the taxes, but I think it is worth it!</li>
+      <li>The scent is not as lasting as the original one, however, the smell is on point.</li>
+      <li>package delivered earlier than expected, which was amazing.</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> Was for my mother and her birthday...surprised her and was perfect.</li>
+<li> Shipped on Time- Great Quality</li>
+<li> Smells great, feels great.</li>
+<li> Came in gift wrap and smells great</li>
+<li> Warm Vanilla is the best flavor ever.  </li>
+<li> Products are great.</li>
+<li> Love it!</li>
+<li> I&#x27;ve been getting warm vanilla sugar from Bath and Body Works for years,  it seems that over the years it has lost that lovely scent that I am use to.</li>
+<li> The lotions smell nothing like vanilla and the body spray smells more of alcohol than anything else.</li>
+<li> I was looking forward to that because it adds a cute touch to the gift, but overall this was a good purchase.</li>
+<li> I love it so much.</li>
+<li> Love the Scent very soft and semi sweet</li>
+<li> I know she&#x27;ll love it because she loves the scent, but obviously I haven&#x27;t given it to her since it is before Christmas.&lt;br</li>
+<li> Such a refreshing fragrance</li>
+<li> It really detracts from the products as a gift.</li>
+<li> So now I pay double the amount, because of the taxes, but I think it is worth it!</li>
+<li> The scent is not as lasting as the original one, however, the smell is on point.</li>
+<li> package delivered earlier than expected, which was amazing.</li>
+<li> The only thing I was not happy about was that the products didn&#x27;t come with the gift bag and bow.</li>
+<li> I don&#x27;t like it, it is poor quality</li>
+<li> It was merely shipped in a cardboard box.</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> I&#x27;ve been getting warm vanilla sugar from Bath and Body Works for years,  it seems that over the years it has lost that lovely scent that I am use to. The lotions smell nothing like vanilla and the body spray smells more of alcohol than anything else. This makes me sad as it is my favorite.</li>
+    <li> Smells great, feels great. Love it!</li>
+    <li> Came in gift wrap and smells great</li>
+    <li> Was for my mother and her birthday...surprised her and was perfect.</li>
+    <li> I recently purchased this item for my mom for Christmas. I know she&#x27;ll love it because she loves the scent, but obviously I haven&#x27;t given it to her since it is before Christmas.&lt;br /&gt;My package delivered earlier than expected, which was amazing. The only thing I was not happy about was that the products didn&#x27;t come with the gift bag and bow. I was looking forward to that because it adds a cute touch to the gift, but overall this was a good purchase.</li>
+    <li> Shipped on Time- Great Quality</li>
+    <li> Love the Scent very soft and semi sweet</li>
+    <li> The scent is not as lasting as the original one, however, the smell is on point.</li>
+    <li> I don&#x27;t like it, it is poor quality</li>
+    <li> Overpriced and did not include gift bag</li>
+    <li> Products are great. But this is considered a set.  It was merely shipped in a cardboard box. Not zip pouch or anything else.  It really detracts from the products as a gift.</li>
+    <li> Such a refreshing fragrance</li>
+    <li> Warm Vanilla is the best flavor ever.  Please don&#x27;t change it...</li>
+    <li> I love it so much. Such a pitty I can&#x27;t get it in Europe. So now I pay double the amount, because of the taxes, but I think it is worth it!</li>
+</ol>
+
+
+
+

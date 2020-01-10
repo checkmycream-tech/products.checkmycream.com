@@ -1,0 +1,120 @@
+---
+title: Basil 100% Pure, Best Therapeutic Grade Essential Oil,
+description: Basil 100% Pure, Best Therapeutic Grade Essential Oil,
+author: Suvojit Manna,
+tags: Basil 100% Pure, Best Therapeutic Grade Essential Oil,
+publishedAt: Fri Jan 10 2020 15:01:04 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:01:04 GMT+0530 (India Standard Time),
+---
+
+# [Basil 100% Pure, Best Therapeutic Grade Essential Oil](https://products.checkmycream.com/products/Basil-100percent-Pure-Best-Therapeutic-Grade-Essential-Oil.html)
+
+### Positive Reviews
+
+<ol>
+      <li>This has an excellent basil taste PLUS it contains healing properties!</li>
+      <li>It smells wonderful!</li>
+      <li>This wondrous scent is also great to sniff when you want to uplift your mood.</li>
+      <li>great oil.</li>
+      <li>This oil is great and just as described.</li>
+      <li>This oil is fantastic to work with, the scent is wonderful</li>
+      <li>Basil oil is also a good source of Vitamin A, magnesium, potassium, iron, and calcium.</li>
+      <li>I love the smell of Basil!</li>
+      <li>: I received this product in exchange for my honest unbiased opinion.</li>
+      <li>It arrived safely and in good time.</li>
+      <li>You have a good smelling cleanser that is fantastic for the environment!  </li>
+      <li>All views and opinions are 100% my own and have neither been paid for nor sponsored.</li>
+      <li>The scent is wonderful and can be very therapeutic.</li>
+      <li>I also like to make my own cleanser</li>
+      <li>Love it.</li>
+      <li>This is an excellent essential oil.</li>
+      <li>Love the smell, the look the effect</li>
+      <li>I have a bunch of health issues and have been told how beneficial aromatherapy and oils can be for so many of my ailments.</li>
+      <li>I received this product free in exchange for my honest review.</li>
+      <li>The taste isn&#x27;t strong and leaves no aftertaste.</li>
+      <li>High grade, smells so good.</li>
+      <li>Simply inhale and imagine happy times – your mood will follow.</li>
+      <li>Basil essential oil is a great oil to have around the house.</li>
+      <li>I love fresh basil scent</li>
+      <li>This oil also works fantastic if you have arthritis</li>
+      <li>I have found that the basil essential oil mixed in with some eucalyptus and mint oils work  wonderfully on my migraines.</li>
+      <li>I plan on using this regularly to help with my mood :)</li>
+      <li>As a result, it is extensively used in many skin care supplements that claim to improve the tone of your skin.</li>
+      <li>I was so excited when this friend who works with the seller  asked if I would be interested in testing this Essential Oil out and do a review of it on Amazon.</li>
+      <li>delivered fast</li>
+      <li>This essential oil if fantastic.</li>
+      <li>Because I use essential oils in a few things, I was given a chance to try this for an honest review.</li>
+      <li>I was pleasantly surprised by the scent.&lt;br /&gt;Disclaimer</li>
+      <li>I LOVE how this smells just like the herb, and it mixes really well with a few other scents.</li>
+      <li>It has a strong licorice smell that is not pleasant.</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> This has an excellent basil taste PLUS it contains healing properties!</li>
+<li> It smells wonderful!</li>
+<li> This wondrous scent is also great to sniff when you want to uplift your mood.</li>
+<li> great oil.</li>
+<li> This oil is great and just as described.</li>
+<li> This oil is fantastic to work with, the scent is wonderful</li>
+<li> Basil oil is also a good source of Vitamin A, magnesium, potassium, iron, and calcium.</li>
+<li> I love the smell of Basil!</li>
+<li> : I received this product in exchange for my honest unbiased opinion.</li>
+<li> It arrived safely and in good time.</li>
+<li> You have a good smelling cleanser that is fantastic for the environment!  </li>
+<li> All views and opinions are 100% my own and have neither been paid for nor sponsored.</li>
+<li> The scent is wonderful and can be very therapeutic.</li>
+<li> I also like to make my own cleanser</li>
+<li> Love it.</li>
+<li> This is an excellent essential oil.</li>
+<li> Love the smell, the look the effect</li>
+<li> I have a bunch of health issues and have been told how beneficial aromatherapy and oils can be for so many of my ailments.</li>
+<li> I received this product free in exchange for my honest review.</li>
+<li> The taste isn&#x27;t strong and leaves no aftertaste.</li>
+<li> High grade, smells so good.</li>
+<li> Simply inhale and imagine happy times – your mood will follow.</li>
+<li> Basil essential oil is a great oil to have around the house.</li>
+<li> I love fresh basil scent</li>
+<li> This oil also works fantastic if you have arthritis</li>
+<li> I have found that the basil essential oil mixed in with some eucalyptus and mint oils work  wonderfully on my migraines.</li>
+<li> I plan on using this regularly to help with my mood :)</li>
+<li> As a result, it is extensively used in many skin care supplements that claim to improve the tone of your skin.</li>
+<li> I was so excited when this friend who works with the seller  asked if I would be interested in testing this Essential Oil out and do a review of it on Amazon.</li>
+<li> delivered fast</li>
+<li> This essential oil if fantastic.</li>
+<li> Because I use essential oils in a few things, I was given a chance to try this for an honest review.</li>
+<li> I was pleasantly surprised by the scent.&lt;br /&gt;Disclaimer</li>
+<li> I LOVE how this smells just like the herb, and it mixes really well with a few other scents.</li>
+<li> It has a strong licorice smell that is not pleasant.</li>
+<li> if I Inhale this spicy scent to clear your mind, refresh your mental connections and reduce mental fatigue.</li>
+<li> Basil essential oil has a slight herbal licorice smell.</li>
+<li> What I do for extremely stubborn messes is sprinkle a little baking powder on it and then spray the vinegar mixture.</li>
+<li> Another lil tid bit about basil oil is that a few drops in the bath can help relieve gout if you suffer from it.</li>
+<li> It is also commonly used to treat the symptoms of acne and other skin infections.</li>
+<li> Scrub a little and voila!</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> I use these in a pill pocket I take daily and it works wonders.  The taste isn&#x27;t strong and leaves no aftertaste.</li>
+    <li> This is an excellent essential oil. It smells wonderful! Well done, Healing Solutions.</li>
+    <li> Love the smell, the look the effect</li>
+    <li> This essential oil if fantastic. The scent is wonderful and can be very therapeutic. I was talking to a friend of mine and she was complaining to me about the migraines that she has been experiencing. I told her that I too suffered from them and one of the things that has helped me is a rice bag that I make and add essential oils too. I have found that the basil essential oil mixed in with some eucalyptus and mint oils work  wonderfully on my migraines. You can heat the bag up if you like or just use it as is. I was so excited when this friend who works with the seller  asked if I would be interested in testing this Essential Oil out and do a review of it on Amazon. This oil also works fantastic if you have arthritis, you need to place 2-4 drops in one ounce of a carrier oil and massage that area, it also can help with congestion when rubbed on the chest in the same ratio. Another lil tid bit about basil oil is that a few drops in the bath can help relieve gout if you suffer from it. This oil is fantastic to work with, the scent is wonderful I&#x27;d recommended it to anyone who works with essential oils.</li>
+    <li> This oil is great and just as described.</li>
+    <li> inhale, use in garden</li>
+    <li> It arrived safely and in good time.</li>
+    <li> High grade, smells so good. Love it. Will definitely purchase again.</li>
+    <li> This does not smell like basil. It has a strong licorice smell that is not pleasant. I will probably return it.</li>
+    <li> This has an excellent basil taste PLUS it contains healing properties!</li>
+    <li> great oil. delivered fast</li>
+    <li> I love the smell of Basil! I also like to make my own cleanser so I use vinegar, some water to dilute, and a couple drops of Basil oil. What I do for extremely stubborn messes is sprinkle a little baking powder on it and then spray the vinegar mixture. Scrub a little and voila! You have a good smelling cleanser that is fantastic for the environment!  Because I use essential oils in a few things, I was given a chance to try this for an honest review.</li>
+    <li> Basil essential oil is a great oil to have around the house. It has health benefits that include its ability to treat nausea, motion sickness, indigestion, constipation, respiratory problems, and diabetes. Basil oil is also a good source of Vitamin A, magnesium, potassium, iron, and calcium. It is also said to enhance the luster of dull-looking skin and hair. As a result, it is extensively used in many skin care supplements that claim to improve the tone of your skin. It is also commonly used to treat the symptoms of acne and other skin infections. So after researching and finding all this information, I decided to make a tomato basil soap. Basil essential oil has a slight herbal licorice smell. Even after making soap, the smell still came through. I was pleasantly surprised by the scent.&lt;br /&gt;Disclaimer: I received this product in exchange for my honest unbiased opinion. All views and opinions are 100% my own and have neither been paid for nor sponsored.</li>
+    <li> This basil oil smells like peppermint and eucalyptus with cedar wood. I love fresh basil scent and I have a plant I know this oil not what I was looking for.</li>
+    <li> I have a bunch of health issues and have been told how beneficial aromatherapy and oils can be for so many of my ailments.I&#x27;ve only just started doing aromatherapy to help myself but so far,I like what I read... if I Inhale this spicy scent to clear your mind, refresh your mental connections and reduce mental fatigue.This wondrous scent is also great to sniff when you want to uplift your mood. Simply inhale and imagine happy times – your mood will follow. I LOVE how this smells just like the herb, and it mixes really well with a few other scents. I plan on using this regularly to help with my mood :) I received this product free in exchange for my honest review.</li>
+</ol>
+
+
+
+

@@ -3,8 +3,8 @@ title: Braun 3 Series 340S Men&#x27;s Electric Foil Shaver / Electric Razor, Wet
 description: Braun 3 Series 340S Men&#x27;s Electric Foil Shaver / Electric Razor, Wet &amp; Dry,
 author: Suvojit Manna,
 tags: Braun 3 Series 340S Men&#x27;s Electric Foil Shaver / Electric Razor, Wet &amp; Dry,
-publishedAt: Thu Jan 09 2020 19:08:33 GMT+0530 (India Standard Time),
-modifiedAt: Thu Jan 09 2020 19:08:33 GMT+0530 (India Standard Time),
+publishedAt: Fri Jan 10 2020 15:00:05 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:05 GMT+0530 (India Standard Time),
 ---
 
 # [Braun 3 Series 340S Men&#x27;s Electric Foil Shaver / Electric Razor, Wet &amp; Dry](https://products.checkmycream.com/products/Braun-3-Series-340S-Men&#x27;s-Electric-Foil-Shaver-Electric-Razor-Wet-and-Dry.html)
@@ -12,211 +12,211 @@ modifiedAt: Thu Jan 09 2020 19:08:33 GMT+0530 (India Standard Time),
 ### Positive Reviews
 
 <ol>
-      <li>An excellent product.</li>
+      <li>Braun is the best!</li>
+      <li>For the price, this one is excellent.</li>
+      <li>Arrived on time, it works ,perfect!</li>
+      <li>Great style and works quite well!</li>
+      <li>Excellent brand.</li>
+      <li>Otherwise this shaver is one of the best.</li>
+      <li>Best Braun 3 series yet.</li>
       <li>Excellent battery and cut.</li>
       <li>It is the best non blade razor I have ever used.  </li>
+      <li>He is very happy with it.</li>
+      <li>The cream gave the best results</li>
+      <li>The Braun was perfect.</li>
+      <li>I am very satisfied !!!</li>
+      <li>It works great!</li>
+      <li>Returned, and bought a Philips Powertouch which works awesome.</li>
+      <li>: it takes time to &amp;#34;break in&amp;#34;, but then it gives excellent shaves with no irritation.&lt;br /&gt;Yes</li>
+      <li>Excellent shaver for not a lot of money.&lt;br /&gt;Yes</li>
+      <li>Performance is awesome.  </li>
       <li>Excellent shaver for the price.  </li>
+      <li>This is the best.  </li>
+      <li>After scouring reviews, I thought this one had the best reviews for the price, so I tried it.)</li>
+      <li>When producing an electric shaver, you want to be the best razor.</li>
+      <li>It works real good on my legs.</li>
+      <li>Works great!</li>
+      <li>/&gt;I&#x27;ve owned Norelco, Remington, and Braun, and the Braun is the best.  </li>
+      <li>Really awesome product, gets just as close as a razor.</li>
+      <li>Great product, it arrived as described so no complaints!  </li>
+      <li>very happy that I purchased this shaver.&lt;br /&gt;&lt;br</li>
+      <li>I am very happy with it.</li>
+      <li>My son loved it !!</li>
+      <li>Also I&#x27;ve realized this works best</li>
+      <li>He says it the best shaver he&#x27;s ever had.</li>
+      <li>Is the best shaver ever.</li>
+      <li>An excellent razor.  </li>
+      <li>Best shaver I&#x27;ve had in years.  </li>
       <li>Best electric shaver I&#x27;ve ever had.</li>
       <li>I always buy Braun because they are the best.</li>
+      <li>Works great!</li>
+      <li>It&#x27;s great!</li>
+      <li>Best Braun I&#x27;ve ever had in</li>
       <li>This is an excellent shaver and impervious to water.</li>
+      <li>Great!</li>
+      <li>Awesome Razor.  </li>
+      <li>Perfect shave.</li>
+      <li>To my surprise, it gave an excellent close shave!</li>
+      <li>Great shaver!</li>
+      <li>Awesome.</li>
+      <li>I would rate it as excellent.</li>
+      <li>I got this for my hubby for Christmas and he said this was the best one he had used in his life, so that is almost 50 years.</li>
+      <li>This is an excellent razor, but it cannot be used as a corded razor.  </li>
+      <li>good!!</li>
+      <li>Awesome shaver!</li>
+      <li>This is very good product!!!!</li>
+      <li>The cut is perfect for an electric shave.&lt;br /&gt;&lt;br</li>
+      <li>/&gt;First, the best pro is it&#x27;s price.</li>
+      <li>It is great!</li>
+      <li>And Braun makes the best shavers, offering the best construction and design, sharpest blades, the strongest motors, the greatest longevity, and the closest shave in the business!&lt;br /&gt;Specifics, you want?</li>
+      <li>Perelli makes the best tires, Sony makes the best TVs, Leica makes the best cameras.  </li>
+      <li>/&gt;Works great!  </li>
       <li>Braun is the best shaver.</li>
+      <li>I read about this shaver and its awesome!</li>
+      <li>The price was excellent.</li>
+      <li>Best unit of all their shavers.</li>
+      <li>Wonderful equipment.</li>
+      <li>Very satisfied!!</li>
+      <li>It&#x27;s the best shaver I have ever owned.</li>
+      <li>but this one works great!</li>
       <li>Great Item!</li>
+      <li>Best electric shaver I have ever used.</li>
       <li>This is one of the best Braun shavers.  </li>
       <li>But thats not the best part</li>
       <li>this was the best deal on the price I&#x27;ve found.</li>
+      <li>The best shaver I have ever owned.</li>
+      <li>My daddy said this shaver was great!!</li>
       <li>The Braun 3Series is an excellent choice.  </li>
+      <li>he says it&#x27;s the best!</li>
+      <li>Received it in plenty of time and it works great!</li>
+      <li>Great buy!</li>
+      <li>best electric shaver I have tried in years.</li>
+      <li>Best Goods.</li>
+      <li>This is an excellent razor.</li>
+      <li>and I am impressed with this unit.</li>
+      <li>Very happy with the shaving performance too.</li>
       <li>The best.  </li>
       <li>Best shaver I have ever owned!</li>
-      <li>The build quality of the Braun is excellent.</li>
-      <li>Excellent, and management functionality allows a shave lasting.&lt;br</li>
-      <li>Best shave with an electric shaver ever</li>
-      <li>Very good product，I like it!</li>
-      <li>very good! made in China</li>
-      <li>This is an excellent razor.</li>
-      <li>amazon is the best</li>
-      <li>Excellent shaver, works well with shaving cream.</li>
-      <li>Very Happy with this purchase for my husband.</li>
-      <li>However, it shaver is wonderful</li>
-      <li>I&#x27;m very pleased with this unit!!</li>
-      <li>Great razor !  </li>
-      <li>Excellent razor for the price.</li>
-      <li>Excellent shaver for the price</li>
-      <li>I am very impressed with the performance of this electric razor.</li>
-      <li>The Braun Series 3-340S shaver is excellent.</li>
-      <li>This thing is awesome!</li>
-      <li>The best in the range of 50 box</li>
-      <li>He is very happy with it.</li>
-      <li>Best electric razor I&#x27;ve ever had.</li>
-      <li>Great product!  </li>
-      <li>BEST one out there!&lt;br /&gt;We</li>
-      <li>Man am I happy!  </li>
-      <li>It works perfect.</li>
-      <li>I have it for a year and it works perfect!!!</li>
-      <li>Excellent razor.  </li>
-      <li>it&#x27;s not that perfect</li>
-      <li>This razor is perfect.  </li>
-      <li>This one works great!</li>
-      <li>This is an excellent Braun product!!.</li>
-      <li>The price is superb.</li>
-      <li>Very happy!!!</li>
-      <li>I had been using one of this item and it is awesome</li>
-      <li>A fogless mirror is a great addition to this purchase!</li>
-      <li>this one does an excellent job</li>
-      <li>/&gt;Battery life is excellent too.</li>
-      <li>Perfect shave.</li>
-      <li>It works real good on my legs.</li>
-      <li>Best Braun 3 series yet.</li>
-      <li>For the money this is a excellent purchase.</li>
-      <li>Best shaver I have ever had.</li>
-      <li>Great style and works quite well!</li>
-      <li>Best electric shaver I have ever used.</li>
-      <li>However, for body hair trimming,  this trimmer works perfectly.</li>
-      <li>I got this for my hubby for Christmas and he said this was the best one he had used in his life, so that is almost 50 years.</li>
-      <li>Awesome deal.</li>
-      <li>I am very happy with it.</li>
-      <li>To my surprise, it gave an excellent close shave!</li>
-      <li>This is quite an awesome shaver.</li>
-      <li>Gives him an excellent shave.</li>
-      <li>Best shaver and value anywhere.</li>
-      <li>The Very best Shaver I have ever had.</li>
-      <li>This is the best shaver I&#x27;ve ever had.</li>
-      <li>Braun recommends shaving before cleaning, but I&#x27;ve always had the best results shaving at the end of my shower.</li>
-      <li>I have had this shaver for awhile now and am very happy with it.</li>
-      <li>Wonderful equipment.</li>
-      <li>It is great!</li>
-      <li>This is very good product!!!!</li>
-      <li>Awesome shaver!</li>
-      <li>When producing an electric shaver, you want to be the best razor.</li>
-      <li>The cream gave the best results</li>
-      <li>Excellent brand.</li>
-      <li>Arrived on time, it works ,perfect!</li>
-      <li>good!!</li>
-      <li>/&gt;Works great!  </li>
+      <li>Its a excellent shaver.</li>
+      <li>Excellent shaver for the money!  </li>
+      <li>Perfect electric shaver</li>
+      <li>The packaging was excellent.</li>
       <li>Excellent shaver, I use it to shave my head, I also shave my face, but I still use the gillette once in awhile on my face.</li>
-      <li>Great price!</li>
-      <li>Perfect!</li>
-      <li>I am very happy with my purchase of the Braun</li>
-      <li>Great shaver!!</li>
-      <li>Very happy with this purchase.</li>
-      <li>This one works the best!</li>
-      <li>The best razor I have ever used.</li>
-      <li>1st best seller!</li>
-      <li>best price!!!</li>
-      <li>This one give me the best shave of all . ..</li>
-      <li>/&gt;340s-4 is best one yet.</li>
-      <li>This is the best deal for any shaver.  </li>
-      <li>Perfect!</li>
-      <li>Made a great gift!</li>
-      <li>I found the Braun Series 3-340 to be an excellent shaver.</li>
-      <li>Awesome shaver.</li>
-      <li>but it is awesome.</li>
-      <li>Excellent for me.</li>
+      <li>this razor is awesome</li>
+      <li>the Braun 3Series.  Best decision I could make.  </li>
+      <li>I am very happy I did.  </li>
+      <li>Excellent value.</li>
+      <li>The build quality of the Braun is excellent.</li>
+      <li>AMAZONE IS BEST</li>
       <li>He says it&#x27;s the best razor he&#x27;s ever used.  </li>
+      <li>He&#x27;s been very happy with it.</li>
+      <li>Best shaver I&#x27;ve ever owned.</li>
+      <li>Great price!</li>
 </ol>
 
 
 <h2>Negative Reviews</h2>
 <ol>
-<li> An excellent product.</li>
+<li> Braun is the best!</li>
+<li> For the price, this one is excellent.</li>
+<li> Arrived on time, it works ,perfect!</li>
+<li> Great style and works quite well!</li>
+<li> Excellent brand.</li>
+<li> Otherwise this shaver is one of the best.</li>
+<li> Best Braun 3 series yet.</li>
 <li> Excellent battery and cut.</li>
 <li> It is the best non blade razor I have ever used.  </li>
+<li> He is very happy with it.</li>
+<li> The cream gave the best results</li>
+<li> The Braun was perfect.</li>
+<li> I am very satisfied !!!</li>
+<li> It works great!</li>
+<li> Returned, and bought a Philips Powertouch which works awesome.</li>
+<li> : it takes time to &amp;#34;break in&amp;#34;, but then it gives excellent shaves with no irritation.&lt;br /&gt;Yes</li>
+<li> Excellent shaver for not a lot of money.&lt;br /&gt;Yes</li>
+<li> Performance is awesome.  </li>
 <li> Excellent shaver for the price.  </li>
+<li> This is the best.  </li>
+<li> After scouring reviews, I thought this one had the best reviews for the price, so I tried it.)</li>
+<li> When producing an electric shaver, you want to be the best razor.</li>
+<li> It works real good on my legs.</li>
+<li> Works great!</li>
+<li> /&gt;I&#x27;ve owned Norelco, Remington, and Braun, and the Braun is the best.  </li>
+<li> Really awesome product, gets just as close as a razor.</li>
+<li> Great product, it arrived as described so no complaints!  </li>
+<li> very happy that I purchased this shaver.&lt;br /&gt;&lt;br</li>
+<li> I am very happy with it.</li>
+<li> My son loved it !!</li>
+<li> Also I&#x27;ve realized this works best</li>
+<li> He says it the best shaver he&#x27;s ever had.</li>
+<li> Is the best shaver ever.</li>
+<li> An excellent razor.  </li>
+<li> Best shaver I&#x27;ve had in years.  </li>
 <li> Best electric shaver I&#x27;ve ever had.</li>
 <li> I always buy Braun because they are the best.</li>
+<li> Works great!</li>
+<li> It&#x27;s great!</li>
+<li> Best Braun I&#x27;ve ever had in</li>
 <li> This is an excellent shaver and impervious to water.</li>
+<li> Great!</li>
+<li> Awesome Razor.  </li>
+<li> Perfect shave.</li>
+<li> To my surprise, it gave an excellent close shave!</li>
+<li> Great shaver!</li>
+<li> Awesome.</li>
+<li> I would rate it as excellent.</li>
+<li> I got this for my hubby for Christmas and he said this was the best one he had used in his life, so that is almost 50 years.</li>
+<li> This is an excellent razor, but it cannot be used as a corded razor.  </li>
+<li> good!!</li>
+<li> Awesome shaver!</li>
+<li> This is very good product!!!!</li>
+<li> The cut is perfect for an electric shave.&lt;br /&gt;&lt;br</li>
+<li> /&gt;First, the best pro is it&#x27;s price.</li>
+<li> It is great!</li>
+<li> And Braun makes the best shavers, offering the best construction and design, sharpest blades, the strongest motors, the greatest longevity, and the closest shave in the business!&lt;br /&gt;Specifics, you want?</li>
+<li> Perelli makes the best tires, Sony makes the best TVs, Leica makes the best cameras.  </li>
+<li> /&gt;Works great!  </li>
 <li> Braun is the best shaver.</li>
+<li> I read about this shaver and its awesome!</li>
+<li> The price was excellent.</li>
+<li> Best unit of all their shavers.</li>
+<li> Wonderful equipment.</li>
+<li> Very satisfied!!</li>
+<li> It&#x27;s the best shaver I have ever owned.</li>
+<li> but this one works great!</li>
 <li> Great Item!</li>
+<li> Best electric shaver I have ever used.</li>
 <li> This is one of the best Braun shavers.  </li>
 <li> But thats not the best part</li>
 <li> this was the best deal on the price I&#x27;ve found.</li>
+<li> The best shaver I have ever owned.</li>
+<li> My daddy said this shaver was great!!</li>
 <li> The Braun 3Series is an excellent choice.  </li>
+<li> he says it&#x27;s the best!</li>
+<li> Received it in plenty of time and it works great!</li>
+<li> Great buy!</li>
+<li> best electric shaver I have tried in years.</li>
+<li> Best Goods.</li>
+<li> This is an excellent razor.</li>
+<li> and I am impressed with this unit.</li>
+<li> Very happy with the shaving performance too.</li>
 <li> The best.  </li>
 <li> Best shaver I have ever owned!</li>
-<li> The build quality of the Braun is excellent.</li>
-<li> Excellent, and management functionality allows a shave lasting.&lt;br</li>
-<li> Best shave with an electric shaver ever</li>
-<li> Very good product，I like it!</li>
-<li> very good! made in China</li>
-<li> This is an excellent razor.</li>
-<li> amazon is the best</li>
-<li> Excellent shaver, works well with shaving cream.</li>
-<li> Very Happy with this purchase for my husband.</li>
-<li> However, it shaver is wonderful</li>
-<li> I&#x27;m very pleased with this unit!!</li>
-<li> Great razor !  </li>
-<li> Excellent razor for the price.</li>
-<li> Excellent shaver for the price</li>
-<li> I am very impressed with the performance of this electric razor.</li>
-<li> The Braun Series 3-340S shaver is excellent.</li>
-<li> This thing is awesome!</li>
-<li> The best in the range of 50 box</li>
-<li> He is very happy with it.</li>
-<li> Best electric razor I&#x27;ve ever had.</li>
-<li> Great product!  </li>
-<li> BEST one out there!&lt;br /&gt;We</li>
-<li> Man am I happy!  </li>
-<li> It works perfect.</li>
-<li> I have it for a year and it works perfect!!!</li>
-<li> Excellent razor.  </li>
-<li> it&#x27;s not that perfect</li>
-<li> This razor is perfect.  </li>
-<li> This one works great!</li>
-<li> This is an excellent Braun product!!.</li>
-<li> The price is superb.</li>
-<li> Very happy!!!</li>
-<li> I had been using one of this item and it is awesome</li>
-<li> A fogless mirror is a great addition to this purchase!</li>
-<li> this one does an excellent job</li>
-<li> /&gt;Battery life is excellent too.</li>
-<li> Perfect shave.</li>
-<li> It works real good on my legs.</li>
-<li> Best Braun 3 series yet.</li>
-<li> For the money this is a excellent purchase.</li>
-<li> Best shaver I have ever had.</li>
-<li> Great style and works quite well!</li>
-<li> Best electric shaver I have ever used.</li>
-<li> However, for body hair trimming,  this trimmer works perfectly.</li>
-<li> I got this for my hubby for Christmas and he said this was the best one he had used in his life, so that is almost 50 years.</li>
-<li> Awesome deal.</li>
-<li> I am very happy with it.</li>
-<li> To my surprise, it gave an excellent close shave!</li>
-<li> This is quite an awesome shaver.</li>
-<li> Gives him an excellent shave.</li>
-<li> Best shaver and value anywhere.</li>
-<li> The Very best Shaver I have ever had.</li>
-<li> This is the best shaver I&#x27;ve ever had.</li>
-<li> Braun recommends shaving before cleaning, but I&#x27;ve always had the best results shaving at the end of my shower.</li>
-<li> I have had this shaver for awhile now and am very happy with it.</li>
-<li> Wonderful equipment.</li>
-<li> It is great!</li>
-<li> This is very good product!!!!</li>
-<li> Awesome shaver!</li>
-<li> When producing an electric shaver, you want to be the best razor.</li>
-<li> The cream gave the best results</li>
-<li> Excellent brand.</li>
-<li> Arrived on time, it works ,perfect!</li>
-<li> good!!</li>
-<li> /&gt;Works great!  </li>
+<li> Its a excellent shaver.</li>
+<li> Excellent shaver for the money!  </li>
+<li> Perfect electric shaver</li>
+<li> The packaging was excellent.</li>
 <li> Excellent shaver, I use it to shave my head, I also shave my face, but I still use the gillette once in awhile on my face.</li>
-<li> Great price!</li>
-<li> Perfect!</li>
-<li> I am very happy with my purchase of the Braun</li>
-<li> Great shaver!!</li>
-<li> Very happy with this purchase.</li>
-<li> This one works the best!</li>
-<li> The best razor I have ever used.</li>
-<li> 1st best seller!</li>
-<li> best price!!!</li>
-<li> This one give me the best shave of all . ..</li>
-<li> /&gt;340s-4 is best one yet.</li>
-<li> This is the best deal for any shaver.  </li>
-<li> Perfect!</li>
-<li> Made a great gift!</li>
-<li> I found the Braun Series 3-340 to be an excellent shaver.</li>
-<li> Awesome shaver.</li>
-<li> but it is awesome.</li>
-<li> Excellent for me.</li>
+<li> this razor is awesome</li>
+<li> the Braun 3Series.  Best decision I could make.  </li>
+<li> I am very happy I did.  </li>
+<li> Excellent value.</li>
+<li> The build quality of the Braun is excellent.</li>
+<li> AMAZONE IS BEST</li>
 <li> He says it&#x27;s the best razor he&#x27;s ever used.  </li>
+<li> He&#x27;s been very happy with it.</li>
+<li> Best shaver I&#x27;ve ever owned.</li>
+<li> Great price!</li>
 </ol>
 
 <h2>All Reviews</h2>
@@ -2103,6 +2103,7 @@ modifiedAt: Thu Jan 09 2020 19:08:33 GMT+0530 (India Standard Time),
     <li> I have purchase at least 3 Shavers for my husband the last few years. None has made him as happy as the&lt;br /&gt;Braun 3Series 340S-4 Wet &amp; Dry Shaver.  He said it gives him an even closer shave than a stick razor, never&lt;br /&gt;burns his skin and I think he looks cute as can be :)&lt;br /&gt;&lt;br /&gt;Thanks, Pamela Danielsen</li>
     <li> This razor gives me a very close shave. It stays charged a long time.</li>
 </ol>
+
 
 
 

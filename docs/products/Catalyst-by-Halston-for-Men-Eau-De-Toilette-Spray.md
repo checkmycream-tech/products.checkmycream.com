@@ -1,0 +1,301 @@
+---
+title: Catalyst by Halston for Men, Eau De Toilette Spray,
+description: Catalyst by Halston for Men, Eau De Toilette Spray,
+author: Suvojit Manna,
+tags: Catalyst by Halston for Men, Eau De Toilette Spray,
+publishedAt: Fri Jan 10 2020 14:59:13 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:59:13 GMT+0530 (India Standard Time),
+---
+
+# [Catalyst by Halston for Men, Eau De Toilette Spray](https://products.checkmycream.com/products/Catalyst-by-Halston-for-Men-Eau-De-Toilette-Spray.html)
+
+### Positive Reviews
+
+<ol>
+      <li>Great price through amazon!</li>
+      <li>But for a fraction of their price I&#x27;m very happy with this product</li>
+      <li>So happy I found this on  Amazon!</li>
+      <li>Smells great!!!</li>
+      <li>I&#x27;m very happy with my purchase, will make a great gift!</li>
+      <li>For the price you just can&#x27;t beat something this delicious.</li>
+      <li>The product was flawless and received as promised.  </li>
+      <li>This is some great stuff!  </li>
+      <li>Everything was great!</li>
+      <li>Catalyst for men is still the best after all these years</li>
+      <li>My Man smells so wonderful wearing this!</li>
+      <li>EXCELLENT!</li>
+      <li>Exelent and very good item.</li>
+      <li>VERY GOOD SMELL,</li>
+      <li>Great price on a timeless scent.</li>
+      <li>this perfume is great</li>
+      <li>it has a great scent.   </li>
+      <li>&amp; I was really happy to have found it on Amazon.</li>
+      <li>I was happy to find it on Amazon.com.</li>
+      <li>A great smell that&#x27;s not overbearing.</li>
+      <li>Great stuff... thank you</li>
+      <li>Smells great.</li>
+      <li>Very nice fragrance.</li>
+      <li>color match, size is correct, good quality, very nice item, color match, , color match, size is correct, good quality, very nice item, color match,</li>
+      <li>Great price, smells awesome, fast shipping!!</li>
+      <li>Loved the price.</li>
+      <li>Good cologne, shipped with box.</li>
+      <li>than that, the product is extremely nice and within a great price range to make it an every day cologne with out breaking the bank.</li>
+      <li>my son liked it a lot and price was great.</li>
+      <li>However,the price has never been this good.</li>
+      <li>It smells so good on him, he wears it over body powder and smells like candy necklaces.</li>
+      <li>Very exotic...</li>
+      <li>My dad was very satisfied with this purchase</li>
+      <li>great vaule, missed it a lot and glad I have it again.</li>
+      <li>They both love the fragrance and it made for  a great birthday night.........</li>
+      <li>and I love the smell!</li>
+      <li>Not too many people know about this cologne!  </li>
+      <li>I bought this cologne for my husand and son and they both love the smell!  </li>
+      <li>Love this!</li>
+      <li>It&#x27;s my favorite!</li>
+      <li>Nice cologne for men.  </li>
+      <li>My absolute favorite scent, great price, thank you!</li>
+      <li>Ordered and received exactly what I wanted in good time !</li>
+      <li>It&#x27;s good to know that it is still available.</li>
+      <li>The good news is the perfume was not stale and smelled really good.  </li>
+      <li>I have used this product for years &amp; look forward to many more.</li>
+      <li>I was so happy to find it (and at a reasonable price) at Amazon.</li>
+      <li>I love the fact that I can still find this cologne for my husband and that I can afford it.</li>
+      <li>It was usurped as my favorite by the shifting times and the lack of it on shelves.</li>
+      <li>love it.</li>
+      <li>MY FAVORITE FOR YEARS.</li>
+      <li>Owned this years ago and was glad to be able to find it.</li>
+      <li>One of my favorite scents.</li>
+      <li>I love Catalyst</li>
+      <li>Love Love Love, my fav</li>
+      <li>i&#x27;m defenilly buying more of this product..</li>
+      <li>I have used it for many years.</li>
+      <li>However, I didn&#x27;t find it particularly appealing.</li>
+      <li>I have one :)</li>
+      <li>Took a ewhile :)</li>
+      <li>I adore this cologne, love the smell on the hubs.</li>
+      <li>I was glad to see it on Amazon, and will keep purchasing.</li>
+      <li>This is one of my favorite Colognes.</li>
+      <li>I got it for him for Christmas and he has been very excited.  </li>
+      <li>The Smell stays on all day long its the best :) even one at work asks me whats the Cologne</li>
+      <li>Its crisp, and enters the nostrils easily leaving a pleasant feeling.</li>
+      <li>Great product, fast and easy transaction A+++Smooth &amp; Easy...</li>
+      <li>he love this gift thanks keep up good work&lt;</li>
+      <li>Very sexy scent ;)</li>
+      <li>I already owned a light every day cologne, and I wanted to try getting something more</li>
+      <li>It&#x27;s unique and wonderful and has a long wear time.</li>
+      <li>Solid, good ship time!</li>
+      <li>and I liked it very much</li>
+      <li>You should enjoy it too otherwise</li>
+      <li>I enjoy the fragrance and the women seem to approve of it too.</li>
+      <li>I AT HEIGHT, THE EXCELLENT PRICE AND THE AMERICAN QUALITY, IS VERY HAPPY-5 POINTS, I RECOMMEND, AND THERE IS A LOT OF IT IN THE BOTTLE</li>
+      <li>&quot;  and very very fresh scent&lt;br /&gt;I</li>
+      <li>I first used this many years ago</li>
+      <li>has this unique \\&quot;citrous\\</li>
+      <li>The price was about 1/3 of the original price</li>
+      <li>One  of the classic colons for me that love a smooth smell in the night air.</li>
+      <li>I bought this for my dad and not only was the price great, it is also the large size.</li>
+      <li>THIS IS A REALLY NICE SCENT, AND IT WAS AN UNBELIEVABLE BUY, WITH , OF COURSE, TERRIFIC SERVICE.. VERY HAPPY!!</li>
+      <li>Received quickly.</li>
+      <li>It has a nice masculine smell, not expensive.</li>
+      <li>This is a wonderful, long lasting, fresh scent.  </li>
+      <li>HIGHLY RECOMMENDED  !!!</li>
+      <li>It smells professional, it makes a bold statement, and I feel confident wearing it.  </li>
+      <li>It is fragrant all day, not overbearing, and leaves a realy clean and crisp scent in your trail.  </li>
+      <li>My husband had almost completely run out, and it&#x27;s my favorite scent that he wears.  </li>
+      <li>There are many big name colognes out there right now that are mimicking this fantastic scent by Halston.</li>
+      <li>It is very bold, so the 4-5 sprays of my previous cologne would be waaay to many sprays with this.  </li>
+      <li>I first purchased this for my husband about 10yrs ago.  </li>
+      <li>My husband has been using this since we first met 10 years ago.</li>
+      <li>I&#x27;ve looked for Catalyst Men&#x27;s Cologne in eight stores locally, and no one seems to carry it any more.  </li>
+      <li>Worn this for years, haven&#x27;t found the first person that didn&#x27;t like it.</li>
+      <li>/&gt;this was my first time order from you all so in the future i will be ordering more</li>
+      <li>Catalyst is such an interesting blend of spices.  </li>
+      <li>If like me you do not find such an aroma appealing, then this product is not for you.</li>
+      <li>I have used Drakkar Noir (too soft and did not last through out the day), Fahrenheit (the ladies loved it on me), Safari (strong, manly scent, my 2nd favorite), Jean-Paul Gaultier&#x27;s Le Male, Estee Lauder&#x27;s Intuition, Perry Ellis&#x27; 360 Degrees, Hugo by Hugo Boss, Realm by Erox.</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> Great price through amazon!</li>
+<li> But for a fraction of their price I&#x27;m very happy with this product</li>
+<li> So happy I found this on  Amazon!</li>
+<li> Smells great!!!</li>
+<li> I&#x27;m very happy with my purchase, will make a great gift!</li>
+<li> For the price you just can&#x27;t beat something this delicious.</li>
+<li> The product was flawless and received as promised.  </li>
+<li> This is some great stuff!  </li>
+<li> Everything was great!</li>
+<li> Catalyst for men is still the best after all these years</li>
+<li> My Man smells so wonderful wearing this!</li>
+<li> EXCELLENT!</li>
+<li> Exelent and very good item.</li>
+<li> VERY GOOD SMELL,</li>
+<li> Great price on a timeless scent.</li>
+<li> this perfume is great</li>
+<li> it has a great scent.   </li>
+<li> &amp; I was really happy to have found it on Amazon.</li>
+<li> I was happy to find it on Amazon.com.</li>
+<li> A great smell that&#x27;s not overbearing.</li>
+<li> Great stuff... thank you</li>
+<li> Smells great.</li>
+<li> Very nice fragrance.</li>
+<li> color match, size is correct, good quality, very nice item, color match, , color match, size is correct, good quality, very nice item, color match,</li>
+<li> Great price, smells awesome, fast shipping!!</li>
+<li> Loved the price.</li>
+<li> Good cologne, shipped with box.</li>
+<li> than that, the product is extremely nice and within a great price range to make it an every day cologne with out breaking the bank.</li>
+<li> my son liked it a lot and price was great.</li>
+<li> However,the price has never been this good.</li>
+<li> It smells so good on him, he wears it over body powder and smells like candy necklaces.</li>
+<li> Very exotic...</li>
+<li> My dad was very satisfied with this purchase</li>
+<li> great vaule, missed it a lot and glad I have it again.</li>
+<li> They both love the fragrance and it made for  a great birthday night.........</li>
+<li> and I love the smell!</li>
+<li> Not too many people know about this cologne!  </li>
+<li> I bought this cologne for my husand and son and they both love the smell!  </li>
+<li> Love this!</li>
+<li> It&#x27;s my favorite!</li>
+<li> Nice cologne for men.  </li>
+<li> My absolute favorite scent, great price, thank you!</li>
+<li> Ordered and received exactly what I wanted in good time !</li>
+<li> It&#x27;s good to know that it is still available.</li>
+<li> The good news is the perfume was not stale and smelled really good.  </li>
+<li> I have used this product for years &amp; look forward to many more.</li>
+<li> I was so happy to find it (and at a reasonable price) at Amazon.</li>
+<li> I love the fact that I can still find this cologne for my husband and that I can afford it.</li>
+<li> It was usurped as my favorite by the shifting times and the lack of it on shelves.</li>
+<li> love it.</li>
+<li> MY FAVORITE FOR YEARS.</li>
+<li> Owned this years ago and was glad to be able to find it.</li>
+<li> One of my favorite scents.</li>
+<li> I love Catalyst</li>
+<li> Love Love Love, my fav</li>
+<li> i&#x27;m defenilly buying more of this product..</li>
+<li> I have used it for many years.</li>
+<li> However, I didn&#x27;t find it particularly appealing.</li>
+<li> I have one :)</li>
+<li> Took a ewhile :)</li>
+<li> I adore this cologne, love the smell on the hubs.</li>
+<li> I was glad to see it on Amazon, and will keep purchasing.</li>
+<li> This is one of my favorite Colognes.</li>
+<li> I got it for him for Christmas and he has been very excited.  </li>
+<li> The Smell stays on all day long its the best :) even one at work asks me whats the Cologne</li>
+<li> Its crisp, and enters the nostrils easily leaving a pleasant feeling.</li>
+<li> Great product, fast and easy transaction A+++Smooth &amp; Easy...</li>
+<li> he love this gift thanks keep up good work&lt;</li>
+<li> Very sexy scent ;)</li>
+<li> I already owned a light every day cologne, and I wanted to try getting something more</li>
+<li> It&#x27;s unique and wonderful and has a long wear time.</li>
+<li> Solid, good ship time!</li>
+<li> and I liked it very much</li>
+<li> You should enjoy it too otherwise</li>
+<li> I enjoy the fragrance and the women seem to approve of it too.</li>
+<li> I AT HEIGHT, THE EXCELLENT PRICE AND THE AMERICAN QUALITY, IS VERY HAPPY-5 POINTS, I RECOMMEND, AND THERE IS A LOT OF IT IN THE BOTTLE</li>
+<li> &quot;  and very very fresh scent&lt;br /&gt;I</li>
+<li> I first used this many years ago</li>
+<li> has this unique \\&quot;citrous\\</li>
+<li> The price was about 1/3 of the original price</li>
+<li> One  of the classic colons for me that love a smooth smell in the night air.</li>
+<li> I bought this for my dad and not only was the price great, it is also the large size.</li>
+<li> THIS IS A REALLY NICE SCENT, AND IT WAS AN UNBELIEVABLE BUY, WITH , OF COURSE, TERRIFIC SERVICE.. VERY HAPPY!!</li>
+<li> Received quickly.</li>
+<li> It has a nice masculine smell, not expensive.</li>
+<li> This is a wonderful, long lasting, fresh scent.  </li>
+<li> HIGHLY RECOMMENDED  !!!</li>
+<li> It smells professional, it makes a bold statement, and I feel confident wearing it.  </li>
+<li> It is fragrant all day, not overbearing, and leaves a realy clean and crisp scent in your trail.  </li>
+<li> My husband had almost completely run out, and it&#x27;s my favorite scent that he wears.  </li>
+<li> There are many big name colognes out there right now that are mimicking this fantastic scent by Halston.</li>
+<li> It is very bold, so the 4-5 sprays of my previous cologne would be waaay to many sprays with this.  </li>
+<li> I first purchased this for my husband about 10yrs ago.  </li>
+<li> My husband has been using this since we first met 10 years ago.</li>
+<li> I&#x27;ve looked for Catalyst Men&#x27;s Cologne in eight stores locally, and no one seems to carry it any more.  </li>
+<li> Worn this for years, haven&#x27;t found the first person that didn&#x27;t like it.</li>
+<li> /&gt;this was my first time order from you all so in the future i will be ordering more</li>
+<li> Catalyst is such an interesting blend of spices.  </li>
+<li> If like me you do not find such an aroma appealing, then this product is not for you.</li>
+<li> I have used Drakkar Noir (too soft and did not last through out the day), Fahrenheit (the ladies loved it on me), Safari (strong, manly scent, my 2nd favorite), Jean-Paul Gaultier&#x27;s Le Male, Estee Lauder&#x27;s Intuition, Perry Ellis&#x27; 360 Degrees, Hugo by Hugo Boss, Realm by Erox.</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> Ordered and received exactly what I wanted in good time !</li>
+    <li> This is one of my favorite Colognes. I have used it for many years. Hard to find in the stores.</li>
+    <li> I received this fragrance as a Christmas present back in 1994 for my ex-wife and this is one of my favorite along with some others.</li>
+    <li> All woman say that it like them.</li>
+    <li> This product has become very difficult to find locally. I have bought it online at other sites in the past. However,the price has never been this good.</li>
+    <li> I&#x27;ve been using this cologne for over 5 years.  I always have a supply although in the past I&#x27;ve alternated it with other scents.</li>
+    <li> Believe it or not, this is an old fragance (over 14 years old) and as time passes by it gets harder and harder to find them at retail locations.&lt;br /&gt;it has this unique \\&quot;citrous\\&quot;  and very very fresh scent&lt;br /&gt;I bought two of them last time and I hope this thing sticks around for a long time.</li>
+    <li> So happy I found this on  Amazon! It is a very fresh, masculine scent and hard to find in stores. I&#x27;m very happy with my purchase, will make a great gift!</li>
+    <li> I first used this many years ago and then it became unavailable. I was happy to find it on Amazon.com. The price was about 1/3 of the original price and I received it timely in the condition advertised.</li>
+    <li> I&#x27;ve looked for Catalyst Men&#x27;s Cologne in eight stores locally, and no one seems to carry it any more.  My husband had almost completely run out, and it&#x27;s my favorite scent that he wears.  I was so happy to find it (and at a reasonable price) at Amazon.</li>
+    <li> Catalyst for men is still the best after all these years</li>
+    <li> THIS IS A REALLY NICE SCENT, AND IT WAS AN UNBELIEVABLE BUY, WITH , OF COURSE, TERRIFIC SERVICE.. VERY HAPPY!! BIGSTAN</li>
+    <li> Worn this for years, haven&#x27;t found the first person that didn&#x27;t like it. Would be a shame to see this product being discontinued.</li>
+    <li> The good news is the perfume was not stale and smelled really good.  The bad news is the bottle was not sealed and was missing a few cc&#x27;s</li>
+    <li> Ordered this for my next door neighbor, so she could give it to her husband for his birthday. They both love the fragrance and it made for  a great birthday night.........</li>
+    <li> Before purchasing this item, I was using Derek Jeter&#x27;s Driven (Blue).  I guess I didn;t really know what a quality cologne was until I just used Catalyst yesterday.  The scent is definitely manly.  It is very bold, so the 4-5 sprays of my previous cologne would be waaay to many sprays with this.  I spray myself twice.  Once on the neck and once on the wrist.  It is fragrant all day, not overbearing, and leaves a realy clean and crisp scent in your trail.  It isn;t overbearing in small spaces, and I have received several different compliments on it.  I wear it to work, meetings, and work-related gatherings.  It smells professional, it makes a bold statement, and I feel confident wearing it.  Even my male co-workers have asked me what I use--including upper-management.  I consider this a positive sign.  I have no received any negative feedback.</li>
+    <li> I love the fact that I can still find this cologne for my husband and that I can afford it. He loves these science beaker bottles. Shipped fast and packed well. Will buy from again.</li>
+    <li> The Smell stays on all day long its the best :) even one at work asks me whats the Cologne I have one :)</li>
+    <li> I had this sent years ago,.... great vaule, missed it a lot and glad I have it again.</li>
+    <li> Great price, smells awesome, fast shipping!!</li>
+    <li> I love Catalyst it has a great scent.   My wife loves the scent on me.</li>
+    <li> I bought this cologne for my husand and son and they both love the smell!  I am a migraine sufferer and have to be careful which perfumes I use and which colognes my husband uses and this one doesnt bother me at all and I love the smell!</li>
+    <li> ...and a little goes a long way and lasts all day. This is one of the only two colognes that I ever use.</li>
+    <li> I always get positive comments on Catalyst from people. I enjoy the fragrance and the women seem to approve of it too. What else could you ask for. That being said there is no universal fragrance for everyone your personal biochemistry effects if it is right for you. You should enjoy it too otherwise you might not wish to put it on.</li>
+    <li> Smells great!!! But doesn&#x27;t last as long as bigger name brands. But for a fraction of their price I&#x27;m very happy with this product</li>
+    <li> VERY GOOD SMELL, I AT HEIGHT, THE EXCELLENT PRICE AND THE AMERICAN QUALITY, IS VERY HAPPY-5 POINTS, I RECOMMEND, AND THERE IS A LOT OF IT IN THE BOTTLE</li>
+    <li> Everything was great! Great product, fast and easy transaction A+++Smooth &amp; Easy...EXCELLENT! I WOULD DEFINITELY USE AGAIN  HIGHLY RECOMMENDED  !!!&lt;br /&gt;Thank you!</li>
+    <li> Love this! My Man smells so wonderful wearing this! It&#x27;s my favorite! Now I know where to find it again.. Took a ewhile :)</li>
+    <li> Nice cologne for men.  Fast delivery.</li>
+    <li> my son liked it a lot and price was great.</li>
+    <li> Exelent and very good item. Exelent transaction</li>
+    <li> My husband loves this product, he would like to know what stores are selling besides on Internet</li>
+    <li> It has a nice masculine smell, not expensive. Not an overly heavy scent. Too bad its hard to find. I would recommend</li>
+    <li> Love Love Love, my fav</li>
+    <li> One of my favorite scents. Great price through amazon!</li>
+    <li> wish I had found this sooner... big fan of z-14, similar but different.... love it.</li>
+    <li> The real thing... Solid, good ship time!</li>
+    <li> This is a hard to find scent, but is very classic and not overwhelming at all.  Will continue to reorder.</li>
+    <li> I have a difficult time finding this fragrance &amp; I was really happy to have found it on Amazon. I have used this product for years &amp; look forward to many more. Women love this fragrance, very subtle, not musky.</li>
+    <li> I like the unique smell,i get a lot of complemints about it,great product and even the price is not too expensive,i&#x27;m defenilly buying more of this product..</li>
+    <li> I chose this product based on other reviews. I already owned a light every day cologne, and I wanted to try getting something more distinctive.&lt;br /&gt;&lt;br /&gt;Catalyst is a distinctive smell. However, I didn&#x27;t find it particularly appealing. I would describe it as a spicy, musky smell. I was hoping for a smooth masculine smell, but I got a sharp spicy smell. If you think you are the sort of person that would like a sharp spicy smell - this product is for you. If like me you do not find such an aroma appealing, then this product is not for you.</li>
+    <li> I get lots of compliment when i wear it. Its scent stays for the entire day. This product lives up to all expectation. I will recommend it to everyone. It</li>
+    <li> My husband loves this fragrance and he has been having difficulty locating it in our town.  I got it for him for Christmas and he has been very excited.  The product was flawless and received as promised.  The shipping was projected for after Christmas but it was received on Christmas eve.  Thank you so much..</li>
+    <li> Absolutely disgusting.  It smell like it was rotten or rancid.</li>
+    <li> This is a wonderful, long lasting, fresh scent.  My husband has used Catalyst for years. :-)&lt;br /&gt; You won&#x27;t be unhappy.</li>
+    <li> Great price on a timeless scent.</li>
+    <li> Description stated &amp;#34;spray&amp;#34;. When received it was not a spray, but a pour bottle.  Would not have ordered a pour bottle.</li>
+    <li> I adore this cologne, love the smell on the hubs. But, it&#x27;s impossible to find in stores anymore. I was glad to see it on Amazon, and will keep purchasing. It&#x27;s spicy without being too much so. Not too sweet at all, and very masculine without being overbearing. Very sexy scent ;)</li>
+    <li> This item is definitely not a fake, but it&#x27;s a very musky older person smell. I received it with a group of females at my house, not one of them actually liked it, the average reaction was &amp;#34;it&#x27;s not bad&amp;#34;</li>
+    <li> There are many big name colognes out there right now that are mimicking this fantastic scent by Halston. My first experience with this was in the late nineties. It was usurped as my favorite by the shifting times and the lack of it on shelves. It&#x27;s a spicy, masculine, and clean scent with a hint of musk and sweetness. It&#x27;s unique and wonderful and has a long wear time. For the price you just can&#x27;t beat something this delicious.</li>
+    <li> I was not able to find this in any local stores any longer and had to look online. It&#x27;s good to know that it is still available.</li>
+    <li> I bought this for my dad and not only was the price great, it is also the large size. My dad was very satisfied with this purchase</li>
+    <li> One  of the classic colons for me that love a smooth smell in the night air.</li>
+    <li> Very exotic...i have found it difficult to find this fragrance in stores.  It has a seductive quality.</li>
+    <li> I love the smell of Catalyst it has a clean slight clove smell.  My husband has been using this since we first met 10 years ago.</li>
+    <li> ALWAYS A COMPLEMENT BEFORE THE NIGHT IS OVER. MY FAVORITE FOR YEARS. A MUST HAVE FOR THE CLOSE ENCOUNTERS AND CROWDED ROOMS.</li>
+    <li> This became my signature scent after college. An oldie but still a goodie. I have used Drakkar Noir (too soft and did not last through out the day), Fahrenheit (the ladies loved it on me), Safari (strong, manly scent, my 2nd favorite), Jean-Paul Gaultier&#x27;s Le Male, Estee Lauder&#x27;s Intuition, Perry Ellis&#x27; 360 Degrees, Hugo by Hugo Boss, Realm by Erox.</li>
+    <li> Had catalyst fairly long time ago and I liked it very much (so did my wife).&lt;br /&gt;When I came across it again looking in Amazon. Com I decided to buy it again.&lt;br /&gt;I was not dissapointed. Very nice fragrance.</li>
+    <li> he love this gift thanks keep up good work&lt;br /&gt;this was my first time order from you all so in the future i will be ordering more</li>
+    <li> My absolute favorite scent, great price, thank you!</li>
+    <li> I&#x27;ve use this same Cologne for years (yes, I&#x27;m Old school) and to me it doesnt appear to have the same fragrance as what i would say buying it from the store... just my two cents...</li>
+    <li> Great stuff... thank you</li>
+    <li> I love this stuff and the price is good, so can&#x27;t go wrong.  A big bottle like this lasts forever, so I am not worried about running out..</li>
+    <li> Good cologne, shipped with box. Loved the price.</li>
+    <li> I have been buying this for my husband for years. It smells so good on him, he wears it over body powder and smells like candy necklaces. Brings back child hood memories.</li>
+    <li> I first purchased this for my husband about 10yrs ago.  It was a boxed combo set of the cologne &amp; aftershave.  Catalyst is such an interesting blend of spices.  Have never experienced anything quite like it.  My husband loves it &amp; is always being asked by other fellas \\&quot;what is that cologne\\&quot;?? &amp; of course where can it be purchased.  He tells them to check Amazon.  Plus.....the price is so affordable I try to always keep a couple extra put away.</li>
+    <li> Not too many people know about this cologne!  This is some great stuff!  Gonna be knocking the women off with a stick once you put this on!</li>
+    <li> color match, size is correct, good quality, very nice item, color match, , color match, size is correct, good quality, very nice item, color match,</li>
+    <li> this perfume is great</li>
+    <li> It was what I expected</li>
+    <li> Received quickly. Smells great. Owned this years ago and was glad to be able to find it. A great smell that&#x27;s not overbearing.</li>
+    <li> I&#x27;ve been using various different colognes for a while now, having a difficult time finding one that I was happy with, that I could find regularly, and that fit within my budget. Catalyst by Halston for Men seems to be the end product that I was looking for; at least for the spring and summer times.&lt;br /&gt;&lt;br /&gt;The scent its self is very light; as in that it isn&#x27;t overpowering or heavy like a winter cologne would be. Its crisp, and enters the nostrils easily leaving a pleasant feeling. From what I can tell it has accents of citrus to it, and really creates an invitation to get closer. It sticks with you, but not in a bad way, and accents with an already clean feeling. It seems to last for a long while too, having had worn it most of the day I could still catch drifts of the scent every once in a while. The cologne its self can either stand alone by its self, or help to promote other scents you are wearing. I&#x27;d recommend to couple it with something that has either cedar or sandalwood to it.&lt;br /&gt;&lt;br /&gt;The only fault I can see with it is the bottle design its self. It&#x27;s oddly shaped, and can be hard to hold in your hand while applying; especially if you keep it in your bathroom and it gets covered in steam after taking a shower.&lt;br /&gt;&lt;br /&gt;Other than that, the product is extremely nice and within a great price range to make it an every day cologne with out breaking the bank.</li>
+</ol>
+
+
+
+

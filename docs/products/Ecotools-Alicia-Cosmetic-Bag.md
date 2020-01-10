@@ -1,0 +1,279 @@
+---
+title: Ecotools Alicia Cosmetic Bag,
+description: Ecotools Alicia Cosmetic Bag,
+author: Suvojit Manna,
+tags: Ecotools Alicia Cosmetic Bag,
+publishedAt: Fri Jan 10 2020 14:59:44 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:59:44 GMT+0530 (India Standard Time),
+---
+
+# [Ecotools Alicia Cosmetic Bag](https://products.checkmycream.com/products/Ecotools-Alicia-Cosmetic-Bag.html)
+
+### Positive Reviews
+
+<ol>
+      <li>The perfect size for a cosmetic bag, and conveniently one of my wedding colors (plum purple).</li>
+      <li>I looked and scoured websites and stores for the \\&quot;perfect makeup</li>
+      <li>now I&#x27;m good to go!!</li>
+      <li>We do wedding photography and this set was perfect to gift as the cases to hold our bride&#x27;s &amp;#34;bridal survival kit&#x27;.</li>
+      <li>I received the design that is pictured, and found that it&#x27;s the perfect size to hold all of my makeup essentials.</li>
+      <li>Thank you for creating a beautiful product!</li>
+      <li>it&#x27;s just an awesome makeup/cosmetic bag!</li>
+      <li>I used this bag as a pencil box and it works great!</li>
+      <li>Perfect size and well-made.</li>
+      <li>Very good by</li>
+      <li>It&#x27;s great for take-a-long makeup touch-ups.</li>
+      <li>I bought a series of these and they&#x27;ve been great.</li>
+      <li>It is great as my makeup bag.  </li>
+      <li>Great price.</li>
+      <li>I am happy with my purchase.</li>
+      <li>This is a very nice bag.</li>
+      <li>This fit the bill perfectly.</li>
+      <li>The pattern is absolutely gorgeous: feminine and timeless.</li>
+      <li>It is good quality.&lt;br /&gt;Very</li>
+      <li>Good quality.</li>
+      <li>Good size for make up.</li>
+      <li>I am quite happy with this purchase :)</li>
+      <li>Very satisfied with our purchase.</li>
+      <li>So the cosmetic bag is cute, beautiful and so nice.  </li>
+      <li>I have been very pleased with this lovely make-up bag!</li>
+      <li>I love it!</li>
+      <li>love this bag!</li>
+      <li>Love this bag!</li>
+      <li>and I&#x27;m glad I did!</li>
+      <li>I love this bag!</li>
+      <li>but I love the quality!</li>
+      <li>Love it!</li>
+      <li>The design is so cute!</li>
+      <li>The design is cute, and the eco-friendly factor is a plus!</li>
+      <li>B004T0WZBY Ecotools Alicia Deluxe Pencil Case, Beige/Sage, One Size]] for me, which I keep my eye shadows and pencils/</li>
+      <li>Well-designed, nice material, can hold quite a bit.</li>
+      <li>Fits quite nicely in your pocketbook.  </li>
+      <li>nice</li>
+      <li>This is a beautiful cosmetic bag, fully lined and has an artistic design on it.  </li>
+      <li>Plus it is a 100% environmentally friendly!!</li>
+      <li>I have been using all Ecotools products and I really loved them ,,, when it comes to the materials are so good and valuable ,, it is really worth your money ,,</li>
+      <li>Anyway, LOVE the size of this and its lovely appeal!</li>
+      <li>Fast shipping, great (and so cute!)</li>
+      <li>strongly recommend it!</li>
+      <li>It is well-made, chemical free and very cute.</li>
+      <li>I love it.  </li>
+      <li>I love this makeup bag.</li>
+      <li>but I am pleased with the result.  </li>
+      <li>I am so pleased with my purchase.</li>
+      <li>I&#x27;ve already received several compliments which is awesome</li>
+      <li>This forces me to be more practical.</li>
+      <li>Love the pattern, the feel, and shapes of the series.</li>
+      <li>I don&#x27;t even have to think about what I need to pack and just add my clothes on top</li>
+      <li>Overall, it&#x27;s a lovely cosmetic bag for a great price!</li>
+      <li>And it came with the cute brush.</li>
+      <li>This bag is so cute</li>
+      <li>I&#x27;m considering buying more from this collection.  </li>
+      <li>The bag is very well made and so attractive.  </li>
+      <li>quality, more space than I thought.&lt;br /&gt;Very</li>
+      <li>It&#x27;s a great size, well made and eco-friendly (which I really appreciate).</li>
+      <li>it is super sturdy and has a lot of room in it (more than you would expect) for all your make up essentials on the go!</li>
+      <li>I own a lot of Alicia&#x27;s cosmetic bag line and all are well made and super stylish.</li>
+      <li>Although this is a smaller bag, it is perfect for everyday/on-the-go makeup (I actually intend to keep my contact lenses and cleaning solution in this bag, but it&#x27;s an ideal size to throw in your purse).</li>
+      <li>and I am sooooo excited!</li>
+      <li>It&#x27;s the right size for a purse, it&#x27;s got a lovely design on really nice</li>
+      <li>it holds a lot of items and shapes nicely, I love that its environment friendly.  </li>
+      <li>It should be easily washable.</li>
+      <li>VERY QUICK ALSO.</li>
+      <li>It&#x27;s fine to fit a tube of lipstick and some eyeshadow in (like one) but you&#x27;re not going to fit much more in than that.</li>
+      <li>Super adorable</li>
+      <li>TO FIT STUFF IN.</li>
+      <li>This is a solid cute sturdy bag with a good zipper.  </li>
+      <li>Beautiful item super low price</li>
+      <li>I finally found a set I can jive with that is eco friendly AND attractive.</li>
+      <li>Exactly what I was looking for!!</li>
+      <li>It&#x27;s durable, roomy enough for the essentials, and as a bonus, pleasantly designed.</li>
+      <li>I loved it, it is too big for my purses</li>
+      <li>This is a very pretty and functional bag.  </li>
+      <li>It is very pretty and roomy.</li>
+      <li>and it is really pretty too!</li>
+      <li>This product looks exactly as what you see in the picture!  </li>
+      <li>and I have them all filled up and ready in my suitcase.</li>
+      <li>I plan to fill it with lots of goodies for my bridesmaids, and it&#x27;s a great bonus that its a green gift.</li>
+      <li>The deep lavender color inside is so nice i would of liked to see it on the outside instead of the cream.</li>
+      <li>Overall nice product.</li>
+      <li>It&#x27;s a nice hemp-ish outer and has a liner so powdery makeup shouldn&#x27;t leak to the outside.</li>
+      <li>This is a VERY nice eco-friendly little makeup bag.</li>
+      <li>Love it matches the train case I order and fits in side it on top of other products.</li>
+      <li>Very pretty and exactly as pictured.</li>
+      <li>My wife loves the style and its just the right size.</li>
+      <li>For example, I have 2 face powders, some mineral makeup foundation, a mascara, 3 four-color eyeshadows, 4 eyeliner/brow pencils, tweezers and 4 lipsticks in my bag right now.</li>
+      <li>but it&#x27;s nice to know I helped in a very teeny tiny way.</li>
+      <li>It&#x27;s exactly as it is pictured.</li>
+      <li>consider more of Alicia&#x27;s products in the future.</li>
+      <li>The fabric and stitching are good quality, the lining is fabric not plastic, zipper is not cheap.</li>
+      <li>This bag is great quality, and much bigger than I expected.</li>
+      <li>Looks just like the picture and holds more than I expected.</li>
+      <li>and I&#x27;m ready to go.</li>
+      <li>It&#x27;s sturdy enough to hold all your cosmetics securely, and I&#x27;ve never had a problem with rips or tears or the zipper.</li>
+      <li>though I can&#x27;t really prove that.</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> The perfect size for a cosmetic bag, and conveniently one of my wedding colors (plum purple).</li>
+<li> I looked and scoured websites and stores for the \\&quot;perfect makeup</li>
+<li> now I&#x27;m good to go!!</li>
+<li> We do wedding photography and this set was perfect to gift as the cases to hold our bride&#x27;s &amp;#34;bridal survival kit&#x27;.</li>
+<li> I received the design that is pictured, and found that it&#x27;s the perfect size to hold all of my makeup essentials.</li>
+<li> Thank you for creating a beautiful product!</li>
+<li> it&#x27;s just an awesome makeup/cosmetic bag!</li>
+<li> I used this bag as a pencil box and it works great!</li>
+<li> Perfect size and well-made.</li>
+<li> Very good by</li>
+<li> It&#x27;s great for take-a-long makeup touch-ups.</li>
+<li> I bought a series of these and they&#x27;ve been great.</li>
+<li> It is great as my makeup bag.  </li>
+<li> Great price.</li>
+<li> I am happy with my purchase.</li>
+<li> This is a very nice bag.</li>
+<li> This fit the bill perfectly.</li>
+<li> The pattern is absolutely gorgeous: feminine and timeless.</li>
+<li> It is good quality.&lt;br /&gt;Very</li>
+<li> Good quality.</li>
+<li> Good size for make up.</li>
+<li> I am quite happy with this purchase :)</li>
+<li> Very satisfied with our purchase.</li>
+<li> So the cosmetic bag is cute, beautiful and so nice.  </li>
+<li> I have been very pleased with this lovely make-up bag!</li>
+<li> I love it!</li>
+<li> love this bag!</li>
+<li> Love this bag!</li>
+<li> and I&#x27;m glad I did!</li>
+<li> I love this bag!</li>
+<li> but I love the quality!</li>
+<li> Love it!</li>
+<li> The design is so cute!</li>
+<li> The design is cute, and the eco-friendly factor is a plus!</li>
+<li> B004T0WZBY Ecotools Alicia Deluxe Pencil Case, Beige/Sage, One Size]] for me, which I keep my eye shadows and pencils/</li>
+<li> Well-designed, nice material, can hold quite a bit.</li>
+<li> Fits quite nicely in your pocketbook.  </li>
+<li> nice</li>
+<li> This is a beautiful cosmetic bag, fully lined and has an artistic design on it.  </li>
+<li> Plus it is a 100% environmentally friendly!!</li>
+<li> I have been using all Ecotools products and I really loved them ,,, when it comes to the materials are so good and valuable ,, it is really worth your money ,,</li>
+<li> Anyway, LOVE the size of this and its lovely appeal!</li>
+<li> Fast shipping, great (and so cute!)</li>
+<li> strongly recommend it!</li>
+<li> It is well-made, chemical free and very cute.</li>
+<li> I love it.  </li>
+<li> I love this makeup bag.</li>
+<li> but I am pleased with the result.  </li>
+<li> I am so pleased with my purchase.</li>
+<li> I&#x27;ve already received several compliments which is awesome</li>
+<li> This forces me to be more practical.</li>
+<li> Love the pattern, the feel, and shapes of the series.</li>
+<li> I don&#x27;t even have to think about what I need to pack and just add my clothes on top</li>
+<li> Overall, it&#x27;s a lovely cosmetic bag for a great price!</li>
+<li> And it came with the cute brush.</li>
+<li> This bag is so cute</li>
+<li> I&#x27;m considering buying more from this collection.  </li>
+<li> The bag is very well made and so attractive.  </li>
+<li> quality, more space than I thought.&lt;br /&gt;Very</li>
+<li> It&#x27;s a great size, well made and eco-friendly (which I really appreciate).</li>
+<li> it is super sturdy and has a lot of room in it (more than you would expect) for all your make up essentials on the go!</li>
+<li> I own a lot of Alicia&#x27;s cosmetic bag line and all are well made and super stylish.</li>
+<li> Although this is a smaller bag, it is perfect for everyday/on-the-go makeup (I actually intend to keep my contact lenses and cleaning solution in this bag, but it&#x27;s an ideal size to throw in your purse).</li>
+<li> and I am sooooo excited!</li>
+<li> It&#x27;s the right size for a purse, it&#x27;s got a lovely design on really nice</li>
+<li> it holds a lot of items and shapes nicely, I love that its environment friendly.  </li>
+<li> It should be easily washable.</li>
+<li> VERY QUICK ALSO.</li>
+<li> It&#x27;s fine to fit a tube of lipstick and some eyeshadow in (like one) but you&#x27;re not going to fit much more in than that.</li>
+<li> Super adorable</li>
+<li> TO FIT STUFF IN.</li>
+<li> This is a solid cute sturdy bag with a good zipper.  </li>
+<li> Beautiful item super low price</li>
+<li> I finally found a set I can jive with that is eco friendly AND attractive.</li>
+<li> Exactly what I was looking for!!</li>
+<li> It&#x27;s durable, roomy enough for the essentials, and as a bonus, pleasantly designed.</li>
+<li> I loved it, it is too big for my purses</li>
+<li> This is a very pretty and functional bag.  </li>
+<li> It is very pretty and roomy.</li>
+<li> and it is really pretty too!</li>
+<li> This product looks exactly as what you see in the picture!  </li>
+<li> and I have them all filled up and ready in my suitcase.</li>
+<li> I plan to fill it with lots of goodies for my bridesmaids, and it&#x27;s a great bonus that its a green gift.</li>
+<li> The deep lavender color inside is so nice i would of liked to see it on the outside instead of the cream.</li>
+<li> Overall nice product.</li>
+<li> It&#x27;s a nice hemp-ish outer and has a liner so powdery makeup shouldn&#x27;t leak to the outside.</li>
+<li> This is a VERY nice eco-friendly little makeup bag.</li>
+<li> Love it matches the train case I order and fits in side it on top of other products.</li>
+<li> Very pretty and exactly as pictured.</li>
+<li> My wife loves the style and its just the right size.</li>
+<li> For example, I have 2 face powders, some mineral makeup foundation, a mascara, 3 four-color eyeshadows, 4 eyeliner/brow pencils, tweezers and 4 lipsticks in my bag right now.</li>
+<li> but it&#x27;s nice to know I helped in a very teeny tiny way.</li>
+<li> It&#x27;s exactly as it is pictured.</li>
+<li> consider more of Alicia&#x27;s products in the future.</li>
+<li> The fabric and stitching are good quality, the lining is fabric not plastic, zipper is not cheap.</li>
+<li> This bag is great quality, and much bigger than I expected.</li>
+<li> Looks just like the picture and holds more than I expected.</li>
+<li> and I&#x27;m ready to go.</li>
+<li> It&#x27;s sturdy enough to hold all your cosmetics securely, and I&#x27;ve never had a problem with rips or tears or the zipper.</li>
+<li> though I can&#x27;t really prove that.</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> I love this bag! I bought this a few years ago, and the style has remained in fashion (what a rare thing today!). It&#x27;s sturdy enough to hold all your cosmetics securely, and I&#x27;ve never had a problem with rips or tears or the zipper. Fast shipping, great (and so cute!) little bag.</li>
+    <li> I bought a series of these and they&#x27;ve been great. They come in every size and shape and for different uses and I have them all filled up and ready in my suitcase. I don&#x27;t even have to think about what I need to pack and just add my clothes on top and I&#x27;m ready to go. Love the pattern, the feel, and shapes of the series.</li>
+    <li> I purchased this cosmetic bag to use for my crocheting.  I use it for my hooks, scissors, measuring tape, etc.  I love it.  Everything fits!</li>
+    <li> This is just what I wanted.&lt;br /&gt;Good quality, more space than I thought.&lt;br /&gt;Very useful for short trips.&lt;br /&gt;The design is simple but sufficient.</li>
+    <li> My wife loves the style and its just the right size. It&#x27;s a nice hemp-ish outer and has a liner so powdery makeup shouldn&#x27;t leak to the outside.</li>
+    <li> This product looks exactly as what you see in the picture!  Super adorable and it works perfectly for storing all my small odd and ends in my purse.  The fact that this product is supposed to be \\&quot;earth-friendly\\&quot; was a secondary factor for me but it&#x27;s nice to know I helped in a very teeny tiny way.</li>
+    <li> This is a VERY nice eco-friendly little makeup bag. It is made from natural hemp and recycled PET. According to the tag \\&quot;the printed design is formulated to be non-toxic.\\&quot; It is 5\\&quot; high and 8.5\\&quot; wide at the top (a little less at the bottom). It is 3\\&quot; across at the bottom.  This is a very pretty and functional bag.  Good size for make up.</li>
+    <li> It&#x27;s exactly as it is pictured. I like the fact that it is ecofriendly. It&#x27;s great for take-a-long makeup touch-ups. At first I was disappointed that it was small until I realized that it is a great idea for me as I tend to take more than what I need! This forces me to be more practical.</li>
+    <li> This is a beautiful cosmetic bag, fully lined and has an artistic design on it.  I highly recommend this product.</li>
+    <li> Was looking for a light-weight cosmetic bag for a long trip. This fit the bill perfectly. Held all my cosmetics without taking up lots of space in my luggage. All that and it is really pretty too!</li>
+    <li> This is a cute little make-up bag.  It&#x27;s the right size for a purse, it&#x27;s got a lovely design on really nice fabric.&lt;br /&gt;My old make-up bag was getting so ratty looking I didn&#x27;t want to take it out of my purse...now I&#x27;m good to go!!</li>
+    <li> This bag is so cute I&#x27;m considering buying more from this collection.  Looks just like the picture and holds more than I expected.</li>
+    <li> I got it today.  So the cosmetic bag is cute, beautiful and so nice.  The pattern is romantic, the material is soft.</li>
+    <li> I looked and scoured websites and stores for the \\&quot;perfect makeup bag\\&quot; for my purse. I thought I would give this a try and I&#x27;m glad I did! Has lots of room - cut design and on trend for eco-conscious makeup connoisseur. Sturdy construction as well.&lt;br /&gt;Will consider more of Alicia&#x27;s products in the future.</li>
+    <li> This is a very nice bag. The fabric and stitching are good quality, the lining is fabric not plastic, zipper is not cheap. My daughter is tickled with her bag and interested in the other pieces of the set now. The flower design is tasteful, very pleasing colors. Very satisfied with our purchase.</li>
+    <li> I can&#x27;t speak for the longevity of the product, but I just got this in the mail as part of the complete set and I am sooooo excited! I have never owned a makeup bag and just used plastic baggies all my life (I know, pathetic). I finally found a set I can jive with that is eco friendly AND attractive. Miss Silverstone is my hero because she contributes to animal rights efforts like farm sanctuary in orland and in new york. Anyway, LOVE the size of this and its lovely appeal! Thank you for creating a beautiful product!</li>
+    <li> This is a solid cute sturdy bag with a good zipper.  Big enough to hold money, credit cards, comb lipstick, change etc.</li>
+    <li> I own a lot of Alicia&#x27;s cosmetic bag line and all are well made and super stylish. Do not hesitate to buy this it will last you a long time and its so cute. Plus it is a 100% environmentally friendly!!</li>
+    <li> I used this bag as a pencil box and it works great! It is very pretty and roomy. It does get dirty kind of fast, though - I&#x27;ve had it for about 9 months now and the color&#x27;s a bit crude. It should be easily washable.</li>
+    <li> I get compliments on this bag all the time. It&#x27;s quite small but holds enough for me despite it&#x27;s size. I carry my foundation, concealer, eyebrow powder &amp; wax, eyeliners, eyeshadow, &amp; 2 mascaras, as well as some small brushes and tweezers.</li>
+    <li> Beautiful item super low price</li>
+    <li> I thought the shape would be different based on the picture and having not read the description but I am pleased with the result.  The bag is roomy and has an extra zip pocket in the &amp;#34;lid.&amp;#34;  The colors are muted but very pretty.</li>
+    <li> I have been very pleased with this lovely make-up bag! It is well-made, chemical free and very cute. The zipper works well with no catches, and I can stuff quite a bit of make-up into this bag. For example, I have 2 face powders, some mineral makeup foundation, a mascara, 3 four-color eyeshadows, 4 eyeliner/brow pencils, tweezers and 4 lipsticks in my bag right now. I am quite happy with this purchase :)</li>
+    <li> love this bag! it is super sturdy and has a lot of room in it (more than you would expect) for all your make up essentials on the go!</li>
+    <li> Exactly what I was looking for!! Perfect size and well-made.</li>
+    <li> This bag is great quality, and much bigger than I expected. The perfect size for a cosmetic bag, and conveniently one of my wedding colors (plum purple). I plan to fill it with lots of goodies for my bridesmaids, and it&#x27;s a great bonus that its a green gift.</li>
+    <li> Was looking for a small set of cosmetic bag and tote to give to a client. We do wedding photography and this set was perfect to gift as the cases to hold our bride&#x27;s &amp;#34;bridal survival kit&#x27;. Good quality. Great price. Could not be happier.</li>
+    <li> Bought along with the makeup case for smaller items. Overall nice product. The deep lavender color inside is so nice i would of liked to see it on the outside instead of the cream.</li>
+    <li> Love it matches the train case I order and fits in side it on top of other products. Very good by</li>
+    <li> I love it! The design is so cute!</li>
+    <li> Have you ever noticed how some make up bags have a chemical, plastic-y smell? And that smell ends up tainting the products you put within said bag...gross! Not this lovely little eco-friendly creation.&lt;br /&gt;&lt;br /&gt;As one who&#x27;s slowly trying to incorporate more earth-friendly and eco-kind items into her everyday life, I jumped on this item when shopping for a new bag to house my travel make ups. It&#x27;s durable, roomy enough for the essentials, and as a bonus, pleasantly designed. Definitely one of my fav purchases of late. :)</li>
+    <li> I am so pleased with my purchase. Love this bag! It&#x27;s a great size, well made and eco-friendly (which I really appreciate). Plus it&#x27;s even cuter in person. I&#x27;ve already received several compliments which is awesome considering how reasonably priced it is.</li>
+    <li> I loved it, it is too big for my purses but I love the quality! it holds a lot of items and shapes nicely, I love that its environment friendly.  strongly recommend it!</li>
+    <li> This is such a pretty pattern.</li>
+    <li> Just a little on the small side for all my makeup. It&#x27;s fine to fit a tube of lipstick and some eyeshadow in (like one) but you&#x27;re not going to fit much more in than that. So where do you put the rest of it? Leave it behind?</li>
+    <li> The material is thick and the case is large enough to fit all my make up; feels like it will stand up to time and use!</li>
+    <li> Note: my experience was with \\&quot;shop &amp; save\\&quot;. I don&#x27;t know about any other sellers.&lt;br /&gt;&lt;br /&gt;I have tried to order this cosmetic bag twice and both times, they sent the \\&quot;Ecotools Alicia Train Case\\&quot; instead. And it is a pain to return/exchange it. Amazon will give you credit, you have to print the shipping label, re-package the train case, bring it to a UPS store/drop off, and place another order for the cosmetic bag (because I thought maybe it was a fluke that I was sent the wrong item). Apparently, it was not. My replacement arrived yesterday and it was, again, the train case. Maybe they are out of this item, so they are sending the train case instead. But I wanted this item, in addition to the train case. I had also ordered the train case and received that item as expected. If you want the \\&quot;cosmetic bag\\&quot;, go look at the \\&quot;Ecotools Alicia Train Case\\&quot;, because it appears that is what you will get. Very disappointed. I wish they would just say they are out of it, rather than repeatedly send the wrong item.</li>
+    <li> I bought this cosmetic bag to go along with other EcoTools bags that I have purchased - I want to have a matching \\&quot;set\\&quot; for when I move into my college dorm. Although this is a smaller bag, it is perfect for everyday/on-the-go makeup (I actually intend to keep my contact lenses and cleaning solution in this bag, but it&#x27;s an ideal size to throw in your purse). The pattern is absolutely gorgeous: feminine and timeless.</li>
+    <li> This cosmetic bag is of the highest quality.  The bag is very well made and so attractive.  Fits quite nicely in your pocketbook.  Therefore, I would highly recommend the purchase of this product.  DAME HILDA VAN WINKLE</li>
+    <li> The bag is a nice size, big enough to fit everything but small enough to fit easily in your suitcase.</li>
+    <li> Is a beatiful bag, eco friendly, but a little small. I like the patern and seems to be sturdy enough to use it in a dayly basis.</li>
+    <li> One of my makeup bags recently fell apart after years of use, and I was in the market for a new one. My friend had previously purchased the [[ASIN:B004T0WZBY Ecotools Alicia Deluxe Pencil Case, Beige/Sage, One Size]] for me, which I keep my eye shadows and pencils/extra makeup brushes in, and I decided to get this case, which matched it. I received the design that is pictured, and found that it&#x27;s the perfect size to hold all of my makeup essentials. The design is cute, and the eco-friendly factor is a plus! The only problem I foresee is that the hemp exterior might eventually get a little dirty/stained from makeup, but it seems like it would be easy to clean per the instructions in the item description. Overall, it&#x27;s a lovely cosmetic bag for a great price!</li>
+    <li> Well-designed, nice material, can hold quite a bit. It does the job, and I like that it&#x27;s &amp;#34;eco-friendly&amp;#34; though I can&#x27;t really prove that.</li>
+    <li> Love it! Wish was a little bigger.</li>
+    <li> IT;&#x27;S TOO SMALL AND MY WIFE HAD TO BUY ANOTHER TO FIT STUFF IN. IT GETS DIRTY VERY QUICK ALSO.</li>
+    <li> I love this makeup bag. And it came with the cute brush. I also like the brush. It is good quality.&lt;br /&gt;Very nice</li>
+    <li> I&#x27;ve been using this makeup bag every day to hold my everyday makeup, and I love it so far! It&#x27;s very spacious and very cute; I can put several eye shadow palates and all my random pencils and mascaras and my eyelash curler. The hemp material is eco-friendly and overall it&#x27;s just an awesome makeup/cosmetic bag! You should get it if you want a medium sized makeup bag for travel or everyday use!</li>
+    <li> This came just as I expected in the correct pattern.  It is great as my makeup bag.  The material is very sturdy and I trust it will last a long time.  I am happy with my purchase.</li>
+    <li> Very pretty and exactly as pictured. The product was well-made but too small for my needs.</li>
+    <li> I have been using all Ecotools products and I really loved them ,,, when it comes to the materials are so good and valuable ,, it is really worth your money ,,</li>
+</ol>
+
+
+
+

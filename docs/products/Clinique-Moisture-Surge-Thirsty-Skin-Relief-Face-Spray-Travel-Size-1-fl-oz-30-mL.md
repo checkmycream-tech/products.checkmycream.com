@@ -1,0 +1,119 @@
+---
+title: Clinique Moisture Surge Thirsty Skin Relief Face Spray - Travel Size [1 fl oz / 30 mL],
+description: Clinique Moisture Surge Thirsty Skin Relief Face Spray - Travel Size [1 fl oz / 30 mL],
+author: Suvojit Manna,
+tags: Clinique Moisture Surge Thirsty Skin Relief Face Spray - Travel Size [1 fl oz / 30 mL],
+publishedAt: Fri Jan 10 2020 14:59:08 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:59:08 GMT+0530 (India Standard Time),
+---
+
+# [Clinique Moisture Surge Thirsty Skin Relief Face Spray - Travel Size [1 fl oz / 30 mL]](https://products.checkmycream.com/products/Clinique-Moisture-Surge-Thirsty-Skin-Relief-Face-Spray-Travel-Size-1-fl-oz-30-mL.html)
+
+### Positive Reviews
+
+<ol>
+      <li>very good thing.</li>
+      <li>the heat this is great to keep my face hydrated throughout the day.</li>
+      <li>Great to carry in hand bag</li>
+      <li>This product is great, the size can&#x27;t be beat.  </li>
+      <li>Excellent product as most of the Clinique things,</li>
+      <li>it feels really good when i spray it on my face.</li>
+      <li>It is so refreshing!</li>
+      <li>Great stuff, super convenient having travel size!</li>
+      <li>Perfect for a fast refresher while on the road or flying.</li>
+      <li>and i really liked it.</li>
+      <li>I love Clinique products.</li>
+      <li>great price and fast shipper.</li>
+      <li>and I&#x27;m so glad</li>
+      <li>When your face feels beat up by the elements on the go, spraying a pump of mist of this product directly on the face makes you feel great and refreshing.</li>
+      <li>Worked just fine as well.</li>
+      <li>I really like the benefits instant moisture, perfect size</li>
+      <li>It&#x27;s amazing how I can spray it right over my fresh make-up and moisturze withoug affecting the finish.</li>
+      <li>It&#x27;s a good product, but I&#x27;m looking for something that has more of a moisturizing quality as my skin gets very dry mid-day.</li>
+      <li>the spray is a very fine mist which I really like, but the product does not seem to moisturize my skin at all.  </li>
+      <li>i would like some time to get a full size spray.</li>
+      <li>Very convienent and cute.</li>
+      <li>br /&gt;It made my skin burn a little but to be fair</li>
+      <li>You can&#x27;t spray to much or else</li>
+      <li>Leaves yous skin feeling fresh and baby soft.</li>
+      <li>your face will be full of shimmer after only a couple sprays.</li>
+      <li>I have very very sensitive skin.</li>
+      <li>i really do like this facial spray.</li>
+      <li>It feels refreshing for a few minutes but no lasting effect.  </li>
+      <li>highly recommend it to anyone who has dry skin or if you need a moisture burst in the winter.</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> very good thing.</li>
+<li> the heat this is great to keep my face hydrated throughout the day.</li>
+<li> Great to carry in hand bag</li>
+<li> This product is great, the size can&#x27;t be beat.  </li>
+<li> Excellent product as most of the Clinique things,</li>
+<li> it feels really good when i spray it on my face.</li>
+<li> It is so refreshing!</li>
+<li> Great stuff, super convenient having travel size!</li>
+<li> Perfect for a fast refresher while on the road or flying.</li>
+<li> and i really liked it.</li>
+<li> I love Clinique products.</li>
+<li> great price and fast shipper.</li>
+<li> and I&#x27;m so glad</li>
+<li> When your face feels beat up by the elements on the go, spraying a pump of mist of this product directly on the face makes you feel great and refreshing.</li>
+<li> Worked just fine as well.</li>
+<li> I really like the benefits instant moisture, perfect size</li>
+<li> It&#x27;s amazing how I can spray it right over my fresh make-up and moisturze withoug affecting the finish.</li>
+<li> It&#x27;s a good product, but I&#x27;m looking for something that has more of a moisturizing quality as my skin gets very dry mid-day.</li>
+<li> the spray is a very fine mist which I really like, but the product does not seem to moisturize my skin at all.  </li>
+<li> i would like some time to get a full size spray.</li>
+<li> Very convienent and cute.</li>
+<li> br /&gt;It made my skin burn a little but to be fair</li>
+<li> You can&#x27;t spray to much or else</li>
+<li> Leaves yous skin feeling fresh and baby soft.</li>
+<li> your face will be full of shimmer after only a couple sprays.</li>
+<li> I have very very sensitive skin.</li>
+<li> i really do like this facial spray.</li>
+<li> It feels refreshing for a few minutes but no lasting effect.  </li>
+<li> highly recommend it to anyone who has dry skin or if you need a moisture burst in the winter.</li>
+<li> And to be honest it s kinda expensive for a tiny little bottle...doesn&#x27;t have any scent....</li>
+<li> Dry skin, so I ordered and keep on my desk.</li>
+<li> Only thing is its really small</li>
+<li> My face gets dry during the day and all I have to do is spray a few times with this</li>
+<li> It won&#x27;t mess up your make-up.&lt;br /&gt;&lt;br</li>
+<li> it&#x27;s a waste of money</li>
+<li> I no longer go throught the day with tight, crinkly cheeks!  </li>
+<li> Not impressed.</li>
+<li> sorry, I wanted to like this</li>
+<li> I place it in fridge the night before to get it cold .With</li>
+<li> but it was useless :((</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> Great stuff, super convenient having travel size!</li>
+    <li> I used this until my jar of moisture surge came in. Does the job of moisturizing. Very convienent and cute. I would use short term (for travel or whatever)</li>
+    <li> this was my fist time useing this product and i really liked it. a must have for anyone that wears face powder.</li>
+    <li> I bought this on recommendation from a friend who loves it and I&#x27;m so glad I did.&lt;br /&gt;&lt;br /&gt;I use this with or without wearing make-up. It is so refreshing! My face gets dry during the day and all I have to do is spray a few times with this and I&#x27;m moisturized again. It won&#x27;t mess up your make-up.&lt;br /&gt;&lt;br /&gt;I highly recommend it to anyone who has dry skin or if you need a moisture burst in the winter.</li>
+    <li> I tried it as soon as I got it&lt;br /&gt;It made my skin burn a little but to be fair I have very very sensitive skin.</li>
+    <li> Dry skin, so I ordered and keep on my desk. I really like the benefits instant moisture, perfect size great price and fast shipper.</li>
+    <li> This product is great, the size can&#x27;t be beat.  When your face feels beat up by the elements on the go, spraying a pump of mist of this product directly on the face makes you feel great and refreshing.</li>
+    <li> Great to carry in hand bag I place it in fridge the night before to get it cold .With the heat this is great to keep my face hydrated throughout the day.</li>
+    <li> you might as well put some water in a bottle and spray it on your face...sorry, I wanted to like this but it was useless :((</li>
+    <li> very good thing.I bought it for my journey.</li>
+    <li> Perfect for a fast refresher while on the road or flying.</li>
+    <li> I&#x27;ve used it twice and I like it. Only thing is its really small I thought it would be a bit bigger.</li>
+    <li> When it came it was not in an official clinque box a part of me thinks I was hoodwinked and they just put water in a spray bottle</li>
+    <li> It says THIS ITEM IS NOT FOR INDIVIDUAL SALE! And to be honest it s kinda expensive for a tiny little bottle...doesn&#x27;t have any scent....</li>
+    <li> Excellent product as most of the Clinique things,</li>
+    <li> I love Clinique products. This one is a must-have for traveling. Leaves yous skin feeling fresh and baby soft. I used if over make-up several times. Worked just fine as well.</li>
+    <li> I no longer go throught the day with tight, crinkly cheeks!  It&#x27;s amazing how I can spray it right over my fresh make-up and moisturze withoug affecting the finish.</li>
+    <li> the spray is a very fine mist which I really like, but the product does not seem to moisturize my skin at all.  It feels refreshing for a few minutes but no lasting effect.  It&#x27;s a good product, but I&#x27;m looking for something that has more of a moisturizing quality as my skin gets very dry mid-day.</li>
+    <li> Does nothing for my face at all. Feels like I&#x27;m spraying water on it.  Don&#x27;t buy it&#x27;s a waste of money</li>
+    <li> Not impressed. Does not nourish skin. Seems like it is just shimmer and water. You can&#x27;t spray to much or else your face will be full of shimmer after only a couple sprays. I can&#x27;t use.</li>
+    <li> i really do like this facial spray. it feels really good when i spray it on my face. i would like some time to get a full size spray.</li>
+</ol>
+
+
+
+

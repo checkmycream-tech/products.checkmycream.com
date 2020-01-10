@@ -1,0 +1,209 @@
+---
+title: Christian Dior Addict Lip Maximizer High Volume Lip Plumper for Women, 0.2 Ounce,
+description: Christian Dior Addict Lip Maximizer High Volume Lip Plumper for Women, 0.2 Ounce,
+author: Suvojit Manna,
+tags: Christian Dior Addict Lip Maximizer High Volume Lip Plumper for Women, 0.2 Ounce,
+publishedAt: Fri Jan 10 2020 14:59:33 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:59:33 GMT+0530 (India Standard Time),
+---
+
+# [Christian Dior Addict Lip Maximizer High Volume Lip Plumper for Women, 0.2 Ounce](https://products.checkmycream.com/products/Christian-Dior-Addict-Lip-Maximizer-High-Volume-Lip-Plumper-for-Women-0.2-Ounce.html)
+
+### Positive Reviews
+
+<ol>
+      <li>THE BEST I HAVE FOUND!</li>
+      <li>best stuff around!</li>
+      <li>Beautiful color and shine!</li>
+      <li>Awesome product!</li>
+      <li>That&#x27;s the best part!!</li>
+      <li>Not seeing any miracle but is nice!!</li>
+      <li>The best one I purchased was from target.. which wasnt all that great either.</li>
+      <li>I can see a difference and feels good on my lips!  </li>
+      <li>But it does do a great job at healing wrinkled lips that have been damaged from years of chapping.  </li>
+      <li>This product is great.  </li>
+      <li>Texture is great, smell is great, wonderful with lipstick or on its own.</li>
+      <li>Don&#x27;t think it was that great at plumping though.</li>
+      <li>I read soooo many great reviews!</li>
+      <li>One of the best Dior products available.</li>
+      <li>it&#x27;s very nice, looks nice on lips.</li>
+      <li>looks good, feels good, does nice things for my lips</li>
+      <li>but it makes my lips feel amazing with the Collagen activ.</li>
+      <li>But I honestly cannot even give it 2.</li>
+      <li>Has a nice feel to it.  </li>
+      <li>This is a really nice product to moisturize and plump your lips.  </li>
+      <li>Nice smell &amp; is refreshing on the lips, looks cute on.</li>
+      <li>It seems, however, that it is exactly as I have experienced before with the product bought in the USA.</li>
+      <li>LOVE THIS STUFF,</li>
+      <li>I love this lip plumper.awesome product.</li>
+      <li>I love it.  </li>
+      <li>If money isn&#x27;t an issue then ok...</li>
+      <li>I get soooooo many compliments on the way this lip gloss makes your lips look.</li>
+      <li>Love Dior lipgloss :-)</li>
+      <li>I love the gloss.</li>
+      <li>I&#x27;ve used this lip plumping product for about 4 years now, and I love it.  </li>
+      <li>Under lipstick it may work better</li>
+      <li>LOVE this product.</li>
+      <li>Doesn&#x27;t really plump but its a nice gloss.</li>
+      <li>he cheap NYC lip plumper</li>
+      <li>It makes my lips look supple and smooth, and leaves a hint of peppermint smell.  </li>
+      <li>Although I love many things Sephora offers, this is not one of them</li>
+      <li>Doesn&#x27;t really plump my lips, but its a good gloss that actually stays on longer than most.</li>
+      <li>This is my absolute favorite plumper.  </li>
+      <li>Didn&#x27;t see much plumping, but I love the color.</li>
+      <li>Never wrote a review for any product on Amazon despite ordering thousands of dollars worth of stuff every year.</li>
+      <li>The taste is sweet and it really works!</li>
+      <li>Put on right after you put on your moisturizer before you start putting on your makeup, that way it has plenty of time to plump before you put on your lip liner, color, and lip gloss</li>
+      <li>So over-rated, so very over-priced!</li>
+      <li>Be sure to get it in your lip lines because it will plump where outside the lip lines</li>
+      <li>doesn&#x27;t really maximize anything &#x3D;), but overall i like it</li>
+      <li>but i did follow up with purchses of lesser known names and definitely more reasonable prices from a company called Too Faced Cosmetics.</li>
+      <li>I&#x27;ve been in search of a great lip plumper for the last year and a half.</li>
+      <li>Works very well,</li>
+      <li>I really like this, lips are fuller and smoother, and plumper.</li>
+      <li>I will recommend it to anyone who wants to see improvements in their lips plumpness and outline.</li>
+      <li>I tried everything and this gloss makes absolutely no difference except that my lips tingle more.  </li>
+      <li>You can put it over all of this, but the closer it can be actually to your actual lip skin, the better it works.  </li>
+      <li>and I would never waste my money on it again!</li>
+      <li>I have tried many lip plumpers and they usually dont work.</li>
+      <li>Wow!</li>
+      <li>It is not sticky, it goes on smooth, however, after a half hour or so, you have to reapply...</li>
+      <li>So far out of 21 plumpers only 5 actually have any true plumping effect.</li>
+      <li>I&#x27;ve tried nearly 21 plumpers ranging from $4.99-$41.00</li>
+      <li>and then sometimes it looks like you an allergic reaction if you go to far.  </li>
+      <li>Tingles moistenens but no plumping as far as I can tell..</li>
+      <li>I really like this balm for its ability to minimize and heal (for the long term</li>
+      <li>but none of the plumpers provide major</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> THE BEST I HAVE FOUND!</li>
+<li> best stuff around!</li>
+<li> Beautiful color and shine!</li>
+<li> Awesome product!</li>
+<li> That&#x27;s the best part!!</li>
+<li> Not seeing any miracle but is nice!!</li>
+<li> The best one I purchased was from target.. which wasnt all that great either.</li>
+<li> I can see a difference and feels good on my lips!  </li>
+<li> But it does do a great job at healing wrinkled lips that have been damaged from years of chapping.  </li>
+<li> This product is great.  </li>
+<li> Texture is great, smell is great, wonderful with lipstick or on its own.</li>
+<li> Don&#x27;t think it was that great at plumping though.</li>
+<li> I read soooo many great reviews!</li>
+<li> One of the best Dior products available.</li>
+<li> it&#x27;s very nice, looks nice on lips.</li>
+<li> looks good, feels good, does nice things for my lips</li>
+<li> but it makes my lips feel amazing with the Collagen activ.</li>
+<li> But I honestly cannot even give it 2.</li>
+<li> Has a nice feel to it.  </li>
+<li> This is a really nice product to moisturize and plump your lips.  </li>
+<li> Nice smell &amp; is refreshing on the lips, looks cute on.</li>
+<li> It seems, however, that it is exactly as I have experienced before with the product bought in the USA.</li>
+<li> LOVE THIS STUFF,</li>
+<li> I love this lip plumper.awesome product.</li>
+<li> I love it.  </li>
+<li> If money isn&#x27;t an issue then ok...</li>
+<li> I get soooooo many compliments on the way this lip gloss makes your lips look.</li>
+<li> Love Dior lipgloss :-)</li>
+<li> I love the gloss.</li>
+<li> I&#x27;ve used this lip plumping product for about 4 years now, and I love it.  </li>
+<li> Under lipstick it may work better</li>
+<li> LOVE this product.</li>
+<li> Doesn&#x27;t really plump but its a nice gloss.</li>
+<li> he cheap NYC lip plumper</li>
+<li> It makes my lips look supple and smooth, and leaves a hint of peppermint smell.  </li>
+<li> Although I love many things Sephora offers, this is not one of them</li>
+<li> Doesn&#x27;t really plump my lips, but its a good gloss that actually stays on longer than most.</li>
+<li> This is my absolute favorite plumper.  </li>
+<li> Didn&#x27;t see much plumping, but I love the color.</li>
+<li> Never wrote a review for any product on Amazon despite ordering thousands of dollars worth of stuff every year.</li>
+<li> The taste is sweet and it really works!</li>
+<li> Put on right after you put on your moisturizer before you start putting on your makeup, that way it has plenty of time to plump before you put on your lip liner, color, and lip gloss</li>
+<li> So over-rated, so very over-priced!</li>
+<li> Be sure to get it in your lip lines because it will plump where outside the lip lines</li>
+<li> doesn&#x27;t really maximize anything &#x3D;), but overall i like it</li>
+<li> but i did follow up with purchses of lesser known names and definitely more reasonable prices from a company called Too Faced Cosmetics.</li>
+<li> I&#x27;ve been in search of a great lip plumper for the last year and a half.</li>
+<li> Works very well,</li>
+<li> I really like this, lips are fuller and smoother, and plumper.</li>
+<li> I will recommend it to anyone who wants to see improvements in their lips plumpness and outline.</li>
+<li> I tried everything and this gloss makes absolutely no difference except that my lips tingle more.  </li>
+<li> You can put it over all of this, but the closer it can be actually to your actual lip skin, the better it works.  </li>
+<li> and I would never waste my money on it again!</li>
+<li> I have tried many lip plumpers and they usually dont work.</li>
+<li> Wow!</li>
+<li> It is not sticky, it goes on smooth, however, after a half hour or so, you have to reapply...</li>
+<li> So far out of 21 plumpers only 5 actually have any true plumping effect.</li>
+<li> I&#x27;ve tried nearly 21 plumpers ranging from $4.99-$41.00</li>
+<li> and then sometimes it looks like you an allergic reaction if you go to far.  </li>
+<li> Tingles moistenens but no plumping as far as I can tell..</li>
+<li> I really like this balm for its ability to minimize and heal (for the long term</li>
+<li> but none of the plumpers provide major</li>
+<li> Not overly harsh, plumps a little, (been using about 2 weeks) but really draws out natural beauty in lips while providing lasting moisture.</li>
+<li> I do see a bit of a difference, not major..</li>
+<li> a long time to get it</li>
+<li> it seems to keep my lips moist all day long also.</li>
+<li> Did not live up to it&#x27;s claim.</li>
+<li> This product did not live up to my expectations.</li>
+<li> if not better products, at far lower prices.</li>
+<li> a fraction of the cost with better results than I got from this very expensive lip plumper.  </li>
+<li> There has been absolutely no difference in the appearance of my lips.</li>
+<li> This actually does less than the $4.99 plumper which does nothing.!</li>
+<li> I always have at least one extra one on hand..</li>
+<li> Definitely not worth the $32</li>
+<li> typical lip gloss feel-</li>
+<li> Total waste of money!!!</li>
+<li> if not BETTER....</li>
+<li> What a waste of money!</li>
+<li> Seriously....</li>
+<li> Thought this would at least rate 3 stars!</li>
+<li> It doesn&#x27;t sting like crazy but you can feel it working.  </li>
+<li> I was truly disappointed in this product, with the Dior name and Sephora as the seller.</li>
+<li> What a let down!!!!!!!!</li>
+<li> Greatly disappointed!</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> So over-rated, so very over-priced! I was truly disappointed in this product, with the Dior name and Sephora as the seller. I&#x27;m don&#x27;t ecpect miracles but i did follow up with purchses of lesser known names and definitely more reasonable prices from a company called Too Faced Cosmetics. Definitely found comparable, if not better products, at far lower prices. Although I love many things Sephora offers, this is not one of them and I would never waste my money on it again!</li>
+    <li> I have tried many lip plumpers and they usually dont work. The best one I purchased was from target.. which wasnt all that great either.</li>
+    <li> it&#x27;s very nice, looks nice on lips. doesn&#x27;t really maximize anything &#x3D;), but overall i like it</li>
+    <li> Tingles moistenens but no plumping as far as I can tell..&lt;br /&gt;Took a long time to get it</li>
+    <li> Not seeing any miracle but is nice!!</li>
+    <li> If you&#x27;re looking for a lip plumper, this won&#x27;t. But it does do a great job at healing wrinkled lips that have been damaged from years of chapping.  This balm has a collagen ingredient that heals and minimizes lip creases. However, it does nothing for the wrinkles around the mouth from straw-drinking and smoking.  I really like this balm for its ability to minimize and heal (for the long term) lip creasing. If you have creased lips, this is a god-send.  I can&#x27;t, however call it a plumper. It doesn&#x27;t plump.  All in all, I&#x27;ll be buying this forever because of it&#x27;s healing properties. My lips are smoother and healthier than ever before.</li>
+    <li> Never wrote a review for any product on Amazon despite ordering thousands of dollars worth of stuff every year. LOVE this product. Not overly harsh, plumps a little, (been using about 2 weeks) but really draws out natural beauty in lips while providing lasting moisture. Texture is great, smell is great, wonderful with lipstick or on its own. Won&#x27;t ever go without this product.</li>
+    <li> I used to buy this product from Sephora- but it is always backordered!! I get soooooo many compliments on the way this lip gloss makes your lips look. It is not sticky, it goes on smooth, however, after a half hour or so, you have to reapply...but it makes my lips feel amazing with the Collagen activ. this is a MUST HAVE.</li>
+    <li> This product did not live up to my expectations.</li>
+    <li> I love this lip plumper.awesome product. I will recommend this to all my female friends.&lt;br /&gt;and it seems to keep my lips moist all day long also.</li>
+    <li> Awesome product! Beautiful color and shine! I would definitely order this again! Love Dior lipgloss :-) best stuff around! A++</li>
+    <li> typical lip gloss feel-</li>
+    <li> Did not live up to it&#x27;s claim. Total waste of money!!!</li>
+    <li> Didn&#x27;t see much plumping, but I love the color. Didn&#x27;t last all day for me though like some of the reviews said.</li>
+    <li> This is my absolute favorite plumper.  It doesn&#x27;t sting like crazy but you can feel it working.  I do see a bit of a difference, not major.. but none of the plumpers provide major *plump*.  I always have at least one extra one on hand.. in my car, in my purse..</li>
+    <li> Put on right after you put on your moisturizer before you start putting on your makeup, that way it has plenty of time to plump before you put on your lip liner, color, and lip gloss and it is as close to your lip as possible. You can put it over all of this, but the closer it can be actually to your actual lip skin, the better it works.  Be sure to get it in your lip lines because it will plump where outside the lip lines and then sometimes it looks like you an allergic reaction if you go to far.  LOVE THIS STUFF, THE BEST I HAVE FOUND!</li>
+    <li> I keep this in the car for touch ups during the day.  The taste is sweet and it really works!</li>
+    <li> This is a really nice product to moisturize and plump your lips.  I&#x27;ve used this lip plumping product for about 4 years now, and I love it.  It makes my lips look supple and smooth, and leaves a hint of peppermint smell.  One of the best Dior products available.</li>
+    <li> I was a bit concerned when I saw the product shipped from Taiwan as we have been hearing warnings on products from that region.  It seems, however, that it is exactly as I have experienced before with the product bought in the USA.</li>
+    <li> My friend had this lip plumper, so I decided to try it. I love the gloss. That&#x27;s the best part!!</li>
+    <li> I don&#x27;t get it.  I tried everything and this gloss makes absolutely no difference except that my lips tingle more.  No plumping,  no moisture,  nanda.  If you put it over lipstick,  the wand picks up the color and gets the gliss tube eventually discolored.  Under lipstick it may work better but then my lipstick comes off within an hour.  At night,  if I put it on,  it burns my lips for like 30min. I just can&#x27;t find a way to make this pricy product work.</li>
+    <li> I really like this, lips are fuller and smoother, and plumper.</li>
+    <li> Works very well, I can see a difference and feels good on my lips!  I will be stocking up on this!</li>
+    <li> Has a nice feel to it.  Doesn&#x27;t really plump but its a nice gloss.</li>
+    <li> When I put it on my lip,I feel cool!Love it!</li>
+    <li> Doesn&#x27;t really plump my lips, but its a good gloss that actually stays on longer than most.</li>
+    <li> I&#x27;ve been in search of a great lip plumper for the last year and a half. I&#x27;ve read every possible review,of every possible plumper....I almost feel like an expert! I&#x27;ve tried nearly 21 plumpers ranging from $4.99-$41.00 It was finally time to try Lip Addict! I read soooo many great reviews! I must say, all hype, no plumping!!!! Wow! What a waste of money! This actually does less than the $4.99 plumper which does nothing.! Greatly disappointed! Thought this would at least rate 3 stars! But I honestly cannot even give it 2. What a let down!!!!!!!! So far out of 21 plumpers only 5 actually have any true plumping effect. Thought this one would have been number 6. This doesn&#x27;t rate at ALL!!!!!</li>
+    <li> Been using this Lip Maximizer for almost 4 weeks. There has been absolutely no difference in the appearance of my lips. Yes, it is moisturizing, but there is no &amp;#34;plump&amp;#34; factor to it at all. Definitely not worth the $32+ price tag.</li>
+    <li> This product is great.  The results are immediate.  I love it.  I will recommend it to anyone who wants to see improvements in their lips plumpness and outline.</li>
+    <li> just ok-never noticed any lip plumping and if you over use it it dries out your lips!&lt;br /&gt;Lucia</li>
+    <li> Did not work or plump at all.</li>
+    <li> looks good, feels good, does nice things for my lips</li>
+    <li> Nice smell &amp; is refreshing on the lips, looks cute on. Don&#x27;t think it was that great at plumping though.</li>
+    <li> Definitely &amp;#34;tingles&amp;#34; like it is working but doesn&#x27;t really do much especially for the price.  I get the same....if not BETTER....results front he cheap NYC lip plumper you can buy at Walmart.  Seriously....a fraction of the cost with better results than I got from this very expensive lip plumper.  If money isn&#x27;t an issue then ok...but if it is then go with the NYC brand.</li>
+</ol>
+
+
+
+

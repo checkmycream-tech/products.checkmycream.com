@@ -1,0 +1,720 @@
+---
+title: Q-tips Cotton Swabs,
+description: Q-tips Cotton Swabs,
+author: Suvojit Manna,
+tags: Q-tips Cotton Swabs,
+publishedAt: Fri Jan 10 2020 14:59:56 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:59:56 GMT+0530 (India Standard Time),
+---
+
+# [Q-tips Cotton Swabs](https://products.checkmycream.com/products/Q-tips-Cotton-Swabs.html)
+
+### Positive Reviews
+
+<ol>
+      <li>These are the best Cotton Swabs I&#x27;ve used.</li>
+      <li>These are the best cotton swabs on the market.  </li>
+      <li>In my mind there is no need, as the perfect cotton swab is already in my reach.</li>
+      <li>Very happy with this purchase</li>
+      <li>Great price!</li>
+      <li>Qtips are the best cotton swab out there.  </li>
+      <li>Awesome products and the best thing is saving a trip to the store.</li>
+      <li>Excellent deal for the price!  </li>
+      <li>/&gt;They&#x27;re just perfect for ear cleaning.</li>
+      <li>The Q-Tips that were shipped worked wonderfully.</li>
+      <li>/&gt;Q-Tips are the best there is, period.  </li>
+      <li>Qtips is the best brand of cotton swab I&#x27;ve ever used.</li>
+      <li>These are the best quality and price for cotton swabs that I have found yet.</li>
+      <li>Great price for the three pack!</li>
+      <li>Best q-tips.</li>
+      <li>What can I say, Qtips are the best in my opinion.  </li>
+      <li>Great Value!  </li>
+      <li>These Qtips work great!</li>
+      <li>One of life&#x27;s best inventions!</li>
+      <li>Great 3 boxes of qtips!</li>
+      <li>so this is perfect!</li>
+      <li>I like Q-tips the best!  </li>
+      <li>and this is the best deal I have found.</li>
+      <li>THE RATIO OF COTTON 2 CARDBOARD STICK HAS BEEN PERFECT</li>
+      <li>I am very happy with this purchase.</li>
+      <li>QUALITY CONTROL AT ITS BEST!</li>
+      <li>Great products for the price!</li>
+      <li>/&gt;These are great qtips!</li>
+      <li>great!!!</li>
+      <li>This is just the best quality for this type of product, in my opinion.</li>
+      <li>It is a wonderful convenience; and I never have to worry about running out.</li>
+      <li>and I will answer your questions to the best of my ability.</li>
+      <li>Use a lot of these and think this is a great price for the amount you get!</li>
+      <li>I have clean ears!!!!!</li>
+      <li>Best deal I could find!</li>
+      <li>These are the best Cotton Swabs I&#x27;ve used.</li>
+      <li>but these are the best.  </li>
+      <li>If you use a lot of Q-tips this is the perfect package.  </li>
+      <li>The price is excellent also.</li>
+      <li>Best Customer Service AAA+</li>
+      <li>I find Qtip brand cotton swabs to be the best--</li>
+      <li>concealer.&lt;br /&gt;The number of Q-tips in this package is just perfect at the price you are paying (though it is an add on item), which is a bonus.</li>
+      <li>but it&#x27;s so perfectly suited for the job...</li>
+      <li>The best cotton swabs I can find.</li>
+      <li>For my money, Q-tip makes the best cotton swab for cleaning my ears.&lt;br</li>
+      <li>Having it delivered is just the best thing.  </li>
+      <li>An excellent product.</li>
+      <li>Q-tips get it perfect.</li>
+      <li>In my opinion Q-Tips are the best cotton swabs on the market.</li>
+      <li>They&#x27;re the best I have tried.</li>
+      <li>These are the ones you want, has the perfect amount of cotton and stick firmness.</li>
+      <li>very happy...</li>
+      <li>Best brand of cotton swabs.&lt;br</li>
+      <li>All around great!</li>
+      <li>but it&#x27;s a great brand!</li>
+      <li>Great deal!</li>
+      <li>I always forget to buy qtips so this was wonderful</li>
+      <li>Great!</li>
+      <li>Best deal I have found on the 3 pack and delivered to your door in two days with Prime shipping!  </li>
+      <li>These are awesome</li>
+      <li>Great transaction!</li>
+      <li>Qtips brand name qtips are the best in terms of quality and consistency.</li>
+      <li>Perfect condish.</li>
+      <li>I have always used Qtips as I think they are the best brand of all of the swabs.  </li>
+      <li>Excellent value.</li>
+      <li>Excellent product.</li>
+      <li>I was very happy with this purchase.</li>
+      <li>and this is the best value I&#x27;ve found.</li>
+      <li>Qtips cotton swap is the best brand of cotton swabs.  </li>
+      <li>Now I can hear perfect!</li>
+      <li>Amazon always has the best price.</li>
+      <li>What a great product!</li>
+      <li>Great buy!</li>
+      <li>I use nothing but the Qtip brand, this was a very good price for a lot of Qtips.  </li>
+      <li>Very good quantity for the price.</li>
+      <li>I use nothing but the Qtip brand, this was a very good price for a lot of Qtips.</li>
+      <li>very good quality</li>
+      <li>The price is very good.</li>
+      <li>These are great and the 3 pack is an excellent money-saving deal.  </li>
+      <li>Great product at a great price!</li>
+      <li>Excellent Product and great shopping experience.</li>
+      <li>Keep the good work!</li>
+      <li>Good value for a three-pack of Q-Tips!  </li>
+      <li>This is a really good deal!</li>
+      <li>It just feels so good in my ear!</li>
+      <li>3 packs for a good price, makes it easier to have around when needed!</li>
+      <li>Cheaper than store, good deal!</li>
+      <li>This is a good price, the product is the best for it&#x27;s purposes.  </li>
+      <li>and they are a great product.</li>
+      <li>We bought these Qtips about a year ago; the price is great for the amount (almost 2,000 Qtips for $9.50).</li>
+      <li>It works great.</li>
+      <li>My husband and I like to play at art and Q-tips are great for blending.</li>
+      <li>Great quality, and this quantity lasts forever.</li>
+      <li>They are great.</li>
+      <li>Perfect size for my ear hole, honestly I dunno how else to review a Q-tip.  </li>
+      <li>With this amount for the price paid is a great deal.</li>
+      <li>Great deal for a great product and</li>
+      <li>Great value for the amount of Qtips vs. the price.  </li>
+      <li>It is a great buy.</li>
+      <li>Great value.</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> These are the best Cotton Swabs I&#x27;ve used.</li>
+<li> These are the best cotton swabs on the market.  </li>
+<li> In my mind there is no need, as the perfect cotton swab is already in my reach.</li>
+<li> Very happy with this purchase</li>
+<li> Great price!</li>
+<li> Qtips are the best cotton swab out there.  </li>
+<li> Awesome products and the best thing is saving a trip to the store.</li>
+<li> Excellent deal for the price!  </li>
+<li> /&gt;They&#x27;re just perfect for ear cleaning.</li>
+<li> The Q-Tips that were shipped worked wonderfully.</li>
+<li> /&gt;Q-Tips are the best there is, period.  </li>
+<li> Qtips is the best brand of cotton swab I&#x27;ve ever used.</li>
+<li> These are the best quality and price for cotton swabs that I have found yet.</li>
+<li> Great price for the three pack!</li>
+<li> Best q-tips.</li>
+<li> What can I say, Qtips are the best in my opinion.  </li>
+<li> Great Value!  </li>
+<li> These Qtips work great!</li>
+<li> One of life&#x27;s best inventions!</li>
+<li> Great 3 boxes of qtips!</li>
+<li> so this is perfect!</li>
+<li> I like Q-tips the best!  </li>
+<li> and this is the best deal I have found.</li>
+<li> THE RATIO OF COTTON 2 CARDBOARD STICK HAS BEEN PERFECT</li>
+<li> I am very happy with this purchase.</li>
+<li> QUALITY CONTROL AT ITS BEST!</li>
+<li> Great products for the price!</li>
+<li> /&gt;These are great qtips!</li>
+<li> great!!!</li>
+<li> This is just the best quality for this type of product, in my opinion.</li>
+<li> It is a wonderful convenience; and I never have to worry about running out.</li>
+<li> and I will answer your questions to the best of my ability.</li>
+<li> Use a lot of these and think this is a great price for the amount you get!</li>
+<li> I have clean ears!!!!!</li>
+<li> Best deal I could find!</li>
+<li> These are the best Cotton Swabs I&#x27;ve used.</li>
+<li> but these are the best.  </li>
+<li> If you use a lot of Q-tips this is the perfect package.  </li>
+<li> The price is excellent also.</li>
+<li> Best Customer Service AAA+</li>
+<li> I find Qtip brand cotton swabs to be the best--</li>
+<li> concealer.&lt;br /&gt;The number of Q-tips in this package is just perfect at the price you are paying (though it is an add on item), which is a bonus.</li>
+<li> but it&#x27;s so perfectly suited for the job...</li>
+<li> The best cotton swabs I can find.</li>
+<li> For my money, Q-tip makes the best cotton swab for cleaning my ears.&lt;br</li>
+<li> Having it delivered is just the best thing.  </li>
+<li> An excellent product.</li>
+<li> Q-tips get it perfect.</li>
+<li> In my opinion Q-Tips are the best cotton swabs on the market.</li>
+<li> They&#x27;re the best I have tried.</li>
+<li> These are the ones you want, has the perfect amount of cotton and stick firmness.</li>
+<li> very happy...</li>
+<li> Best brand of cotton swabs.&lt;br</li>
+<li> All around great!</li>
+<li> but it&#x27;s a great brand!</li>
+<li> Great deal!</li>
+<li> I always forget to buy qtips so this was wonderful</li>
+<li> Great!</li>
+<li> Best deal I have found on the 3 pack and delivered to your door in two days with Prime shipping!  </li>
+<li> These are awesome</li>
+<li> Great transaction!</li>
+<li> Qtips brand name qtips are the best in terms of quality and consistency.</li>
+<li> Perfect condish.</li>
+<li> I have always used Qtips as I think they are the best brand of all of the swabs.  </li>
+<li> Excellent value.</li>
+<li> Excellent product.</li>
+<li> I was very happy with this purchase.</li>
+<li> and this is the best value I&#x27;ve found.</li>
+<li> Qtips cotton swap is the best brand of cotton swabs.  </li>
+<li> Now I can hear perfect!</li>
+<li> Amazon always has the best price.</li>
+<li> What a great product!</li>
+<li> Great buy!</li>
+<li> I use nothing but the Qtip brand, this was a very good price for a lot of Qtips.  </li>
+<li> Very good quantity for the price.</li>
+<li> I use nothing but the Qtip brand, this was a very good price for a lot of Qtips.</li>
+<li> very good quality</li>
+<li> The price is very good.</li>
+<li> These are great and the 3 pack is an excellent money-saving deal.  </li>
+<li> Great product at a great price!</li>
+<li> Excellent Product and great shopping experience.</li>
+<li> Keep the good work!</li>
+<li> Good value for a three-pack of Q-Tips!  </li>
+<li> This is a really good deal!</li>
+<li> It just feels so good in my ear!</li>
+<li> 3 packs for a good price, makes it easier to have around when needed!</li>
+<li> Cheaper than store, good deal!</li>
+<li> This is a good price, the product is the best for it&#x27;s purposes.  </li>
+<li> and they are a great product.</li>
+<li> We bought these Qtips about a year ago; the price is great for the amount (almost 2,000 Qtips for $9.50).</li>
+<li> It works great.</li>
+<li> My husband and I like to play at art and Q-tips are great for blending.</li>
+<li> Great quality, and this quantity lasts forever.</li>
+<li> They are great.</li>
+<li> Perfect size for my ear hole, honestly I dunno how else to review a Q-tip.  </li>
+<li> With this amount for the price paid is a great deal.</li>
+<li> Great deal for a great product and</li>
+<li> Great value for the amount of Qtips vs. the price.  </li>
+<li> It is a great buy.</li>
+<li> Great value.</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> good price for the quantity compared to local stores</li>
+    <li> Where&#x27;s the soft cotton tip?  I&#x27;m so upset, honestly Q-Tips are now like the cheap ones I&#x27;ve always veered away from.  No soft cushion AT ALL!!!  Thus has nothing to do with the seller, it&#x27;s the maker.  Save a penny, use less cotton.  There is a telephone number on the box, I will be calling them very soon.&lt;br /&gt;&lt;br /&gt;Highly recommend if you believe I&#x27;m wrong, buy a small package before you buy the 3 boxes like I did.  I might as well stick a toothpick in my ear.  Often I would use my fingers to turn the cotton the opposite way it&#x27;s put on just to make it fuller for whatever I was using it for, I&#x27;ve tried doing that with these, there&#x27;s not enough cotton on the end to do much of anything with except clean some small tight areas.  Certainly not my ears, ouch!!!  The maker should be ashamed, I trust labels I&#x27;ve used for years.....forget that with Q-Tips.  Very very unhappy, but the orovipder or seller dud their part perfectly.  I&#x27;m happy with them.</li>
+    <li> Great product at a great price.</li>
+    <li> I have a bit of a Qtip fetish.  I know they aren&#x27;t necessarily meant for your ears....but guess what! I use them to clean my ears all the time!  I&#x27;m not saying go digging in there, but one must have clean ears.  And I get very cranky when I run out of Qtips.  Hence the gloriousness of this 3-pack.</li>
+    <li> Use these for make up application, removal, etc, so this has a thousand uses, and cleanup as well, there are so many things that these can be used for that I go through these quite quickly...keep them coming!</li>
+    <li> Good cotton swab with sturdy body for easy holding.</li>
+    <li> Great price and quality.</li>
+    <li> It&#x27;s q-tips, you use it for cleaning your ears, keyboard and other small spaces. It serves many purposes and every household should have at least one big box. It was cheap on Amazon so I bought it here.&lt;br /&gt;&lt;br /&gt;Oh, and don&#x27;t go for off brand q-tips. There really is a difference in quality and how thick and soft the tips are.</li>
+    <li> I like that the stick is not made out of plastic and it&#x27;s the more sturdy paper/cardbord matterial. I also bought it in bulk so we don&#x27;t have to make trips to the stores every time we run out; especially with how expensive gasoline is.</li>
+    <li> This is a great value, you get three boxes of Qtips. Qtips are the only brand of cotton swabs that we will use. They are very well made. They are sturdy and have lots of cotton on the tips. I am very happy with this purchase.</li>
+    <li> My husband is a qtip junky! and he&#x27;s very picky too! it HAS to be qtip brand and nothing else. I just found this triple value pack on Amazon and the price is fabulous compared to our local stores. Its even better with subscribe and save which I just did! Now we shouldnt have to worry about running out of these. In my husband&#x27;s world, it almost equal to running out of beer! LOL</li>
+    <li> Some things I buy the brand name on because it is a better product. This is one of them.</li>
+    <li> Does it is suppose to do. Inexpensive for 3 pack.</li>
+    <li> Lots of different cotton swabs on the market. I&#x27;ve used a lot of different ones but Qtips are by far the best. I believe it&#x27;s because of the construction of the shaft is why they&#x27;re superior.</li>
+    <li> Good price for the standard bearer of ear swabs. Not much else to say.</li>
+    <li> This is a lot of Q-tips.  You will start to get creative about what you&#x27;re doing with these.  Your ears are clean.  That little spot on your sink that you can&#x27;t really get to is clean.  You&#x27;ve still got hundreds of the things left!  You can use them as collar stays in mens shirts.  So many uses!    They don&#x27;t make great gifts, though.  No one&#x27;s going to want one of the three boxes of Q-tips, even if they are the high quality ones and not some lousy junk with extra-bendy plastic sticks.</li>
+    <li> Good PRICES IN STORE MUCH MORE</li>
+    <li> I use a lot of the Q-Tips and it is so convient to have them delivered to my door. I am disabled and can&#x27;t get to the store that often. The price is excellent also.</li>
+    <li> Great price for the same quality cotton swabs.  Can&#x27;t compromise with the bargain brands that have barely any cotton on the ends, especially for children.</li>
+    <li> Big size...great value</li>
+    <li> Great swabs. Unlike the store brand swabs that are slightly less expensive yet bend as you use them, these have a rigid body which make them ideal.  The cotton is soft enough to use in your ear, yet doesn&#x27;t fall apart while being used.  Not sure I can think of a way to make improvements!?!</li>
+    <li> This item showed up when I searched for wood cotton swabs. They&#x27;re made by a known brand: Q-tips. So I ordered them and they turned out to be the ones found everywhere and NOT made with WOOD. I was misled by a review that said they were not the \\&quot;bendy\\&quot; type.</li>
+    <li> This is the original Q-tip. Its stem is made out of rolled paper, it is pretty stiff (not bendy&lt;br /&gt;like plastic Q-tips) and it does not splinter (like wooden stem Q-tips).  It has a good&lt;br /&gt;amount of 100% cotton on its tip.  Some Q-tips are not as tightly woven around the&lt;br /&gt;end as others, but I usually just twirl it between my finger tips to get a tighter tip&lt;br /&gt;if needed.&lt;br /&gt;&lt;br /&gt;I use it for applying ointment to  my dry nose, and even though you are not supposed to&lt;br /&gt;occasionally for clearing the ears for ear wax. They also work well for clearing&lt;br /&gt;out fabric dust from the inside of the sewing machine. I&#x27;ve also used it on the inside&lt;br /&gt;of electronic and computer equipment, when nothing else is small enough to reach the dust.&lt;br /&gt;&lt;br /&gt;This packaging is a cost effective solution and will last a long time!</li>
+    <li> This was a great buy.  This was even better than buying them at the wholessale club I belong to or the local discount stores.</li>
+    <li> all your neighbors will be jealous and when the global economy collapses it will be you with all the fluffy cotton swabs.</li>
+    <li> They are Qtips... What else is there to say? They are good quality, package came quickly, and it was a decent price for the convenience of having it shipped to my home for free.</li>
+    <li> These Qtips Cotton Swabs work as directed.  I use them three times a day to keep my ears clean so I can hear better.</li>
+    <li> They are QTIPS, they work fine.</li>
+    <li> I got a MASSIVE 3-pack of these (1875 in total) and I got them for under $10.00 shipped. No other brand works as well as these. I use them for everything from cleaning my ears to cleaning up mascara to getting crud out of my kitties eyes. These are awesome and I definitely recommend them.</li>
+    <li> great price and love qtips</li>
+    <li> These Qtips are a real disappointment!  I bought these in bulk because I use to use them a number of years ago, and was always impressed with the stiffness of the stem, the tightly wound head, the evenness and conformity of the swabs.  This is no longer case.  The swabs I received have relatively soft stems, and vary greatly in the both the evenness and tightness of the wind. The swabs I buy for considerably less at the local chains are more consistent.</li>
+    <li> Works out to about half a cent per Q-tip at 9.99. My ears are now very clean. So are Felix&#x27;s. Life is good.&lt;br /&gt;&lt;br /&gt;If you&#x27;re on this page, buy them!</li>
+    <li> just like the ones your buy at the local costco.</li>
+    <li> QTIPs certainly make a fine product. This was a great price compared to many stores and even sales.  I am happy with my purchase and I would buy again.</li>
+    <li> they&#x27;re q-tips....who doesn&#x27;t know what q-tips are</li>
+    <li> good price for the quantity I get.  product arrived in reasonable time.  It is a Q-Tip brand so you get what you paid for ...</li>
+    <li> We all know how wonderful Q tips are, buying these helps just save a couple pennies that&#x27;s totally worth it.</li>
+    <li> My black lab with big floppy ears that always need cleaning prefer these over the cheap ones, and these work the best.</li>
+    <li> This is a good price, the product is the best for it&#x27;s purposes.  I have used generic swabs in the past the Qtips are the best</li>
+    <li> As expected. I use them for makeup purposes as well.</li>
+    <li> When I bought this it was on sale. Can&#x27;t remember the price but quality wise lot better than what I get from Walmart. Does not bend or any thing very stiff.</li>
+    <li> Q-tips are the on swabs I recommend.</li>
+    <li> This is the only Q-tip I will ever use....Amazon always has the best price.</li>
+    <li> I love these things and will not use and brand but qtip. Lets be honest we all know not to shove these things into our ears, but we do it anyways. The eargasm I get from these things is amazing, and the quality means no accidently stabbing myself because of loose cotton on the swab. i love them.  i use them for cleaning other things too, and i can never have enough.</li>
+    <li> I gpot these at  half the price that is now being offered.. a Great value... top quality swabs</li>
+    <li> cleans my ears and my guns,thanks for both</li>
+    <li> Agreed with other reviewers that Qtip brand cotton swabs beat the competition. They do seem a bit less puffy on the ends as they used to. But still better. And I&#x27;ve tried other brands. I use them daily, and they&#x27;re super handy for computer and other tight spot cleaning jobs. I live alone, so I now have a couple years worth of qtips. But given the cost of one of these in any retail outlet, a bargain&#x27;s a bargain!</li>
+    <li> Great quality, and this quantity lasts forever.</li>
+    <li> Only bought this because the \\&quot;Refillable Vanity Pack\\&quot; is no longer available.     [...]    They are q-tips, so obviously we like the product, but miss the vanity pack packaging.</li>
+    <li> I recently bought Q-Tips locally. I was not a happy camper that the stick/holder is plastic and extremely flimsy so that the Q-Tips are pretty much useless. Thank goodness this seller has the real deal with the cardboard stick that&#x27;s sturdy enough so you can use successfully for multiple applications. I will definitely be stocking up and hope the seller keep this item available.</li>
+    <li> we enjoy them very much at it will take years to use them up but they are very useful to us</li>
+    <li> With the Subscibe and Save, it&#x27;s so much cheaper buying this on Amazon than at the stores.    I&#x27;ve always like the Q-tips Swab brand, always soft and easy to use.  I know there are cheaper brands out there, but I like the quality of this brand.  As long as it&#x27;s available at Amazon for a better price, I&#x27;ll continue to buy it here.</li>
+    <li> very happy...no problems...thank you</li>
+    <li> Nobody knows how to build a Q-tip like the Q-tip people.  Perfection begins with the 100% (I think) rolled paper wand and concludes with the two delicately and perfectly balanced swabs on the ends.  This, is the pinnacle of cotton swab engineering.  These things can be used on any project from ears to chainsaws and their performance is the stuff of legend.    Don&#x27;t buy that cheapo knockoff brand that gives you a super flexible, plastic wand and just enough fiber on the ends to legally call it a \\&quot;swab\\&quot;.  You need a 100% (I think) rolled paper wand that lets you get some muscle behind whatever it is you&#x27;re scooping up with those voluptuous pure cotton Q-tip tips.  From crusted ear wax to bar oil laden log dust on your Stihl, you only want to deal with Q-tip brand cotton swabs when it really matters.      Do it right or go hit the dollar store and hope for the best.  Your choice people.  Make yourself proud.</li>
+    <li> There&#x27;s nothing really special to say.  It&#x27;s a Q-tip!  But they do the job really well and the little white cotton tips don&#x27;t ever fall off!</li>
+    <li> Didn&#x27;t receive what I ordered....TWICE!!  Sent flexible rather than wood sticks....TWICE!!!  I finally had to give up.  I was very disappointed and expected more from Amazon.  Very frustrating.</li>
+    <li> Very good quality cotton, such as propaganda said, high ratio of performance to price, the next run out and buy.</li>
+    <li> I feel that this was a bait &amp; switch.  Under search for wood shaft qtips this came up but it was not wood.  A diappointing buy.</li>
+    <li> Qtips Cotton Swab &amp;#62; Dollar Store Bought Qtips&lt;br /&gt;&lt;br /&gt;My ears are squeaky clean with the help of this soft qtip!</li>
+    <li> What can I say? They are the standard Q-tips I have been using for the last don&#x27;t-know-how-many years. They rock!&lt;br /&gt;The great thing about these is that you get the three packages in one shipment: a total of 1875 Q-tips, that way you have the option to use up to 4 Q-tips per day for 468.75 days before you run out.&lt;br /&gt;The thing I love about these is that they are very sturdy, compared to pretty much any knock-off. The central stick is made of rolled up paper (biodegradeable), and the tips are covered in soft cotton. I think over the last decade of sticking to this brand, I&#x27;ve had maybe 2 cotton tips fall off or partially detach: this is something to consider, as we typically use the Q-tips to clean the ear canal (even though we&#x27;re not supposed to, people!) and don&#x27;t want something to get stuck up in there.&lt;br /&gt;While the Q-tips are by no means a sterile product, they are indeed clean enough to use for a variety of tasks such as fine product application on the body (cleaning piercings, topical medication application) and, what I use them mostly for, makeup. I have found that the Q-tips don&#x27;t really get the frayed fibers during makeup application like some of the other brands, and something about the way the soft cotton is arranged on the ends makes it easy to apply and remove things like eyeshadow and concealer.&lt;br /&gt;The number of Q-tips in this package is just perfect at the price you are paying (though it is an add on item), which is a bonus. I found that these Q-tips I ordered from Amazon are exactly the same quality as the ones I typically bought at Costco or Target--no difference whatsoever, except for the price, of course, and would recommend this online alternative to purchasing a product you are no doubt already buying to anyone.</li>
+    <li> If you use a lot of Q-tips this is the perfect package.  Good price and a lot of Q-tips.</li>
+    <li> These are the best Cotton Swabs I&#x27;ve used. They have lots of cotton, and don&#x27;t bend like other brands I have used. 3-Pack is a great value and they come sealed shrink wrapped in plastic. Great Value for a great product.</li>
+    <li> Lots of qtips for the family. Just as described.  Good quality Qtips.</li>
+    <li> not sure how to review q-tips. they are what they say they are. they work. this was a great price and delivered for free. nothing to complain about.</li>
+    <li> As with other Amazon products I signed-up for this with \\&quot;Subscribe and Save\\&quot;. It is a wonderful convenience; and I never have to worry about running out. I wish Amazon even had more products available with this service!!</li>
+    <li> Great product. Shipping was on time</li>
+    <li> Quality product at great sale price.</li>
+    <li> Deal of the day and was a steal for the price for quality ear swabs.  Very pleased with price and quality off of amazon.com.</li>
+    <li> Bought 3 pack. First box I opened has defective swabs. One end normal; opposing end has blunt tip of cardboard stick exposed. No cotton tip although there is some cotton wrapped below the tip.</li>
+    <li> I like these compared to the other brands because they&#x27;re not flimsy.  The stem is solid and doesn&#x27;t fail under pressure. Overall its a far superior product to the other brands.</li>
+    <li> Needed something to dry my ears after taking a shower and this works great. Becareful not to shove it into your ear canal or you might have trouble hearing.</li>
+    <li> Love the Q-Tip brand.  I tried a generic brand and I will never again do that.  This product works great and will continue to always use it.</li>
+    <li> You may find cheaper prices on &amp;#34;off brands&amp;#34;, but there is NO other cotton swab that compares to Q-tip in my opinion! And Amazon just makes it easier to stay stocked up.</li>
+    <li> If you want a lot of Q-tips, here you go.</li>
+    <li> These swabs are cushioned at their tips, making them gentle.  Used for makeup removal around the eyes, cleaning ears, and removing excess nail polish when &#x27;painting&#x27; my nails, this is a very decent product.&lt;br /&gt;&lt;br /&gt;I&#x27;ve tried the off-brands and found them lacking.  The sticks bend too easily and/or the tips are not adequately cushioned.  Q-tips is the brand that is consistently good.&lt;br /&gt;&lt;br /&gt;As for price, I&#x27;ve shopped around and find the pricing to be competitive.  If you are an Amazon Prime member (annual fee) and buy a lot of products online, you can save money by having this shipped to you FREE and without tax (in my home state).  By choosing to have it delivered at specific intervals, the price drops even further.  With the price of gasoline going ever higher, this is one more way to save money.  It prevents having to run out to a store for an item, making it even costlier.</li>
+    <li> I ONLY buy Qtips brand cotton swabs.  Everything else is cheap and flimsy.  I got this for a great price, less than 3.00 a package with a coupon Amazon had.  I&#x27;m sure this will last me for at least a year.</li>
+    <li> Against recommendations by the manufacturer, I use these primarily to clean my ears.  :)  They work great, and they&#x27;re multifunctional for anything else for which you may need them.</li>
+    <li> Best value for (real) Q-tips we&#x27;ve found!</li>
+    <li> I&#x27;ve tried cheaply made imitation \\&quot;cotton swabs\\&quot; and they never cut it. Thankfully we&#x27;ve got bargain deals like this - twelve dollars for almost two thousand of these is a great deal. Even if you burn through QTips quickly - some of us get a lot more wax buildup than others - this is a steal.</li>
+    <li> i look for a great deal on these and had to scope them up. Q tips are so cool and a necessary.  i appreciate them even more and more as time goes by and how delicate and yet functioning so well for me. believe me my ears say thank you when i see them.</li>
+    <li> I like these cotton swabs with the paper centers. They hold up well and with nearly 2000 of them, you can use them for everything.</li>
+    <li> I have been using these ever since I can remember. There are also great for cleaning the remaining makeup around my eyes in the evening. Gentle and cushiony. I don&#x27;t see myself switching to anything else in the near future.</li>
+    <li> Who doesn&#x27;t love QTips?? Sure maybe buying 3 boxes seems crazy but I&#x27;ll use them all eventually! Especially for that price.</li>
+    <li> Good value Qtips for the money. I split these between us and our daughter and this way we don&#x27;t have to continually buy these in the store. This brand has been around for years and have never had a problem. Use them for many things and have never run out.</li>
+    <li> Great price for the three pack! Consistent quality, and they get the job done. :)</li>
+    <li> Good value for a three-pack of Q-Tips!  Just enough cotton at the ends, and sturdy stick, unlike some of the generic versions.</li>
+    <li> First time I tried, and I really like it.</li>
+    <li> You can&#x27;t beat Q-Tips!  We use them for a lot of things.</li>
+    <li> I&#x27;ve been using Q-tips brand my entire life, no other cotton swab can compare! Like another reviewer said, the stem is rolled paper, much like a lollipop stick, so it&#x27;s super sturdy. I don&#x27;t see how some people have a problem with them \\&quot;bending\\&quot;...unless you actually make an effort to bend it, then of course it can break in two. The cotton on each end is just like it always is, and just the way I like it: fluffy, soft, and woven tight enough.  I bought this on Nov. 3, 2011 for $7.90 with subscribe&amp;save + prime</li>
+    <li> I had to edit my review of Q-tips because I got this deal on Subscribe and Save.  I think it was either three or four boxes, and EVERY Q-tip in all of the boxes was awful!  There is no comparison to the &amp;#34;old&amp;#34; Q-tips I had left in my travel kit.  The swabs have only a bare amount of cotton, and there is NO cushion on the end, so it hurts to dry my ears!  I&#x27;ve been using Q-tips for decades since I was a small child, and it only took ONE to dry both of my ears.  Now, I find myself using two per ear each morning, so I&#x27;m not saving money at all.  It really disappoints me when our trusted brands screw us over, but I bought some at the store, too, and they are ALL like this!  I&#x27;ve switched to a generic brand that is soft and cushy because Q-tips has betrayed my life long loyalty.  SHAME ON YOUR UNILEVER!</li>
+    <li> Great quality Qtips and nice time to stock up since we always seem to run out without notice. Will have a lot for awhile.</li>
+    <li> Great deal for a great product and I am super excited I could obtain them for this price. Thank you</li>
+    <li> had to buy this as its good value for money and i was pleased i bought them. It would be a good idea of u a trying to save a few dollars.</li>
+    <li> I will never run out of Q-tips...that&#x27;s for sure.  How can you go wrong with the price and quantity? I even gave my mom some:)</li>
+    <li> Great product at a great price.</li>
+    <li> Good buy, we are set to go for a year or two now.</li>
+    <li> They are Qtips. Not much to say here.  Great price on the 3 pack though, only 50 cents more than the single pack!</li>
+    <li> The cotton tip is going shapeless during use.&lt;br /&gt;Good for nothing.&lt;br /&gt;Do not buy this.&lt;br /&gt;Worst cotton tips i have ever used.</li>
+    <li> Always a must for cleaning extra makeup! A must in any bathroom!</li>
+    <li> A little expensive but good.</li>
+    <li> Nothing but All-of-Bests. All the way from Kanya-Kuwari to Kashmir, and from Kuttcha to Assam, Sikkim, Nagaland, and Burma.</li>
+    <li> We love Q-Tips! We have tried the off brands to cut costs, but you truly get what you pay for. With bargain brands you get flimsy stems and very little cotton on the ends. At times you get out a swab and there is nothing on the tip at all. That never seems to happen with the Q-Tips. They are sturdy, and the tips always have a consistent, and ample amount of cotton. Buying them in bulk like this cost effective, as well.</li>
+    <li> Get the Qtip brand. simple the best. I use these to clean my guns and clean other small stuff around the house, work and garage. I occassionally clean the wax out of my ears since my wife keeps yelling at me :)</li>
+    <li> These are the best cotton swabs on the market.  Good sturdy stick with a good amount of cotton securely attached.  Not like the flimsy ones from generics that bend while you are trying use them or scratch your ear because there is not enough cotton on the ends.  Getting this pack is way cheaper than buying the small boxes at the stores.  We use these for a lot of things other than ear cleaning so we go through them pretty fast and this is the best deal I have found.</li>
+    <li> Facial tissues are all about equal. Ditto toilet paper. But Q-tips are the only kind of cotton swab I use. Budget brands either skimp on the cotton, or the tips are too tightly wound. Q-tips get it perfect.</li>
+    <li> No substitute for these and at the price these were at, stocking up is a no brainer!</li>
+    <li> These Q tips felt cheap and like knock offs. I don&#x27;t know if they were factory rejects or what, but it feels like 50% less cotton than the Q tips I buy at retail stores.</li>
+    <li> These q tips arrived safely and as scheduled.  I love the 3 packs so I don&#x27;t have to worry about running low.  These are full cotton tips and they are not skimy like other similar product.  Fast ship for great price.</li>
+    <li> Great product, fast shipping!</li>
+    <li> We bought these Qtips about a year ago; the price is great for the amount (almost 2,000 Qtips for $9.50). We buy these Qtips instead of the generic Qtips that are sold at the store. The major difference between real Qtips and the generic cotton swabs at a local grocery store is build quality. For example, the card board stem on these Qtips are firm and do not bend easily.&lt;br /&gt;&lt;br /&gt;PROS:&lt;br /&gt;- Strong card board stem, does not bend easily like the generic cotton swabs.&lt;br /&gt;- Really absorbent, one Qtip absorbs as much as five generic cotton swabs.&lt;br /&gt;&lt;br /&gt;CONS:&lt;br /&gt;- None that I can think of.&lt;br /&gt;&lt;br /&gt;Country of Origin: USA</li>
+    <li> Do the job - better than other products</li>
+    <li> Won&#x27;t have to go to the store for Q-Tips for a while! Great product and great price</li>
+    <li> Classic Q-Tips. Generic types just don&#x27;t work for me. Q-tips simply has the perfect ratio of cotton on both ends with a flexible stick that&#x27;s still sturdy enough to not be bent easily.&lt;br /&gt;&lt;br /&gt;You can use these for so many things that they&#x27;re worth it! (A lot of reviews are complaining that they&#x27;re not wood sticks but Q-tips have been the same quality they have been for over 30 years. They&#x27;ve never been wood sticks and will never be wood sticks.)</li>
+    <li> My boyfriend&#x27;s favorite q-tips! We use these everyday. The tips are soft and fluffy which aid in cleaning the delicate area thoroughly. Highly recommend these! :)</li>
+    <li> It&#x27;s America&#x27;s favorite cotton swab. The stick between the two ends is sturdy (not flimsy).What else do you need to know?</li>
+    <li> You&#x27;re not supposed to stick these in your ear canal, but you can&#x27;t stop me!  Muahahahahaha!</li>
+    <li> Granted, I now have a FIVE YEAR supply of Q tips.  But these are the real deal.  The quality ones you remember Q tips actually being.  Price was good.  And I don&#x27;t expect to be running out of Q tips for quite some time.</li>
+    <li> My wife and I will have these for years. So many to use. They are great for after the shower.</li>
+    <li> nice big box, will last us a long time without shopping.  What else can you say, they are Q-tips! ;)</li>
+    <li> So nice to have bulk amount because I use Qtips for everything and now I know that I have enough!  Will be back when I need to reorder</li>
+    <li> Does it well and does not break.</li>
+    <li> I do the subscribe and save option because we are constantly using q-tips. We use them for make up, cleaning, human ears, dog ears, crafts. The list goes on.  We have this come every 6 months and it works out great.&lt;br /&gt;&lt;br /&gt;I&#x27;ve tried the generic brands and they aren&#x27;t the same.  The cotton comes off almost instantly.  We will always use q-tip!</li>
+    <li> You are getting Q-tips. What more do you want?</li>
+    <li> Q-tips.  They do what Q-tips are supposed to.  I do miss the wooden sticks they started with years ago, but I am dating myself.</li>
+    <li> standard q tips at a good price... better than the generics</li>
+    <li> Best q-tips. I have tried the cheap off-brand ones and they can&#x27;t compared! Awesome products and the best thing is saving a trip to the store.</li>
+    <li> How do you rate a Qtip they do what I expect them to do</li>
+    <li> This is a ton of Q-tips! They work well for me and I love the strong paper tubes they use with these. The price is great and with fast free shipping how could you go wrong? If you would like to save money bulk by the things you use and start here!</li>
+    <li> Thank you QTIPS for providing your normal quality product for Amazon buyers.  These are exactly the same high quality product you would buy at the drugstore.</li>
+    <li> I don&#x27;t care if they say not to use qtips for the ear. Everyone does it so why shouldn&#x27;t I?</li>
+    <li> These things do the job good.  They get in there real deep-like and scrape enough wax out to make a wax crayon out of.</li>
+    <li> Well, we have q-tips coming out our ears.  Good price, good product, and I didn&#x27;t have to go to the store. And I don&#x27;t have to buy them again for like 19 years.</li>
+    <li> Great product. These are the only cotton swabs that have the right amount of cotton on the ends, that don&#x27;t come unraveled when you use them, and the stick does not bend when being used like other brands. The price amazon was selling them for was comparable to the price I normally pay at my local wholesale club and I didn&#x27;t have to leave my house. Sold.</li>
+    <li> I bought this on Amazon because I&#x27;m too lazy to go to the store. I&#x27;m pretty sure this is enough Q-tips for the next 15 years of your life. Losers call these Cotton Swabs. If you searched Cotton Swabs you are a weirdo.</li>
+    <li> Cotton swabs were invented by Leo Gerstenzany in 1923 when he simply put a small wad of cotton on the end of a toothpick.  Unilever has marketed and sold the Q-Tip brand for the past 85 years and the term \\&quot;Q-Tips\\&quot; has become a generic trademark which refers to all cotton swabs, similar to copy machines referred to as a \\&quot;Xerox\\&quot;.&lt;br /&gt;&lt;br /&gt;The most common use for Q-Tips has been to clean or scratch someone&#x27;s ears, something that doctors have recommended for years not to do.  However there are many legitimate uses for this product including; applying or removing makeup, face painting, cleaning hard to reach places, paint brushes for children, and applying medications or lubricants.  Obviously 95% of the buyers of Q-Tips find a lot of satisfactory uses for them.&lt;br /&gt;&lt;br /&gt;This is one of the longest running brand names out there.  Just don&#x27;t put them into your ears!</li>
+    <li> uhhh.........these are q-tips. I use them to clean my ear after a shower. It works great. I don&#x27;t know what else to say. The chick on the box looks like she&#x27;s sleeping.&lt;br /&gt;&lt;br /&gt;Awesome.</li>
+    <li> I much prefer this type of Q-tip to those with plastic or wood for the stick. This version is made of stiff paper/cardboard. I like the somewhat fluffy tip that this Q-tip has versus a really tight one.&lt;br /&gt;&lt;br /&gt;I use Q-tips per my dermatologist&#x27;s instructions to apply moisturizer around my eyes. She says this will eliminate any chance of infecting my eyes with bacteria that, even if one regularly washes the hands well, seems to accumulate under the fingernails.&lt;br /&gt;&lt;br /&gt;I also use Q-tips to clean out the inside of my electric toothbrush head, which builds up with mold far too quickly. They are also useful for cleaning mold from around sink fixtures, and excellent for dusting small pieces of electronic equipment.</li>
+    <li> Personal use at home, one of the old standby, like duct tape. Is there anyone who doesn&#x27;t know what a Q-Tip is, and all it can be used for...?</li>
+    <li> This was a really great deal. The q-tips last for a really long time and of course they&#x27;re good quality. Will be buying again!</li>
+    <li> really a nice product but not very soft</li>
+    <li> The only brand of cotton swabs to buy is Qtips - other brands are flimsy and easily bend. That being said, this is a good value for 3 large packs. I know it will take my house probably 2 years to get through these 3, but I think it&#x27;s worth it.</li>
+    <li> Great price, highly recommended , ty :)</li>
+    <li> Very good, fill my need and decent price for a good quality. Recommended.</li>
+    <li> Q. Tips. Done, name brand only, I hate the knock off cheese bag wanna be store brand garbage.</li>
+    <li> I like to purchase Q-tips BECAUSE they are stronger than the 99cent/dollar tree...or any other brand of ear swab. My ears develop a lot of ear wax every day and need good swabs to clean the stuff out. I carry some in my car/ everywhere. So, I need the good kind - these do not feel like the sturdy strong Q-tips that I usually buy. I like to clean my ears with a strong Q-tip and these bend when you put too much pressure, which defeats the purpose of cleaning well. Definitely going to NOT purchase these again --- when I finish them (sigh). I&#x27;m sticking to my usual buy somewhere else - even the regular one packs of Q-tips. If you like strong &amp; sturdy Q-tips these are NOT it. Other people in my home have also mentioned this.</li>
+    <li> The paper stick is not very sturdy, and the quality of cotton is not very good.&lt;br /&gt;&lt;br /&gt;Bottom line: the cotton part is not likely to &amp;#34;fully&amp;#34; come off. However, I am always afraid some of it would.</li>
+    <li> Lots, and lots of Qtips at a good price</li>
+    <li> Great Value!  Been using the same cotton swabs for at least fifty eight years.  Tried cheap ones, they are not good.</li>
+    <li> These Qtips work great!</li>
+    <li> i&#x27;ve never used better cotton swabs made by another company.  they are the most durable and best quality i have found.</li>
+    <li> I  dont know why anyone would need to buy 1875 Q-Tips at a time but if you need them all at once then this is a great deal. I bought them becuase I like to have extra for when I run out. Overall great deal, we all need clean ears.</li>
+    <li> Like the title says but for the price you cannot beat it.  We&#x27;ve tried store brand cotton swabs and nothing compares to Qtips.  At this price we won&#x27;t have to buy them for years.  Another great deal from Amazon.</li>
+    <li> Great 3 boxes of qtips! I really love having a lot of them so I don&#x27;t have to worry about going to go buy them all the time so this is perfect! This company makes great quality  qtips worth a good grip and a stick that is strong enough to withstand even the most severe ear cleaning. Also great for makeup and makeup removing. I use qtips for putting oil on my face. They are just very useful to always have around!</li>
+    <li> Nothing beats this brand and im one who purchased fses &amp;#34;as compared to&amp;#34; items. Have never found anything as soft as these.  Gentle on my ears.</li>
+    <li> I like Q-tips the best!  I&#x27;ve bought cheap copies in the past and had the horrible experience of having the cotton stay in my ear and have to use tweezors to fish it out!</li>
+    <li> OLD FASHION Q-TIPS ,YOU CAN GO TO &#x27;CHINA&#x27; WITH THESE THINGS BUT DON&#x27;T, I&#x27;VE HAD TO SPENT SOME E.R. TIME FOR BEING OVERLY AGGRESSIVE WITH THESE SWABS. FOLLOW THE INSTRUCTIONS &amp; YOU&#x27;LL BE FINE.</li>
+    <li> AVOID  AVOID  AVOID!!!!  ITEM CAME AS A 3 PACK.  2 WERE SHRINK WRAPPED, LOOKED LIKE AFTER MARKET AND ONE LEFT ON ITS OWN.  OPENED THE BOX AND Q TIPS WENT EVERYWHERE.  THE Q TIP BOX WAS TORN IN ADDITION TO THE GLUE AGING AND CRACKING.  THIS IS THE MOST DISGUSTING EXPERIENCE I HAVE HAD TO DATE FROM AMAZON SINCE YOU WOULD HOPE THIS ITEM WAS PACKAGED WITH HYGIENE IN MIND.&lt;br /&gt;&lt;br /&gt;I THREW IT STRAIGHT INTO THE GARBAGE, I&#x27;M NOT GOING TO WASTE TIME REPACKAGING THESE AND MAKING A SPECIAL TRIP TO SEND THESE BACK NOR WOULD I RISK USING ANY OF THEM.  IT ACTUALLY LOOKS LIKE SOMEONE TRIED TO STUFF Q TIPS INTO THE PACKAGE, POSSIBLY FROM OTHER PACKAGES.  WALMART DID A MUCH BETTER JOB OF THIS WHEN I ORDERED FROM THEM A FEW MONTHS BACK.</li>
+    <li> I wont use any other brand and these are a great deal with lots of them so you wont run out.</li>
+    <li> I felt like these Qtips were the redheaded stepsister of the Qtip family.  The packaging was terrible - so loose that a few of the boxes were already basically open and spilling out when they arrived.  And I feel like the stem part wasn&#x27;t as stiff as the Qtips I&#x27;ve purchased at the store.  They had too much bend, making them less useful for their intended purpose.  I may as well have purchased on off-brand version.  Maybe they were the inferior rejects and sold in bulk at a discount for that reason.</li>
+    <li> What can I say about these guys? If you want to buy cotton swabs these are the &amp;#34;go to&amp;#34; brand. I&#x27;ve tried skimping on cheaper cotton swabs and keep coming back to these babies. They have more cotton on the end and as comfortable as you can get for ears (I know, I know you&#x27;re not supposed to put them there).</li>
+    <li> Big pack at a low price.  Original Qtips are definitely better than the cheepo Qtip wannabe generic swabs that hurt your ears.</li>
+    <li> Nice to have items delivered straight to my home. Price was ok and product is just as good as its been since the beginning of time.</li>
+    <li> I have used these cotton swabs since i was little and they are amazing. i have clean ears and only use one.</li>
+    <li> Before I invested in these, my earwax had grown to epic proportions. But of course, I didn&#x27;t realize I had a problem because I couldn&#x27;t hear anyone telling me how disgusting my ears were. Thanks, Amazon!</li>
+    <li> They are q-tips and they are the only swabs I will ever use. Great value for the amount you get.</li>
+    <li> I have clean ears!!!!!</li>
+    <li> Best deal I could find!</li>
+    <li> I like this one especially the handle part is made by paper.  The feeling is different than the one with a plastic handle when using on ears.</li>
+    <li> I have had terrible luck with the quality of generic brands,  so I only will use q-tip. Love them and the price was fair.</li>
+    <li> This brand has always exceeded the quality of other brands, including store brands. Have using for over 60 years &amp; find this one holds it&#x27;s shape better than the others.</li>
+    <li> Good All-American product.  Q-tip works great for the not-recommended use of picking your ears.  It is a must have in any home!!!</li>
+    <li> This is the only brand of cotton swabs I will use.  Amazon has a better price than the department stores.</li>
+    <li> With all the brands to choose from, there is still nothing like the original Q-tip.  It is still the only brand I use.</li>
+    <li> I need to order some more. Those limp wristed paper sticks you get from drug stores type Q-Tips just don&#x27;t make it.</li>
+    <li> Everybody&#x27;s ears are clean!</li>
+    <li> Only the finest of Q-Tips for my ears.</li>
+    <li> For my money, Q-tip makes the best cotton swab for cleaning my ears.&lt;br /&gt;&lt;br /&gt;The quality is constant - all tips have adequate padding (read: you will not inadvertently stab yourself in the ear with something pointy).</li>
+    <li> We go through these things like crazy at my house. It was nice to find them in a bulked pack like this. Everything was as expected and it shipped in a good amount of time. Hopefully these will last us a while. I also wanted to mention this is my favorite brand of Q tips. I have used others and they fall apart while you use them. If you’re having that trouble with yours I would recommend trying this brand.</li>
+    <li> Q-tips are Q-tips.  An excellent product.</li>
+    <li> arrived on time, works as described</li>
+    <li> Nothing amazon can do Johnson Qtips has made there product with hardly any cotton on them to save money but it will not work in the ear shame on them.</li>
+    <li> love the choice to buy in such a large amount and at the price, how can you go wrong?  will definitely buy again and would recommend buying this size to all.  we have 3 bathrooms so we put a box in each bathroom and don&#x27;t have to worry about running out any time soon.</li>
+    <li> Of course Q-tips brand is the very best, hands down, and getting 1875 for next to nothing (including Amazon Prime free shipping) was a bonus.  Can&#x27;t go wrong.</li>
+    <li> These are the only cotton ear cleaners I use. Others seem cheap and flimsy to me. The price was great and I would definitely buy it again once these run out.</li>
+    <li> There isn&#x27;t much variance here - they&#x27;re Qtips. Unlike generic brands, the cotton doesn&#x27;t come off the stick at all. Other than that, it&#x27;s pretty much business as usual. Nice price-per for being a major brand.</li>
+    <li> Much better than those cheapo off-brand Qtips you&#x27;ll find at the dollar store. Good amount of cotton on the tip, solid shaft, what more do you need in a Qtip? No complaints.</li>
+    <li> Best brand of cotton swabs.&lt;br /&gt;would not use other brands.&lt;br /&gt;just the right size.&lt;br /&gt;don&#x27;t think I can live without it.</li>
+    <li> All around great! Found this to be the most worthwhile... 3 packs for a good price, makes it easier to have around when needed!</li>
+    <li> Took away one star because it bends really easily. It does the job though. You get what you pay for</li>
+    <li> Great deal! Great transaction!</li>
+    <li> I would never be without this product. They are not only excellent for cosmetic use but they can be used to clean tile, cracks and crevices.</li>
+    <li> Perfect condish. Arrived on time. If I ever run out I&#x27;ll order more.</li>
+    <li> Eargasm when using these just after my daily shower. My day wouldn&#x27;t be the same without this invention.</li>
+    <li> I prefer Q-Tips over other brands. They seem to be softer. This three pack was a great buy. I gave my sister and brother a pack and the one I kept will last me for the rest of the year probably.</li>
+    <li> What can we say is the brand you trust Qtips. The best thing I love about this was the price. I went to walmart to buys some but they are so expensive like 15 for 3 packs I was like no thank you. Then I saw this and I got them. The product comes in its original packaging.</li>
+    <li> They&#x27;re not made like they use to be BUT they are better than the alternative.</li>
+    <li> I like Q-tips than any other brand product.&lt;br /&gt;This was great offer.&lt;br /&gt;I would love to purchase it again soon.</li>
+    <li> Have tried several discount chain swabs and felt like Goldilocks every time... one cheap swab was just too sparse at the tip, another started unraveling at the thought of being used, and a third brand&#x27;s plastic stem just plain ol&#x27; felt like a stick in your ear. Then I came back to Q-Tips, and truly wonder why we ever tried the others.&lt;br /&gt;&lt;br /&gt;Q-Tips have just the right amount of bend-but-don&#x27;t-break to &#x27;em, they have a proper amount of cotton, and they are definitely built to do their job. I work in cosmetics and our store just never seems to have enough supplies, so 1,000 or so are heading to work with me tomorrow (and my ladies at the counter will be sooo happy!).&lt;br /&gt;&lt;br /&gt;A couple of the packs will also be heading to our daughter in college... she came home for Fall Break intending to &#x27;steal&#x27; a few, but we were out. Now we&#x27;re not, and we promised to send them in a care package; think she expects 1,350? Ha!&lt;br /&gt;&lt;br /&gt;While most get used for typical make-up and hygiene needs, Q-Tips are outstanding for other things too. For example, our son races remote control cars and uses Q-Tips when cleaning his motors and transmissions. Additionally, my husband spends a lot of time at the range maintaining his qualifications, and he uses Q-Tips for finishing touches when cleaning the inner workings of firearms.&lt;br /&gt;&lt;br /&gt;Am very glad to have found them in bulk through Amazon&#x27;s Add-on program, bringing the price equal to or less than what we paid for the discount ones. Outstanding.&lt;br /&gt;&lt;br /&gt;Q-Tip cotton swabs have been around a long time and, given their excellence, will continue to be around for a long time to come. Excellent product. Highly recommended.</li>
+    <li> Exactly what I expected.</li>
+    <li> Excellent value. At the grocery store they are nearly double this price. I usually use about four a day, two in my nose, two in my ears. Individual use may vary. I have heard of all the extremes believe me. Some people use more, some less. You probably don&#x27;t usually have three giant boxes on hand but if you use them every day like I do you&#x27;ll go through them soon enough and you&#x27;ll be glad you had this supply on hand. When Armageddon comes there are four things you&#x27;ll want: (1) water; (2) batteries; (3) Q-Tips; (4) protein bars; (5) Zorro Mask. I guess there were five things you need. The Zorro mask is for disguising yourself if you need to go steal s**t from other people.</li>
+    <li> Have been getting these for some time. LOVE Amazon prime and the Subscribe and Save program.&lt;br /&gt;&lt;br /&gt;They are Q-Tips, can really tell you about the product other than for this purchase I def prefer name brand.</li>
+    <li> Keeping your ears free of waxy debris will help you hear such wonderful things as:&lt;br /&gt;mundane, vapid conversations from strangers you pass on the street.&lt;br /&gt;cats fighting in the dead of night.&lt;br /&gt;the neighborhood ice cream truck as it nears your dwelling with sweet frozen treats.</li>
+    <li> The package came quick and in good condition. With this amount for the price paid is a great deal. With is amount I will not run out for a long time.</li>
+    <li> I&#x27;ve tried other swabs and they never measure up to Qtips brand. Used a cheaper brand and had to go to an Ear Dr. to get the tip pulled out of my ear so I&#x27;ll never try a cheaper brand again.</li>
+    <li> These are the ones you want, has the perfect amount of cotton and stick firmness. All other brands I have tried either the cotton comes off too easily, or the stick gets bent out of shape.</li>
+    <li> Or doctors, or anyone else.  These bad boys go DEEP into my ear every single day. I&#x27;m talking mandingo-like penetration of my ear canal, but with less crying.</li>
+    <li> Good Product.Arrived Promptly and as described.</li>
+    <li> couldn&#x27;t pass up the deal</li>
+    <li> I purchased these qtips because I thought they were similar to the Qtip wood sticks. The photo looked like the sticks were wood.  Unfortunately, they were plastic.  The wood is stronger and does not bend.</li>
+    <li> The paper stick is very weak, would be better if they were wood.</li>
+    <li> I value the amount of Qtips received.  I have enough to last for quite sometime.  Their use is for arts and crafts as well as makeup and the removal of unwanted makeup.</li>
+    <li> unopened yet...inventory control</li>
+    <li> My son loves these he takes the water out of hie ear. I have told him that he will need not to use these for his ears. He doesn&#x27;t believe me.</li>
+    <li> very good quality if you buy this pack you will not have to worry about running out of q tips for a very long time.</li>
+    <li> I don&#x27;t know why, or how, but I really feel like actual Q-tip brand &amp;#34;cotton swabs&amp;#34; are the best on the market! The other day my husband tried putting an off-brand in the cart, asking, &amp;#34;Do you have a brand preference?&amp;#34; Thankfully I had already ordered this three-pack so I didn&#x27;t have to admit that YES! I DO HAVE A BRAND PREFERENCE! NOT JUST ANY COTTON SWAB WILL DO!&lt;br /&gt;&lt;br /&gt;In my younger years I tried the cheapest options for everything, but I&#x27;ve found through the years there are several things you don&#x27;t want to skimp on: Toilet paper, underwear, and Q-tips are three on the top of that list.&lt;br /&gt;&lt;br /&gt;A lot of other cotton swabs have a plastic base, and often that base is empty, so they bend and twist and don&#x27;t have any grip, traction, or provide any  kind of fulcrum for proper cleaning. Not to mention that the cotton on the swab can be scratchy, or there just isn&#x27;t enough on there, and then it&#x27;s not properly attached so wherever you put the swab cotton is left behind.&lt;br /&gt;&lt;br /&gt;Don&#x27;t settle for less than the best, my friends.&lt;br /&gt;&lt;br /&gt;If you have any pressing questions about Q-Tips, let me know and I will answer your questions to the best of my ability.</li>
+    <li> I would rather critique a Broadway show.&lt;br /&gt;&lt;br /&gt;Julia grattan</li>
+    <li> great pack of q tips, environmental friendly, good deal for everyday use.</li>
+    <li> Good swabs..very good value.</li>
+    <li> I really like these Q-tips.</li>
+    <li> We will have clean ears at our home for a LONG time!</li>
+    <li> Price too hi. $8.99 in BJ&#x27;s</li>
+    <li> We all know that Q-tip brands are better than the store brand. Why? Because the little wood sticks don&#x27;t break off in your ear, the cotton is wound tightly enough to be able to use it and there is enough cotton not to poke yourself with the stick when using. It sounds basic, but I have found many off brands to have little to no cotton or too much cotton. Q-tips have mastered the art of the stick to cotton ratio. This isn&#x27;t a life or death decision, just buy them.</li>
+    <li> No surprise. Have used these for years. Fair winds and following seas for all of our men &amp; women who go into harm&#x27;s way on our behalf.</li>
+    <li> Have tried several brands but this one seems to have the most cotton on the tip and it does not come off when used like the cheaper ones will do.</li>
+    <li> dont buy cheap swabs. buy this.</li>
+    <li> There Q-Tips, not much to review.</li>
+    <li> Arrived in perfect condition and great value,  especially for families.</li>
+    <li> I like name brand q-tips because the middle part is really sturdy vs. the non-name brand ones. These work great and were a good value</li>
+    <li> 3 for the price of one...</li>
+    <li> high quality. good product . large amount of swaps. I think they are enough for 2 years using in normal.</li>
+    <li> Made the mistake of opening one of the packages in the vain hope that these swabs might be durable.  They are not durable.  They lint up terribly and the rolled paper sticks are so soft they bend with very little pressure.  OK for babies, but not for me.  Will try to find someone who can use these.  Just ordered some wood stick swabs that can get the job done.</li>
+    <li> Still using it after nearly two years of purchase.</li>
+    <li> I clean my ears twice a day and this is the only brand I will use. They say not to put them in your ears but, I like to live dangerously.</li>
+    <li> Had no problems with these cotton swabs. Has plenty of cotton and doesn&#x27;t bend like other cotton swabs I&#x27;ve had before</li>
+    <li> What can I say they are Qtips. However, never put them in your ears. When you put these in your ears you do more harm then good. Use theses for make up, cleaning small things, applying topical Medicean and other various things.</li>
+    <li> There is no better cotton swab than this brand.  I have tried generic ones and they just don&#x27;t perform the way that these do.  They are not as stiff or as soft.</li>
+    <li> This pack of 1854 Q-tips is a great value, especially with the free SuperSaver shipping (on orders over $25). I used the Subcribe and Save option and saved an additional 5%, bringing the cost for each one down to 1 cent.&lt;br /&gt;&lt;br /&gt;They are the same Q-tips we all grew up using, with rolled paper stems and cotton tips. They&#x27;re useful for so many small jobs besides cleaning ears - removing makeup or nail polish applied in the wrong place, using peroxide on small wounds, cleaning the \\&quot;eye\\&quot; on CD players with rubbing alcohol, reaching down into small vases that need cleaning, cleaning out thin tubing.&lt;br /&gt;&lt;br /&gt;We haven&#x27;t had any problems with the stick bending too much or the cotton tip unwinding, like some reviews have stated. And of course they never go bad even after years of sitting in the closet, so stocking up at a good price makes sense.</li>
+    <li> Just what you&#x27;d expect.</li>
+    <li> These are the best quality and price for cotton swabs that I have found yet. Kudos.</li>
+    <li> Let&#x27;s see....what can you say about a cotton swab?  The cotton stays on these, I got a huge amount of them for just a few pieces of money.  That&#x27;s about it.</li>
+    <li> The cotton tip could be a little thicker</li>
+    <li> I&#x27;m always tempted to purchase the generic version of a product.&lt;br /&gt;&lt;br /&gt;However, there is a reason people call these things &#x27;Q-Tips&#x27; and not &#x27;cotton swabs.&#x27;  They&#x27;re the best!&lt;br /&gt;&lt;br /&gt;Well worth the money.</li>
+    <li> If you have the room to store these, this is a great way to purchase Q-tips.  We keep a container in each bathroom and a spare in the linen closet in case one empties.  I will do this again when we finally run out.</li>
+    <li> This is an enormous amount of qtips, however, there are 100&#x27;s of uses for these. I use them to clean my ears, and my guns.&lt;br /&gt;&lt;br /&gt;Just make sure you aren&#x27;t like that guy on the infomercial and burst your eardrum by shoving it into your ear.</li>
+    <li> What can I say about Q-tips? They work. They are great. They are comfortable and they don&#x27;t hurt your ears like those cheap brands that have just a stick with hardly any cotton on top. I use the cotton swabs mainly to clean up my eye makeup after applying it - it&#x27;s just a nice cleaner that can take off the extra makeup or clean up the parts that get close to my eyes, and of course to clean my ears!&lt;br /&gt;&lt;br /&gt;Best brand of Q-tips and thank goodness that Amazon carries them, because I&#x27;ve practically stopped going to Target altogether. :)!</li>
+    <li> We use these for so much and this is a great buy</li>
+    <li> Q-Tips are such a staple around the house. They clean your ears, and tight spots you can&#x27;t reach with a brush, they&#x27;re perfect for makeup and makeup remover, applying pain gel to a back tooth, whitening nails, they&#x27;re good for lighting burned-down candle wicks, and dipped in oil can be used to lubricate hard-to-reach machinery parts. These are the original Q-Tips, the ones with the rolled paper stick, and they&#x27;re still my favorite. You can bend them in the middle and make them even more versatile. The cotton is thick and cushiony and tightly wound, so you don&#x27;t have to worry about little bits of fluff coming off and getting stuck in whatever you&#x27;re cleaning. And you can&#x27;t go wrong buying a three-pack. They don&#x27;t go bad, and you know you&#x27;ll be using them.</li>
+    <li> The original, and still the best, with ample cotton on the tips. Your ears will thank you.</li>
+    <li> On time and as promised.</li>
+    <li> its a q tip what do you expect</li>
+    <li> This product came on time and I had no problems with it. If you need Qtips and don&#x27;t mind waiting for them to ship, this is a great, easy way to do that.</li>
+    <li> I purchased about the same amount a few years ago and was finally about to run out. I was actually excited when I got my new packs in the mail. But once I opened the box, I can tell just by looking at them that they were not the same as before. They did not feel the same either. There was less cotton on each tip compared to my boxes from before. Disappointed. Wish I kept an old unused one to show the difference. It might not matter to some people, depending on how you use them.</li>
+    <li> When I bought these I assumed they were at a decent price but have since found out that they can be purchased at Walgreen&#x27;s online for almost $6 less. And with a min order of $25 the shipping is free. We go through a ton of QTips here so when it came time to order again we bought five 1875ct packages and saved a lot.</li>
+    <li> I have used Q-tips since I was a kid. I have a bad left ear, I use for make-up, when I wear it. I&#x27;ve used them for so many things I can&#x27;t remember them all. I have noticed that the &amp;#34;stick&amp;#34; is not as strong as it used to be. They can bend using them in my ear. I don&#x27;t need any guff on using in my ear. You don&#x27;t know the situation. Has nothing to do with seller, they don&#x27;t make them. I will continue to use them till I can&#x27;t anymore.</li>
+    <li> I really don&#x27;t like it when I run out of q-tips, so I try to have at least one backup box stashed away. This pack of 3 large boxes makes it really easy to keep myself supplied.</li>
+    <li> If not use these and see if it was just your ears being dirty!  Nice big set of Qtips.  I love the brand.  Wouldn&#x27;t recommend a no name brand considering where they are going.</li>
+    <li> Very good quantity for the price.</li>
+    <li> Who doesn&#x27;t love clean ears? I hate wax build up in my ear canal and these little guys do the job. I was happy to find them at such a good price on Amazon prime - less expensive at the time than Costco or our local drug store, in fact.</li>
+    <li> Exactly what I expected!</li>
+    <li> I bought a 3pack on Amazon and found they did not have the quality I hoped for (Thin sticks, small amount of cotton on end). They used to have a lot more cotton and stiffer sticks. I hope this is just a bad batch and that the company hasn&#x27;t thinned out their quality.</li>
+    <li> I&#x27;ve actually been living in the United Kingdom for the past five years, and sadly Q-Tip brand has not made it across the pond.  I have tried every brand that sells a cotton bud over here, but no matter how big or soft the cotton bud is, the stick is always made out of plastic. This means that my ears are always left sorely wanting of a better clean.&lt;br /&gt;&lt;br /&gt;Q-Tip brand cotton buds are exactly as you need; Large cotton balls stuck on semi-rigid paper sticks.  They bend slightly under firm pressure, allowing for a custom fitting bud every time, for those hard to reach areas.  After five years, the world is a better place with these Q-Tips back in my life!</li>
+    <li> ....well they work...good price...</li>
+    <li> These will last you FOREVER. Great deal, qtips is a quality brand.</li>
+    <li> This is a really good deal! I keep these handy for the house and to put in with baby shower gifts. GOD BLESS!</li>
+    <li> People who have that itch know that the addictive swabs are so awesome at scratching that certain itch.  They do their job great and this is one place where you do not want to risk generic junk when this one works oh so well.  They are great at so many things and have high quality cotton.  I have rarely ever had the cotton come off or look uneven!  Would recommend to anyone for ears or other work needed.  One of life&#x27;s best inventions!</li>
+    <li> I use these things for countless tasks - and this is a great price to have them delivered to your door. I can&#x27;t stand the imitation qtips with flimsy cardboard or plastic... these are the real deal.</li>
+    <li> These are so much better than the off brand&#x27;s product.  I have a subscription so that we never run out.</li>
+    <li> Some things cannot be bought generic and Q-tips are one of them.  The wooden shaft is sturdy and the cotton is packed just right on the ends.</li>
+    <li> Good product, just like in the store.  Firm sticks and cotton doesn&#x27;t come off end.  I generally recommend the branded version like this.</li>
+    <li> Nice to get 3 packages for 1875 count.  Wish the cotton tips were tighter as they seem loose and flake too easily.</li>
+    <li> Bend too easily.  I never paid attention but I think Q-tips were stiffer and held up longer during use in the past. Now instead of 1 Q-tip getting the job done I have to use 2-4.</li>
+    <li> THESE R THE ONLY COTTON SWABS I&#x27;LL USE. THEY ARE QUITE SIMPLY THE BEST SWABS ON THE MARKET. BEING ABLE 2 BUY THESE IN BULK AT THESE LOW PRICES IS JUST THE CHERRY ON THE CAKE. I WILL BUY BRAND X FOR MANY ITEMS BUT NEVER 4 MY SWABS. THE RATIO OF COTTON 2 CARDBOARD STICK HAS BEEN PERFECT 4 ALL MY 55YRS + THEY STILL MAKE EM THAT WAY TODAY. QUALITY CONTROL AT ITS BEST! HIGHLY RECOMMEND!</li>
+    <li> Great value here. Can&#x27;t go wrong with the price or quantity. It&#x27;ll last me a few years at least. Will buy again.</li>
+    <li> I won&#x27;t use cheap knock-offs anymore since a cheap version allowed the cotton to come off and it caused a very painful injury to my ear canal. These Q-tips are great quality with perfectly sized cotton tips, we will be ordering more in the future. Subscribe n Save saved us money over the box store, was easy to use so as not to have to battle the weekend shoppers and we didn&#x27;t have to play hunt n seek since our local box store is never consistent on location within their store hence they cannot seem to make up their mind as to where to place these within the pharmacy department.&lt;br /&gt;&lt;br /&gt;Btw there are *excellent* for cleaning in tight spaces, such as Camelbak Bite Valves and the lids where the straw attaches, the tiny recesses in electronics as well as in keyboards.  I use a tiny bit of rubbing alcohol where appropriate for extra cleaning power.</li>
+    <li> I don&#x27;t think I&#x27;ll need to buy more for a decade. These are sturdy and the tips are on securely.</li>
+    <li> For the next 2.5 years I will have clean ears.</li>
+    <li> The numbers of ear cleanings and household uses staggers the mind.</li>
+    <li> Can&#x27;t beat this price!</li>
+    <li> They are qtips. They are great. I use them to clean my ears after a shower.&lt;br /&gt;&lt;br /&gt;Lots of them for the price. Dont see myself running out any time in this decade.</li>
+    <li> Tried and true product.  The stick is to fixable.</li>
+    <li> don&#x27;t use for your ears...i had no idea!</li>
+    <li> Use a lot of these and think this is a great price for the amount you get!</li>
+    <li> Regular Qtips, nothing really special to mention but then again they are Qtips, they do what they do and thats it</li>
+    <li> I use these for so many things.. from make up to cleaning. I&#x27;ve tried other brands and so far this is the only one that the stick doesnt break or bend with the slightest pressure.</li>
+    <li> I have tried other brands of cotton swabs but these are the best.  Because this was an &amp;#34;add-on&amp;#34; item, the price was fantastic!!!  I ordered enough to last us for months.</li>
+    <li> It&#x27;s a pack of cotton swabs.  Works for my household wevery well.  There&#x27;s enough cotton at the tips so you don&#x27;t feel the stick.  You can place a box in every bathroom or bedroom.  I can get the pack at Costco, but it&#x27;s a hassle sometimes.  Having it delivered is just the best thing.  Subscribe and Save rocks!</li>
+    <li> ...but never, never Q-Tips.  I have never found  a drugstore or alternative brand that has the same padding, the same stick strength, the same usefulness.  Since I don&#x27;t like poking myself with sharp sticks, I stick with OEM Q-Tips, always.</li>
+    <li> It&#x27;s qtips not much else, feels good, decent handling at a decent price. I use it for a bit of everything, in the bathroom, cleaning, or for DIY projects. No problems.</li>
+    <li> In my opinion Q-Tips are the best cotton swabs on the market. They&#x27;re the best I have tried. I purchased these swabs from Amazon.com once before. We have a cat that has a lot of problems with his one ear. It gets buildup in it. We have to clean his ear every few days. So we use a lot of swabs. If we don&#x27;t do it he scratches at his ear until he gets it sore.&lt;br /&gt; Back to the swabs. They came quickly. I ordered them with other products, so I received Super Saver Shipping. Free shipping is nice! No complaints. I&#x27;ll be purchasing them again.</li>
+    <li> We use Qtips to clean off key boards and mouse and headset  components.</li>
+    <li> I am sticking with Q-tips.  Every time I purchase an off brand, I am unhappy...so I am sticking with Q-tips.  I am grateful to have it delivered to my door with the subscribe and save discount.</li>
+    <li> These guys get the job done, I will only buy q tip brand bc generic can be flimsy &amp; that doesn&#x27;t work for m e</li>
+    <li> Q-Tips - What can you say?  No need for a review here really. Everyone knows how these work.  Great value.</li>
+    <li> my frickin ears are sooooo clean now i just cant fricken believe it!!! im gonna use all these in one day</li>
+    <li> Good deal for a good price.  I always forget to buy qtips so this was wonderful and now I&#x27;m set.</li>
+    <li> Great! Was on sale so I jumped on the chance to buy it. Qtips brand name qtips are the best in terms of quality and consistency. I&#x27;ve tried many other generic brands and they always have wispy cotton swabs that unravel when I use them. This is the only brand Qtips that I recommend.</li>
+    <li> oh god why did i buy so many q tips.  I live in a tiny apartment.  storage space is valuable!  This is a 4-year supply of Q-tips for me.  all just to save a few bucks when buying bulk.  but these are quality q-tips.</li>
+    <li> I have ordered these several times from Amazon.  Good quality and price.  I order a couple at a time and keep them in the hall closet, as our family goes through them fairly regularly.  Good product (QTips are the best swabs), and good price and convenience from Amazon.</li>
+    <li> This multi-pack is a fantastic deal. I&#x27;ve used all the grocery store brands, some of which are okay, but Q-Tip is the gold standard. They do vary a tiny bit from purchase to purchase in the amount of cotton on the tip, but the level is never unacceptable or uneven throughout the package, like most other brands, and you don&#x27;t get duds in the package with almost no cotton, like you do with those other brands, either. Always worth a bit extra, even without the great deal.</li>
+    <li> Q tips are handy for everything.  The quality of these cotton swabs is much better than the store brand knock offs. Amazon has these for a great price.  I reccomend!</li>
+    <li> Review Q tips. Really? Ummmm, I wanted a mess of small sticks with cotton on the end to clean small spaces I could not get my fingers into. This product was excellent for that purpose, and at a good price too. :)</li>
+    <li> When you&#x27;re looking for Q-tips and needs a lot of for your household this was a great buy, better than some deals at Walmart.</li>
+    <li> This product  for the amount that is in the package is a good price.  It beats all the other quote I received.</li>
+    <li> I bought these around 2 months ago, I haven&#x27;t gone though a quarter of one box.&lt;br /&gt;&lt;br /&gt;I am no QTip expert but they clean my ears pretty well and will last me forever.</li>
+    <li> Quality household product. I have been using Qtips my entire life and now the ease of getting it from Amazon.&lt;br /&gt;I tried other generic store brands and they just do not have the quality as qtips.&lt;br /&gt;&lt;br /&gt;Highly recommend it.</li>
+    <li> Cheaper than store, good deal!</li>
+    <li> There are no cotton swabs like Q-tips! I have tried the cheaper brands over the years and I always regretted it. I use Q-tips every day of my life and have for dozens of years! I should buy stock in the company! This is the standard which no one else has ever met. The tips are always soft and have &amp;#34;just enough&amp;#34; cotton. The sticks are firm and sturdy, but not hard. They can be used for just about everything: cleaning ears, applying makeup, putting creams and ointments in just the right spot, putting on lipstick, cleaning hard to reach places in kitchen and bath, artistic painting, touch up painting, just about anything you can think of!</li>
+    <li> No other brand compares to Q-Tip brand and this is the best value I&#x27;ve found. They are a must have in my house for a variety of uses. Will be back to buy more in the future.</li>
+    <li> Great price, but more importantly, these will probably last me three years.  That is so convenient.</li>
+    <li> I have always used Qtips as I think they are the best brand of all of the swabs.  I really liked being able to get this 1875 count here on Amazon.  It is a great buy.</li>
+    <li> The batch that I received were of good quality:  Cotton was wound heavily and tightly around the stick - this is important, to prevent loose cotton filaments from coming off the stick and getting stuck in your ear.&lt;br /&gt;&lt;br /&gt;The tightly wound cotton is also a must for working with electronics (used for cleaning contacts, connectors, switches, dials, etc.)  Again, this mitigates the hassle of fishing out loose fibers that have come detached from the swab.&lt;br /&gt;&lt;br /&gt;What more can really be said about a q-tip?&lt;br /&gt;&lt;br /&gt;A very decent price for enough good cotton swabs to last me for a couple years.  I have to go with five stars.</li>
+    <li> This brand is the best, the cotton is soft but does not fall off easily.</li>
+    <li> Who doesn&#x27;t love clean ears? I hate wax build up in my ear canal and these little guys do the job. These are the best Cotton Swabs I&#x27;ve used. They have lots of cotton, and don&#x27;t bend like other brands I have used. They are high quality and last a long time.</li>
+    <li> So glad i came across this deal! Noone goes through q-tips like my family.Can&#x27;t wait to purchase this again with hopes i get the same deal!</li>
+    <li> Exactly as expected... No surprises. love QTips... For everything! As a larger family, we go through a ton of them, so the value packs become a great value for s!</li>
+    <li> i hope they can make smaller package in the future because i don&#x27;t like it when it expose to the humid air from the bathroom for too long.</li>
+    <li> For many products I don&#x27;t mind buying the store brand. Last week I needed cotton swabs and picked up the grocery store brand. I&#x27;m disappointed. They have less cotton and feel cheaper than the Q-tip brand. True, I saved a bit of money going with the store brand compared to the brand name at the store, but Amazon&#x27;s price on the Q-tip brand was cheaper than the grocery store brand.</li>
+    <li> Nice quality swabs, and it is great to skip the drive to the store and all that.</li>
+    <li> From what I&#x27;ve found the Q-Tip brand does seem to have more cotton and the shafts are noticeably stronger than others. Was a little cheaper for me to purchase them here rather than waste gas and drive to the local wally world.</li>
+    <li> Those are regular quality Qtips, not too much cotton. While ordering it I didn&#x27;t realize that 1875 is A LOT. I think I have a life long supply and then some.</li>
+    <li> Bought these as a sale item through Amazon.  Great price and free prime membership shipping!  It will take my boyfriend and I awhile to use all 1875 qtips, but it is not like they expire!</li>
+    <li> I should have bought these at my local drug store, they would have been cheaper.  These arrived with one of the boxes opened, thus allowing the tips to fall all over the place.</li>
+    <li> I think it is useful for many reasons. See the outside directions for detailed information. The quality is good. I recommend it to everyone.</li>
+    <li> Nice bundle for the price.</li>
+    <li> I don&#x27;t know how long it&#x27;s going to take me to use all of these but it was cheap and delivered to my door by amazon. I put a box in each of the three bathrooms so that anytime I or someone in the house wanted one - it&#x27;s easy to find. The product is as expected - high quality with plenty of cotton on the stick. My ears don&#x27;t hurt after using these as sometimes they do with the cheaper cotton swabs. Overall very happy with the product and will buy again when I run out - however long that might take.</li>
+    <li> I&#x27;m actually surprised that these aren&#x27;t higher quality.  I have had Q-tip brand q-tips in the past, and I remember them having more cotton on the end.  These are fine, but when using them in the ear they are a little painful because there is not very much cotton.  Last time I bought q-tips, I went with Cottenelle brand, and they had more cotton.  But they also use plastic stick instead of paper, so I wanted to go with the paper sticks.  I&#x27;m not sure I&#x27;ll buy these again, I&#x27;ll look for an alternative with a paper stick and more cotton on the ends.</li>
+    <li> I thought I was getting the wooden ones but these are fine they are q tips and they are a great product.</li>
+    <li> Having tried others, I can only say that this is the best! They ship fast and most importantly they don&#x27;t skimp on product materials! The wood they use almost never breaks! I wish I hadn&#x27;t bought so much of the inferior one so that I could get more of these! Someday!!!!!</li>
+    <li> great!!! does what it shouldgreat!!! does what it shouldgreat!!! does what it shouldgreat!!! does what it shouldgreat!!! does what it should. c</li>
+    <li> never run out of qtips again!&lt;br /&gt;. . . . . . . . . . . . . .</li>
+    <li> I love reviewing items like this... what is there to say?  Everyone knows the brand Qtips, so if you like the price buy them!  I prefer this brand compared to the cheap ones, think it&#x27;s worth the extra money.</li>
+    <li> love shoving these things as far in my ear as possible, like i am tunneling to china through my ear</li>
+    <li> This is the standard for cotton swabs.  I wish the sticks were a little more sturdy but so be it.  If you can pay a unit price of $0.64 per 100 swabs then you are getting a good price.</li>
+    <li> ***&lt;br /&gt;[...]&lt;br /&gt;***&lt;br /&gt;&lt;br /&gt;These are great qtips! They are not the crappy plastic kind that bend or the wooden kind that splinter off in your ear. They are made out of hard rolled paper which makes them stiff enough to really go at your ears.&lt;br /&gt;&lt;br /&gt;The packaging is simply something you would find at Costco or Sam&#x27;s club. It&#x27;s just a bulk package of 3 boxes.&lt;br /&gt;&lt;br /&gt;Overall, this is a wonderful purchase and i highly recommend it</li>
+    <li> It was easy to receive via subscribe and save.  They have always been a great product.  Hopefully, this and other vendors won&#x27;t leave to the rate increases.</li>
+    <li> As described and great product.</li>
+    <li> Have to have my Q-tips!</li>
+    <li> great value and love this product</li>
+    <li> Q-tips are one thing I could never buy an off brand of.  We have all tried the other brands while at a hotel or staying with family.  Its just not the same.  Spare yourself the disappointment and buy the good stuff.  You can&#x27;t beat the price! Even at BJs, Costo, or Sams Club.</li>
+    <li> They&#x27;re q-tips - lots of &#x27;em! I&#x27;m a guy, so I&#x27;m not sure if there&#x27;s such a thing as a q-tip connoisseur, but these seem as good as anything I&#x27;ve ever gotten from a CVS, Duane Reade, or other pharmacy. This purchase should keep me stocked into the 2020&#x27;s!</li>
+    <li> I can&#x27;t be without this product. Q-tips is the best brand for me and they are also very sturdy. I tried others but this is the best.&lt;br /&gt;&lt;br /&gt;The only brand that matters.&lt;br /&gt;Important facts about Q-tips:&lt;br /&gt;1) they, as previous reviewers have mentioned, have more cotton at the ends.&lt;br /&gt;2) said cotton tends not to end up stuck to everything other than the Q-tip, as happens with generic brands.&lt;br /&gt;3) MOST IMPORTANTLY: the stick of the Q-tip is FIRM, not folding at the mere sight of an ear canal like every store brand swab does. since most people seem to disobey Q-tip packaging&#x27;s direct orders NOT to put them in their ears, I figure this information would have been more ubiquitously reviewed. but since it has not been, I&#x27;m happy to report that Q-tip brand swabs are up to whatever task, or ear canal, you care to give them.</li>
+    <li> Its a value pack of q-tips! The good quality. Amazon had them at a great price (especially with a coupon) so I couldn&#x27;t pass them up. Now I won&#x27;t need to purchase q-tips for the next year (at least)</li>
+    <li> This is a great price and bargain.  I now have them in the kitchen as well as both bathrooms.  There is a difference in real Q-Tips and the cheapies.  The cheap ones have cotton not as tightly wrapped on the stiff paper stick.  I even use them to clean pink mold out of an indented area in the coffe pot water holder.  It grows there because I fill the coffee pot too full.  Oh well, by the time the water boils I figure it kills the germs that might make me more resistant to anything out to get me.  Also, I learned a little trick from WebMD for itchy ears.  Yes, I get itchy ears and oily ears.  WedMD (and my doctor) says to mix white vinegar with water and use a Q-tip to clean your ears.  I know, I know, I&#x27;ve seen that silly commercial on TV - Ouch!  Bull feathers!  If your ears are dirty, clean them.  Don&#x27;t forget your makeup.  Baby oil, argon oil, olive oil, vegetable oil, ANY oil and a Q-tip will remove any eye makeup mistakes.  A 1,001 uses for sure.</li>
+    <li> Q-tips are the only brand of cotton swabs i purchase.  They have the desired cotton to stick ratio that is essential for a non-pokey ear cleaning experience.</li>
+    <li> This was a great purchase in many ways. First of all, the three pack was much cheaper than buying one individually and I know I&#x27;ll eventually use them over time though it does seem like I have an excessive amount now. The package arrived quickly and my ears are much cleaner now!&lt;br /&gt;&lt;br /&gt;Pros:&lt;br /&gt;- good value for a three pack&lt;br /&gt;- Qtips is a quality brand with well-made swabs&lt;br /&gt;&lt;br /&gt;Cons:&lt;br /&gt;- none</li>
+    <li> Qtips is the best brand of cotton swab I&#x27;ve ever used. I&#x27;ve tried several different brands over the years, trying to save a few bucks. Every time I&#x27;ve done that though, I&#x27;ve come to regret it. Other brands just don&#x27;t hold up as Qtips do. Qtips are stronger, firmer, and I believe get my ears cleaner than other brands.</li>
+    <li> I purchased this huge box (actually 3 boxes) of Qtips because I sent them to the Best Friends Animal Sanctuary in Utah.  They are a no kill shelter that takes care of all types of animals including dogs and cats, injured animals, etc.  They had a list of products that they needed in their newsletter and Qtips were one of the products.  I use nothing but the Qtip brand, this was a very good price for a lot of Qtips.  So, these went into the box I sent to the animals shelter.  I always find Qtips well made (the cotton does not shred or comes off the stick), and there is a lot of cotton on the ends (not like some of the cheaper products).</li>
+    <li> Good deal, real Qtips brand. Now all 3 women (mom and two grown daughters) in this household can have enough Qtips!</li>
+    <li> What can I say about Q-Tip Cotton Swabs?&lt;br /&gt;Q-Tips are the best there is, period.  They have never failed me &amp; are as versatile as the day is long.&lt;br /&gt;There are Q-Tips &amp; then there is everything else. No other brand is as good.&lt;br /&gt;&lt;br /&gt;I highly recommend these.</li>
+    <li> If Amazon is still around in 20 years when I run out of cotton swabs, I would definitely buy this again</li>
+    <li> they do their job. not too rough on the eyes and ears. love to use it for removing make up smudges.</li>
+    <li> I use a-tips for my makeup application and cleanup, so I go through them quickly. This bundle should last for a bit!</li>
+    <li> Excellent deal for the price!  Being able to stock up toiletries through amazon with great bulk values has literally changed the way we shop.  Thank you, Amazon!</li>
+    <li> Qtips are the best cotton swab out there.  I&#x27;ve used many generic brands over the years and none of them hold up like a real Qtip.  With generics you&#x27;ll find some swabs missing the cotton top, or the cotton isn&#x27;t stable on the end of the swab.  These deliver consistent quality.</li>
+    <li> I have tried other brands in the past but nothing is better than Q-tip.  Softer yet stronger, there is nothing better.  A product with a thousand uses.  This package set is a good price here on Amazon.</li>
+    <li> We live overseas and we can&#x27;t live without Q-tips. That&#x27;s why we buy them in bulk and carry them across the ocean. Cleaning your ears with anything else is just not the same.</li>
+    <li> Quality is so far, the best I have used. I am overseas now and really miss this brand out here.</li>
+    <li> These are the good ones with sturdy sticks. Recommend</li>
+    <li> Yup, Qtips are still the gold standard.  Good price and you won&#x27;t have to buy any more for years.</li>
+    <li> I can&#x27;t imagine being without a box of Q-tips in my bathroom or travel kit. This is a large quantity at a reasonable price that will keep me Q-tipping for a long long time.</li>
+    <li> Great price for the quantity when compared to any other retailer.  Saved at least $5.00 to $7.00 purchasing on Amazon.  Q-tips are the best cotton swab available with lots of applications.</li>
+    <li> + Price&lt;br /&gt;+ Quantity&lt;br /&gt;&lt;br /&gt;Exactly as pictured and described. They work great. I do love how you are warned against using them for the principal function that most people use them for (cleaning ears) on the box. Too many lawsuits I guess.</li>
+    <li> Great deal and delivery way before due date!</li>
+    <li> Perfect size for my ear hole, honestly I dunno how else to review a Q-tip.  The cotton doesn&#x27;t fall off in my ear.</li>
+    <li> Exactly what I needed</li>
+    <li> One box had a bunch missing cotton. Hit your ear drum with one of them and you&#x27;ll know why doctors don&#x27;t recommended using these for ears.</li>
+    <li> Who doesn&#x27;t love Q-tips.  This is a good deal.  Just observe the warning not to insert into ear canals!  Is there anything else they&#x27;re for???</li>
+    <li> Brand name and genuine, as far as I can tell.  This is a good value, having finally compared per count to some other brands in amazon.  Clean and undamaged package.</li>
+    <li> I&#x27;ve tried to use no name cotton swabs and learned my lesson, they were impossible to manuver, they broke and bent and made it impossible to clean the things I badly needed cleaning. There is NO substitute for authentic Qtips brand cotton swabs. Don&#x27;t do it. Buy these in volume, you will always need them.</li>
+    <li> Can&#x27;t go wrong with these!</li>
+    <li> They&#x27;re Qtips; A little pricey, but sooo luxurious. I can&#x27;t stand the cheap imitations. Buy in bulk. It&#x27;s not like they&#x27;ll ever go bad.</li>
+    <li> The price is nice and I can buy so many cotton swabs in a low price.&lt;br /&gt;But this is not what I want to buy. For one thing, the stick is easy to bend.&lt;br /&gt;And it is not very good for ear clearance. Maybe I will use it for makeup.&lt;br /&gt;Hopefully, it will be nice. I really need to consume them as soon as possible.</li>
+    <li> Lots and lots of qtips. You can have a qtip party with all these, cheap and effective I highly reccomend these!</li>
+    <li> We&#x27;ve used off brands before and ended up tossing them due to not enough cotton on the tips. These are great for crafts and all kinds of things, we&#x27;ll keep buying them.</li>
+    <li> always a good deal on prime as compared to our local brick and mortar..... we sometimes add this in to make our $35 goal</li>
+    <li> We use Q-Tips all the time for a multitude of things, including makeup applications, cleaning our keyboards and other electronics, applying ointment to scrapes and other &amp;#34;medical&amp;#34; things.  We go through a lot of them every month, so this large-volume package was great to find and very reasonably priced.</li>
+    <li> I&#x27;m not entirely sure what to do with them but I&#x27;m currently trying to figure out some what to turn Q-tip Jenga into a drinking game.  If successful I will report back.</li>
+    <li> If you need 1875 Q-tips, you should definitely consider purchasing these 1875 Q-tips. Do you really want to risk your ear health to inferior products made out of hard plastic and not enough cotton? Of course not. Buy these 1875 Q-tips. If you clean your ears once a day after every bath, these boxes will last you until 2019. What else is going to last you until 2019? Probably nothing.</li>
+    <li> Qtips cotton swap is the best brand of cotton swabs.  I use them all the time.I won&#x27;t buy anything else.</li>
+    <li> When I was young and poor (now I&#x27;m just poor), I bought generic cotton swabs ONCE. I found that they were inconsistent as to how much or rather little cotton was on each tip. Sometimes the stick had nearly nothing in the way of fuzz on it. I was a housekeeper at the time and I relegated the cheap brand to cleaning supplies.&lt;br /&gt;&lt;br /&gt;A multi-pack might seem over doing it for a two-human household, especially with a product count of 1,875 cotton swabs. Well, we keep them all over in addition to the bathroom.&lt;br /&gt;&lt;br /&gt;Electronics, I shouldn&#x27;t even mention how delicate scanners can be, and while a lint-free cloth works okay for the middle, you can&#x27;t really clean the corners of the glass without, you guessed it, a Q-tip.My husband and I like to play at art and Q-tips are great for blending. Then there&#x27;s the shop.&lt;br /&gt;&lt;br /&gt;So, this one had an Amazon.com coupon and I bought it.</li>
+    <li> These are good quality q-tips. They do not bend in the middle easily like other cheap brands do. Overall.. good q-tips.</li>
+    <li> How could you not buy this? Ok, so i ran out of q-tips and i&#x27;m not a fan of the generic ones so I bought this to ensure it will be a while before i run out again. You probably already have your own opinion on q-tips so i doubt anything I add will change your mind.</li>
+    <li> These are same Qtips that you would buy in a store, and these are a great price. Just be prepared to hoard 2 extra boxes of Qtips in your closet for a few months. This is probably a 1 year supply.</li>
+    <li> These are strong cotton swabs with the perfect size/density of cotton at the ends. I use them daily to clean my ears, and 2-3 times a week to clean up the last bits of nail polish cotton balls can&#x27;t reach.&lt;br /&gt;&lt;br /&gt;They&#x27;re just perfect for ear cleaning. I can&#x27;t really describe it; its one of those things you have to experience for yourself.&lt;br /&gt;&lt;br /&gt;I like to travel internationally and I ALWAYS bring Q-tips with me, since the brand is not widely available oversees. Once I forgot on a 4-week trip and had to buy flimsy plastic cotton swabs in a French grocery store. My ears never felt clean and the darn things bent all over the place and were hard to control. I&#x27;ve actually never tried a different brand in America. In my mind there is no need, as the perfect cotton swab is already in my reach.</li>
+    <li> Not much to say... they are q-tips... they have cotton ends... they don&#x27;t fall apart too easily... they are exactly what I expected when I purchased these.</li>
+    <li> Great value. I have q tips now in all three bathrooms with tons to spare. Very happy with this purchase</li>
+    <li> I use these every day and have for many years.</li>
+    <li> Now I can buy enough for even my wife can&#x27;t use up all the Q tips in one week. Buying in bulk helps.</li>
+    <li> Good price, quality product - it&#x27;s something i have setup on auto-ship every few months, wouldn&#x27;t go without it. Thanks</li>
+    <li> I bought this months ago and still using them. They work great for so many things and last for probably a year if not more.</li>
+    <li> What can you say about q tips? Shipping was fast.  These are qtips.  yes, yes they are.  Not too bad of a price.</li>
+    <li> almost too many, but good value</li>
+    <li> Item is easy to order online than going to a big box store.  Good quality and no issues, arrives right to the front stoop.  Buy with confidence.</li>
+    <li> can&#x27;t complain about Qtips. Great product used to buy these from costco, but since if you have the coupon sometimes it is the same price as costco. saved me some gas to drive to costco. I won&#x27;t use any other brands but qtips</li>
+    <li> As good as expected. Keep the good work!</li>
+    <li> Now I don&#x27;t have to blame selective hearing for actually not hearing you!</li>
+    <li> I love these!  It&#x27;s so hard to find regular q-tips that don&#x27;t have that awful plastic piece in the middle.  These have a rolled paper stick instead.</li>
+    <li> This is not the weak plastic tube type that falls apart or leaves cotton in your ear. Rather this is the solid stick with plenty of strength.</li>
+    <li> Arrived quickly and at great price!</li>
+    <li> My family and I have Qtips for years to come.  Exactly what I thought when I ordered and great deal for me as I live overseas and can&#x27;t find quality Q tips over here...</li>
+    <li> This is a nice pack and the same pack I used to buy at the big warehouse store.  Now with the subscribe and save I can skip the trip.  The only brand I use is the Q-tip as the quality is much nicer than any of the other options.  These are great.</li>
+    <li> What&#x27;s there to say about Q-Tips?  Useful for just about anything and work as intended.  Don&#x27;t go for knock offs.</li>
+    <li> We were disappointed to find that there were actually only 1872 Q-Tips. The Q-Tips that were shipped worked wonderfully.</li>
+    <li> Review by Wife-&lt;br /&gt;Qtip has always been by go-to for cotton swabs.  Unfortunately, the quality has on this product is not what i&#x27;d expect.  It doesn&#x27;t have the soft fluffiness that i&#x27;ve been accustomed to with the Qtip brand.  First i thought that the cotton was packed tighter, but i&#x27;m halfway through a carton &amp; have come to terms that there&#x27;s Just a lot less cotton on each swab.  I&#x27;m not sure if it&#x27;s this lot that i&#x27;ve purchased through Amazon, or that it&#x27;s the new standard.  The last set i&#x27;ve purchased was through Target &amp; Ulta, and they had the softer fluffier tips.&lt;br /&gt;Disappointed, since these swabs pull at my skin when removing under-eye makeup.  But i&#x27;d still say they are better than the free ones you&#x27;d get in your hotel toiletry kit</li>
+    <li> My girlfriend is always telling me I must have wax in my ears based on my never seeming to hear what she has said. I bought this pack of 1875 Q-Tips so I could be assured that was not the case.  I didn&#x27;t count to make sure I got all 1875, but it looks like it must be close.</li>
+    <li> great product and price. fast delivery</li>
+    <li> A great deal on a tried and true product.</li>
+    <li> Product as listed.  Prompt shipping</li>
+    <li> Good deal.  Probably last the rest of my life but at least I&#x27;ll die with clean ears.</li>
+    <li> It&#x27;s a q-tip.  Cleans my ears like a champ and doesn&#x27;t fall apart.</li>
+    <li> My husband goes through a lot of Qtips, so I bought him this 3 pack. The price was right and if you&#x27;ve ever used Qtips, you know that you&#x27;d getting a quality product. The stick part doesn&#x27;t bend nearly as easy as the generic brands you can get!&lt;br /&gt;&lt;br /&gt;I&#x27;d recommend this to anyone looking to save a bit on your bathroom products. You know you&#x27;ll probably end up using them, so if you have the storage space, spend less and get the 3 pack.</li>
+    <li> Great cotton swabs, they have been around for over 50 years for a reason, great for ear cleaning, and cleaning firearms, and model building, and a 1000 other uses</li>
+    <li> What can I say, Qtips are the best in my opinion.  The price was low and I am very happy with our purchase.</li>
+    <li> One of the Q-tips boxes had already been opened and something that looked like dirt had gotten into the box. Who wants to touch their face/ears with dirty Q-tips? I threw them out immediately, who would risk using them?! Pretty upset about this purchase!</li>
+    <li> WE all know Qtips.... no other brand has this quality.  The price is better than most superstores.  Great Quality and great value.</li>
+    <li> I use a Qtip or two after every shower. I cheaped out and got generic QTips and noticed that the shafts bend every time I clean out my ears! I have since returned to the QTip brand and have never looked back. I&#x27;ll pay a little bit more for a shaft that doesnt bend and cotton that actually stays in place.</li>
+    <li> Qtips are amazing! You can use them for cleaning objects, art projects, chewing, or medical use. Qtips in the typical hosuehold is used for cleaning ears though. Most people don&#x27;t realize how great it is for polishing jewelry, applying lubricants to small mechanical objects, and most of all, cleaning belly buttons!&lt;br /&gt;&lt;br /&gt;Most belly buttons smell horrible and are filled with disgusting build-up. If you buy these Qtips, you can use them to clean your belly button. With this amount you can do it on the daily basis! Trust me, a dirty belly button is disgusting and I have seen my share. Just clean your dang belly buttons, please!</li>
+    <li> I&#x27;m not all that brand loyal about a lot of products, but Qtip brand swabs are a must.  It&#x27;s the only reliably sturdy brand I&#x27;ve ever found.  Both the stick and the cotton part never unravel.  I HATE using cheapy swabs in hotels only to have the cotton stretch out in my ears or the sticks bend as I&#x27;m trying to use them.  These are well made, and the three pack is a handy quantity that lets me store a few extra under the vanity for back up.</li>
+    <li> My mom always told me not to skimp on cotton swabs and to always buy Q-tip brand. She was right. I&#x27;ve bought the 99cent store versions and they&#x27;re so flimsy and rough. It&#x27;s worth a few extra bucks for the real thing.</li>
+    <li> Great products for the price!</li>
+    <li> I only buy Q-tip brand because I have yet to find another brand that offers the same quality. I use these things for everything from crafts to make up to cleaning my ears. I really enjoy not scraping the inside of my ear out because some off-brand q-tip  skimped on the cotton. Plus when I bought these, it was a killer price.</li>
+    <li> Decent price, decent product, decent shipment speed, decent packaging.  What more can I say about this?  They are Q-tips. :)</li>
+    <li> What does one say about q-tips? Don&#x27;t use it in your ear. Who am I kidding, everyone who buys this product intends to stick it in their ear. Lacks bluetooth.</li>
+    <li> Excellent Product and great shopping experience.</li>
+    <li> Only the best in cotton on a stick for my family.  This isn&#x27;t the pokie kind that hurts before your shower water is dried up from your ear.  These are great and the 3 pack is an excellent money-saving deal.  We use these for cleaning up polish mistakes on our manicures, applying eyeshadow, cleaning up the edges on liquid eyeliner application, and cleaning delicate machinery parts (with rubbing alcohol).  They also help you get a better clean on your computer keyboard, since they can get down between the keys nicely.  I have noticed that when I buy another brand, we end up using a ton more because they don&#x27;t  have as much cotton for absorption and the sticks of other brands tend to bend or break more easily.  This is just the best quality for this type of product, in my opinion.</li>
+    <li> i use these all the time.they dont unravel like the generic brands. i use it to remove residual eye makeup and of course cleaning my ears</li>
+    <li> Great product.  I was happy to be able to buy a years supply for such an inexpensive price.</li>
+    <li> Great item.  Love Shopping at AMAZON Great Prices And Deals And Best Customer Service AAA+</li>
+    <li> It is beginning to become a running gag that I buy everything on Amazon, but when you can get what you want at a great price, why shouldn&#x27;t you? Qtips are just another one of those products that I buy here and never have to worry about running out of. Thank you, Amazon!</li>
+    <li> great deal and transaction</li>
+    <li> Great price and it will be a long time before I have to buy again. One of those items that I always forget when I go to the store. They are of great quality and was fastly shipped.</li>
+    <li> Scumbag doctors tell you not to use this item for your ears... but it&#x27;s so perfectly suited for the job...</li>
+    <li> This was a good buy when I purchased it.  Not sure if the price will continue to be good or not.</li>
+    <li> This was such a great deal. As long as you have the storage room needed for this many swabs, Grab It!</li>
+    <li> What is it about Q-tiping your ears that feels so good? I guess it&#x27;s because it&#x27;s a place you just can&#x27;t get to without them. And why is it so traumatizing when you forget to &#x27;tip after the shower and go outside? In my Top 5 Worst Feelings Ever, easily.&lt;br /&gt;&lt;br /&gt;I realize you&#x27;re &amp;#34;not supposed to stick things in your ears&amp;#34; but I&#x27;ve been using these since I was a wee lad and don&#x27;t plan on stopping now.</li>
+    <li> 1875 counts ! Assuming you use 2 per day, this will come for 3 years! These are good. I tried Johnson&#x27;s brand, and had to go back to Qtips. This is soft, and good for removing wax. Beware, don&#x27;t use too deep or often.</li>
+    <li> There are other brands that pass as \\&quot;Q-tips\\&quot; but this is the original.  The others are not nearly as good.  Q-tips have more cotton and are softer.  I use them for more than cleaning ears.  My latest find is that I can use them on my oil paintings to soften edges or to clean up an area when I messed up.  Just apply a little thinner and gently wipe.  Works great</li>
+    <li> I love buying this multi-pack - it&#x27;s so much more economical than buying at Costco, even with a coupon.  Will definitely keep purchasing!</li>
+    <li> the stems are paper and can bend.  There is too many of them for me.  Someone who uses a lot of them will be happy.  The price is very good.</li>
+    <li> Qtips are the only one that I buy. They don&#x27;t break and they have plenty of cotton on the end of them.</li>
+    <li> I don&#x27;t use a lot of cotton swabs, so I fear I&#x27;m not going to run out of these for years. They&#x27;re stiff enough and soft enough to clean my ears effectively.</li>
+    <li> What else can be said than there just isn&#x27;t a better constructed cotton swab on the market. They hold up well for personal use and crafts.</li>
+    <li> Great value for the amount of Qtips vs. the price.  It&#x27;s also so convienient to have the triple pack so I don&#x27;t ever run out.</li>
+    <li> Probably could have purchased at the store for cheaper but it&#x27;s a great brand!</li>
+    <li> This is a lot of Q-Tips for the price! I love Q-Tips, and use them for many things besides &amp;#34;ears&amp;#34;!</li>
+    <li> its a excellent product, i have Qtips for a long time, very good quality. all its ok I recommend it.</li>
+    <li> Qtips-what can you say? I was raised on these and now can&#x27;t live without them. I have adapted from things such as Kleenex to other brands but still trust this brand and am not comfy trying something else. Add to that enough to last for several years and I&#x27;m all set.</li>
+    <li> I purchased this huge box (actually 3 boxes) of Qtips because I sent them to the Best Friends Animal Sanctuary in Utah. They are a no kill shelter that takes care of all types of animals including dogs and cats, injured animals, etc. They had a list of products that they needed in their newsletter and Qtips were one of the products. I use nothing but the Qtip brand, this was a very good price for a lot of Qtips. So, these went into the box I sent to the animals shelter. I always find Qtips well made (the cotton does not shred or comes off the stick), and there is a lot of cotton on the ends (not like some of the cheaper products).</li>
+    <li> Thanks, awesome product</li>
+    <li> The heading says it all.  A mass amount of good quality qtip brand qtips, for a low price.  I was very happy with this purchase.</li>
+    <li> What can I say...they&#x27;re Qtips and I have used them for more years than I care to count - thanks!</li>
+    <li> I forgot how much I bought this product for, and am too lazy too look up, but I have used this brand forever and love it!</li>
+    <li> No generic brand compares to Q-tips, and Amazon has a great price and fast delivery.</li>
+    <li> I was having some trouble hearing until I bought these. Now I can hear perfect! What a great product! I think I paid 10$ for 1800 qtips, pretty insane, the local target wanted $5 for one of the 1 packs. Great buy!</li>
+    <li> I&#x27;m a big believer in buying in bulk.  If you are too, these Q-tips should be in your cart!  Great product at a great price!</li>
+    <li> Qtips are Qtips so theres not too much I can say. I&#x27;ve ordered these twice now and each time the delivery was great, there was no damage whatsoever to the packages and the price/ value is much better than the local store. You&#x27;re getting name brand for the price of generic and yes theres a huge difference between the two! Always go with Qtip!</li>
+    <li> What&#x27;s to say, they work.</li>
+    <li> They are Q-Tips. They work for anything Q-Tips can be used for. They look just like the picture and as described. They were a good deal when I got them @ $6.99 w/free S/H. They don&#x27;t give you Ebola. This is the end of the review in case you didn&#x27;t know what all the blank space below the end of this review meant.</li>
+    <li> I originally got this pack of Q-Tips at a brick and mortar store, the individual packaging differs slightly, but the product is the same. Nowhere anywhere on the package are any pictures of, or mention of sticking one in your ear. Because you&#x27;re not supposed to do that. Not since water tobacco pipes has a product been so grossly misrepresented as for one purpose when it is in fact for another. If you took a tribe of uncontacted native peoples from the deepest part of the amazon jungle and put them in a room with a box of qtips I guaranfuckingtee that every last one of them would immediately put one or more in their ear(s). As a matter of fact I&#x27;m convinced that some of the suggested uses on the box have NEVER actually been carried out. Nobody has ever taken a qtip and gently bashed it into the side of a baby&#x27;s nose. The qtip labeling is the equivalent of a closeted gay guy who spends all day at work talking about how much he likes tits. The box says &amp;#34;VARIETY OF USES&amp;#34; in big letters on the front - it might as well say &amp;#34;DEFINITELY NOT FOR PUTTING IN YOUR EAR, ONLY WIERDOS DO THAT&amp;#34; &amp;#34;THERE ARE MANY GOOD REASONS A NORMAL PERSON WOULD OWN THIS PRODUCT&amp;#34; Oh really? then why do you sell them in packs of EIGHTEEN HUNDRED??? How often do you have to comb your eyebrows, or pick up tiny pieces of sushi? Almost never.&lt;br /&gt;&lt;br /&gt;I found that these cotton swabs performed admirably at entering, moving about within the confines of, and departing my ear canal.</li>
+    <li> It will be only name brand Q Tips for me from now on.  I bought some cheaper drug store cotton swabs and they bend under the least pressure and the cotton comes off the tip.  Never happens with Q Tips!  And with three large boxes in this order, I will be sure to have plenty around.</li>
+    <li> Best deal I have found on the 3 pack and delivered to your door in two days with Prime shipping!  I love Q-tips brand because the heads are bundled tightly which reduces waste...</li>
+    <li> I bought these because they were a good price and I needed something to get that free shipping!&lt;br /&gt;WARNING this is a LOT of Qtips I&#x27;m pretty sure that in a house of 6 these will last two years or more... I may have to start figuring out other uses for these.</li>
+    <li> These are normal Q-tips at a good price.  I prefer the name brand q-tips over the off brands as they are more sturdy and the cotton doesn&#x27;t fall off.</li>
+    <li> We ran out last week. Thought the world was going to end.&lt;br /&gt;Used to be able to find these at a certain club, but Amazon is the place to go now.&lt;br /&gt;Price is great and though the kids run though them pretty fast, the pack should last many years.&lt;br /&gt;Amazon delivers, yet again, a superior deal.</li>
+    <li> I like the way the packaging gives you three good size boxes so I can keep some and give some to grandchildren. Have used Q-tips for a long time.They are very good for cosmetic use and cleaning small area that other cleaning products can&#x27;t reach.</li>
+    <li> Always buy name brand on these. The others always fall apart or don&#x27;t have enough cotton. These work great and are a good price (or were when I bought them).</li>
+    <li> The best cotton swabs I can find.</li>
+    <li> There are some things that you can safely substitute the cheaper store brand over the name brand without issue but cotton swabs isn&#x27;t one of them.&lt;br /&gt;&lt;br /&gt;The name Q-Tips is synonymous with cotton swabs for a reason.</li>
+    <li> Can&#x27;t beat this price. Wish they would put it back on subscribe and save.</li>
+    <li> Exactly what it was supposed to be. Received on time and like it or not no surprises. After all these are Q-tips.</li>
+    <li> I find Qtip brand cotton swabs to be the best-- they have the sturdiest handle.  Somehow, the first pack that I opened didn&#x27;t seem to have the sturdy handle that I am familiar with, but I am hoping that&#x27;s just a fluke.  Still better than other brands, though.&lt;br /&gt;&lt;br /&gt;Great deal with the 3 pack.  Couldn&#x27;t find them cheaper anywhere else, and they will last us years.</li>
+    <li> Great product that I use for the following&lt;br /&gt;wounds&lt;br /&gt;ears&lt;br /&gt;lips&lt;br /&gt;painting&lt;br /&gt;model cars&lt;br /&gt;cleaning crevices&lt;br /&gt;I could go on but you get the picture.&lt;br /&gt;&lt;br /&gt;These are excellent for two reasons the tips are thick and they don&#x27;t shed like cheaper cotton swabs tend to do.  Also the three pack value was a steal.</li>
+    <li> They&#x27;re q-tips; they do what they are supposed to, I&#x27;ve never had a problem with any of them being thin or falling apart.</li>
+    <li> this is a great deal. When i opened the box I couldn&#x27;t believe how many qtips I had just received.  The shipping was fast and they sure have allot of household uses.  I think my home will be set for some time.</li>
+    <li> The original and the best. Most amount if material at the tips and they have a nice stiff wand. Imitators don&#x27;t hold up as well nor do they feel as comfortable during use.</li>
+    <li> the 3 pack should last me a decade. The cotton on the swabs do last and stick so no issues of having to re-adjust.</li>
+    <li> They are cotton swabs, ALOT of them, and they do the job well. Not sure what else to say about them.</li>
+    <li> I try to be thrifty when possible, but over the years I&#x27;ve discovered a few items for which similar generic or low-cost products are very poor substitutes: razor blades, light bulbs and Q-Tips (OK, &amp;#34;cotton swabs&amp;#34;).  You can buy your no-name/dollar store floppy, less-padded, easily-shreadable swabs, or you can buy what works.  Plus, buying them in bulk with a Prime membership makes the real deal as cheap or cheaper than the pretenders.</li>
+    <li> &amp;#34;Never, ever stick a cotton swab which was obviously designed to fit into your ear canal anywhere inside your ear. It&#x27;s extremely dangerous to use this product as it was designed.&amp;#34;&lt;br /&gt;&lt;br /&gt;The Q-tips brand is the best, by far. Then the often-more-expensive J&amp;J swabs aren&#x27;t as good, with plastic parts that bend or scratch and cotton tips that fall off. Buy the Q-tips.</li>
+    <li> These are something you never want to be without. Great for not just ear cleaning human and pets, but also small cleaning jobs, crafts, and cleaning under long finger nails!</li>
+    <li> I have a slight obsession with q-tips. I know it&#x27;s bad, but everytime i walk into my bathroom, I walk out with 2 q-tips in hand. It just feels so good in my ear! Anyways, you can&#x27;t beat this price. And if you love Qtips as well, then this is mecca.</li>
+    <li> My friends think that it is funny to buy Q-tips online. What I can I say - it saves me the hassle, it is cheep, and they have the same good quality as the once from the store.</li>
+    <li> I&#x27;ve tried dollar store cotton swabs as well as other store brand ones. They are never as good as these though. I use them for cleaning up eye liner, my nails, and sometimes for my ears (even though you&#x27;re not supposed to...but who doesn&#x27;t?) They last for a long time so it&#x27;s worth the extra few bucks to get Q-Tip brand.</li>
+    <li> What can I say, they are QTips.&lt;br /&gt;&lt;br /&gt;I am a rebel and pretty much just use them to clean out my ears.  The cotton is soft and I am happy.  Everyone wins and there is an absurd amount of them.  I won&#x27;t have to purchase this again for a long time thanks to the size of the affordable package.</li>
+    <li> Great price! Best price that I could find for this many Q-tips.</li>
+    <li> Q-tips what can ypu say a stick with cotton on both ends. THEY WORK. product is fine ok shipping large size multi pack price could probably do better</li>
+    <li> Store brand swabs don&#x27;t compare to the Qtip brand swabs. They are very sturdy and strong. From taking nail polish off to cleaning they work great.</li>
+    <li> Love it. It&#x27;s very soft and easy to pack.</li>
+    <li> I was traveling abroad to go see some friends and asked if they wanted anything from the states, they asked for Qtips branded cotton swabs. Enough said!</li>
+    <li> Tried swapping these out for the CVS Brand and had to come running back to the tried and true Q-tips!</li>
+    <li> what can i say, they hold up well and are not the flimsy kind, and it is an exceptional deal</li>
+</ol>
+
+
+
+

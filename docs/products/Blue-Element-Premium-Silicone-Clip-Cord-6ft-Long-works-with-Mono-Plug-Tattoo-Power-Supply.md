@@ -1,0 +1,87 @@
+---
+title: Blue Element Premium Silicone Clip Cord 6ft Long works with Mono Plug Tattoo Power Supply,
+description: Blue Element Premium Silicone Clip Cord 6ft Long works with Mono Plug Tattoo Power Supply,
+author: Suvojit Manna,
+tags: Blue Element Premium Silicone Clip Cord 6ft Long works with Mono Plug Tattoo Power Supply,
+publishedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
+---
+
+# [Blue Element Premium Silicone Clip Cord 6ft Long works with Mono Plug Tattoo Power Supply](https://products.checkmycream.com/products/Blue-Element-Premium-Silicone-Clip-Cord-6ft-Long-works-with-Mono-Plug-Tattoo-Power-Supply.html)
+
+### Positive Reviews
+
+<ol>
+      <li>Awesome cord!</li>
+      <li>Great product.</li>
+      <li>Great cord works great</li>
+      <li>Nice deal like the color but very nice</li>
+      <li>i am very pleased with this.</li>
+      <li>This clip cord is exactly as shown on the picture and works perfectly on my tattoo gun.</li>
+      <li>And my favorite color as an added bonus!</li>
+      <li>Works great and its an awesome color blue.</li>
+      <li>Very good and fast shipping</li>
+      <li>They are cheaply priced, but efficiently made!</li>
+      <li>Satisfied with product.</li>
+      <li>Great cord, long and flexable</li>
+      <li>I guarantee to buy more for the future</li>
+      <li>this cord shipped fast and was exactly what i needed.</li>
+      <li>Looks exactly like in the picture and works really well.</li>
+      <li>shipped fast got it in 3 days.</li>
+      <li>Came one day early so that&#x27;s a plus!</li>
+      <li>Not bad, comparing to my other cheap-ass clip cords.</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> Awesome cord!</li>
+<li> Great product.</li>
+<li> Great cord works great</li>
+<li> Nice deal like the color but very nice</li>
+<li> i am very pleased with this.</li>
+<li> This clip cord is exactly as shown on the picture and works perfectly on my tattoo gun.</li>
+<li> And my favorite color as an added bonus!</li>
+<li> Works great and its an awesome color blue.</li>
+<li> Very good and fast shipping</li>
+<li> They are cheaply priced, but efficiently made!</li>
+<li> Satisfied with product.</li>
+<li> Great cord, long and flexable</li>
+<li> I guarantee to buy more for the future</li>
+<li> this cord shipped fast and was exactly what i needed.</li>
+<li> Looks exactly like in the picture and works really well.</li>
+<li> shipped fast got it in 3 days.</li>
+<li> Came one day early so that&#x27;s a plus!</li>
+<li> Not bad, comparing to my other cheap-ass clip cords.</li>
+<li> The only difference in the cord I received is that though the cord is still blue, the grip is red and black.</li>
+<li> it is 6ft long so there is no way that it can restrict you in any way.</li>
+<li> Hooks are too long.</li>
+<li> ridiculous and shipping and the product falls apart.</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> JUNK!!! ridiculous and shipping and the product falls apart.</li>
+    <li> Great product.I guarantee to buy more for the future</li>
+    <li> Looks exactly like in the picture and works really well. Came one day early so that&#x27;s a plus! Satisfied with product. I do recommend.</li>
+    <li> this cord shipped fast and was exactly what i needed. it is 6ft long so there is no way that it can restrict you in any way. i am very pleased with this.</li>
+    <li> Ordered two of these cords. They are cheaply priced, but efficiently made! And my favorite color as an added bonus!</li>
+    <li> Very good and fast shipping</li>
+    <li> Couldn&#x27;t be happier. Shipped and arrived in 3 days. You can feel the quality in this cord. The only difference in the cord I received is that though the cord is still blue, the grip is red and black. But it works and that&#x27;s what matters.</li>
+    <li> Seems well constructed we will see</li>
+    <li> Great cord, long and flexable</li>
+    <li> Nice deal like the color but very nice</li>
+    <li> Great cord works great</li>
+    <li> This clip cord is exactly as shown on the picture and works perfectly on my tattoo gun. Definitely gonna come back if I need another cord. Oh yeah shipped fast got it in 3 days.</li>
+    <li> Not bad, comparing to my other cheap-ass clip cords.</li>
+    <li> Awesome cord! I like the look and feel of it. Works great and its an awesome color blue. Just what the picture shows</li>
+    <li> Do yourself a favor and buy this.</li>
+    <li> The clip cord don&#x27;t even work. Not returning it cause I don&#x27;t have the time to go buy a box, pack it, pay for the shipment to be sent back and wait for another one to come that won&#x27;t work either...</li>
+    <li> Hooks are too long. They fall over and ground to the machine when turned to the side.</li>
+    <li> Present so no complaints yet</li>
+</ol>
+
+
+
+

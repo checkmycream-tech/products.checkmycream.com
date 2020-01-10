@@ -1,0 +1,233 @@
+---
+title: Cuticura Medicated Anti-Bacterial Bar Soap, Original Formula - 5.25 oz bar,
+description: Cuticura Medicated Anti-Bacterial Bar Soap, Original Formula - 5.25 oz bar,
+author: Suvojit Manna,
+tags: Cuticura Medicated Anti-Bacterial Bar Soap, Original Formula - 5.25 oz bar,
+publishedAt: Fri Jan 10 2020 14:59:52 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:59:52 GMT+0530 (India Standard Time),
+---
+
+# [Cuticura Medicated Anti-Bacterial Bar Soap, Original Formula - 5.25 oz bar](https://products.checkmycream.com/products/Cuticura-Medicated-Anti-Bacterial-Bar-Soap-Original-Formula-5.25-oz-bar.html)
+
+### Positive Reviews
+
+<ol>
+      <li>and Amazon seems to have a great price for them.</li>
+      <li>Most excellent product - just as good as when my Mom recommended it to me as a kid, I&#x27;ve now introduced my daughter to it!</li>
+      <li>Pleasant scent and color.</li>
+      <li>I have good skin results.</li>
+      <li>Seems to do a good job of cleaning skin.</li>
+      <li>Good price for the pack.</li>
+      <li>This is really good medicated soap.</li>
+      <li>This is a superior product.</li>
+      <li>The order arrived on time &amp; I am very satisfied with the result</li>
+      <li>is a nice soap for use each day, that works well.&lt;br /&gt;I</li>
+      <li>Great for sensitive skin!!!!!</li>
+      <li>Excellent soap people with  sensitive skin.</li>
+      <li>Great deal, very highly recommended.</li>
+      <li>Found this soap many years ago and it works wonders on my face.</li>
+      <li>it works better than just about everything else.</li>
+      <li>I love this soap.  </li>
+      <li>And since I can no longer purchase it at a local store, I am grateful to be able to now buy this wonderful soap in bulk.</li>
+      <li>and things will be much better.  </li>
+      <li>I have been using this soap for my face and body for more than 35 years.  </li>
+      <li>Left my skin feeling great!</li>
+      <li>Love it.</li>
+      <li>Love Cuticura and can&#x27;t find it in the stores.</li>
+      <li>This soap is excellent for keeping your face clear and free of Acne and blemishes would recommend to teens and adults.</li>
+      <li>I have found this to be a very good anti-bacterial soap that will not dry my skin</li>
+      <li>The Cuticura is still the best facial soap I&#x27;ve ever used to keep my skin clean and healthy.</li>
+      <li>This Cuticura soap was the single best agent to fight my acne as an adolescent 30 years ago.</li>
+      <li>Great soap, gentle, reliable and refreshing - does exactly what it&#x27;s made to do!  </li>
+      <li>[[ASIN:B003SK7PVQ Cuticura Medicated Anti-Bacterial Bar Soap, Original Formula, 5.25 oz bar (Pack of 6)]]&lt;br /&gt;&lt;br /&gt;I have been using this soap bar for many years, its a lifesaver for my skin.</li>
+      <li>Turns out that it also helped with a mild ear infection that I had as well!  </li>
+      <li>It is great for your skin, my husband and I have been using this for ten years.</li>
+      <li>The Amazon price is fantastic and the Prime delivery is terrific.&lt;br /&gt;This</li>
+      <li>Great for normal skin, not so much for oily skin.</li>
+      <li>I prefer the original medicated bar over the oatmeal bar</li>
+      <li>It has a fresh clean smell that I like.  </li>
+      <li>It is mild, non drying.  </li>
+      <li>Gentle on skin and keeps blemish free.  </li>
+      <li>Its worth a try if you are suffering from acne.</li>
+      <li>Only problem is finding an outlet in Canada, once available in many stores, it has all but disappeared on canadian shelves.</li>
+      <li>It works great for my middle age skin when I have acne break-outs, but my 12 year old son also uses it.</li>
+      <li>becaus eI have pretty oily skin.</li>
+      <li>I much prefer the exfoliating bar!</li>
+      <li>I bought the first bar to use to prep my husband for foot surgery.</li>
+      <li>:) Has been more difficult to find in local stores, glad to find it here on Amazon!</li>
+      <li>deal was for 6 large 5.25oz bars.  </li>
+      <li>This product really helps.</li>
+      <li>Thanks to Amazon.com and a helping hand from a friend living in the USA, I can now buy it again without any problems.</li>
+      <li>like the price and the fast shipping.</li>
+      <li>Also this soap also can seem to get rid of this real itchy situations.</li>
+      <li>It smells good and lasts long a long time without turning mushy or slimey.  </li>
+      <li>I have tried many soap bars over the years but none did work for my delicate skin conditions like CUTICURA Original.</li>
+      <li>Gentle even now on my getting older skin.</li>
+      <li>I typically apply it only to my face and neck and use a good body wash for the rest of my body.</li>
+      <li>The bigger bars are a better value because there is less waste, but they are not as nice for camping and travel.</li>
+      <li>This is a very old brand, and like all classic favorites has been tweaked for new users.</li>
+      <li>I have very sensitive skin and have never had a problem with this soap.</li>
+      <li>Wow!</li>
+      <li>We prefer the large 5.25 bars over the smaller 3.0 size.</li>
+      <li>Clear skin</li>
+      <li>this soap is unbeatable for clear skin.  </li>
+      <li>The soap is very dense, if you just use to to cleanse your face one bar will last 3-4 months.</li>
+      <li>I have sensitive skin</li>
+      <li>It is not a heavy medicine smell that will leave you feeling like you just stepped out of the hospital.  </li>
+      <li>Even though I&#x27;m a middle-aged adult, I still experience skin blemishes from sweating a lot during workouts.</li>
+      <li>I used as a child and uses it as an adult.</li>
+      <li>Been using it since I was an adult.  </li>
+      <li>Only soap you really need.</li>
+      <li>I have used this soap for at least 30 or more years.  </li>
+      <li>This soap provides low lather, but I live in a hard water area so it may perform better in softer water.</li>
+      <li>It made my skin a little dry, but that&#x27;s better than having acne.</li>
+      <li>I started using this Cuticura face soap after my grandmother recommended it back in high school.</li>
+      <li>Animal studies have shown both of these chemicals (triclocarban and triclosan) can interfere with hormones critical for normal development and function of the brain and reproductive system.</li>
+      <li>Rinses well and does not dry out my sensitive skin.</li>
+      <li>This has helped me clear up my cystic acne on my back.</li>
+      <li>We bought this for our 16 year old daughter who has acne, essentially from sports.  </li>
+      <li>I bought this soap to clear up some dry skin areas.  </li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> and Amazon seems to have a great price for them.</li>
+<li> Most excellent product - just as good as when my Mom recommended it to me as a kid, I&#x27;ve now introduced my daughter to it!</li>
+<li> Pleasant scent and color.</li>
+<li> I have good skin results.</li>
+<li> Seems to do a good job of cleaning skin.</li>
+<li> Good price for the pack.</li>
+<li> This is really good medicated soap.</li>
+<li> This is a superior product.</li>
+<li> The order arrived on time &amp; I am very satisfied with the result</li>
+<li> is a nice soap for use each day, that works well.&lt;br /&gt;I</li>
+<li> Great for sensitive skin!!!!!</li>
+<li> Excellent soap people with  sensitive skin.</li>
+<li> Great deal, very highly recommended.</li>
+<li> Found this soap many years ago and it works wonders on my face.</li>
+<li> it works better than just about everything else.</li>
+<li> I love this soap.  </li>
+<li> And since I can no longer purchase it at a local store, I am grateful to be able to now buy this wonderful soap in bulk.</li>
+<li> and things will be much better.  </li>
+<li> I have been using this soap for my face and body for more than 35 years.  </li>
+<li> Left my skin feeling great!</li>
+<li> Love it.</li>
+<li> Love Cuticura and can&#x27;t find it in the stores.</li>
+<li> This soap is excellent for keeping your face clear and free of Acne and blemishes would recommend to teens and adults.</li>
+<li> I have found this to be a very good anti-bacterial soap that will not dry my skin</li>
+<li> The Cuticura is still the best facial soap I&#x27;ve ever used to keep my skin clean and healthy.</li>
+<li> This Cuticura soap was the single best agent to fight my acne as an adolescent 30 years ago.</li>
+<li> Great soap, gentle, reliable and refreshing - does exactly what it&#x27;s made to do!  </li>
+<li> [[ASIN:B003SK7PVQ Cuticura Medicated Anti-Bacterial Bar Soap, Original Formula, 5.25 oz bar (Pack of 6)]]&lt;br /&gt;&lt;br /&gt;I have been using this soap bar for many years, its a lifesaver for my skin.</li>
+<li> Turns out that it also helped with a mild ear infection that I had as well!  </li>
+<li> It is great for your skin, my husband and I have been using this for ten years.</li>
+<li> The Amazon price is fantastic and the Prime delivery is terrific.&lt;br /&gt;This</li>
+<li> Great for normal skin, not so much for oily skin.</li>
+<li> I prefer the original medicated bar over the oatmeal bar</li>
+<li> It has a fresh clean smell that I like.  </li>
+<li> It is mild, non drying.  </li>
+<li> Gentle on skin and keeps blemish free.  </li>
+<li> Its worth a try if you are suffering from acne.</li>
+<li> Only problem is finding an outlet in Canada, once available in many stores, it has all but disappeared on canadian shelves.</li>
+<li> It works great for my middle age skin when I have acne break-outs, but my 12 year old son also uses it.</li>
+<li> becaus eI have pretty oily skin.</li>
+<li> I much prefer the exfoliating bar!</li>
+<li> I bought the first bar to use to prep my husband for foot surgery.</li>
+<li> :) Has been more difficult to find in local stores, glad to find it here on Amazon!</li>
+<li> deal was for 6 large 5.25oz bars.  </li>
+<li> This product really helps.</li>
+<li> Thanks to Amazon.com and a helping hand from a friend living in the USA, I can now buy it again without any problems.</li>
+<li> like the price and the fast shipping.</li>
+<li> Also this soap also can seem to get rid of this real itchy situations.</li>
+<li> It smells good and lasts long a long time without turning mushy or slimey.  </li>
+<li> I have tried many soap bars over the years but none did work for my delicate skin conditions like CUTICURA Original.</li>
+<li> Gentle even now on my getting older skin.</li>
+<li> I typically apply it only to my face and neck and use a good body wash for the rest of my body.</li>
+<li> The bigger bars are a better value because there is less waste, but they are not as nice for camping and travel.</li>
+<li> This is a very old brand, and like all classic favorites has been tweaked for new users.</li>
+<li> I have very sensitive skin and have never had a problem with this soap.</li>
+<li> Wow!</li>
+<li> We prefer the large 5.25 bars over the smaller 3.0 size.</li>
+<li> Clear skin</li>
+<li> this soap is unbeatable for clear skin.  </li>
+<li> The soap is very dense, if you just use to to cleanse your face one bar will last 3-4 months.</li>
+<li> I have sensitive skin</li>
+<li> It is not a heavy medicine smell that will leave you feeling like you just stepped out of the hospital.  </li>
+<li> Even though I&#x27;m a middle-aged adult, I still experience skin blemishes from sweating a lot during workouts.</li>
+<li> I used as a child and uses it as an adult.</li>
+<li> Been using it since I was an adult.  </li>
+<li> Only soap you really need.</li>
+<li> I have used this soap for at least 30 or more years.  </li>
+<li> This soap provides low lather, but I live in a hard water area so it may perform better in softer water.</li>
+<li> It made my skin a little dry, but that&#x27;s better than having acne.</li>
+<li> I started using this Cuticura face soap after my grandmother recommended it back in high school.</li>
+<li> Animal studies have shown both of these chemicals (triclocarban and triclosan) can interfere with hormones critical for normal development and function of the brain and reproductive system.</li>
+<li> Rinses well and does not dry out my sensitive skin.</li>
+<li> This has helped me clear up my cystic acne on my back.</li>
+<li> We bought this for our 16 year old daughter who has acne, essentially from sports.  </li>
+<li> I bought this soap to clear up some dry skin areas.  </li>
+<li> Any other soap or body wash makes my sensitive skin break out.  </li>
+<li> If you ever have dry or moist skin, this blue soap does wonders in neutralizing it out of the abnormal state.  </li>
+<li> I would definitely recommend Cuticura for minor skin irritations as well as dry skin.  </li>
+<li> This leaves your skin soft but not too dried out.  </li>
+<li> The soap makes your skin VERY DRY</li>
+<li> Skin doesn&#x27;t seem to be as dry as with other soaps</li>
+<li> I use it from time to time and it seems to work well and is not overly harsh at all.  </li>
+<li> you have acne problems wash with this soap a few days</li>
+<li> made me super dry and just horrible- ended up giving it away</li>
+<li> It has become increasingly difficult to find locally and is no bargain when I do happen upon a bar.</li>
+<li> Triclocarban has been shown to artificially amplify the effects of sex hormones such as estrogen and testosterone, which could promote the growth of breast and prostate cancer.</li>
+<li> I also used this soap on one of my children with a scalp condition in the late 1960&#x27;s</li>
+<li> Unable to find in the stores anymore though.</li>
+<li> you will not be disappointed by it.</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> I have sensitive skin and this is the only soap I can use with out getting a rash. Excellent soap people with  sensitive skin.</li>
+    <li> I have been using this soap for my face and body for more than 35 years.  Getting it online from amazon is just so convenient.  Any other soap or body wash makes my sensitive skin break out.  I like that it&#x27;s unscented.</li>
+    <li> Have been using for years.  Gentle even now on my getting older skin. :) Has been more difficult to find in local stores, glad to find it here on Amazon!</li>
+    <li> If you ever have dry or moist skin, this blue soap does wonders in neutralizing it out of the abnormal state.  Whne you have acne problems wash with this soap a few days and things will be much better.  Also this soap also can seem to get rid of this real itchy situations.</li>
+    <li> Family loves this product.  It smells good and lasts long a long time without turning mushy or slimey.  We prefer the large 5.25 bars over the smaller 3.0 size.</li>
+    <li> made me super dry and just horrible- ended up giving it away</li>
+    <li> I have found this to be a very good anti-bacterial soap that will not dry my skin out!&lt;br /&gt;This is a nice soap for use each day, that works well.&lt;br /&gt;I like the price and the fast shipping.</li>
+    <li> this soap is unbeatable for clear skin.  it works better than just about everything else. you will not be disappointed by it.</li>
+    <li> I recomend this soap over any body washes and soaps on the market. Unable to find in the stores anymore though.</li>
+    <li> I have been using cuticura for about 20 years.  It is mild, non drying.  Then I use a toner afterward and get all the debris off my face.  I have good skin results.</li>
+    <li> This is really good medicated soap. I have used it for years. I learned aboutt this soap years ago from my Mother-in-law who&#x27;s doctor recommended her to use.</li>
+    <li> I have battled acne for 40 years. This product really helps. I bought the first bar to use to prep my husband for foot surgery. Then I needed to find a use for the rest of the bar. Wow! I have been buying it since.</li>
+    <li> Gentle on skin and keeps blemish free.  Only soap you really need. Pleasant scent and color. Not greasy.  Great for sensitive skin!!!!!</li>
+    <li> The order arrived on time &amp; I am very satisfied with the result</li>
+    <li> In laboratory studies, trilocarban has been shown to disrupt hormones and can encourage the growth of drug-resistant bacteria or \\&quot;superbugs.\\&quot; Animal studies have shown both of these chemicals (triclocarban and triclosan) can interfere with hormones critical for normal development and function of the brain and reproductive system.Triclosan has been associated with lower levels of thyroid hormone and testosterone, which could result in altered behavior, learning disabilities, or infertility. Triclocarban has been shown to artificially amplify the effects of sex hormones such as estrogen and testosterone, which could promote the growth of breast and prostate cancer. Furthermore, laboratory studies suggest that triclosan and triclocarban may be contributing to antibiotic resistance in bacteria known to cause human infections.  [...]</li>
+    <li> Most excellent product - just as good as when my Mom recommended it to me as a kid, I&#x27;ve now introduced my daughter to it!</li>
+    <li> Works wonder! I saw improvement in a day or two. It made my skin a little dry, but that&#x27;s better than having acne.</li>
+    <li> We bought this for our 16 year old daughter who has acne, essentially from sports.  The soap did help and we will continue to purchase it.  I use it from time to time and it seems to work well and is not overly harsh at all.  Also, buy the five pack to save a ton on shipping.</li>
+    <li> This is a very old brand, and like all classic favorites has been tweaked for new users. This soap provides low lather, but I live in a hard water area so it may perform better in softer water. Rinses well and does not dry out my sensitive skin.</li>
+    <li> Mom used this on me as baby.  Been using it since I was an adult.  Will use till I turn toes up!</li>
+    <li> I bought this soap to clear up some dry skin areas.  Turns out that it also helped with a mild ear infection that I had as well!  I would definitely recommend Cuticura for minor skin irritations as well as dry skin.  Left my skin feeling great!</li>
+    <li> I love this soap.  I used as a child and uses it as an adult.</li>
+    <li> Great soap, gentle, reliable and refreshing - does exactly what it&#x27;s made to do!  The Amazon price is fantastic and the Prime delivery is terrific.&lt;br /&gt;This deal was for 6 large 5.25oz bars.  Much larger than some of the others at the same price. Great deal, very highly recommended.</li>
+    <li> Found this soap many years ago and it works wonders on my face. I used to buy it at a local drugstore but then they all seemed to stop carrying it.  Now I have to get it online and Amazon seems to have a great price for them.</li>
+    <li> This soap is excellent for keeping your face clear and free of Acne and blemishes would recommend to teens and adults.</li>
+    <li> Love Cuticura and can&#x27;t find it in the stores. Love it.</li>
+    <li> I have used Cuticura for over twenty years. I prefer the original medicated bar over the oatmeal bar becaus eI have pretty oily skin. It has become increasingly difficult to find locally and is no bargain when I do happen upon a bar. I ususally buy several bars at a time from Amazon which lasts between 10-14 months. The bigger bars are a better value because there is less waste, but they are not as nice for camping and travel. I have very sensitive skin and have never had a problem with this soap. I typically apply it only to my face and neck and use a good body wash for the rest of my body.</li>
+    <li> [[ASIN:B003SK7PVQ Cuticura Medicated Anti-Bacterial Bar Soap, Original Formula, 5.25 oz bar (Pack of 6)]]&lt;br /&gt;&lt;br /&gt;I have been using this soap bar for many years, its a lifesaver for my skin. I have tried many soap bars over the years but none did work for my delicate skin conditions like CUTICURA Original. Only problem is finding an outlet in Canada, once available in many stores, it has all but disappeared on canadian shelves. Thanks to Amazon.com and a helping hand from a friend living in the USA, I can now buy it again without any problems.</li>
+    <li> I have used this soap for at least 30 or more years.  I also used this soap on one of my children with a scalp condition in the late 1960&#x27;s and I feel that the use of the cuticura soap was a big help in getting rid of the problem.</li>
+    <li> This is a superior product.</li>
+    <li> I started using this Cuticura face soap after my grandmother recommended it back in high school. It definitely has helped me to reduce Acne on my face. Whenever I don&#x27;t use it I notice a substantial difference. Good price for the pack.</li>
+    <li> Seems to do a good job of cleaning skin. Skin doesn&#x27;t seem to be as dry as with other soaps</li>
+    <li> Clear skin but you have to use a moisturizer after you use it. The soap makes your skin VERY DRY but the benefits out ways the dryness.</li>
+    <li> This Cuticura soap was the single best agent to fight my acne as an adolescent 30 years ago. I don&#x27;t know why they don&#x27;t carry it in the drugstores anymore, but I&#x27;m thankful we can still find it online on Amazon. Even though I&#x27;m a middle-aged adult, I still experience skin blemishes from sweating a lot during workouts. The Cuticura is still the best facial soap I&#x27;ve ever used to keep my skin clean and healthy.</li>
+    <li> I wish they sold it at regular stores! It is great for your skin, my husband and I have been using this for ten years. The soap is very dense, if you just use to to cleanse your face one bar will last 3-4 months.</li>
+    <li> Cuticura Medicated – Anti-Bacterial Bar Soap brought relief to a skin irritation I was suffering.  It has a fresh clean smell that I like.  It is not a heavy medicine smell that will leave you feeling like you just stepped out of the hospital.  I recommend it highly especially if there is an itchy skin irritation, even the scalp.</li>
+    <li> This has helped me clear up my cystic acne on my back. I wont use anything else. Its worth a try if you are suffering from acne.</li>
+    <li> Great for normal skin, not so much for oily skin. I much prefer the exfoliating bar!</li>
+    <li> And since I can no longer purchase it at a local store, I am grateful to be able to now buy this wonderful soap in bulk.</li>
+    <li> This leaves your skin soft but not too dried out.  It works great for my middle age skin when I have acne break-outs, but my 12 year old son also uses it.</li>
+</ol>
+
+
+
+

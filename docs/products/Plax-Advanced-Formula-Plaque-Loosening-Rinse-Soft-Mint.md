@@ -1,0 +1,266 @@
+---
+title: Plax Advanced Formula Plaque Loosening Rinse, Soft Mint,
+description: Plax Advanced Formula Plaque Loosening Rinse, Soft Mint,
+author: Suvojit Manna,
+tags: Plax Advanced Formula Plaque Loosening Rinse, Soft Mint,
+publishedAt: Fri Jan 10 2020 14:59:27 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:59:27 GMT+0530 (India Standard Time),
+---
+
+# [Plax Advanced Formula Plaque Loosening Rinse, Soft Mint](https://products.checkmycream.com/products/Plax-Advanced-Formula-Plaque-Loosening-Rinse-Soft-Mint.html)
+
+### Positive Reviews
+
+<ol>
+      <li>So I did some research and found that Plax is one of the best pre rinse mouth washes for plaque removal.</li>
+      <li>but I just want to give the best description I can.</li>
+      <li>This is a good product and the service was excellent.</li>
+      <li>All my dentists and hygienists since then say I&#x27;m doing a great job.  </li>
+      <li>I&#x27;m happy for buying this.</li>
+      <li>happy I did.</li>
+      <li>Plax works great.</li>
+      <li>Great pre rinse to help loosen all the gunk and nastiness that collects on your teeth and gums.</li>
+      <li>What a great product!!!&lt;br /&gt;&lt;br</li>
+      <li>my dental check-ups have been great.  </li>
+      <li>It tastes great and, since I&#x27;ve been using it (over 5 yrs.,)</li>
+      <li>Tartar build-up has always been a challenge and &amp;#34;Plax&amp;#34; is very effective with its removal.</li>
+      <li>Good quality dental rinse with an acceptable price.</li>
+      <li>Amazing ive been using this for about a week now</li>
+      <li>and here is my honest review.&lt;br /&gt;&lt;br</li>
+      <li>is my own experience, and reasoning.&lt;br</li>
+      <li>It removes plaque in your teeth effectively.</li>
+      <li>/&gt;This is a great product and I believe it does exactly what it&#x27;s supposed to do, despite those studies/reports.&lt;br /&gt;&lt;br</li>
+      <li>However, it still isn&#x27;t very cheap.</li>
+      <li>Easier and more thorough.</li>
+      <li>I am glad I can order it online now.</li>
+      <li>(But that&#x27;s okay.</li>
+      <li>But regardless of her opinion, I love the stuff.&lt;br /&gt;&lt;br</li>
+      <li>It&#x27;s so awesome that I bought for all my friends and relatives for Christmas present :)</li>
+      <li>i freaking love Plax</li>
+      <li>I have been using Plax for many years.  </li>
+      <li>much as I LOVE Amazon.</li>
+      <li>one more thing...</li>
+      <li>And at the end of each week I&#x27;d also use a water pick just to be sure I kept the spaces between my teeth wax</li>
+      <li>I think it&#x27;s a great product just created a new blog about Plax if you need to see more info about this product than see here...</li>
+      <li>Your teeth are so clean!</li>
+      <li>I now have COMPLETLY clean from teeth!</li>
+      <li>All you really need is 6 to 7 ml, and at the prices for this, you are wise to make yourself measure it out.</li>
+      <li>The smeels is good and it really work.</li>
+      <li>my plaque came off quite easily.</li>
+      <li>It&#x27;s too easy to accidentally swallow the Plax as you rinse.</li>
+      <li>(feels fine</li>
+      <li>/&gt;To get your mouth clean, and keep it clean, use Plax to BRUSH, (not rinse), then finish with Listerine.&lt;br /&gt;:-)</li>
+      <li>I had a HUGE buildup on my bottom teeth.</li>
+      <li>I have seen an improvement in my oral health and this has been confirmed y my dentist....</li>
+      <li>I was just as happy with the private label versions</li>
+      <li>and I believe I have such great dental health.  </li>
+      <li>I cannot tell if they have improved but so far, so good.</li>
+      <li>And, like always, I then asked, &amp;#34;Well, if it &#x27;doesn&#x27;t do anything&#x27;, THEN WHY ARE MY TEETH SO CLEAN AND FREE FROM PLAQUE???&amp;#34;&lt;br</li>
+      <li>The rest of the items are items that I&#x27;ve enjoyed very much.</li>
+      <li>If I can remember to, I will update this as it continues, but I&#x27;m excited now and had to leave a review.</li>
+      <li>Many supermarkets and drugstores have sold their own private label versions of this product.</li>
+      <li>Keeps the teeth surface smoother and clean.</li>
+      <li>she hasn&#x27;t seen someone with braces have teeth and gums this clean ever.</li>
+      <li>I can smile SO comfortably now and can&#x27;t wait to go to school to smile at everyone I see!</li>
+      <li>Maybe if you get lucky with a sale you can beat the price at retail.    </li>
+      <li>I have used &amp;#34;Plax&amp;#34; for many years and highly recommend it to others.</li>
+      <li>It was my very first time using this product</li>
+      <li>I am very fortunate that Amazon offers a full return policy.</li>
+      <li>I first began, i couldn&#x27;t even get the floss between my teeth where the tooth I have sticks out!</li>
+      <li>I will surely update this review, but I like what I&#x27;m seeing so far.</li>
+      <li>and I bought it right away, also after reading hundreds of reviews swearing it would work, from walgreens (though it&#x27;s cheaper at walmart).</li>
+      <li>pour a reasonable amount into my mouth then use the brush, with plax to clean my teeth, gums and tongue.&lt;br /&gt;&lt;br</li>
+      <li>today its reduced by a large percentage!    </li>
+      <li>Began the first 5 days using this once or twice a day.</li>
+      <li>First 6 days - At first, I did notice that the tartar buildup seemed thinner than before, so I knew something was happening.&lt;br</li>
+      <li>/&gt;I&#x27;m 99% sure Plax aided in this, as I had not been using pre-brush rinses up to this point, only post-brush rinses to help strengthen teeth and freshen breath.&lt;br</li>
+      <li>After two weeks - Like this PLAX so much that I just ordered more and I will continue to use PLAX 3 times a day to get rid of Plaque and PREVENT this tartar from coming back.</li>
+      <li>Half a cap full is more than enough.&lt;br /&gt;Don&#x27;t</li>
+      <li>My teeth get actually, literally \\&quot;squeaky\\&quot; clean (as in, if I run my finger over them, they squeak like freshly polished glass.)  </li>
+      <li>I&#x27;ll just smile at her with my clean, white teeth.)</li>
+      <li>Nothing you can really do besides use Plax and an anti-tartar toothpaste 2x each day and if you still get some plaque, it comes off very easily with a pick due to the Plax product.</li>
+      <li>flossing didn&#x27;t do much to get rid of it either.</li>
+      <li>I can really tell the difference between brushing with this stuff and without</li>
+      <li>Thanks.</li>
+      <li>I would then swoosh it in my mouth for ONE WHOLE MINUTE rather than the 30 seconds.</li>
+      <li>With the free shipping and no tax, it beat the prices I can get at the local stores even on sales.</li>
+      <li>/&gt;Very Highly Recommended!</li>
+      <li>really care for the taste.&lt;br /&gt;&lt;br</li>
+      <li>So I am very hopeful that very soon all of the tartar will be gone.</li>
+      <li>It works well with an electric toothbrush and really get the job done.  </li>
+      <li>However, Plax works very well.</li>
+      <li>/&gt;I&#x27;ll post another review when I&#x27;m tartar free to say how long it took.</li>
+      <li>The only downside is it&#x27;s becoming increasingly difficult to find in retail stores, which is why I&#x27;m delighted I found it on Amazon.</li>
+      <li>and I was looking forward to it from the HIGH reviews.</li>
+      <li>Though most warning labels advise against swallowing any mouthwash, and urge anyone not to do so, or have little kids use this.</li>
+      <li>I then would rinse and brush as normal with my toothpaste and mouthwash and tongue scraper.</li>
+      <li>Since their prices were much lower than Plax even though the ingredients were exactly the same, I believe that lowered sales for Plax.</li>
+      <li>So it has been exactly two weeks (today) since I started my PLAX Treatment for my 4 bottom front lower teeth (on the backs of these teeth)which have very heavy tartar and the rest of my teeth with light tartar.</li>
+      <li>Very surprised.</li>
+      <li>One of my teeth is about 50% clear of tartar now.</li>
+      <li>My dental hygienist is convinced it can&#x27;t work even in the face of clear evidence that it does.</li>
+      <li>This is the only product we have found that really keeps the plaque off the teeth.</li>
+      <li>In august 2013 I got adult braces.</li>
+      <li>Wow.</li>
+      <li>I then BRUSH and really scrub with ONLY THE PLAX.</li>
+      <li>So this stuff, Plax, does work very well after the plaque is initially removed either by your dentist or yourself.&lt;br /&gt;&lt;br /&gt;I</li>
+      <li>The yogurt items were a Christmas gift for my wife, and so far, she has made two units.</li>
+      <li>only hope that the private label versions have sold well enough so that those products will continue to be available for us when Plax completely disappears.&lt;br /&gt;&lt;br</li>
+      <li>You might as well anyway to not waste...</li>
+      <li>I still have more tartar behind my teeth, but a good portion also chiipped off from behind there as well.</li>
+      <li>A must for those with braces or other dental appliances as it helps you maintain and keep a clean mouth if used regularly.</li>
+      <li>what is also true is that Plax does not kill those germs, it just dissolves out the shit hanging on your teeth.&lt;br</li>
+      <li>okay i was very skeptical about this at first, but after i tried it, it seemed to help me cure gingivitis!</li>
+      <li>As much as I like to shop at local stores for my needs, I frequently have trouble finding the product at a reasonable price at local stores.</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> So I did some research and found that Plax is one of the best pre rinse mouth washes for plaque removal.</li>
+<li> but I just want to give the best description I can.</li>
+<li> This is a good product and the service was excellent.</li>
+<li> All my dentists and hygienists since then say I&#x27;m doing a great job.  </li>
+<li> I&#x27;m happy for buying this.</li>
+<li> happy I did.</li>
+<li> Plax works great.</li>
+<li> Great pre rinse to help loosen all the gunk and nastiness that collects on your teeth and gums.</li>
+<li> What a great product!!!&lt;br /&gt;&lt;br</li>
+<li> my dental check-ups have been great.  </li>
+<li> It tastes great and, since I&#x27;ve been using it (over 5 yrs.,)</li>
+<li> Tartar build-up has always been a challenge and &amp;#34;Plax&amp;#34; is very effective with its removal.</li>
+<li> Good quality dental rinse with an acceptable price.</li>
+<li> Amazing ive been using this for about a week now</li>
+<li> and here is my honest review.&lt;br /&gt;&lt;br</li>
+<li> is my own experience, and reasoning.&lt;br</li>
+<li> It removes plaque in your teeth effectively.</li>
+<li> /&gt;This is a great product and I believe it does exactly what it&#x27;s supposed to do, despite those studies/reports.&lt;br /&gt;&lt;br</li>
+<li> However, it still isn&#x27;t very cheap.</li>
+<li> Easier and more thorough.</li>
+<li> I am glad I can order it online now.</li>
+<li> (But that&#x27;s okay.</li>
+<li> But regardless of her opinion, I love the stuff.&lt;br /&gt;&lt;br</li>
+<li> It&#x27;s so awesome that I bought for all my friends and relatives for Christmas present :)</li>
+<li> i freaking love Plax</li>
+<li> I have been using Plax for many years.  </li>
+<li> much as I LOVE Amazon.</li>
+<li> one more thing...</li>
+<li> And at the end of each week I&#x27;d also use a water pick just to be sure I kept the spaces between my teeth wax</li>
+<li> I think it&#x27;s a great product just created a new blog about Plax if you need to see more info about this product than see here...</li>
+<li> Your teeth are so clean!</li>
+<li> I now have COMPLETLY clean from teeth!</li>
+<li> All you really need is 6 to 7 ml, and at the prices for this, you are wise to make yourself measure it out.</li>
+<li> The smeels is good and it really work.</li>
+<li> my plaque came off quite easily.</li>
+<li> It&#x27;s too easy to accidentally swallow the Plax as you rinse.</li>
+<li> (feels fine</li>
+<li> /&gt;To get your mouth clean, and keep it clean, use Plax to BRUSH, (not rinse), then finish with Listerine.&lt;br /&gt;:-)</li>
+<li> I had a HUGE buildup on my bottom teeth.</li>
+<li> I have seen an improvement in my oral health and this has been confirmed y my dentist....</li>
+<li> I was just as happy with the private label versions</li>
+<li> and I believe I have such great dental health.  </li>
+<li> I cannot tell if they have improved but so far, so good.</li>
+<li> And, like always, I then asked, &amp;#34;Well, if it &#x27;doesn&#x27;t do anything&#x27;, THEN WHY ARE MY TEETH SO CLEAN AND FREE FROM PLAQUE???&amp;#34;&lt;br</li>
+<li> The rest of the items are items that I&#x27;ve enjoyed very much.</li>
+<li> If I can remember to, I will update this as it continues, but I&#x27;m excited now and had to leave a review.</li>
+<li> Many supermarkets and drugstores have sold their own private label versions of this product.</li>
+<li> Keeps the teeth surface smoother and clean.</li>
+<li> she hasn&#x27;t seen someone with braces have teeth and gums this clean ever.</li>
+<li> I can smile SO comfortably now and can&#x27;t wait to go to school to smile at everyone I see!</li>
+<li> Maybe if you get lucky with a sale you can beat the price at retail.    </li>
+<li> I have used &amp;#34;Plax&amp;#34; for many years and highly recommend it to others.</li>
+<li> It was my very first time using this product</li>
+<li> I am very fortunate that Amazon offers a full return policy.</li>
+<li> I first began, i couldn&#x27;t even get the floss between my teeth where the tooth I have sticks out!</li>
+<li> I will surely update this review, but I like what I&#x27;m seeing so far.</li>
+<li> and I bought it right away, also after reading hundreds of reviews swearing it would work, from walgreens (though it&#x27;s cheaper at walmart).</li>
+<li> pour a reasonable amount into my mouth then use the brush, with plax to clean my teeth, gums and tongue.&lt;br /&gt;&lt;br</li>
+<li> today its reduced by a large percentage!    </li>
+<li> Began the first 5 days using this once or twice a day.</li>
+<li> First 6 days - At first, I did notice that the tartar buildup seemed thinner than before, so I knew something was happening.&lt;br</li>
+<li> /&gt;I&#x27;m 99% sure Plax aided in this, as I had not been using pre-brush rinses up to this point, only post-brush rinses to help strengthen teeth and freshen breath.&lt;br</li>
+<li> After two weeks - Like this PLAX so much that I just ordered more and I will continue to use PLAX 3 times a day to get rid of Plaque and PREVENT this tartar from coming back.</li>
+<li> Half a cap full is more than enough.&lt;br /&gt;Don&#x27;t</li>
+<li> My teeth get actually, literally \\&quot;squeaky\\&quot; clean (as in, if I run my finger over them, they squeak like freshly polished glass.)  </li>
+<li> I&#x27;ll just smile at her with my clean, white teeth.)</li>
+<li> Nothing you can really do besides use Plax and an anti-tartar toothpaste 2x each day and if you still get some plaque, it comes off very easily with a pick due to the Plax product.</li>
+<li> flossing didn&#x27;t do much to get rid of it either.</li>
+<li> I can really tell the difference between brushing with this stuff and without</li>
+<li> Thanks.</li>
+<li> I would then swoosh it in my mouth for ONE WHOLE MINUTE rather than the 30 seconds.</li>
+<li> With the free shipping and no tax, it beat the prices I can get at the local stores even on sales.</li>
+<li> /&gt;Very Highly Recommended!</li>
+<li> really care for the taste.&lt;br /&gt;&lt;br</li>
+<li> So I am very hopeful that very soon all of the tartar will be gone.</li>
+<li> It works well with an electric toothbrush and really get the job done.  </li>
+<li> However, Plax works very well.</li>
+<li> /&gt;I&#x27;ll post another review when I&#x27;m tartar free to say how long it took.</li>
+<li> The only downside is it&#x27;s becoming increasingly difficult to find in retail stores, which is why I&#x27;m delighted I found it on Amazon.</li>
+<li> and I was looking forward to it from the HIGH reviews.</li>
+<li> Though most warning labels advise against swallowing any mouthwash, and urge anyone not to do so, or have little kids use this.</li>
+<li> I then would rinse and brush as normal with my toothpaste and mouthwash and tongue scraper.</li>
+<li> Since their prices were much lower than Plax even though the ingredients were exactly the same, I believe that lowered sales for Plax.</li>
+<li> So it has been exactly two weeks (today) since I started my PLAX Treatment for my 4 bottom front lower teeth (on the backs of these teeth)which have very heavy tartar and the rest of my teeth with light tartar.</li>
+<li> Very surprised.</li>
+<li> One of my teeth is about 50% clear of tartar now.</li>
+<li> My dental hygienist is convinced it can&#x27;t work even in the face of clear evidence that it does.</li>
+<li> This is the only product we have found that really keeps the plaque off the teeth.</li>
+<li> In august 2013 I got adult braces.</li>
+<li> Wow.</li>
+<li> I then BRUSH and really scrub with ONLY THE PLAX.</li>
+<li> So this stuff, Plax, does work very well after the plaque is initially removed either by your dentist or yourself.&lt;br /&gt;&lt;br /&gt;I</li>
+<li> The yogurt items were a Christmas gift for my wife, and so far, she has made two units.</li>
+<li> only hope that the private label versions have sold well enough so that those products will continue to be available for us when Plax completely disappears.&lt;br /&gt;&lt;br</li>
+<li> You might as well anyway to not waste...</li>
+<li> I still have more tartar behind my teeth, but a good portion also chiipped off from behind there as well.</li>
+<li> A must for those with braces or other dental appliances as it helps you maintain and keep a clean mouth if used regularly.</li>
+<li> what is also true is that Plax does not kill those germs, it just dissolves out the shit hanging on your teeth.&lt;br</li>
+<li> okay i was very skeptical about this at first, but after i tried it, it seemed to help me cure gingivitis!</li>
+<li> As much as I like to shop at local stores for my needs, I frequently have trouble finding the product at a reasonable price at local stores.</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> I would recommend people to use this product. It removes plaque in your teeth effectively. Regular mouth wash does not help remove plaque. However, Plax works very well.</li>
+    <li> I always got plaque on my front bottom teeth really badly and brushing and dental flossing didn&#x27;t do much to get rid of it either. So I did some research and found that Plax is one of the best pre rinse mouth washes for plaque removal. I decided to buy the 4 pack and here is my honest review.&lt;br /&gt;&lt;br /&gt;After 1 week of using Plax 2x each day, my plaque didn&#x27;t come off from brushing and dental flossing. So I got a pick and to my surprise my plaque came off quite easily. Guess what, my plaque hasn&#x27;t come back like it usually does after a week of just regular brushing. So this stuff, Plax, does work very well after the plaque is initially removed either by your dentist or yourself.&lt;br /&gt;&lt;br /&gt;I use one cap full and swish for a few minutes, then brush and dental floss, total time of about 15 minutes after breakfast and before I go to bed. My gums are healthier now and the plaque hasn&#x27;t come back.&lt;br /&gt;&lt;br /&gt;The reason some people have a plaque issue, is their Ph balance in their saliva is off and their stomach acid levels are too low and it&#x27;s their immune system. (genetics) Nothing you can really do besides use Plax and an anti-tartar toothpaste 2x each day and if you still get some plaque, it comes off very easily with a pick due to the Plax product. But using Plax regularly after the teeth have been cleaned of Plaque, you shouldn&#x27;t get anymore, like it is in my case.&lt;br /&gt;&lt;br /&gt;THANK YOU!!!!</li>
+    <li> Mouthwash, anti-plaque... you name it! Together with brushing it keeps my dentist away and poor.  Sorry buddy, Plax does it!</li>
+    <li> I have been using plax before brushing my teeth for a number of years.  I truly believe that plax has reduced bacteria in my mouth as evideced by my dental and gum health.  As much as I like to shop at local stores for my needs, I frequently have trouble finding the product at a reasonable price at local stores.</li>
+    <li> No more dentist teeth cleaning! Keeps the teeth surface smoother and clean. My gum bleeding is gone! It&#x27;s so awesome that I bought for all my friends and relatives for Christmas present :)</li>
+    <li> This is the regular Plax (not a knock off product). With the free shipping and no tax, it beat the prices I can get at the local stores even on sales. However, it still isn&#x27;t very cheap. Maybe if you get lucky with a sale you can beat the price at retail.    I use a little measure graduated cylinder (rectangle actually) from a water test kit to measure out about 7ml when I use this stuff. If you swig it out of the bottle you&#x27;ll find you probably use 10-20 ml per rinse. All you really need is 6 to 7 ml, and at the prices for this, you are wise to make yourself measure it out. You might as well anyway to not waste...</li>
+    <li> Just so you know, Johnson &amp; Johnson stopped manufacturing this product in BOTH flavors a long time ago. I called the company to confirm. They no longer have any stock. That&#x27;s why you can&#x27;t find it locally. What we are purchasing here on Amazon is the last of the stock that independent sellers have in their warehouses and that&#x27;s the last of it.&lt;br /&gt;&lt;br /&gt;They said they stopped production because the product didn&#x27;t sell. I believe there were two reasons:&lt;br /&gt;&lt;br /&gt;1. Some of the reviewers here on Amazon shared dental studies that supposedly \\&quot;proved\\&quot; the dental rinse had no benefit.&lt;br /&gt;&lt;br /&gt;2. Many supermarkets and drugstores have sold their own private label versions of this product. Since their prices were much lower than Plax even though the ingredients were exactly the same, I believe that lowered sales for Plax. I was just as happy with the private label versions myself.&lt;br /&gt;&lt;br /&gt;This is a great product and I believe it does exactly what it&#x27;s supposed to do, despite those studies/reports.&lt;br /&gt;&lt;br /&gt;I only hope that the private label versions have sold well enough so that those products will continue to be available for us when Plax completely disappears.&lt;br /&gt;&lt;br /&gt;Hope this helps.</li>
+    <li> I&#x27;ve used Plax for 20 years now.  It, along with flossing, are the reasons my dentist and I believe I have such great dental health.  All of my immediate family by my age (54) had lost all of their teeth due to gum disease.  I have not.  I credit Plax with the difference.  It works well with an electric toothbrush and really get the job done.  The only downside is it&#x27;s becoming increasingly difficult to find in retail stores, which is why I&#x27;m delighted I found it on Amazon.</li>
+    <li> I bought this after watching a youtube video that I found from googling how to remove plaque. I had a HUGE buildup on my bottom teeth. One of my bottom teeth really sticks out and it makes a pocket behind it and tartar had built up both behind my teeth and on the sides of the one tooth that sticks on from the frontal view. I was SO self-conscious about smiling and having my bottom teeth show since you could see it! I also whiten my teeth and it was fine before, but now with the tartar, the teeth were whitening and this HORRIBLE yellow tartar was sticking out from my bottom teeth more than ever. That&#x27;s when I knew I had to find a solution.&lt;br /&gt;&lt;br /&gt;So I found the youtube video that recommended the product and I bought it right away, also after reading hundreds of reviews swearing it would work, from walgreens (though it&#x27;s cheaper at walmart). I then started to religiously use it twice a day, sometimes even twice in one tooth brushing!&lt;br /&gt;&lt;br /&gt;First, I would floss, BEFORE USING THE PLAX. I would then swoosh it in my mouth for ONE WHOLE MINUTE rather than the 30 seconds. I then BRUSH and really scrub with ONLY THE PLAX. I then would rinse and brush as normal with my toothpaste and mouthwash and tongue scraper. Then, I FLOSS FLOSS FLOOS. I&#x27;d even do it in a mirror I set up by a window so I had pleanty of sunlight to see what I was doing. And at the end of each week I&#x27;d also use a water pick just to be sure I kept the spaces between my teeth wax free.&lt;br /&gt;&lt;br /&gt;When I first began, i couldn&#x27;t even get the floss between my teeth where the tooth I have sticks out! But after 2 days, the floss finally broke through. Meanwhile, little bits seemed to be flossing off from every other tooth on my bottom row of teeth. After about a week, I could floss between each tooth, comfortaly, all the way to the bottom of my gum lines, and spaces were showing again between my bottom teeth (except for the one that stuck out). By this point, the back of my teeth were also feeling like sand paper when I ran my tongue over it. Gradually, over time, the faults between my teeth, where I had been flossing, also seemed to grow each time I flossed. After 3 weeks, I finally grabbed some old tweezers and began to scape. I had tried this before, but had no results... However this time (aka TODAY!) the tartar just CHIPPED OFF! I now have COMPLETLY clean from teeth! I can smile SO comfortably now and can&#x27;t wait to go to school to smile at everyone I see! I still have more tartar behind my teeth, but a good portion also chiipped off from behind there as well. So I expect in the next upcoming weeks, with rigorous use, the rest will brush/floss/chip off over time. I am ECSTATIC to have found this product and COMPLETLY reccomend everyone to incorporate it into their daily routine!&lt;br /&gt;&lt;br /&gt;ALSOOOOOO, I have noticed my teeth now get WHITER when I whiten. It&#x27;s as if I brushed off tartar from all my teeth&#x27;s surfaces! I even made my friend use the plax religiously for ONLY 2 DAYS (twice a day) and his teeth looked whiter too! Don&#x27;t listen to dentists! THIS STUFF WORKS!!&lt;br /&gt;&lt;br /&gt;And one more thing... When you begin to use this product, after you swoosh the fluid for the minute, it comes out VERY thick. Well, over time it stops coming out thick. That&#x27;s how you know it&#x27;s working as well. This product is a god send.....&lt;br /&gt;&lt;br /&gt;I&#x27;ll post another review when I&#x27;m tartar free to say how long it took. But I know that it will take longer than a month... Trust me, if this works for me, it can work for ANYONE! I&#x27;m not saying my teeth were HORRIBLE before (though it totally sounds that way...) but I just want to give the best description I can. I also haven&#x27;t seen a dentist in 7 years due to money issues &#x3D;[ THIS WILL WORK! JUST KEEP UP WITH THE ROUTINE AND DON&#x27;T GIVE UP!</li>
+    <li> Not pleasant taste but recommended by dentist</li>
+    <li> It tastes great and, since I&#x27;ve been using it (over 5 yrs.,) my dental check-ups have been great.  NO cavities.  In the past, such was NEVER the case!!</li>
+    <li> Just had my annual checkup and cleaning at the dentist, and, like always, the hygienist took one look in my mouth and said, &amp;#34;Wow! Your teeth are so clean! What toothpaste do you use?&amp;#34; And, like always, I said, &amp;#34;I don&#x27;t use toothpaste. I just swish some Plax around in my mouth and brush my teeth with the Plax liquid.&amp;#34; And, yup, like always, she said, &amp;#34;But there aren&#x27;t any active ingredients in Plax. It doesn&#x27;t do anything.&amp;#34; And, like always, I then asked, &amp;#34;Well, if it &#x27;doesn&#x27;t do anything&#x27;, THEN WHY ARE MY TEETH SO CLEAN AND FREE FROM PLAQUE???&amp;#34;&lt;br /&gt;&lt;br /&gt;So yeah, I don&#x27;t know why it works. My dental hygienist is convinced it can&#x27;t work even in the face of clear evidence that it does. But regardless of her opinion, I love the stuff.&lt;br /&gt;&lt;br /&gt;So...I&#x27;ll probably have the same silly conversation with my dental hygienist same time next year. (But that&#x27;s okay. I&#x27;ll just smile at her with my clean, white teeth.)</li>
+    <li> Wow. Very surprised. Up until now, for the past few months, I&#x27;ve had a tartar problem, it hasn&#x27;t gotten worse, but I&#x27;ve kept it maintained so it couldn&#x27;t get any worse. With all the brushing and rinsing I&#x27;ve done, I was just now starting to plan a trip to the dentist (and I still might, because I&#x27;d still recommend it- you don&#x27;t want to lose teeth!).&lt;br /&gt;&lt;br /&gt;However, I may prolong it a bit, because within the 2-5 days I&#x27;ve been using Plax, the tartar that has been unmoved for months has started to chip off my teeth! One of my teeth is about 50% clear of tartar now. Not plaque, tartar (calculus). Other teeth are likely to follow.&lt;br /&gt;&lt;br /&gt;I&#x27;m 99% sure Plax aided in this, as I had not been using pre-brush rinses up to this point, only post-brush rinses to help strengthen teeth and freshen breath.&lt;br /&gt;&lt;br /&gt;I was VERY SKEPTICAL originally, being told by countless others that it HAS to be removed by a dentist, well this is so far a success story for this product. My tartar is starting to disappear. If I can remember to, I will update this as it continues, but I&#x27;m excited now and had to leave a review. Thanks to you other guys that mentioned it removed your tartar, as that helped lead me to try it out.&lt;br /&gt;&lt;br /&gt;Very happy I did.</li>
+    <li> In July 2013 I saw my dentist and she told me I had gingivitis. That scared me to i did a bit of research on dental routines. I picked up plax and have used it every day before brushing my teeth since. In august 2013 I got adult braces. I saw my dentist yesterday for a regular scaling and she told me in her 30 years experience she hasn&#x27;t seen someone with braces have teeth and gums this clean ever. She seriously went on and on about how there was zero plaque or tartar. I 100% credit plax since I only find time to floss about twice a week now having braces. It&#x27;s a little pricey but you only need a small amount to swish around. I think there&#x27;s a brown flavour but I&#x27;ve never actually seen it in store so I use the green.</li>
+    <li> Have tried it and not sure it is doing the job. Just make an extra dental appointment for cleaning a year. Easier and more thorough.</li>
+    <li> So it has been exactly two weeks (today) since I started my PLAX Treatment for my 4 bottom front lower teeth (on the backs of these teeth)which have very heavy tartar and the rest of my teeth with light tartar. Therefore I should go in every 3 to 4 months for a cleaning but hate to do this as this is a painful experience as my gums bleed during the cleaning and then they are sone for at least two weeks after each cleaning! So I researched and found PLAX Rinse. Began the first 5 days using this once or twice a day. However after 6 days, I stepped it up to three times a day and keep the rinse in my mouth for 50 to 60 seconds before I brush my teeth.&lt;br /&gt;&lt;br /&gt;Here are my results with PLAX after just TWO WEEKS:&lt;br /&gt;&lt;br /&gt;1) First 6 days - At first, I did notice that the tartar buildup seemed thinner than before, so I knew something was happening.&lt;br /&gt;2) Seventh day - YES!!! A big piece of tartar was removed from my 4 teeth (about 1/3 of the tartar or ½ was gone and I noticed that my teeth looked whiter and shinier.&lt;br /&gt;3) Tenth day - Another piece of tartar came off and my teeth are looking whiter and shiny. (Still have about 1/3 of the tartar left on these bottom front teeth, however having 2/3 gone after just 10 days is AMAZING)!&lt;br /&gt;4) Thirteenth day - So almost all the tartar is GONE. So I am very hopeful that very soon all of the tartar will be gone. This way when I see the dentist next month, I won&#x27;t have to sit in the chair so long for the cleaning and my gums won&#x27;t get so sore (hopefully).&lt;br /&gt;5) After two weeks - Like this PLAX so much that I just ordered more and I will continue to use PLAX 3 times a day to get rid of Plaque and PREVENT this tartar from coming back. My goal is to only have to have my teeth cleaned twice a year instead of every three to four months! What a great product!!!&lt;br /&gt;&lt;br /&gt;Very Highly Recommended!</li>
+    <li> This might be premature, but I had to share my observations on Plax.&lt;br /&gt;I have been using a whitening toothpaste for years, with little results. I was contemplating expensive and painful dental cleaning because my teeth were yellow tinted, and not improving. I can&#x27;t use whitening paste because it makes my teeth rather sore and burns. So I decided to use this Plax after reading the raves on it. I was disappointed I could not find it at any drug store, and had almost given up looking when I went to my local Walmart and saw rows and rows of it. Score.&lt;br /&gt;&lt;br /&gt;Well I bought it Wednesday and today is Sunday and I can already see my teeth are 3 shades whiter, and shinier. The taste is neither here nor there, it&#x27;s not overpowering like mouthwash. I use it once a day before I brush to also remove plaque on my crooked wisdom teeth. I cannot tell if they have improved but so far, so good. I will surely update this review, but I like what I&#x27;m seeing so far. My teeth feel smoother too. Though most warning labels advise against swallowing any mouthwash, and urge anyone not to do so, or have little kids use this. It&#x27;s too easy to accidentally swallow the Plax as you rinse. It&#x27;s an all around solid product, Plax don&#x27;t change. Don&#x27;t buy it online, unless you&#x27;re crazy.</li>
+    <li> I have seen an improvement in my oral health and this has been confirmed y my dentist....yeah will buy again</li>
+    <li> Hello brought this item I think it&#x27;s a great product just created a new blog about Plax if you need to see more info about this product than see here...[...].</li>
+    <li> The yogurt items were a Christmas gift for my wife, and so far, she has made two units. The rest of the items are items that I&#x27;ve enjoyed very much. Thanks.</li>
+    <li> We were so disappointed when it was discontinued, that I have always paid attention to when it became available online. She prefers it because it doesn&#x27;t burn like listerine.</li>
+    <li> I will definitely order again.</li>
+    <li> This is a good product and the service was excellent.</li>
+    <li> Plax works great. Good quality dental rinse with an acceptable price. I&#x27;m happy for buying this. The smeels is good and it really work.</li>
+    <li> This product seriously improved the feedback from my dentists and hygienists .  Back in 1988 a hygienist complained that it took too long for her to clean my teeth.  I introduced Plax (pre-brushing) and Listerine (post-brushing) then she stopped complaining, but still said that Plax is a myth that doesn&#x27;t do anything.  All my dentists and hygienists since then say I&#x27;m doing a great job.  Don&#x27;t let the naysayers influence you. This product works.</li>
+    <li> This *must* be working because I teeth get a little sensitive after using Plax and during brushing. (feels fine after)&lt;br /&gt;A little goes a long way. Half a cap full is more than enough.&lt;br /&gt;Don&#x27;t really care for the taste.&lt;br /&gt;&lt;br /&gt;I&#x27;ll report back long term if my teeth fall out or if calculus (sp?) falls off.&lt;br /&gt;&lt;br /&gt;As much as I LOVE Amazon. I can get this 24 oz green bottle from my local Target for under 6 bucks. It&#x27;s currently 9 bucks here (ouch).</li>
+    <li> okay i was very skeptical about this at first, but after i tried it, it seemed to help me cure gingivitis! and plus it softens up tartar buildup so you are actually brushing away hard tartar without the dentists need!    Amazing ive been using this for about a week now and 1 week ago i had a small tartar formation and today its reduced by a large percentage!    i freaking love Plax this will put those cheapskate dentists out of business!     Listerine and Crest despise products that actually help the teeth get rid of plaque and tartar    all Crest and Listerine can do is just give you a \\&quot;tartar and plaque fighting solution\\&quot; but Plax actually removes alot of plaque buildup and dissolves tartar    of course it doesnt say it dissolves tartar on the product but you have to use logic, tartar comes from fossilized plaque or plaque buildup    once you get rid of plaque you have raw access to tartar if you have raw access to tartar its only a matter of time until its all gone    5 stars.    oh its a prebrush rinse use it before you brush</li>
+    <li> It&#x27;s hard to find Plax nowadays.  Must have been a marketing stumble by the manufacturer.  For me, Plax always results in less scraping during dental visits.</li>
+    <li> I did some research online and kept seeing studies that show how ineffective PLAX is.&lt;br /&gt;This is my own experience, and reasoning.&lt;br /&gt;First, the directions tell you to rinse with plax, then brush as usual.&lt;br /&gt;This seems like telling someone to use a degreaser on an auto part, rinsing off the degreaser, then using a brush with hand soap. Silly way to use a product.&lt;br /&gt;&lt;br /&gt;I pour a reasonable amount into my mouth then use the brush, with plax to clean my teeth, gums and tongue.&lt;br /&gt;&lt;br /&gt;Plax actually does dissolve plaque. So that is why I brush with it, using it as a detergent while I brush!&lt;br /&gt;&lt;br /&gt;What is plaque? Plaque is layers of live germs, and dead germs, and germ shit. (Yeah, those germs eat food left in your mouth, and they shit out waste in your mouth.)&lt;br /&gt;&lt;br /&gt;Now what is also true is that Plax does not kill those germs, it just dissolves out the shit hanging on your teeth.&lt;br /&gt;&lt;br /&gt;So after getting that germ shit brushed out, using Plax, you wanna get rid of those germs, and to do THAT you wanna use Listerine, which does not dissolve plaque, but DOES kill the germs that cause plaque!&lt;br /&gt;&lt;br /&gt;To get your mouth clean, and keep it clean, use Plax to BRUSH, (not rinse), then finish with Listerine.&lt;br /&gt;:-)</li>
+    <li> Item was as described</li>
+    <li> I have been using Plax for many years.  Sometimes it is very hard to find.  I am glad I can order it online now.</li>
+    <li> Great pre rinse to help loosen all the gunk and nastiness that collects on your teeth and gums. A must for those with braces or other dental appliances as it helps you maintain and keep a clean mouth if used regularly. Helps with the prevention of plaque buildup and other issues.</li>
+    <li> I have used &amp;#34;Plax&amp;#34; for many years and highly recommend it to others. Tartar build-up has always been a challenge and &amp;#34;Plax&amp;#34; is very effective with its removal.</li>
+    <li> This is the only product we have found that really keeps the plaque off the teeth.</li>
+    <li> It was my very first time using this product and I was looking forward to it from the HIGH reviews. Unfortunately, I had an allergic reaction to the product from only using it for two days. It caused irritation of the lining of my mouth, tongue and gums. I had tingling and severe sloughing of the inner cheeks/skin. It was awful. I am very fortunate that Amazon offers a full return policy. I will NEVER use this product again. The other time I had this reaction was also to the Crest Tartar Protection. I&#x27;m assuming an ingredient in both of these will narrow down to what I may be allergic to.</li>
+    <li> I&#x27;ve been using this stuff for almost 20 years, and I&#x27;m getting worried because it&#x27;s getting harder and harder to find in drugstores.  Thank god Amazon stocks it.&lt;br /&gt;&lt;br /&gt;I am a chronic coffee and tea drinker, and for years I had steady buildup of stained plaque, especially in places like the back surfaces of my lower incisors (could see it in the mirror).&lt;br /&gt;&lt;br /&gt;I floss, use this stuff, and use a rotary electric toothbrush, it actually gets rid of existing built up plaque and the accompanying stains.  My teeth get actually, literally \\&quot;squeaky\\&quot; clean (as in, if I run my finger over them, they squeak like freshly polished glass.)  I can really tell the difference between brushing with this stuff and without it.&lt;br /&gt;&lt;br /&gt;I&#x27;ll be sad if this stuff ever goes off the market.</li>
+    <li> It says I&#x27;ll receive a pack of 4 but I only got a pack of 2! It takes a lot of money for it to be send from US to New Zealand, but I am really disappointed.</li>
+</ol>
+
+
+
+

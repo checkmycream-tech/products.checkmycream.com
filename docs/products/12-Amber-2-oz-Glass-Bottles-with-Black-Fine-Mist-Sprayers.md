@@ -1,0 +1,130 @@
+---
+title: 12, Amber, 2 oz Glass Bottles, with Black Fine Mist Sprayers,
+description: 12, Amber, 2 oz Glass Bottles, with Black Fine Mist Sprayers,
+author: Suvojit Manna,
+tags: 12, Amber, 2 oz Glass Bottles, with Black Fine Mist Sprayers,
+publishedAt: Fri Jan 10 2020 15:01:08 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:01:08 GMT+0530 (India Standard Time),
+---
+
+# [12, Amber, 2 oz Glass Bottles, with Black Fine Mist Sprayers](https://products.checkmycream.com/products/12-Amber-2-oz-Glass-Bottles-with-Black-Fine-Mist-Sprayers.html)
+
+### Positive Reviews
+
+<ol>
+      <li>These are great bottles!  </li>
+      <li>Excellent quality glass bottles -</li>
+      <li>Perfect size for making up DIY room sprays to freshen and deodorize rooms.</li>
+      <li>Lid fits perfect and doesn&#x27;t leak!!!</li>
+      <li>Great!</li>
+      <li>Great bottles...perfect size</li>
+      <li>Will be purchasing again because the size and quality are great.</li>
+      <li>Great products</li>
+      <li>Great Product.  </li>
+      <li>They are the best and they arrived very quickly.</li>
+      <li>good quality bottles and great price my essential oil mixtures are perfect for it.  </li>
+      <li>Love the spray bottles!</li>
+      <li>I did not expect these bottles to be so nice for the price.  </li>
+      <li>Nice bottles that I am using for ink spraying.</li>
+      <li>Love these 2 oz  bottles.</li>
+      <li>/&gt;I&#x27;m really pleased with these bottles.</li>
+      <li>Love them.  </li>
+      <li>These sprayers and bottles are of top quality.</li>
+      <li>Love this product.</li>
+      <li>Perfect size for essential oils</li>
+      <li>Top quality.</li>
+      <li>I ordered the fine mist sprayer tops, but received eye dropper tips instead.</li>
+      <li>they work fine.  </li>
+      <li>Perfect for a little spritz bottle.</li>
+      <li>When will they be available again?</li>
+      <li>Great price and quality especially for the quantity!</li>
+      <li>Arrived quickly</li>
+      <li>Quick service and</li>
+      <li>Extremely satisfied and highly recommend.  </li>
+      <li>Using these to make my own essential oil blends.</li>
+      <li>Got these for my wife&#x27;s essential oils, the work great so far for what she has needed them for.</li>
+      <li>Fast shipping!</li>
+      <li>thanks</li>
+      <li>Really like the size of these.</li>
+      <li>I have bought many of these from other seller.</li>
+      <li>Only used a few so far, and all have worked really well.</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> These are great bottles!  </li>
+<li> Excellent quality glass bottles -</li>
+<li> Perfect size for making up DIY room sprays to freshen and deodorize rooms.</li>
+<li> Lid fits perfect and doesn&#x27;t leak!!!</li>
+<li> Great!</li>
+<li> Great bottles...perfect size</li>
+<li> Will be purchasing again because the size and quality are great.</li>
+<li> Great products</li>
+<li> Great Product.  </li>
+<li> They are the best and they arrived very quickly.</li>
+<li> good quality bottles and great price my essential oil mixtures are perfect for it.  </li>
+<li> Love the spray bottles!</li>
+<li> I did not expect these bottles to be so nice for the price.  </li>
+<li> Nice bottles that I am using for ink spraying.</li>
+<li> Love these 2 oz  bottles.</li>
+<li> /&gt;I&#x27;m really pleased with these bottles.</li>
+<li> Love them.  </li>
+<li> These sprayers and bottles are of top quality.</li>
+<li> Love this product.</li>
+<li> Perfect size for essential oils</li>
+<li> Top quality.</li>
+<li> I ordered the fine mist sprayer tops, but received eye dropper tips instead.</li>
+<li> they work fine.  </li>
+<li> Perfect for a little spritz bottle.</li>
+<li> When will they be available again?</li>
+<li> Great price and quality especially for the quantity!</li>
+<li> Arrived quickly</li>
+<li> Quick service and</li>
+<li> Extremely satisfied and highly recommend.  </li>
+<li> Using these to make my own essential oil blends.</li>
+<li> Got these for my wife&#x27;s essential oils, the work great so far for what she has needed them for.</li>
+<li> Fast shipping!</li>
+<li> thanks</li>
+<li> Really like the size of these.</li>
+<li> I have bought many of these from other seller.</li>
+<li> Only used a few so far, and all have worked really well.</li>
+<li> I have not had the problem other reviewers had with spray nozzles not working -- all of mine worked flawlessly.&lt;br /&gt;&lt;br</li>
+<li> Not to big and not to small</li>
+<li> the roller and tops do not fit.</li>
+<li> total crap 90% come in broken or</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> Fast shipping! Love the spray bottles!</li>
+    <li> Arrived as described. Nice bottles that I am using for ink spraying.</li>
+    <li> These are great bottles!  Love them.  When will they be available again?</li>
+    <li> 2 of the bottles I have tried to use will not spray!</li>
+    <li> Only used a few so far, and all have worked really well.</li>
+    <li> Love this product. Lid fits perfect and doesn&#x27;t leak!!!</li>
+    <li> My intent is to use these for perfumes and colognes.  These sprayers and bottles are of top quality.</li>
+    <li> Great! Just what I was looking for!</li>
+    <li> Perfect size for essential oils</li>
+    <li> Top quality. I have bought many of these from other seller. total crap 90% come in broken or the roller and tops do not fit. Not with these. They are the best and they arrived very quickly.</li>
+    <li> I ordered the fine mist sprayer tops, but received eye dropper tips instead.</li>
+    <li> Great Product.  Arrived quickly</li>
+    <li> Great bottles...perfect size</li>
+    <li> Got these for my wife&#x27;s essential oils, the work great so far for what she has needed them for.</li>
+    <li> Perfect size for making up DIY room sprays to freshen and deodorize rooms. Will be purchasing again because the size and quality are great.</li>
+    <li> Excellent quality glass bottles - I did not expect these bottles to be so nice for the price.  Extremely satisfied and highly recommend.  Using these to make my own essential oil blends.</li>
+    <li> Great price and quality especially for the quantity!</li>
+    <li> I have not had the problem other reviewers had with spray nozzles not working -- all of mine worked flawlessly.&lt;br /&gt;&lt;br /&gt;I&#x27;m really pleased with these bottles. I made room freshener sprays with essential oils and vodka (hic!) to give as gifts to my guests.</li>
+    <li> good quality bottles and great price my essential oil mixtures are perfect for it.  Like the 2 oz size</li>
+    <li> Perfect for a little spritz bottle. Not to big and not to small</li>
+    <li> Love these 2 oz  bottles.</li>
+    <li> Quick service and they work fine.  thanks</li>
+    <li> came on time and just what i  needed for project</li>
+    <li> Just what I was looking for! Great products</li>
+    <li> Really like the size of these.</li>
+</ol>
+
+
+
+

@@ -1,0 +1,77 @@
+---
+title: Doinshop Women Bohemia Bar Alloy Necklace Simple Little Triangular Tassels Chian,
+description: Doinshop Women Bohemia Bar Alloy Necklace Simple Little Triangular Tassels Chian,
+author: Suvojit Manna,
+tags: Doinshop Women Bohemia Bar Alloy Necklace Simple Little Triangular Tassels Chian,
+publishedAt: Fri Jan 10 2020 15:01:08 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:01:08 GMT+0530 (India Standard Time),
+---
+
+# [Doinshop Women Bohemia Bar Alloy Necklace Simple Little Triangular Tassels Chian](https://products.checkmycream.com/products/Doinshop-Women-Bohemia-Bar-Alloy-Necklace-Simple-Little-Triangular-Tassels-Chian.html)
+
+### Positive Reviews
+
+<ol>
+      <li>Very good necklace.</li>
+      <li>This is SO CUTE on!  </li>
+      <li>It&#x27;s ok for the price!</li>
+      <li>It&#x27;s nice for the purchase price.</li>
+      <li>Thought i would get more wears out of it.</li>
+      <li>Great for the price, a little cheap but not terrible and looks beautiful with any outfit.</li>
+      <li>Does not look cute like in picture looks tacky and cheaply made</li>
+      <li>so it was easy to fix.</li>
+      <li>I tried to clean it so it would come off</li>
+      <li>very pretty and for the price the qulaity didnt suprise me, but it still really is just a cheap jewelery peice</li>
+      <li>I was a little scared to buy it, but it turned out great and came just on time.</li>
+      <li>dulled out pretty quickly</li>
+      <li>Such a pretty necklace</li>
+      <li>but i fixed it, it had all the pieces.</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> Very good necklace.</li>
+<li> This is SO CUTE on!  </li>
+<li> It&#x27;s ok for the price!</li>
+<li> It&#x27;s nice for the purchase price.</li>
+<li> Thought i would get more wears out of it.</li>
+<li> Great for the price, a little cheap but not terrible and looks beautiful with any outfit.</li>
+<li> Does not look cute like in picture looks tacky and cheaply made</li>
+<li> so it was easy to fix.</li>
+<li> I tried to clean it so it would come off</li>
+<li> very pretty and for the price the qulaity didnt suprise me, but it still really is just a cheap jewelery peice</li>
+<li> I was a little scared to buy it, but it turned out great and came just on time.</li>
+<li> dulled out pretty quickly</li>
+<li> Such a pretty necklace</li>
+<li> but i fixed it, it had all the pieces.</li>
+<li> Was hard to figure out how it actually went back together though</li>
+<li> Not worth buying.</li>
+<li> It came broken</li>
+<li> I&#x27;m not happy with it at all.</li>
+<li> Worst thing i purchased</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> Not worth buying. Chain and arrow part is a lot bigger and longer than picture. Does not look cute like in picture looks tacky and cheaply made</li>
+    <li> It broke the second I tried putting it on. The clasp broke day I got it</li>
+    <li> It came broken but i fixed it, it had all the pieces. Was hard to figure out how it actually went back together though but i&#x27;m just nifty like that so it was easy to fix. Only thing is it started to lose it&#x27;s shiney-ness. Thought i would get more wears out of it. Still like it though..</li>
+    <li> dulled out pretty quickly</li>
+    <li> Such a pretty necklace</li>
+    <li> It&#x27;s nice for the purchase price.</li>
+    <li> It&#x27;s ok for the price!</li>
+    <li> Looks THe Same As When I Got It And In Fact Came Before Time</li>
+    <li> Great for the price, a little cheap but not terrible and looks beautiful with any outfit.</li>
+    <li> Turned rust color in one day</li>
+    <li> This is SO CUTE on!  It hasn&#x27;t tarnished yet and I wear it almost every day (had it for about a month now.</li>
+    <li> Worst thing i purchased</li>
+    <li> Very good necklace. I was a little scared to buy it, but it turned out great and came just on time. I recommend this product</li>
+    <li> Just recived the necklace in the mail today. The Cain looks nothing like the picture also the rectangle and triangle on the necklace have finger prints on them. I tried to clean it so it would come off that didnt work. I&#x27;m not happy with it at all. I will not be wearing it at all😐</li>
+    <li> very pretty and for the price the qulaity didnt suprise me, but it still really is just a cheap jewelery peice</li>
+</ol>
+
+
+
+

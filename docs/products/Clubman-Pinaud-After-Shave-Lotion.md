@@ -1,0 +1,477 @@
+---
+title: Clubman Pinaud After Shave Lotion,
+description: Clubman Pinaud After Shave Lotion,
+author: Suvojit Manna,
+tags: Clubman Pinaud After Shave Lotion,
+publishedAt: Fri Jan 10 2020 14:59:58 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:59:58 GMT+0530 (India Standard Time),
+---
+
+# [Clubman Pinaud After Shave Lotion](https://products.checkmycream.com/products/Clubman-Pinaud-After-Shave-Lotion.html)
+
+### Positive Reviews
+
+<ol>
+      <li>After Shave Lotion and give as Presents to Friends and it is just a Great Product!  </li>
+      <li>Awesome stuff here!</li>
+      <li>Great Item!</li>
+      <li>Just a Barber shop, nothing fancy, but one of the best places to be on a Saturday morning.&lt;br /&gt;&lt;br</li>
+      <li>Amazing!!!</li>
+      <li>/&gt;It is great, if you like it!</li>
+      <li>superb!</li>
+      <li>and its so affordable its awesome</li>
+      <li>the best smell ive had in all of my aftershaves.</li>
+      <li>And Best Of All . . .</li>
+      <li>Hey this stuff is awesome.</li>
+      <li>Perfect cologne in my opinion.</li>
+      <li>very happy with it.</li>
+      <li>best smelling stuff , wife loves it , when i shave</li>
+      <li>is the best ...</li>
+      <li>excellent!</li>
+      <li>I have used it for years, wonderful scent.</li>
+      <li>Wonderful, bracing, can&#x27;t beat the classics!!</li>
+      <li>But MY GOD it smells so good!!</li>
+      <li>I am very happy with the product and will buy it again and again.  </li>
+      <li>Excellent.</li>
+      <li>I love the smell of this!!!!!!</li>
+      <li>Excellent product.</li>
+      <li>and great price !</li>
+      <li>it&#x27;s actually very pleasant and lasts for hours.&lt;br /&gt;&lt;br</li>
+      <li>It has a very pleasant smell to it.</li>
+      <li>This is some very good aftershave.</li>
+      <li>This is the Good Stuff!</li>
+      <li>Good stuff!</li>
+      <li>That awesome retro scent!&lt;br /&gt;Cools the face after a good shave.</li>
+      <li>It has been around for years and it is still one of the best on the market, It is a very refreshing after shave, with a great scent.</li>
+      <li>Feels great and lasts all day.</li>
+      <li>If I can just win over her nose....</li>
+      <li>feels and smells great.  </li>
+      <li>I was not to happy with the smell of this product.</li>
+      <li>What a great manly scent.  </li>
+      <li>Great fragrance.</li>
+      <li>Great smell, wish it weren&#x27;t alcohol based</li>
+      <li>Great product, just like when I was a kid.</li>
+      <li>Packaging form this supplier was great.</li>
+      <li>A great feeling that stays with you.  </li>
+      <li>The Great Scent . . .</li>
+      <li>Makes a great gift</li>
+      <li>This is a great aftershave.</li>
+      <li>The combination of these two things have greatly minimized razor bumps and shaving iritation.</li>
+      <li>Just a great product.</li>
+      <li>This is a great aftershave.  </li>
+      <li>Everything by this maker is great.</li>
+      <li>This product is great for the price.  </li>
+      <li>This stuff makes my face feel great</li>
+      <li>Feels great on my face after a shave.</li>
+      <li>He&#x27;s happy with it.</li>
+      <li>Great price.</li>
+      <li>This product is great</li>
+      <li>a nice price savings on an excellent product</li>
+      <li>Great stuff</li>
+      <li>I had forgotten how great the product was.</li>
+      <li>great product, I use it after every shave.</li>
+      <li>smells great, does its job</li>
+      <li>Great aftershave and gets rid of razor burn on contact.  </li>
+      <li>Smells and feels great</li>
+      <li>Also works great to soothe your face after shaving.</li>
+      <li>Feels great after I splash this on after a shave.</li>
+      <li>it is great.</li>
+      <li>That way, you won&#x27;t overpower this great scent.&lt;br</li>
+      <li>A great value.</li>
+      <li>Another great product by Clubman.</li>
+      <li>Love this stuff!!</li>
+      <li>/&gt;Seriously great stuff!  :-)</li>
+      <li>smells great and gives me that barber shop feel I&#x27;ve always loved</li>
+      <li>If you grew up in the 40&#x27;s, 50&#x27;s, or 60&#x27;s and ever got a haircut at the barbershop, you know this wonderful refreshing smell.</li>
+      <li>Refreshing, brisk - just perfect.</li>
+      <li>I can literally smell my hands around my ring in the afternoon and the scent still pleasantly lingers.</li>
+      <li>I&#x27;ve never had a so pleasant aftershave....</li>
+      <li>Scent is pleasant if you like the smell of something like Brut that you can get at any walgreens.</li>
+      <li>It&#x27;s still perfect; a great after shave, with a clean low-key scent.</li>
+      <li>I don&#x27;t think it is as good as aqua velva or something like that.</li>
+      <li>It is a scent that men have associated with barber shops and a good barber shave for centuries.&lt;br /&gt;&lt;br</li>
+      <li>It smells so good, though.  </li>
+      <li>As a plus, he says it&#x27;s good for the skin too.</li>
+      <li>Never go below the floor, and if you are wise, add another decade and count your blessings.</li>
+      <li>Good one.</li>
+      <li>Smells good and seems to work well.  </li>
+      <li>This stuff can&#x27;t be good for your skin.</li>
+      <li>Good value for 12.5 ounces -</li>
+      <li>She said no, it&#x27;s a good thing because she loved the smell of her</li>
+      <li>and I absolutely loved it.&lt;br /&gt;&lt;br /&gt;I</li>
+      <li>It&#x27;s good for your face</li>
+      <li>:) My daughter thought is smelt good on her dad!  </li>
+      <li>Grab your top hat and best cane and make sure your lady has on her finest petticoat when you go out with this on your face.</li>
+      <li>Very refreshing scent</li>
+      <li>I can&#x27;t pinpoint what it is, but it just smells of this amazing scent that I&#x27;ve loved.  </li>
+      <li>love it at this great amazon price. will continue to buy.</li>
+      <li>Still  very  satisfied  </li>
+      <li>Very satisfied with price.</li>
+      <li>Good after a nice close shave.</li>
+      <li>It smells good, but a bit like a really nice sun screen.  </li>
+      <li>Product feels good on the skin after a nice shave with a DE razor.  </li>
+      <li>This is a nice after shave that feels good on the skin and doesn&#x27;t smell too &amp;#34;loud&amp;#34; (for me....).</li>
+      <li>This stuff is VERY potent -- like to where it kind of burns my nostrils.  </li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> After Shave Lotion and give as Presents to Friends and it is just a Great Product!  </li>
+<li> Awesome stuff here!</li>
+<li> Great Item!</li>
+<li> Just a Barber shop, nothing fancy, but one of the best places to be on a Saturday morning.&lt;br /&gt;&lt;br</li>
+<li> Amazing!!!</li>
+<li> /&gt;It is great, if you like it!</li>
+<li> superb!</li>
+<li> and its so affordable its awesome</li>
+<li> the best smell ive had in all of my aftershaves.</li>
+<li> And Best Of All . . .</li>
+<li> Hey this stuff is awesome.</li>
+<li> Perfect cologne in my opinion.</li>
+<li> very happy with it.</li>
+<li> best smelling stuff , wife loves it , when i shave</li>
+<li> is the best ...</li>
+<li> excellent!</li>
+<li> I have used it for years, wonderful scent.</li>
+<li> Wonderful, bracing, can&#x27;t beat the classics!!</li>
+<li> But MY GOD it smells so good!!</li>
+<li> I am very happy with the product and will buy it again and again.  </li>
+<li> Excellent.</li>
+<li> I love the smell of this!!!!!!</li>
+<li> Excellent product.</li>
+<li> and great price !</li>
+<li> it&#x27;s actually very pleasant and lasts for hours.&lt;br /&gt;&lt;br</li>
+<li> It has a very pleasant smell to it.</li>
+<li> This is some very good aftershave.</li>
+<li> This is the Good Stuff!</li>
+<li> Good stuff!</li>
+<li> That awesome retro scent!&lt;br /&gt;Cools the face after a good shave.</li>
+<li> It has been around for years and it is still one of the best on the market, It is a very refreshing after shave, with a great scent.</li>
+<li> Feels great and lasts all day.</li>
+<li> If I can just win over her nose....</li>
+<li> feels and smells great.  </li>
+<li> I was not to happy with the smell of this product.</li>
+<li> What a great manly scent.  </li>
+<li> Great fragrance.</li>
+<li> Great smell, wish it weren&#x27;t alcohol based</li>
+<li> Great product, just like when I was a kid.</li>
+<li> Packaging form this supplier was great.</li>
+<li> A great feeling that stays with you.  </li>
+<li> The Great Scent . . .</li>
+<li> Makes a great gift</li>
+<li> This is a great aftershave.</li>
+<li> The combination of these two things have greatly minimized razor bumps and shaving iritation.</li>
+<li> Just a great product.</li>
+<li> This is a great aftershave.  </li>
+<li> Everything by this maker is great.</li>
+<li> This product is great for the price.  </li>
+<li> This stuff makes my face feel great</li>
+<li> Feels great on my face after a shave.</li>
+<li> He&#x27;s happy with it.</li>
+<li> Great price.</li>
+<li> This product is great</li>
+<li> a nice price savings on an excellent product</li>
+<li> Great stuff</li>
+<li> I had forgotten how great the product was.</li>
+<li> great product, I use it after every shave.</li>
+<li> smells great, does its job</li>
+<li> Great aftershave and gets rid of razor burn on contact.  </li>
+<li> Smells and feels great</li>
+<li> Also works great to soothe your face after shaving.</li>
+<li> Feels great after I splash this on after a shave.</li>
+<li> it is great.</li>
+<li> That way, you won&#x27;t overpower this great scent.&lt;br</li>
+<li> A great value.</li>
+<li> Another great product by Clubman.</li>
+<li> Love this stuff!!</li>
+<li> /&gt;Seriously great stuff!  :-)</li>
+<li> smells great and gives me that barber shop feel I&#x27;ve always loved</li>
+<li> If you grew up in the 40&#x27;s, 50&#x27;s, or 60&#x27;s and ever got a haircut at the barbershop, you know this wonderful refreshing smell.</li>
+<li> Refreshing, brisk - just perfect.</li>
+<li> I can literally smell my hands around my ring in the afternoon and the scent still pleasantly lingers.</li>
+<li> I&#x27;ve never had a so pleasant aftershave....</li>
+<li> Scent is pleasant if you like the smell of something like Brut that you can get at any walgreens.</li>
+<li> It&#x27;s still perfect; a great after shave, with a clean low-key scent.</li>
+<li> I don&#x27;t think it is as good as aqua velva or something like that.</li>
+<li> It is a scent that men have associated with barber shops and a good barber shave for centuries.&lt;br /&gt;&lt;br</li>
+<li> It smells so good, though.  </li>
+<li> As a plus, he says it&#x27;s good for the skin too.</li>
+<li> Never go below the floor, and if you are wise, add another decade and count your blessings.</li>
+<li> Good one.</li>
+<li> Smells good and seems to work well.  </li>
+<li> This stuff can&#x27;t be good for your skin.</li>
+<li> Good value for 12.5 ounces -</li>
+<li> She said no, it&#x27;s a good thing because she loved the smell of her</li>
+<li> and I absolutely loved it.&lt;br /&gt;&lt;br /&gt;I</li>
+<li> It&#x27;s good for your face</li>
+<li> :) My daughter thought is smelt good on her dad!  </li>
+<li> Grab your top hat and best cane and make sure your lady has on her finest petticoat when you go out with this on your face.</li>
+<li> Very refreshing scent</li>
+<li> I can&#x27;t pinpoint what it is, but it just smells of this amazing scent that I&#x27;ve loved.  </li>
+<li> love it at this great amazon price. will continue to buy.</li>
+<li> Still  very  satisfied  </li>
+<li> Very satisfied with price.</li>
+<li> Good after a nice close shave.</li>
+<li> It smells good, but a bit like a really nice sun screen.  </li>
+<li> Product feels good on the skin after a nice shave with a DE razor.  </li>
+<li> This is a nice after shave that feels good on the skin and doesn&#x27;t smell too &amp;#34;loud&amp;#34; (for me....).</li>
+<li> This stuff is VERY potent -- like to where it kind of burns my nostrils.  </li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> Awesome stuff here! classic barber shop scent.</li>
+    <li> Nothing will let you know you cut yourself shaving, or know that you smell like a man, quicker than this aftershave lotion.</li>
+    <li> Feels great after I splash this on after a shave. Makes my skin feel clean and refreshed and my razor burn on my throat has diminished greatly after using this product. The slight burn after a really close shave is really invigorating too. I even splash some on after a shower the next day or day after that. It just feels good and primes my skin for the next shave I think. Smell is powerful at first but it fades at just the right rate and leaves me smelling good and not overpowering. I would definitely recommend this product to any of my friends.</li>
+    <li> I use this to fill the 6 oz squeeze bottle.  Been using this for years as I like the smell of just leaving the Barber&#x27;s Chair.  Packed and shipped well.</li>
+    <li> Bring the good old after shave lotion of yesteryears back home with the Clubman Pinaud . Great price, easy on the noise and skin.</li>
+    <li> Good one. Will buy again.</li>
+    <li> Amazing!!! love the old barber shop scent.... not to strong but very manly....</li>
+    <li> Nice clean smell that is not overpowering.  As others have written it reminds you of an old school barber shop.  I&#x27;m a middle aged former Marine who has been married for a long time, still pick up the occasional weight to work out and enjoy riding my Harley.  This product fits my style.  To each their own but I don&#x27;t particularly care to spend a lot of money on a high end &amp;#34;fashionable&amp;#34; cologne or aftershave.  Good value for 12.5 ounces - I shave my head along with my mug daily and after a month or so I still have 3/4&#x27;s of the bottle left.  A little of this stuff goes a long way.  If any of this interests you than it won&#x27;t hurt to try a bottle for what it costs.  I think you will like it and if you don&#x27;t than you aren&#x27;t out a lot of money.  It also provides a nice sting when applying which I like - it doesn&#x27;t knock you to your knees or anything but doesn&#x27;t feel like you are applying olive oil after shaving.</li>
+    <li> A great, clean, masculine smell</li>
+    <li> I like it, but the wife called me an old man for wearing it... I don&#x27;t mind.</li>
+    <li> What a great manly scent.  It leaves my face feeling refreshed and ready for the day. I will be buying more from this seller too as they are exceptional. Clubman is a little piece of heaven on earth.&lt;br /&gt;&lt;br /&gt;Update on February 9,2012. Found the 8oz clubman original aftershave for $6.99 at Walgreens.</li>
+    <li> Hey this stuff is awesome. Smells carry a lot of memory. I live the memories of this smell. This is old time barbershop 101.</li>
+    <li> Whats not to love about this stuff? Cheap, gives you that barber shop smell that I like and it works as intended. After switching to DE and straight razor shaving almost 2 years ago this is the stuff I put on. Cools the skin and keeps away any irritation.</li>
+    <li> This after shave lotion reminds me of when I was a kid and getting my haircut with a neck shave.</li>
+    <li> Do not care for the smell at all yuck.  I&#x27;m sorry to say but this is the worst after shave lotion I&#x27;ve ever bought my husband.</li>
+    <li> Husband uses this product.  He&#x27;s happy with it.</li>
+    <li> This is an old standby for an old guy.  It is a refreshing after shave and splash-on, and doesn&#x27;t have an overpowering scent.</li>
+    <li> I&#x27;m loving the old school barber shop smell of this product! It also feels great on my face after shaving and doesn&#x27;t burn much at all. I was a bit worried it would burn, but that isn&#x27;t the case. This is a very smooth, great smelling product that has completely satisfied me. The size of the bottle and cost are also great as well, especially in comparison to higher ended after-shaves. This can go up against any of them.&lt;br /&gt;&lt;br /&gt;In fact, it reminds me a lot of my grandfather. I&#x27;m not entirely sure if he used this product, but I know the classic after-shave smell very well.</li>
+    <li> Another great product by Clubman. Since I purchased this after shave I have not switched to any other. My wife and kids love the scent.</li>
+    <li> I use this Clubman Pinaud After Shave Lotion and give as Presents to Friends and it is just a Great Product!  The world would be a better place if everyone used Pinaud!     TRY IT YOU WILL LIKE IT!    Hollywood Dan</li>
+    <li> ...and this distinctive floral fragrance conjures up pleasant memories of being a very curious budding teen trying to leap into adulthood so I&#x27;d watch my father&#x27;s every move as he methodically went through the process of his daily early morning wet-shave ritual.&lt;br /&gt;&lt;br /&gt;I remember that it seemed to take him forever to shave his face and neck, and every time starting with methodically prepping, brushing and lathering and then finally carefully shaving and that was followed by a meticulous cleaning of his prized DE razor, along with the lathering cup and brush. He would then look at himself in the mirror while stroking his cheeks and neck to check for any missed spots while reaching for the clear glass bottle of Ed Pinaud&#x27;s CLUBMAN AFTER SHAVE LOTION and proceeded to splash this on and douse his face, neck and chest with a few healthy handfuls of the stuff.&lt;br /&gt;&lt;br /&gt;The beautiful and potent fragrance would fill our olfactory senses with a ramp up base of complex citrus that started with stronger notes of Citral and Citronellol but balanced with definite hints of the tart Limonene along with a dry note of Geraniol. The middle was pretty much strong notes of the increasingly ubiquitous Hydroxycitronellal that was tamed to some degree with semi-sweet notes of Linalool but then interestingly roughed up again with the decidedly heady presence of Oak Moss Extract. The dry-down was the moderately spicy...almost pine fir like...Evernia Prunastri and an earthy but soft Treemoss Extract with subtle hints of Evernia Furfuracea.&lt;br /&gt;&lt;br /&gt;I would leave that bathroom after some of it landed on me and I&#x27;d smell just like father&#x27;s aftershave all day long in school...and I absolutely loved it.&lt;br /&gt;&lt;br /&gt;I reveled in it then and deeply cherish the memory today.&lt;br /&gt;&lt;br /&gt;So imagine my shear delight when I recently rediscovered this classic product...I purchased the larger 12oz size bottle, which looks almost exactly like the bottle from 40+ years ago except now it&#x27;s a shatter-proof plastic instead of the thicker glass bottle it used to be packaged in. Oh well, it probably keeps costs down and is more safety-conscious in today&#x27;s world.&lt;br /&gt;&lt;br /&gt;But the real test was what was inside that bottle...did the juice look the same with its trademark familiar light golden color?&lt;br /&gt;&lt;br /&gt;YES...the color and overall look is exactly the same as I remember it from 40+ years ago. So far, so good.&lt;br /&gt;&lt;br /&gt;Did it feel the same with its silky smooth texture along with its unique ability to cool and exhilarate while soothing tender skin?&lt;br /&gt;&lt;br /&gt;Well, ALMOST...it seems to be a bit lighter-bodied now with hardly any cooling ability, though it is still quite soothing and refreshing.&lt;br /&gt;&lt;br /&gt;And most importantly, did it smell the same with it&#x27;s citrus and floral overtones working nicely with a heady presence of Oak Moss and Citronellol and ending with a softer, almost powdery scent?&lt;br /&gt;&lt;br /&gt;Sadly, NO...it did NOT. Though it remains true to its vintage roots and long history, It is now a shadow of its former self, sidelined by a notable lack of balanced pungency...its now WAY too Hydroxycitronellal heavy with very little essence of tree moss and virtually zero Evernia Prunastri. So while it&#x27;s basically the same, it&#x27;s really not if you splashed in this juice 40+ years ago like I did.&lt;br /&gt;&lt;br /&gt;It&#x27;s a perfectly acceptable and wearable \\&quot;old school\\&quot; type of scent that&#x27;s ideal for running weekend errands, poring over subpoenaed tax records or wolfing down a casual mid-afternoon lunch with a current or former lover, but do NOT expect to get the same product formulation as 40+ years ago...it&#x27;s now a MUCH different, but still very recognizable after shave to that of the original.&lt;br /&gt;&lt;br /&gt;And I still LOVE IT.proof plastic instead of the thicker glass bottle it used to be packaged in. Oh well, it probably keeps costs down and is more safety-conscious in today&#x27;s world.&lt;br /&gt;&lt;br /&gt;But the real test was what was inside that bottle...did the juice look the same with its trademark familiar light golden color?&lt;br /&gt;&lt;br /&gt;YES...the color and overall look is exactly the same as I remember it from 40+ years ago. So far, so good.&lt;br /&gt;&lt;br /&gt;Did it feel the same with its silky smooth texture along with its unique ability to cool and exhilarate while soothing tender skin?&lt;br /&gt;&lt;br /&gt;Well, ALMOST...it seems to be a bit lighter-bodied now with hardly any cooling ability, though it is still quite soothing and refreshing.&lt;br /&gt;&lt;br /&gt;And most importantly, did it smell the same with it&#x27;s citrus and floral overtones working nicely with a heady presence of Oak Moss and Citronellol and ending with a softer, almost powdery scent?&lt;br /&gt;&lt;br /&gt;Sadly, NO...it did NOT. Though it remains true to its vintage roots and long history, It is now a shadow of its former self, sidelined by a notable lack of balanced pungency...its now WAY too Hydroxycitronellal heavy with very little essence of tree moss and virtually zero Evernia Prunastri. So while it&#x27;s basically the same, it&#x27;s really not if you splashed in this juice 40+ years ago like I did.&lt;br /&gt;&lt;br /&gt;It&#x27;s a perfectly acceptable and wearable \\&quot;old school\\&quot; type of scent that&#x27;s ideal for running weekend errands, poring over subpoenaed tax records or wolfing down a casual mid-afternoon lunch with a current or former lover, but do NOT expect to get the same product formulation as 40+ years ago...it&#x27;s now a MUCH different, but still very recognizable after shave to that of the original.&lt;br /&gt;&lt;br /&gt;And I still LOVE IT.</li>
+    <li> Easily my favorite scent.  Like it a little better than the vanilla and bay rum, although I like them as well.  This is my new go to.</li>
+    <li> I think the bottle is old and the odor of the after shave lotion is weak. Not sure if dating of the product is available</li>
+    <li> The go to aftershave for gentlemen!</li>
+    <li> This was the first after shave I bought.  I bought it in August.  It&#x27;s now December.  And I still have a lot.  The bottle is huge.  Also, the bottle is plastic.  I&#x27;ve heard people&#x27;s complaints about the bottle breaking and such.  I&#x27;ve dropped it and all.  It&#x27;s solid plastic.  It doesn&#x27;t break.  It smells so good, though.  I can&#x27;t pinpoint what it is, but it just smells of this amazing scent that I&#x27;ve loved.  It doesn&#x27;t even have to grow on you (you know how some things grow on people?), it&#x27;s just perfection.  I really don&#x27;t think, other than Bay Rum, that there is a better aftershave.</li>
+    <li> I like this aftershave as it is &amp;#34;old school&amp;#34; in both smell and the face sting when I apply it directly afterr shaving.  I use a straight razor and this product soothes and heals tthe skin after shaving.  I used Old Spice after shave for the past 40 years but it  doesn&#x27;t hold a candle to this product.  This post is from Richard and not my wife Janet.</li>
+    <li> I have used this product in the past and I continue to like it.  I would recommend it to those who want to be different.</li>
+    <li> My father never smelled like this, but it does refresh the skin....that is public speak for slight burn or as the company might say - tingle - especially where the razor took off more than hair. You may not have cut yourself, but when you slice off enough dead skin the tingle is clear...when you cut yourself, just say the word - no not bird, BURN.</li>
+    <li> If you want to smell like you are headed to your Senior prom, grab the Brut or Old Spice.  If you want to smell like you have already arrived, grab the Clubman Pinaud.  One word of warning, you better be a man if you use this stuff because the women will knock your door down coming after you!&lt;br /&gt;&lt;br /&gt;Seriously great stuff!  :-)</li>
+    <li> Clean smell and feel for after shave</li>
+    <li> I am an old soul. I like to listen to Motown; I drink soda from glass bottles, and I love the way this smells. I cannot describe the scent any way but nostalgic.&lt;br /&gt;&lt;br /&gt;As an after shave (I am a head shaver) it is great. It leaves it feeling refreshed without feeling oily like many lotions or balms do. Splash a little on, slap it on the skin, feel the mild burn and go out and conquer the world.&lt;br /&gt;&lt;br /&gt;The only after shave I ever plan on using again.</li>
+    <li> Been wearing this aftershave lotion for at least 40 years. Use it as a light cologne too. Price is great for this classic.</li>
+    <li> Reminds me of trips to the barber shop years ago. The smell is clean and not overpowering. If you have ever used Clubman talc, this scent is pretty much the same. Also works great to soothe your face after shaving.</li>
+    <li> Nice product and come in 3 days fast!!!! Beauty-ways is the name of the seller thank you!!!</li>
+    <li> Great scent, smooth on the skin, classic</li>
+    <li> Smells and feels great</li>
+    <li> Great scent at a low price.  Provides a refreshing feeling every morning.</li>
+    <li> I didn&#x27;t expect much from an $8 bottle of aftershave. Gets the job done. Scent is pleasant if you like the smell of something like Brut that you can get at any walgreens. Lasts until about lunch time, then becomes very subtle as the day wears on.</li>
+    <li> I had used this many years ago and needed some talc. So I bought the talc and decided to buy the after shave as well. I had forgotten how great the product was. The essence lasts pretty much all day.</li>
+    <li> I recently started wet shaving and was looking for a good, traditional after shave. When I came across Pinaud Clubman on Amazon, I knew exactly what I is because every barber shop I&#x27;ve been a patron of most of my adult life has wet shaved my neck and hairline with a straight razor followed by a splash of this stuff.&lt;br /&gt;&lt;br /&gt;Like so many other posts state, I&#x27;m also familiar with the scent of this stuff from my barber shop experiences. Now I love using it after a wet shave or even on a non-shave shave day when I get out of the shower. My wife likes the smell. She said it reminds her of how her grandfather smelled. I asked if that&#x27;s a bad thing. She said no, it&#x27;s a good thing because she loved the smell of her grandfather.&lt;br /&gt;&lt;br /&gt;This is a classic scent that men, women, and barbers love. I love it too. It&#x27;s fresh, clean, and mild and the scent subtlely lasts almost all day.&lt;br /&gt;&lt;br /&gt;Pinaud Clabman After Shave is a just have for any wet shaver!</li>
+    <li> Simply don&#x27;t like the smell. Personal preference. Smells too much like baby powder. If you want an original old time scent pay up for the Taylor of old bond street.</li>
+    <li> Smells fantastic. Lomg lasting can. Just a great product.</li>
+    <li> Excellent. Being using it for 30 plus years.</li>
+    <li> I bought this after shave partly for the price and partly because of the reviews. I can tell you it most definitely lives up to the hype perhaps too well. My girlfriend will spend hours with her nose on my neck and has told me repeatedly that I smell good.&lt;br /&gt;&lt;br /&gt;It is hard to maintain a relationship with someone that is trying to inhale you.&lt;br /&gt;&lt;br /&gt;It is nice that she wants to hang off me but the security guards at the mall are getting annoying always circling as we stand there in the parking lot as she partakes in my aroma for hours on end.&lt;br /&gt;&lt;br /&gt;In conclusion I would buy this again in a second.&lt;br /&gt;&lt;br /&gt;Sincerely, Sniffed in PA</li>
+    <li> It took 50 years but I have finally grown up.  It all started two months ago with my decision to wear a handlebar mustache. Strangely this was followed by the desire for a proper wet shave (despite the fact I use a wet electric) in turn this led to the question of after shave.  I have done my tour with modern scents, those cloying scents, the so called aqua&#x27;s and unisex smells and whatever else the so called beautiful people wear; shudder, what was I thinking? I am a MAN! This scent is what men wear, or wore before the phrase &#x27;metro-sexual&#x27; entered the lexicon.&lt;br /&gt;&lt;br /&gt;Clubman is a good old fashioned American barber scent that leaves one smelling, well classic; well groomed, clean and with a certain &#x27;something&#x27;. It is not a scent for a man in his 20&#x27;s if you show up at a club wearing it, the girls will be confused wondering why father or grand father is lurking in the club. It is a scent for grown, established men that don&#x27;t need an expensive and over rated scent costing 20 times the amount of Clubman to accentuate their innate masculinity. Clubman eschews trendiness, avoids pretentiousness, and proves classic quality will never go out of style.&lt;br /&gt;&lt;br /&gt;Grow up, get Clubman and become &#x27;classic&#x27;!</li>
+    <li> Nice, clean, aromatic aroma. Not like most of the mess being made nowadays. A refreshing change that reminds me of the barbershops of my youth.</li>
+    <li> Smells a little alcoholish at first, but a few minutes in smells great, lasts pretty long for aftershave too.</li>
+    <li> It&#x27;s not terribly bad, but I did not find the fragrance (perhaps like the smell of new-moan hay, or maybe weeds, but definitely of a field) anything that could not be improved upon. It is getting ever-more difficult to find a nice &amp;#34;clean&amp;#34; classic fragrance at a reasonable price. Pinaud used to be a leader, but things have gone down hill with them. What really good stuff there is seems not only to be expensive but also brings knock-off, rip-off fake imitations of the product(s) into the marketplace. I am frustrated.</li>
+    <li> This stuff stinks!!!!! (If this is what &amp;#34;old people smell like&amp;#34;, I dread the increasing elder population!) That&#x27;s nuff&#x27; said.</li>
+    <li> I&#x27;ve never had a so pleasant aftershave....It is suave, nice, there&#x27;s nothing like it, thanks a bunch.  I will be a lifetime customer.</li>
+    <li> Can&#x27;t Beat . . . The Price . . . The Great Scent . . . The Wearability . . . And Best Of All . . . The Feel That You Just Left Your Favorite Barber Shop ! ! !</li>
+    <li> feels and smells great.  and its so affordable its awesome,  why do I have to buy this stuff online?  Ive never seen it in a retail setting ever.  as a mater of fact only place ive seen it other than amazon is in the movie Anchor Man,  its one of the bottles in the secret cologne cabinet, that isnt the Sex Panther cologne.  Someone told me it is also featured in Michael Clayton but I dont remember seeing it there.</li>
+    <li> Exactly what I ordered. Very satisfied with price.</li>
+    <li> Great value and my husband was thrilled to get this old time favorite</li>
+    <li> It has the right smell... strong at first but then has a decent scent that lasts all day.&lt;br /&gt;&lt;br /&gt;It is great, if you like it!</li>
+    <li> I have enjoyed all the Pinaud products I use, but this AS and the Pinaud vanilla are in regular rotation in my shave den.  It smells good, but a bit like a really nice sun screen.  It doesn&#x27;t irritate my skin at all, and despite a little sting, I really enjoy using it after a good shave.</li>
+    <li> I am mid 30&#x27;s and just got into wet shaving. I read reviews about this and knew what I was getting into. I thought this stuff would smell more old man&#x27;ish than it does. It actually smells pretty great. The smell does stick around for a while. I can smell this stuff on my hands AFTER a couple of washes. So if you want something that dies down quick this may not be the best thing for you. Since I love the smell I just stopped wearing cologne and I just rock out with this instead.</li>
+    <li> Really can&#x27;t beat the classic Clubman scent.  Fresh, masculine, and burns like hell when you apply to a freshly shaved face (especially if you shave with a DE or cutthroat).  But that burn really takes care of nicks and shave bumps like a charm.  Dries out your face considerably, so have an unscented lotion ready for the period after it dries.  That way, you won&#x27;t overpower this great scent.&lt;br /&gt;&lt;br /&gt;The price on Amazon for the 12.5 ounce is what I used to pay for the 7oz in the drug stores.  Buying it here from now on!</li>
+    <li> It&#x27;s a great smelling product that leaves the skin feeling clean, fresh, and smooth after a shave. It&#x27;s a must have.</li>
+    <li> First, you can&#x27;t beat the price. This is a classic that brings back so many memories of the corner barbershop. Refreshing, brisk - just perfect. And, the scent is amazing.</li>
+    <li> Not a Long Long lasting scent but it shure does remind me of good old grand dad and my uncles back in the day</li>
+    <li> what&#x27;s to say? if you want a memory in a bottle....this is it....this after shave takes me back to being a kid and sitting in the barber shop....I love to get a nice handful and splash it on...the way it burns and then soothes after a shave with one of my double edge razors is perfect!...you will smell like a man and it&#x27;s priced right...I always keep a bottle on the counter and a replacement in the cabinet.</li>
+    <li> Oh, what a manly classic smell. Reminds me of the good old days. Grab your top hat and best cane and make sure your lady has on her finest petticoat when you go out with this on your face. This smells nothing like your grandson&#x27;s flowery cologne that he probably bought at the mall for over $40. Nah, this stuff is manly, classical, and elegant and only costs a few bucks. Folks will know that you are a real man who doesn&#x27;t go for that unisex girlie smelling cologne when they get a whiff of this. Warning, your lady might get jealous with all the winks you will get from the gals in the malt shop.</li>
+    <li> &amp;#34;You have a new smell?&amp;#34; she said softly, as our noses brushed.&lt;br /&gt;&lt;br /&gt;&amp;#34;Yes, its my new Dandy-Man aftershave&amp;#34;, I replied.&lt;br /&gt;&lt;br /&gt;She said no more.  I&#x27;m uncertain as to what she was thinking in this no more state.  Afraid to ask, I let the moment dissolve away&lt;br /&gt;&lt;br /&gt;I&#x27;ll try this nose-brushing again, and next time take care to be aware of the slightest of clues.  If I can just win over her nose....</li>
+    <li> This is the &amp;#34;smell&amp;#34; of the old Barber shops!  5 stars for that alone.  I&#x27;ve just recently started shaving with a DE Safety Razor (Merkur Long Handle).  As with the Fusion, my neck always gave me issue (razor burn, a not smooth shave at all)  after a while I learned the lessons and after trying 5 different after shaves/balms, this stuff is the best for relief and it smells great too!</li>
+    <li> Reminds me of when the Barbers used to dust on powder that smelled like this long ago.&lt;br /&gt;Great smell.</li>
+    <li> Sweet Jesus this stuff smells great.  Even the ladies compliment me on it.&lt;br /&gt;&lt;br /&gt;It&#x27;s like you walked out of an 1890&#x27;s barber shop - clean, fresh, woody.&lt;br /&gt;&lt;br /&gt;Trust me on this.  If you&#x27;re a dude, you want this as your secret weapon in the cologne arsenal.&lt;br /&gt;&lt;br /&gt;And if you have questions about your own manliness, this stuff will answer them for you with a karate chop.</li>
+    <li> Smell like a champ, not a chump.  I actually look forward to shaving, knowing I will be splashing this on my face and neck afterward.</li>
+    <li> having recently made the change from a disposable razor to a double-edged razor, i was looking for a nice aftershave to compliment my bay rum shaving soap.&lt;br /&gt;&lt;br /&gt;clubman aftershave was the first one i tried, and honestly, were it not for a desire to simply try other aromas, i&#x27;d have no reason to discontinue use.&lt;br /&gt;&lt;br /&gt;simply put, clubman is a classic scent that out of the bottle reminds one of a retirement home.  but once it&#x27;s been splashed (which is akin to an right cross in round 8), the aroma slowly evolves to a warm, citrusy vanilla scent.  it&#x27;s actually very pleasant and lasts for hours.&lt;br /&gt;&lt;br /&gt;i knew i liked it, but the other day i went over to one of my female co-workers and gave her a whiff. &#x27;oooohhh, i really like that!&#x27; she said.  she&#x27;s a nice-looking girl, so if you want to impress nice-looking ladies, splash a little club man and smell like the gentleman you are.&lt;br /&gt;&lt;br /&gt;****update**** i was at the local convenience store the other morning for daily pick-me-up and the female cashier said to me, &#x27;what are you wearing? is that brut?&#x27;  &#x27;it&#x27;s clubman,&#x27; i said.  &#x27;well, you can stand there all day!&#x27;  the ladies love it.</li>
+    <li> I liked it at first - a manly smell - but after several uses it smells more and more like a cheap gas station colonge - which it really is at $8 a bottle.</li>
+    <li> I love this aftershave.  The smell reminds me of going to the barber and getting a professional shave.  And you get a lot for a reasonable price.</li>
+    <li> My husband is a fan of the entire Clubman line of products. He rotates between the After Shave lotion, the Bayrum and the Lilac Vegetal. All of the products smell wonderful, and apparently they all work well to soothe the skin after shaving. During the summer, he will splash it on throughout the day to help cool off.</li>
+    <li> If you liked the smell when you came out of the barber shop, this is for you. Of course, you have to be old enough to remember barber shops and like to smell like a man. Soothing and comfortable, with no burn.</li>
+    <li> It has a very pleasant smell to it. The smell can be described as soothing. It really does the job and not to mention that it cheap for the quantity that comes in the bottle. I honestly love it!</li>
+    <li> Good stuff! Smells like a gentleman.</li>
+    <li> What&#x27;s not to like about Pinaud? Back in the day, my barber used to splash this stuff on me after every haircut and it always seemed to last the whole day without being overpowering. I thought this might be some cheap imitation, but nope --- it&#x27;s the real stuff and I like it. They won&#x27;t get a lot of money out of me on restocking though, because like the old slogan for another favorite of mine, &amp;#34; A drop makes quite a splash&amp;#34; and 12 ounces should last quite a while.</li>
+    <li> The smell of an old style Barbershop. Great price. I just wish it was a glass bottle instead of plastic.</li>
+    <li> I have tons of different aftershave products and I keep coming back to the clean, manly scent of Clubman.  Not too strong but the scent stays with you all day.  No over powering.  Just right.  A true barbershop classic at home.  Great stuff</li>
+    <li> This is some very good aftershave. I can&#x27;t really describe the smell . In the bottle it smells kind of funky really, but after application it tones down to a nice scent . I usually splash a bunch on and then cut it down with a little water . Probably my favorite Clubman product.</li>
+    <li> wow classic barbershop smell that lasts all day.  the best smell ive had in all of my aftershaves.</li>
+    <li> This stuff makes my face feel great and I love the old time barber shop scent</li>
+    <li> Nostalgia has driven me to purchase quite a few of the Clubman products. Aside from the pinaud talc, nothing brings back memories of spending afternoons in the barbershop with my grandfather like this aftershave.&lt;br /&gt;It&#x27;s fresh, clean, and subtle enough to use for any occasion. As far as scent...think Brut with baby powder. This is an alcohol based aftershave, so if it&#x27;s a moisturizing A/S that you&#x27;re looking for, this probably isn&#x27;t it. However, I&#x27;ve never had a problem with it drying me out.</li>
+    <li> Smells like the old school Barbershops. Crisp, Fresh, CLEAN. Not too heavy and not too light. The bottle lasts a long time as you don&#x27;t have to use but a Dab here n there.  This is the Good Stuff!</li>
+    <li> I remember my father taking me to the neighborhood barbershop when I was small enough to have to sit on a board across the arms of the chair when the barber cut my hair.  Clubman Pinaud was my father&#x27;s and the barber&#x27;s aftershave of choice at the time.  It&#x27;s still perfect; a great after shave, with a clean low-key scent.</li>
+    <li> This stuff is VERY potent -- like to where it kind of burns my nostrils.  The super strong smell does not linger, though, and by the time I get to work I don&#x27;t even notice it anymore.  Works as expected.</li>
+    <li> applied quite a lot of it and had to change shirts and wash my face after an hour.will last for hours and a botlle can take you far. I now have to dilute it a little with water before applying it</li>
+    <li> This is my go to AS. I just love the smell of this stuff and cant get enough of it.</li>
+    <li> Has a real nice fragrance really makes my face feel good after a good shave, have reccomended to other wet shavers</li>
+    <li> Not too bad, but the scent fades quickly and is a little off.  It also packs quite a burn but I rather like that, might be a turn off to some though.</li>
+    <li> Love the smell. Cools and relieves the skin after a close shave.  The larger bottle smells a little stronger and more like a chemical smell. I may have got a bad batch or something.  The smaller bottles I&#x27;ve bought before smelled better to me.</li>
+    <li> It has been around for years and it is still one of the best on the market, It is a very refreshing after shave, with a great scent.</li>
+    <li> Cool, refreshing, masculine scent. A great value. I was introduced to this 35 years ago and see no need to change!</li>
+    <li> This is one of those classic smelling after shaves. If you drink black coffee and like to smell like a man should I advise you give this a try.</li>
+    <li> I have used it for years, wonderful scent.</li>
+    <li> Can&#x27;t tell you how many complements I get wearing this stuff, but you are transported back to old time barber shops where men smelled like men instead of a Justin Bieber commercial!  Wonderful, bracing, can&#x27;t beat the classics!!</li>
+    <li> This item is found in expensive club houses. I use it because it does the after shave job without the overpowering smell. I will buy this product again.</li>
+    <li> My husband loves Clubman Pinaud after shave lotion.  He will not use anything else.  This is an old school barber shop lotion, and we are from the &amp;#34;old school&amp;#34;.  Actually, this after shave lotion is very difficult to locate in the local store.  Thank you Amazon for have this.</li>
+    <li> Migrated to the world of safety razers, soap and brush.  This is a nice after shave that feels good on the skin and doesn&#x27;t smell too &amp;#34;loud&amp;#34; (for me....).</li>
+    <li> I was not to happy with the smell of this product. I would not recommend it to highly. I was looking for something with a lighter scent.</li>
+    <li> My husband has used this for years and loves it. They use it in some men&#x27;s locker rooms at Golf Country Clubs.</li>
+    <li> Reminds me of my haircut days when the barber finished up with a splash of this stuff on my neck...now I use it to splash on my face and scalp (sans hair, the result of raising two girls in the 70&#x27;s)...Invigorating, fresh, and not overpowering in scent or sting...</li>
+    <li> I smell like a man!!! After my shave it stings - just like it should for a man!!! When its on me it gives an increase of strength, because by just by the scent it reminds me the strength a man should have!!! My woman loves it and treats me like a man!!! JK - its a really good aftershave that I highly recommend.</li>
+    <li> I&#x27;m not certain, but I was at least 8 years old when I first encountered Pinaud Clubman at my family&#x27;s Country Club during Sunday brunch. Recently, when I mentioned my re-discovery of this aftershave (I&#x27;m now 31) to my Parents, they recounted a story involving me, Pinaud Clubman, and a waitress who came to the table and mentioned that their son was liberally availing himself of this aftershave in the locker room....LOL.&lt;br /&gt;&lt;br /&gt;Well, I must admit, I&#x27;m still enamored with this scent. I&#x27;m not sure if I&#x27;m just channeling my 8 year old self, but good-god, I slather this stuff all my face and shoulders. It&#x27;s one of the most classic scents I have ever found and will stand up by itself, or as a base layer for other &amp;#34;similar&amp;#34; scents (i.e. those that are woody/spicy with heavy base notes).</li>
+    <li> I love this so much that even on my business trips I have to pack a small to-go of this. It works amazing for me, and more than that smells like I just left the barber shop. Wouldn&#x27;t/Couldn&#x27;t imagine my shave without it. I highly recommend. WARNING... Burns like a mother... but so worth it!</li>
+    <li> Smell like you just stepped out of the barber shop. That awesome retro scent!&lt;br /&gt;Cools the face after a good shave. And attracts the ladies!&lt;br /&gt;Buy this and keep your game strong!</li>
+    <li> I discovered it about ten years ago but l aways found it dificult to find it, so I bought it on line.</li>
+    <li> I never knew what my barber used on me when I was a child. He had everything in clear spray bottles and I had forgotten even if he had told me so long ago... Then I visited my parents and the low and behold my father is using it out of nowhere..... instantly bought 2 big bottles.... I love the smell of this!!!!!!</li>
+    <li> Clubman is one of the classic afterhshaves used by barbers for generations. It is a fresh powdery scent. Try it, you&#x27;ll like it!</li>
+    <li> What more can I say? It&#x27;s the only aftershave I&#x27;ve had women ask me about. I think the product has been made for almost 200 years now.</li>
+    <li> This is a great aftershave. It burns at first, but it leaves your face feeling exceptionally smooth. The scent is masculine and very musky, but it&#x27;s rounded out by the scent of baby powder and a light sweetness. Very refreshing scent and I&#x27;ve gotten compliments on it.</li>
+    <li> I have used this product for many years---and will continue to do so. It is a clean smell--not overpowering and, most important, my wife loves it on me.</li>
+    <li> This is a great aftershave.  Smells just like the barbershop.  Lasts most of the day too.  Great old fashioned smell.</li>
+    <li> Everything by this maker is great. I have several different after shave lotions from Pinaud and all smell good and last along time.</li>
+    <li> This product is great for the price.  Not quite the barbershop smell I remember but still a nice product.  I shave with a Merkur HD and feather blades.</li>
+    <li> No nonsense, great scent, stings a bit--everything you want in a traditional after shave.  I have sensitive skin and I use a RazoRock (also bought from Amazon) and the combination of the two has reduced (but not eliminated) my post shave irritation by a ton. Great classic smell, great value.  If you want fancy moisturizers or &#x27;new&#x27; scents, try something else.</li>
+    <li> brings back memories,</li>
+    <li> THIS IS A NICE SMELL AFTER SHAVE LOTION THAT YOU CAN USE FOR RIGHT AFTER YOUR SHAVE TO REFRESH YOUR FACE.</li>
+    <li> Old time scent like at the Barber shop . Doesn&#x27;t last very long.</li>
+    <li> excellent! is the best ...</li>
+    <li> Product feels good on the skin after a nice shave with a DE razor.  It has a very nice sting to it, you can really feel the &#x27;skin bracer&#x27; action.</li>
+    <li> If you grew up in the 40&#x27;s, 50&#x27;s, or 60&#x27;s and ever got a haircut at the barbershop, you know this wonderful refreshing smell.</li>
+    <li> Well, he loves it.  What else can I say?  It is inexpensive, does the job, doesn&#x27;t sting, and smells light, refreshing, and still manly.</li>
+    <li> Contains alcohol but does NOT burn your face. The fragrance is exceptional--clean, and fresh without the &amp;#34;over powering perfume smell&amp;#34;</li>
+    <li> As advertised ,good price, makes a great addition for my retro bath and shave products, I will be ordering more in the near future.</li>
+    <li> I went to Europe as a young man and the only thing I brought was a bottle of Clubman.  Now, every time I splash myself with it&lt;br /&gt;I am brought back to the Via Veneto in Rome; and I&#x27;m still 23 not 73.</li>
+    <li> The last time I went to the barber for a hair-cut, they used this after-shave that smelled amazing.  I determined what it was and purchased my own bottle.  Love this stuff!!</li>
+    <li> best smelling stuff , wife loves it , when i shave</li>
+    <li> Old style barber shop fragrance for men that remember when men didn&#x27;t go around smelling like a perfume shop.</li>
+    <li> This is my second bottle of this after shave lotion and I like the stuff it has a nice refreshing scent.</li>
+    <li> smells great, does its job</li>
+    <li> It reminds me of being 7 yrs old and sitting in a huge barber chair. The scent is traditional but not grandpa-ish...very subtle, manly, and timeless.  It smells a little strong when first applied but disapates soon with only a hint...until you sweat or get wet.  Great aftershave and gets rid of razor burn on contact.  Don&#x27;t buy if you&#x27;re looking for a modern smell...but if you like the timeless scent of the barber...have at it. Cheers!</li>
+    <li> good stuff .. will be buying more when I run out</li>
+    <li> Amazing, takes me back to the good old days when my pop was alive</li>
+    <li> Theres nothing like it ! I actually love it !</li>
+    <li> A fine example of an aftershave. Wife loves it and I will be purchasing again. I am now typing more words.</li>
+    <li> Smells good and seems to work well.  Bottle is plastic.</li>
+    <li> While I&#x27;m usually an Aqua Velva man, and believe me when I tell you, some women do like that fragrance as much as the expensive stuff sold by designers of thin neckties, I also like the smell of the stuff they used to use at real barber shops after they shaved my whispy hairs on my neck.  So, for not much more that the price of a pint flask of cheap whiskey, I have this nice smelling bottle of Clubman Pinaud which, again, I find that women 45 to 65, my target audience, like. Half your age, plus 7, gentlemen.  That&#x27;s the floor.  Never go below the floor, and if you are wise, add another decade and count your blessings.</li>
+    <li> Great smell, wish it weren&#x27;t alcohol based</li>
+    <li> My boyfriend&#x27;s barber always uses this but told him her can only get it at barber supply stores, well you can get anything on Amazon! He loved it, exactly what he was expecting and it is such a big bottle, it will last forever!</li>
+    <li> Old barbershop scent.this is a replacement for the smaller size</li>
+    <li> The way I remember the barber shop, lasts a long, long time. Not for a 5 star place, but I am more of a 1 star guy</li>
+    <li> This is the Best cologne by far. and great price ! I get asked often about it. Been using it for years.</li>
+    <li> it is a pleasure to use</li>
+    <li> ALL IS FINE AND SMELLS GREAT.</li>
+    <li> A little heavy, kind of a powdery smell. I put some cloves in and its ok for occasional use.Not my favorite</li>
+    <li> Fast delivery! Great Item! Item just as described!</li>
+    <li> ...Look no further. This is the classic barber shop scent. I love the smell of this stuff. It actually makes me want to shave!</li>
+    <li> Clubman is definitely a throwback to the past however, this after shave is still relevant today. After going through my DE shabe ritual,  I splashed some on and was sent back in time to a Real Barber shop. You know the type, four red chairs, black and white tv set on a stand in the corner, two old timers playing checkers. The magazine selection was a mix of Guns and Ammo or Outdoor Life no GQ or Mens Health.  No bass pumping, no overly expensive shampoo&#x27;s or metrosexual products. Just a Barber shop, nothing fancy, but one of the best places to be on a Saturday morning.&lt;br /&gt;&lt;br /&gt;This after shave is a time tested winner. I have worn many colognes in the past but nothing I have compares to Clubman. My wife loves it so, that seals the deal in my book. Buy a bottle or two and enjoy!</li>
+    <li> I bought this aftershave after reading about it on a \\&quot;manly website\\&quot;. It&#x27;s more than I thought it would be. Very crisp, clean scent. It&#x27;s refreshing when you splash it on after your shave. And long lasting?! Let me tell you...I can put this on after my morning shave, and when I get off at the end of the day, my wife kisses me on the cheek and says she can still smell it. Now that&#x27;s getting your money&#x27;s worth! Only thing is, it smells so good, you&#x27;ll want to run home and lunch and put some more on. My son told me it smelled like a man at the beach. It really does smell like an old time barber shop, too. Just like the one&#x27;s I went to as a kid.&lt;br /&gt;I will absolutely buy this aftershave again. Matter of fact, my Old Spice and English Leather will probably have to take a seat behind this bottle from now on. Cheers!</li>
+    <li> love it at this great amazon price. will continue to buy.</li>
+    <li> Long lasting aroma brought back memories of Nunzi&#x27; s Barbershop, in Union, NJ.  Great for everyday use.  Would like it to be a little more citrusy.</li>
+    <li> Love the scent...fresh out the barber shop.</li>
+    <li> This stuff is a pussy magnate. I need a stick to keep the women away.</li>
+    <li> Goes with my manly talcum powder.. Has the manly baby powder scent if that is possible!  Brings me back to the old barbershop and its wonderful smells.&lt;br /&gt;&lt;br /&gt;Scent actually lingers quite a while, it starts strong and a little chemical overtone, but that part fades fast.  The ladies in my house really dig it... They like it over my bay Rum :(</li>
+    <li> I love this stuff!  BTW... Eduard Pinaud has another after-shave scent that I like: &amp;#34;Lilac Vegetal&amp;#34;...  Been using it for decades!  Try it... you&#x27;ll like it!&lt;br /&gt;&lt;br /&gt;TRUE STORY:  One morning a couple of years ago at the office I was alone in the sales conference room fixing a medical gadget my company represents... no big deal... a simple fix.  The wife of our president and owner, who works as a buyer among other duties, came out of her office and walked past me after saying &amp;#34;good morning&amp;#34; to me.  I was intently doing what I was doing, but I did respond to her.  Much to my surprise, she turned around and walked back to me, asked if I was wearing some kind of after-shave, and... she immediately poked her nose right next to my left cheek and took a few whiffs!  She then asked me what was this &amp;#34;pleasantly interesting&amp;#34; fragrance I was wearing.  I told her it was &amp;#34;Lilac Vegetal&amp;#34; from Eduard Pinaud.  She smiled, said it was &amp;#34;very nice&amp;#34;, and then walked away.  I am a very happily married man, but I was definitely intrigued by that brief encounter...  Anyway, the &amp;#34;Clubman&amp;#34; fragrance is still a damn-fine classic, but there is something &amp;#34;special&amp;#34; about that &amp;#34;Lilac Vegetal&amp;#34;... trust me!</li>
+    <li> I like the fragrance of the special reserve better.</li>
+    <li> Don&#x27;t like the scent, funky smelling.</li>
+    <li> A classic at a good price.  Getting a little hard to find at retail stores, so Amazon to the rescue again!</li>
+    <li> Gentlemen....you&#x27;ve arrived. This is exactly what half the barbers use...the other half I think use Booster Polar Ice. This is awesome, you smell fresh, clean, and like you&#x27;ve just left the barber shop, whether you&#x27;re bald or sporting a mullet.&lt;br /&gt;&lt;br /&gt;Item arrived on time, and well packaged. I will be ordering again.</li>
+    <li> I love all of the clubman products. Try the shave cream and aftershave and you will convert too! User for life</li>
+    <li> Simple aftershave without being overbearing.</li>
+    <li> Treat your self to this after shave, it&#x27;s a must after a clean shave and shower. Something so simple and old school can make you look and feel terrific. A clean fresh scent, my skin even looks and feels smoother after a shave. Not over powering just a fresh clean scent which subsides a little so I still where my cologne. Tightens your pours and prevent those razor bumps and burns. I hear guys spending money on all these over priced products that don&#x27;t even stand up to Clubman lotions how do I know, because I have bought and have used them. I have shaved my head now for at least 12 years and after a shave I splash this lotion on and I&#x27;m telling you, you will feel like a million bucks. Reminds me of the old time Barbours. The lotion lasts as well just a little goes a long way. I just purchased several other scents. Ships fast. Keep upright can leak just a little bit if your not carful.</li>
+    <li> My husband swears by this product.  He likes natural products and ones that do not contain pork by products so maybe this is one of them</li>
+    <li> Been using this same aftershave for over 40 years and still get compliments on the scent. This is NOT exactly the same as it was 30 years ago (the aroma was nearly identical to Canoe) but it is still clean, mascueline scent, that is not age specific.</li>
+    <li> great product, I use it after every shave. smells great and gives me that barber shop feel I&#x27;ve always loved</li>
+    <li> superb! I have used this product for many years and have alsays bought the less than half-size bottle at about the same cost as the much bigger bottle offered.  a nice price savings on an excellent product</li>
+    <li> I still remember my first haircut. After, the barber shook some Pinaud talc on a brush and dusted my neck. I&#x27;ve been in love with the smell ever since. I use the talc, after shave and hair tonic. I am Pinaud-man.</li>
+    <li> This product is great and I love it. It does have a strong scent. Unless you are allergic to strong smell I don&#x27;t see a reason why anyone wouldn&#x27;t like it</li>
+    <li> When I use this lotion daily, I am taken back to the smell of my barber shop fifty years ago. The lotion smells wonderful, not bothering my odor sensitive wife, who also finds it to be pleasant. It is very soothing after a shave. The mouth of the bottle has a nice stopper that allows easily shaking a good amount into the hand, with out over pouring and wasting. The price of the small 4 oz bottles of other brands in the stores has become outrageous and this lotion seems to be a good buy in a volume that should last a good while. I believe this will be my lotion from now on.</li>
+    <li> I think this batch has more of an alcohol presence in the scent than the product I was familiar with from years and years ago.  I purchased 4 bottles... I will be ok with this as a daily splash to freshen up.&lt;br /&gt;&lt;br /&gt;Sure wish the old recipe was available... that scent was pure and soft, yet manly and fresh.</li>
+    <li> This is like stepping back in time for me; to the days of Bill&#x27;s Barber Shop, in the neighborhood I grew up in.  The scent is original, does not irritate my sensitive face, and is a true delight to use!</li>
+    <li> When you leave the barber shop and they splash that nice, classic scent on you, this is it. Feels great on my face after a shave.</li>
+    <li> This is a favorite of mine and my wife&#x27;s.  We love the smell.  Happy to find large bottle.  will buy again.</li>
+    <li> The price is right on this product. The cost is about the same as a bottle half the size in a drug store. My fiance loves the scent as well to the point where I am not allowed to buy another aftershave. This smells just like the barbershop I used to go to.</li>
+    <li> Strong, old school, but its just ok for me. I&#x27;m not a fan of old school smells or raging alcohol burn.</li>
+    <li> My favorite everyday aftershave. a classic. They used to call this stuff &amp;#34;the smell of success&amp;#34;...Nice scent, a little musky but not much, citrus, very manly. Not overpowering and the scent lasts all day even though it does decrease throughout the day. give it a try if you like a classic scent.</li>
+    <li> Pinaud aftershave has been gracing men&#x27;s faces for over 200 years now, and it is still popular and has stood the test of time.  Next to Aqua Velva, this is far and ahead one of the best choices for aftershave out there.  It is often overlooked by the younger crowd, being $5.00 at the drug store, and packaged in a plastic bottle.  That no doubt helps keep the cost down, but don&#x27;t be fooled: it has a wonderful, masculine fragrance that is very pleasant and rivals the properties of more costly scents. It is a scent that men have associated with barber shops and a good barber shave for centuries.&lt;br /&gt;&lt;br /&gt;It performs very well as an aftershave splash; the scent is as with many things a matter of personal taste.  While most find it to be quite nice, it may or may not be for you.  But if you exploring the aftershave options out there, you have to at least give this one a try.</li>
+    <li> old fashion Barber shop smell You have to love it...</li>
+    <li> Fantastic aftershave, got a slightly fruity scent to it. Really does it&#x27;s job well and is not too pricey. I have relatively oily skin, so the alcohol helps dry things up.</li>
+    <li> Smells like old people</li>
+    <li> In a world of advertisements that act like a body spray will get a socially challenged male to be ravaged by supermodels, this fragrance is very refreshing. Like so many reviews will say, the fragrance is &amp;#34;old school&amp;#34; and reminds you of a barbershop. I&#x27;m sure the fragrance isn&#x27;t for everyone, but I do enjoy the time tested classiness of the stuff. I am in my early thirties and married so I don&#x27;t worry about the body sprays too much. Just give me this old school, subtle fragrance to get me through the day.</li>
+    <li> I really enjoy this after shave.  Has a very manly smell without being overpowering.  Glad I found this product.</li>
+    <li> This is a good product line, and I was taken back by the scent of the after shave, not bad but different. A fresh soap smell. I don&#x27;t care for it enough to purchase it again.</li>
+    <li> Not bad. Has an OK scent.  Not the magic potion that some claim it to be.  I don&#x27;t think it is as good as aqua velva or something like that. I am curious as to if someone wants to put a product with yellow #5 on their just shaven face.  That is why It has 2 stars instead of 3.</li>
+    <li> Have used this powder  for several years.  Still  very  satisfied  with  this  product</li>
+    <li> Nice product just like I remember as a boy when my Dad took me to the barber shop. Makes a great gift</li>
+    <li> This one takes me back to the days of my youth when going to the barber was a weekly ritual. Excellent product.</li>
+    <li> The smell brings back a lot of memories. Smells like what I was expecting. My wife thought I was joking when I ordered it, but she thinks it smells &amp;#34;Okay&amp;#34;.</li>
+    <li> Look out ladies,,,, there is a man in the room.</li>
+    <li> THERE IS NOTHING LIKE IT! THIS IS A MUST PRODUCT, JUST THE SMELL WILL SPEAK FOR ITSELF! A TRUE GENTALEMAN PRODUCT! A MUST!</li>
+    <li> Nice, classic product.  If you grew up going to a traditional barber, the scent will take you back there.  The alcohol content makes it difficult to use on a daily basis for me though.</li>
+    <li> Like most Pinaud Clubman products, this one excels in its category. Everyone loves the scent as being clean and fresh and not overpowering and perfumy like most of the stuff you buy in the stores. A great feeling that stays with you.  Highly recommend this.</li>
+    <li> I have blemish issues from time to time, but not nearly as much as I used to, now that I use this Pinaud splash after shaving. I wash my face off, splash this on, let it dry, then use a moisturizer. Though this product stings, that&#x27;s how you know it&#x27;s working! And it wakes you up in the morning.</li>
+    <li> I like the classic babershop scents. That being said, this is a classic of that type of aftershave. However, It just did not work with my body chemistry...kind of reminded me of a very faint vinegar smell. That is not to say that on a different person it would not work. But, this is only my experience.</li>
+    <li> Been using this for years for a reason.  I am a classic wet shave type of man and this not only smells great, but keep the razor burn at bay.  Old school product for old school type of guys.</li>
+    <li> I think this is a keen scent, but my fiancee said it reminds her of how ravioli smells. This is a bizarre response, and one I&#x27;m sure you won&#x27;t be able to recreate.</li>
+    <li> Just like what the barber uses.&lt;br /&gt;&lt;br /&gt;Good smell, not overbearing, not fruity.&lt;br /&gt;&lt;br /&gt;Definitely what I wanted in an after shave.</li>
+    <li> Good after a nice close shave. Great old school product. what a man is supposed to smell like. manly. Fast shipping. consistent product.</li>
+    <li> I am very happy with the product and will buy it again and again.  The scent is wonderful, a fresh manly scent that my wife likes and that does bring back memories of the barbershops long lost.  Some reviewers indicate that the alcohol in the lotion stings or burns quite a lot, but I did not feel like it does any more than any other product that also uses alcohol.  Also, I wonder if they might be shaving with products that leave their skin especially irritated.  I use shaving soap and a old style double edge shaver and always get a comfortable shave with little irritation.</li>
+    <li> A manly scent.  Reminds me of the smell of barbershops in the 1950s.</li>
+    <li> Great fragrance. Look forward to purchasing my next bottle.</li>
+    <li> So many reviewers say this reminds them of some time in the past. Whatever the case may be. I don&#x27;t have that nostalgic aroma anywhere in my past so it doesn&#x27;t remind me of anything. It&#x27;s just ok for me. It does it&#x27;s job but I don&#x27;t prefer the smell. But I still use it.</li>
+    <li> Clubman Pinaud was ordered in error. The aroma is disliked and  is too strong. \\&quot;Hate\\&quot;, and \\&quot;love\\&quot; are also too strong. It is worthy of two stars maximum.</li>
+    <li> I you like the talc you&#x27;ll LOVE the after shave!</li>
+    <li> I know it&#x27;s cheap, I know it&#x27;s not &amp;#34;fashionable,&amp;#34; and I know it&#x27;s not a designer brand. But MY GOD it smells so good!! And I continually get comments on the scent when wearing. Such a classic scent. I don&#x27;t waste my money on any of the girly-smelling fashionable brands. This is the stuff you want!</li>
+    <li> Good if you like a very sweet after shave. I don&#x27;t.</li>
+    <li> It&#x27;s good for your face&lt;br /&gt;Makes a man of a true fool&lt;br /&gt;No care if you buy&lt;br /&gt;&lt;br /&gt;ich bin ehrlich</li>
+    <li> I love the product. What is inside the bottle is the reason I buy it.&lt;br /&gt;I would prefer that it was shipped in glass.&lt;br /&gt;I would have preferred that the shipper did not additionally wrap the cap with box tape that I had to slice of with a razor blade and then use alcohol to reduce the residue around the spout.</li>
+    <li> Large bottle. Favorite smell for years. A classic. Will last a long time. Plastic bottle. Will not fit in my medicine cabinet.</li>
+    <li> Smell like a man! Leave the cool water and Armani for the girly boys.</li>
+    <li> Reminds me of the times when I was a kid and my Dad took me to an old timey barber shop for a hair cut. The clean simple smell stays all day. I can literally smell my hands around my ring in the afternoon and the scent still pleasantly lingers.</li>
+    <li> What can I say it an aftershave that you would get if you were to go to the old timer barber shop!  It smells like my grandpa was in the house :) My daughter thought is smelt good on her dad!  It&#x27;s kinda nostalgic and made me think of other times!  Great product and leaves my husband shaved skin feeling nice and soft.</li>
+    <li> If you want the fresh smell from a barbershop... purchase this. Smell awesome, and last a long time. very happy with it.</li>
+    <li> Got it for the boyfriend and I love the smell so it&#x27;s a done deal. As a plus, he says it&#x27;s good for the skin too. He says it helps with the irritations of shaving. I wouldn&#x27;t know. Didn&#x27;t use it myself personally.</li>
+    <li> Smells like the barber shop from when I was a kid. A little goes a long way- bottle will last me a year!  Shipping is limited- can&#x27;t ship to an APO/DPO or FPO.  Hard scent to describe. It will heal up the nicks.  Not sure how it works after shaving with cartridge razor since I&#x27;m old school and use the double edge safety razor- this stuff does exactly what it&#x27;s suppose to- cools the skin after the shave to calm the razor burn.  Heal the nicks and moisturize though this does have some level of alcohol so it&#x27;s not like the old formula.</li>
+    <li> Old barbershop smell, feels so good after shaving.  Smells manly</li>
+    <li> Product was received as described. Tried the product and was disappointed on the fragrance. The smell was ok at first application. It lingered way to long. Became real sickening. I&#x27;m going to discontinue use.</li>
+    <li> When they&#x27;d wrap that strip of paper around your neck.&lt;br /&gt;That good old fashioned &amp;#34;been to the barber shop&amp;#34; scent. Perfect cologne in my opinion.</li>
+    <li> Works as good as described and is a refreshing end to the start of the single blade shaving movement that I am quite pleased my eldest son introduced me to. I highly recommend Pinaud and single blade shaving!</li>
+    <li> Tried this when I was curious about the old school barbershop colognes. First impression is &amp;#34;Man this stuff is powerful&amp;#34;. I would call it a cologne first aftershave second. It hits strong but the smell does mellow and gets powdery. Most aftershave splashes i use enough to wet the palm and rub into the face. This one i put two drops then wet my palm with witchhazel. It has an oily feel that leaves your face moisturized and drys clean and smooth.&lt;br /&gt;&lt;br /&gt;The smell definitely reminds me of Brut&#x27;s time ten when first applied, but when it mellows it leave a nice fresh powdery scent with a hint of Brut.</li>
+    <li> Little alcohol burn and great classic scent. The smell reminds me of going to the barber shop as a kid. Some people might think it smells like old men, but to me it&#x27;s great.</li>
+    <li> Like other reviewers have said, this stuff is not for metro sexual men.  This is old time barber shop smell after shave, and thats why i love it.  The wife hates it, says it makes me smell like a grandpa, but thats ok.  When I splash on this stuff, it brings back memories of my grandpa, dad and I going to the 5 chair barber shop to get our haircuts.  This is a MAN&#x27;s aftershave.  Dont buy this if you are a sissy girly man</li>
+    <li> Just what I expected.</li>
+    <li> A pleasant scent that takes you back to that old barber shop you knew as a youngster but will comfort your face and turn her head with a smile.</li>
+    <li> I&#x27;ve been using this after shave for years and at 70 yrs old I remember this being used on us as kids by the barber shop after they shaved the back of our necks.it&#x27;s a special fragrance to me.Thanks Amazon.</li>
+    <li> Who the hell made this? Honestly, I don&#x27;t know what kind of horrible person would make such a fragrance. Several times i put it on just to heal some nicks from shaving. Every single time something atrocious happens&lt;br /&gt;&lt;br /&gt;Just one example, I had nicked myself shaving in the morning with a straight razor, I reached for the bottle and jsut popped it for a second&lt;br /&gt;&lt;br /&gt;Just one heart pounding second&lt;br /&gt;&lt;br /&gt;The aroma lifted into the air and before I knew it my whole apartment was filled with girls&lt;br /&gt;&lt;br /&gt;Seriously, what do i with all of these girls?&lt;br /&gt;&lt;br /&gt;They won&#x27;t stop touching me.</li>
+    <li> This stuff is a joke!!!!!!!!</li>
+    <li> I love the scent of this ! It works great for giving you that fresh from the barber smell and leaves your face feeling cool and refreshed.</li>
+    <li> I don&#x27;t like smelling like a breezy mountain top or desperation, so I decided to go the barbers route and try Clubman. I dig it, and girls don&#x27;t seem to be put off by it, so there you go. It smells better than most of the newer brand after shave, and the smell isn&#x27;t over powering.</li>
+    <li> This has a good old fashioned soapy, barber shop like smell that stays all day. Good projection and stay compared to all the watered down stuff made these days. I like it. The scent gets into your clothes and smell very sweet when you pick them up even days later to wear. A while after application, the smell is so sweet and soothing and this stays for hours. If splashed with water over the application area they give off a renewed gush of sweet soapy smell - that is one of the things I like when I return home and splash myself with water.</li>
+    <li> Nice after shave like my grandparent  after shave</li>
+    <li> They mention this will wake you up but they don&#x27;t mention why. It&#x27;s pure alcohol! It smells great and does feel good 1 hour later but it&#x27;s not worth the burn. This stuff can&#x27;t be good for your skin. It&#x27;s 2014 and there are allot of better products out there like the Jack Black series. Products that feel good and actually protect your skin from the sun and the environment. Sorry, didn&#x27;t work for me, and yes, I&#x27;m a real man. 10 years US Army Infantry. I gave it to my dad, he likes it.</li>
+    <li> Just like an old timer visit to the barber</li>
+    <li> Smell like a real man not a ninny AXE boy!  Feels great and lasts all day.</li>
+    <li> Love Clubman products, great scent cant go wrong, fast shipping</li>
+    <li> One has to be in pretty close proximity to me to actually smell it. But when people do smell it they always compliment me and ask me &amp;#34;What is that aftershave?&amp;#34; So I tell them &amp;#34;It&#x27;s Clubman.&amp;#34; It&#x27;s light, refreshing, and smells manly and like old fashioned barbershop. My grandfather wore Old Spice when he got up in the morning and went to the office. After he played golf he put on the Clubman. I think they had at his country club. So it reminds me of him.</li>
+    <li> I really like this scent.  Takes me back to an earlier time.  I find it clean and refreshing.  I would have given it 5 stars except it seems to only last a short amount of time.  Definitely not an all day cologne.  It&#x27;s a large bottle and it should last a long time.</li>
+    <li> 12.5 ounces is a lot of after shave, more that I realized. I fully expect this bottle to last me for 1-2 years.&lt;br /&gt;&lt;br /&gt;The product does have a nice old-timey smell that my wife loves. My only dislike is that there&#x27;s a slight baby powder smell that lingers after application. It&#x27;s faint and only I really notice.&lt;br /&gt;&lt;br /&gt;I do a double-edged safety razor shave and have learned to appreciate a more classic shaving process. I use this after shave after rinsing my face thoroughly with cold water. This product has a slight sting on nicks, which makes me feel like it&#x27;s working, but the sting is not bad at all. Much better than I&#x27;ve experienced with other products.&lt;br /&gt;&lt;br /&gt;I use this product with a post-shave lotion for sensitive skin made by Nivea. The combination of these two things have greatly minimized razor bumps and shaving iritation.</li>
+    <li> Love this stuff. Packaging form this supplier was great.</li>
+    <li> Awesome old school scent...</li>
+    <li> This is my secret cologne my wife loves, but I refuse to disclose the name of and keep hidden.  Its her favorite, mine too, and the price couldnt be better.  Don&#x27;t mention me or tell anyone I exist.&lt;br /&gt;&lt;br /&gt;Back to my hiding spot.</li>
+    <li> Love this product.  Arrived very quickly.</li>
+    <li> Just like the barber used years ago!</li>
+    <li> Great product, just like when I was a kid.</li>
+    <li> Will stay with you all day. Reminds me of the old time barber shops</li>
+    <li> Came quick and my hubby is happy</li>
+    <li> Such a pleasant smell for a men&#x27;s aftershave.  It&#x27;s very light and clean, with a hint of old fashioned gentleman!  I get all giddy when my husband comes out of the bathroom smelling of this aftershave.  It&#x27;s VERY suave.  Lasts a long time, too.</li>
+    <li> After reading some of the reviews here, I was really looking forward to trying this aftershave. I am disappointed. The scent is not as strong or as pleasant as I was hoping for. I find Old Spice, Brut and Chapman to be nicer than this stuff.</li>
+</ol>
+
+
+
+

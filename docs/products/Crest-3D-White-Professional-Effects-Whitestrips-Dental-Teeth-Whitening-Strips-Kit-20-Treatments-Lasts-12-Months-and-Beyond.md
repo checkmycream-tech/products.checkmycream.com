@@ -3,8 +3,8 @@ title: Crest 3D White Professional Effects Whitestrips Dental Teeth Whitening St
 description: Crest 3D White Professional Effects Whitestrips Dental Teeth Whitening Strips Kit, 20 Treatments - Lasts 12 Months &amp; Beyond,
 author: Suvojit Manna,
 tags: Crest 3D White Professional Effects Whitestrips Dental Teeth Whitening Strips Kit, 20 Treatments - Lasts 12 Months &amp; Beyond,
-publishedAt: Thu Jan 09 2020 19:08:29 GMT+0530 (India Standard Time),
-modifiedAt: Thu Jan 09 2020 19:08:29 GMT+0530 (India Standard Time),
+publishedAt: Fri Jan 10 2020 14:59:44 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:59:44 GMT+0530 (India Standard Time),
 ---
 
 # [Crest 3D White Professional Effects Whitestrips Dental Teeth Whitening Strips Kit, 20 Treatments - Lasts 12 Months &amp; Beyond](https://products.checkmycream.com/products/Crest-3D-White-Professional-Effects-Whitestrips-Dental-Teeth-Whitening-Strips-Kit-20-Treatments-Lasts-12-Months-and-Beyond.html)
@@ -12,211 +12,211 @@ modifiedAt: Thu Jan 09 2020 19:08:29 GMT+0530 (India Standard Time),
 ### Positive Reviews
 
 <ol>
+      <li>and they are very happy girls.</li>
+      <li>Wooot woot, tryna get dem pearly whites :D</li>
+      <li>and I have to say I&#x27;m impressed!</li>
+      <li>excellent price and very awesome product!</li>
+      <li>A great product!</li>
+      <li>I was very impressed with this product!</li>
+      <li>I&#x27;m very happy with the results.  </li>
+      <li>Great product!</li>
+      <li>The best product I&#x27;ve ever used to whiten my teeth.</li>
+      <li>Arrived as scheduled and works great!</li>
       <li>I use them as &amp;#34;maintenance&amp;#34; whitening every 6-8 months and am very happy with them.</li>
+      <li>but this one is the best!!</li>
+      <li>I have excellent teeth, over 55 - enamel as well, and can walk miles without a cigar.</li>
+      <li>One of the best teeth whitening products out there!</li>
+      <li>Very happy with product.</li>
+      <li>Always a great product!</li>
+      <li>Price here on Amamzon is the also the best I have found after searching.</li>
       <li>My son showed great results after four days!!!!</li>
       <li>Best over the counter whitener made.  </li>
       <li>Excellent results every time I use them (about every six months)</li>
+      <li>If you don&#x27;t have custom made trays this is the best out there.</li>
+      <li>, my teeth look great!  </li>
+      <li>i&#x27;m impressed!</li>
+      <li>and all great product!</li>
+      <li>Great experience!</li>
+      <li>I knew someone who uses the once every 3 months strips and the outcome were impressive, but I couldnt dream of having them on my teeth for 2 hours</li>
+      <li>Just what I wanted and works great!</li>
       <li>Great product!  </li>
+      <li>Crest whitestrips are the best teeth whitening retail product i have used.  </li>
+      <li>Great product!</li>
+      <li>These things are awesome!</li>
+      <li>My teeth look so great!</li>
+      <li>An excellent product.  </li>
+      <li>They work wonderfully.</li>
+      <li>This is one of the best whitening products I&#x27;ve used.</li>
+      <li>and I think that&#x27;s the best way to do it.</li>
+      <li>, I am impressed that I had no pain or discomfort whatsoever throughout the treatment.</li>
+      <li>and she wanted to loo her best...</li>
+      <li>, it&#x27;s an excellent product if you follow the directions and avoid coffee,tea,etc.</li>
       <li>I am very happy with this product.</li>
+      <li>Still the best.</li>
+      <li>It&#x27;s deffinately Crest&#x27;s best whitening kit they have for retail as I&#x27;ve used thier lower priced kit,Rembrant and a $350 Dentist&#x27;s Kit</li>
+      <li>This is great stuff!  </li>
       <li>These are the best whitening strips I have used.&lt;br /&gt;&lt;br</li>
       <li>Great results!</li>
+      <li>This is the best whitening we,ve found!</li>
+      <li>/&gt;These are great!</li>
+      <li>Product works great!</li>
+      <li>They are great!</li>
+      <li>however, the product review was like it is marvelous, it did not work well on me.</li>
+      <li>Of course my teeth were somewhat tender after each use, but that&#x27;s gone away now and my teeth look great!  </li>
+      <li>I am cock-a-hoop as they say in Great Britain!</li>
+      <li>these work great!</li>
       <li>They look great!  </li>
       <li>I was very happy with this purchase.  </li>
-      <li>My teeth are my best feature!</li>
-      <li>Sticks perfect.  </li>
-      <li>Works perfectly as described, didn&#x27;t hurt at all.</li>
-      <li>A great value for whitening your teeth!</li>
-      <li>and it&#x27;s been wonderful!</li>
-      <li>I was greatly impressed with the results.  </li>
-      <li>and i would be happy with the results that i have already seen as a finished result!</li>
-      <li>This whitener works great!</li>
-      <li>Very happy with the product.</li>
-      <li>Excellent product!</li>
-      <li>I used them once a day for 20 days and saw excellent results!!</li>
-      <li>/&gt;Very impressed!!</li>
-      <li>Excellent product as stated.</li>
-      <li>Crest has made great strides in these whitening strips!  </li>
-      <li>I received this in record time and am very happy with both the product and the seller.</li>
-      <li>Works Great!</li>
-      <li>a week before I was the maid of honor in my best friends wedding.</li>
-      <li>I saw pictures from before and after and was impressed</li>
-      <li>have nothing but great things to say about Crest&#x27;s 3D Whitestrips!  </li>
-      <li>Very happy with this product.</li>
-      <li>I am very happy with the result.</li>
-      <li>a believer -- these whitestrips are the best!</li>
-      <li>/&gt;These are great!</li>
-      <li>Return customer always the best!</li>
-      <li>I knew someone who uses the once every 3 months strips and the outcome were impressive, but I couldnt dream of having them on my teeth for 2 hours</li>
-      <li>and they still work great!</li>
-      <li>Best of all, you can drink water with them on!</li>
-      <li>Wooot woot, tryna get dem pearly whites :D</li>
-      <li>I am very impressed with this product.  </li>
-      <li>The result came out perfectly.</li>
-      <li>Be a happy customer with Crest!</li>
-      <li>Say what you want about whitening strips, these are about the easiest to use and best of the bunch.</li>
-      <li>Very happy with this product!</li>
-      <li>advance seal is a really good technology !!!</li>
-      <li>advance seal is a really good technology !!!</li>
-      <li>D&lt;br /&gt;&lt;br /&gt;Bye :D</li>
-      <li>I&#x27;m already impressed with the results.&lt;br /&gt;&lt;br</li>
-      <li>And Amazon&#x27;s price is great!</li>
-      <li>A great product!</li>
-      <li>/&gt;These strips are perfect rthey stick like cellotape and the whitening is visible after 2 or 3 days</li>
-      <li>I was seriously impressed.  </li>
-      <li>Great value!</li>
-      <li>and I am very happy with the results.  </li>
-      <li>I&#x27;ve been using this product twice a year since 2006 with consistently excellent results.</li>
-      <li>These strips are awesome.</li>
-      <li>The whiteness results were the best I have ever seen.</li>
-      <li>Excellent product !</li>
-      <li>It worked wonderful as well; however, I encountered a lot of pain.</li>
-      <li>Price here on Amamzon is the also the best I have found after searching.</li>
-      <li>If you are looking for alternative to in office teeth whitening, this is definitely a great alternative!</li>
-      <li>Of course my teeth were somewhat tender after each use, but that&#x27;s gone away now and my teeth look great!  </li>
-      <li>I&#x27;m very happy with the results!</li>
-      <li>These are the best whitestrips out there.</li>
-      <li>They work awesome.</li>
-      <li>One of the best teeth whitening products out there!</li>
-      <li>Very good product!</li>
-      <li>I used this in conjunction with the Crest HD toothpaste, I saw excellent results with that.</li>
-      <li>I&#x27;m very happy with this product!</li>
-      <li>So I&#x27;m a happy consumer!</li>
-      <li>Still the best teeth whitening in the business.</li>
-      <li>im really happy with my result!</li>
-      <li>Best way to whiten.</li>
-      <li>Crest classics were the best ones they ever had on the market, at about $20.00 a box.</li>
-      <li>Happy with my purchase!</li>
-      <li>They work perfectly, my teeth are whiter.</li>
-      <li>I use them all the time and this is the best version yet.</li>
-      <li>Great product!  </li>
-      <li>These are AWESOME!</li>
-      <li>This is an excellent product.</li>
-      <li>They adhere to your teeth perfectly and don&#x27;t switch or move.</li>
-      <li>Best price for this product is on Amazon.com</li>
-      <li>I&#x27;ve always loved these!!!</li>
-      <li>It is awesome!</li>
-      <li>The best teeth whitening product out there.</li>
-      <li>Of all the Crest whitening strips, I like these best.</li>
-      <li>I didn&#x27;t have to worry about them moving or sliding around, they just stay perfectly in place.</li>
-      <li>, these things are awesome.</li>
       <li>Work great!</li>
-      <li>An excellent product.  </li>
-      <li>but this one is the best!!</li>
-      <li>The best product I&#x27;ve ever used to whiten my teeth.</li>
-      <li>Great experience!</li>
-      <li>These things are awesome!</li>
-      <li>They work wonderfully.</li>
-      <li>, it&#x27;s an excellent product if you follow the directions and avoid coffee,tea,etc.</li>
-      <li>It&#x27;s deffinately Crest&#x27;s best whitening kit they have for retail as I&#x27;ve used thier lower priced kit,Rembrant and a $350 Dentist&#x27;s Kit</li>
+      <li>great price to boot!</li>
+      <li>I looked it up here on Amazon and saw all the wonderful reviews.  </li>
+      <li>They worked perfectly for me using them in this manner.  </li>
+      <li>, I went on line and asked what was the best product out there and was directed to this one.  </li>
+      <li>Impressive.</li>
+      <li>and I haven&#x27;t experienced any sensitivity or any problems!</li>
+      <li>, these things are awesome.</li>
+      <li>/&gt;These strips are perfect rthey stick like cellotape and the whitening is visible after 2 or 3 days</li>
+      <li>I&#x27;m very happy with the results!</li>
+      <li>This stuff works great!</li>
+      <li>I didn&#x27;t have to worry about them moving or sliding around, they just stay perfectly in place.</li>
+      <li>I am so happy with my purchase!</li>
+      <li>My teeth are my best feature!</li>
+      <li>Of all the Crest whitening strips, I like these best.</li>
+      <li>This is a wonderful product!</li>
+      <li>Used it once a day x 2 wks and very happy with results.</li>
       <li>and I&#x27;m happy with the results!</li>
+      <li>not the best thing i have tried it did get my teeth whiter eventually but took longer than i anticipated</li>
+      <li>I also received the best price around.  </li>
       <li>AWESOME!!</li>
+      <li>And Amazon&#x27;s price is great!</li>
+      <li>Best Product ive tried !!</li>
+      <li>The best teeth whitening product out there.</li>
+      <li>great buy!</li>
+      <li>Awesome whitining power.</li>
+      <li>Sticks perfect.  </li>
+      <li>Very good product!</li>
+      <li>I&#x27;m already impressed with the results.&lt;br /&gt;&lt;br</li>
       <li>This product works perfectly!</li>
-      <li>I am very happy with these.</li>
+      <li>D&lt;br /&gt;&lt;br /&gt;Bye :D</li>
+      <li>advance seal is a really good technology !!!</li>
+      <li>I am SO happy I learned of these!!  </li>
+      <li>These are great!</li>
+      <li>advance seal is a really good technology !!!</li>
+      <li>Works perfectly as described, didn&#x27;t hurt at all.</li>
+      <li>Great deal!</li>
+      <li>Perfect thing.</li>
+      <li>Use as directed and you&#x27;ll see great results!</li>
+      <li>This whitening product is the BEST over the counter that I have tried!</li>
+      <li>A great value for whitening your teeth!</li>
+      <li>They work GREAT!</li>
+      <li>again, all of my dental work is in excellent condition.  </li>
+      <li>The BEST teeth whiteners I have used yet!  </li>
+      <li>This product is great!!!</li>
 </ol>
 
 
 <h2>Negative Reviews</h2>
 <ol>
+<li> and they are very happy girls.</li>
+<li> Wooot woot, tryna get dem pearly whites :D</li>
+<li> and I have to say I&#x27;m impressed!</li>
+<li> excellent price and very awesome product!</li>
+<li> A great product!</li>
+<li> I was very impressed with this product!</li>
+<li> I&#x27;m very happy with the results.  </li>
+<li> Great product!</li>
+<li> The best product I&#x27;ve ever used to whiten my teeth.</li>
+<li> Arrived as scheduled and works great!</li>
 <li> I use them as &amp;#34;maintenance&amp;#34; whitening every 6-8 months and am very happy with them.</li>
+<li> but this one is the best!!</li>
+<li> I have excellent teeth, over 55 - enamel as well, and can walk miles without a cigar.</li>
+<li> One of the best teeth whitening products out there!</li>
+<li> Very happy with product.</li>
+<li> Always a great product!</li>
+<li> Price here on Amamzon is the also the best I have found after searching.</li>
 <li> My son showed great results after four days!!!!</li>
 <li> Best over the counter whitener made.  </li>
 <li> Excellent results every time I use them (about every six months)</li>
+<li> If you don&#x27;t have custom made trays this is the best out there.</li>
+<li> , my teeth look great!  </li>
+<li> i&#x27;m impressed!</li>
+<li> and all great product!</li>
+<li> Great experience!</li>
+<li> I knew someone who uses the once every 3 months strips and the outcome were impressive, but I couldnt dream of having them on my teeth for 2 hours</li>
+<li> Just what I wanted and works great!</li>
 <li> Great product!  </li>
+<li> Crest whitestrips are the best teeth whitening retail product i have used.  </li>
+<li> Great product!</li>
+<li> These things are awesome!</li>
+<li> My teeth look so great!</li>
+<li> An excellent product.  </li>
+<li> They work wonderfully.</li>
+<li> This is one of the best whitening products I&#x27;ve used.</li>
+<li> and I think that&#x27;s the best way to do it.</li>
+<li> , I am impressed that I had no pain or discomfort whatsoever throughout the treatment.</li>
+<li> and she wanted to loo her best...</li>
+<li> , it&#x27;s an excellent product if you follow the directions and avoid coffee,tea,etc.</li>
 <li> I am very happy with this product.</li>
+<li> Still the best.</li>
+<li> It&#x27;s deffinately Crest&#x27;s best whitening kit they have for retail as I&#x27;ve used thier lower priced kit,Rembrant and a $350 Dentist&#x27;s Kit</li>
+<li> This is great stuff!  </li>
 <li> These are the best whitening strips I have used.&lt;br /&gt;&lt;br</li>
 <li> Great results!</li>
+<li> This is the best whitening we,ve found!</li>
+<li> /&gt;These are great!</li>
+<li> Product works great!</li>
+<li> They are great!</li>
+<li> however, the product review was like it is marvelous, it did not work well on me.</li>
+<li> Of course my teeth were somewhat tender after each use, but that&#x27;s gone away now and my teeth look great!  </li>
+<li> I am cock-a-hoop as they say in Great Britain!</li>
+<li> these work great!</li>
 <li> They look great!  </li>
 <li> I was very happy with this purchase.  </li>
-<li> My teeth are my best feature!</li>
-<li> Sticks perfect.  </li>
-<li> Works perfectly as described, didn&#x27;t hurt at all.</li>
-<li> A great value for whitening your teeth!</li>
-<li> and it&#x27;s been wonderful!</li>
-<li> I was greatly impressed with the results.  </li>
-<li> and i would be happy with the results that i have already seen as a finished result!</li>
-<li> This whitener works great!</li>
-<li> Very happy with the product.</li>
-<li> Excellent product!</li>
-<li> I used them once a day for 20 days and saw excellent results!!</li>
-<li> /&gt;Very impressed!!</li>
-<li> Excellent product as stated.</li>
-<li> Crest has made great strides in these whitening strips!  </li>
-<li> I received this in record time and am very happy with both the product and the seller.</li>
-<li> Works Great!</li>
-<li> a week before I was the maid of honor in my best friends wedding.</li>
-<li> I saw pictures from before and after and was impressed</li>
-<li> have nothing but great things to say about Crest&#x27;s 3D Whitestrips!  </li>
-<li> Very happy with this product.</li>
-<li> I am very happy with the result.</li>
-<li> a believer -- these whitestrips are the best!</li>
-<li> /&gt;These are great!</li>
-<li> Return customer always the best!</li>
-<li> I knew someone who uses the once every 3 months strips and the outcome were impressive, but I couldnt dream of having them on my teeth for 2 hours</li>
-<li> and they still work great!</li>
-<li> Best of all, you can drink water with them on!</li>
-<li> Wooot woot, tryna get dem pearly whites :D</li>
-<li> I am very impressed with this product.  </li>
-<li> The result came out perfectly.</li>
-<li> Be a happy customer with Crest!</li>
-<li> Say what you want about whitening strips, these are about the easiest to use and best of the bunch.</li>
-<li> Very happy with this product!</li>
-<li> advance seal is a really good technology !!!</li>
-<li> advance seal is a really good technology !!!</li>
-<li> D&lt;br /&gt;&lt;br /&gt;Bye :D</li>
-<li> I&#x27;m already impressed with the results.&lt;br /&gt;&lt;br</li>
-<li> And Amazon&#x27;s price is great!</li>
-<li> A great product!</li>
-<li> /&gt;These strips are perfect rthey stick like cellotape and the whitening is visible after 2 or 3 days</li>
-<li> I was seriously impressed.  </li>
-<li> Great value!</li>
-<li> and I am very happy with the results.  </li>
-<li> I&#x27;ve been using this product twice a year since 2006 with consistently excellent results.</li>
-<li> These strips are awesome.</li>
-<li> The whiteness results were the best I have ever seen.</li>
-<li> Excellent product !</li>
-<li> It worked wonderful as well; however, I encountered a lot of pain.</li>
-<li> Price here on Amamzon is the also the best I have found after searching.</li>
-<li> If you are looking for alternative to in office teeth whitening, this is definitely a great alternative!</li>
-<li> Of course my teeth were somewhat tender after each use, but that&#x27;s gone away now and my teeth look great!  </li>
-<li> I&#x27;m very happy with the results!</li>
-<li> These are the best whitestrips out there.</li>
-<li> They work awesome.</li>
-<li> One of the best teeth whitening products out there!</li>
-<li> Very good product!</li>
-<li> I used this in conjunction with the Crest HD toothpaste, I saw excellent results with that.</li>
-<li> I&#x27;m very happy with this product!</li>
-<li> So I&#x27;m a happy consumer!</li>
-<li> Still the best teeth whitening in the business.</li>
-<li> im really happy with my result!</li>
-<li> Best way to whiten.</li>
-<li> Crest classics were the best ones they ever had on the market, at about $20.00 a box.</li>
-<li> Happy with my purchase!</li>
-<li> They work perfectly, my teeth are whiter.</li>
-<li> I use them all the time and this is the best version yet.</li>
-<li> Great product!  </li>
-<li> These are AWESOME!</li>
-<li> This is an excellent product.</li>
-<li> They adhere to your teeth perfectly and don&#x27;t switch or move.</li>
-<li> Best price for this product is on Amazon.com</li>
-<li> I&#x27;ve always loved these!!!</li>
-<li> It is awesome!</li>
-<li> The best teeth whitening product out there.</li>
-<li> Of all the Crest whitening strips, I like these best.</li>
-<li> I didn&#x27;t have to worry about them moving or sliding around, they just stay perfectly in place.</li>
-<li> , these things are awesome.</li>
 <li> Work great!</li>
-<li> An excellent product.  </li>
-<li> but this one is the best!!</li>
-<li> The best product I&#x27;ve ever used to whiten my teeth.</li>
-<li> Great experience!</li>
-<li> These things are awesome!</li>
-<li> They work wonderfully.</li>
-<li> , it&#x27;s an excellent product if you follow the directions and avoid coffee,tea,etc.</li>
-<li> It&#x27;s deffinately Crest&#x27;s best whitening kit they have for retail as I&#x27;ve used thier lower priced kit,Rembrant and a $350 Dentist&#x27;s Kit</li>
+<li> great price to boot!</li>
+<li> I looked it up here on Amazon and saw all the wonderful reviews.  </li>
+<li> They worked perfectly for me using them in this manner.  </li>
+<li> , I went on line and asked what was the best product out there and was directed to this one.  </li>
+<li> Impressive.</li>
+<li> and I haven&#x27;t experienced any sensitivity or any problems!</li>
+<li> , these things are awesome.</li>
+<li> /&gt;These strips are perfect rthey stick like cellotape and the whitening is visible after 2 or 3 days</li>
+<li> I&#x27;m very happy with the results!</li>
+<li> This stuff works great!</li>
+<li> I didn&#x27;t have to worry about them moving or sliding around, they just stay perfectly in place.</li>
+<li> I am so happy with my purchase!</li>
+<li> My teeth are my best feature!</li>
+<li> Of all the Crest whitening strips, I like these best.</li>
+<li> This is a wonderful product!</li>
+<li> Used it once a day x 2 wks and very happy with results.</li>
 <li> and I&#x27;m happy with the results!</li>
+<li> not the best thing i have tried it did get my teeth whiter eventually but took longer than i anticipated</li>
+<li> I also received the best price around.  </li>
 <li> AWESOME!!</li>
+<li> And Amazon&#x27;s price is great!</li>
+<li> Best Product ive tried !!</li>
+<li> The best teeth whitening product out there.</li>
+<li> great buy!</li>
+<li> Awesome whitining power.</li>
+<li> Sticks perfect.  </li>
+<li> Very good product!</li>
+<li> I&#x27;m already impressed with the results.&lt;br /&gt;&lt;br</li>
 <li> This product works perfectly!</li>
-<li> I am very happy with these.</li>
+<li> D&lt;br /&gt;&lt;br /&gt;Bye :D</li>
+<li> advance seal is a really good technology !!!</li>
+<li> I am SO happy I learned of these!!  </li>
+<li> These are great!</li>
+<li> advance seal is a really good technology !!!</li>
+<li> Works perfectly as described, didn&#x27;t hurt at all.</li>
+<li> Great deal!</li>
+<li> Perfect thing.</li>
+<li> Use as directed and you&#x27;ll see great results!</li>
+<li> This whitening product is the BEST over the counter that I have tried!</li>
+<li> A great value for whitening your teeth!</li>
+<li> They work GREAT!</li>
+<li> again, all of my dental work is in excellent condition.  </li>
+<li> The BEST teeth whiteners I have used yet!  </li>
+<li> This product is great!!!</li>
 </ol>
 
 <h2>All Reviews</h2>
@@ -3281,6 +3281,7 @@ modifiedAt: Thu Jan 09 2020 19:08:29 GMT+0530 (India Standard Time),
     <li> I used it as the directions told me to. I&#x27;d say my teeth only got about 15% brighter which is barely noticeable. I will have to look for something stronger. Just not that my teeth are not very stained, maybe 20% yellow. In my opinion, the more yellow your teeth are, the better it will work for you.</li>
     <li> Next best whitening compared to expensive whitening treatments from the dentist. I find it best when u dry your teeth and mouth slightly first with a paper towel so the strips don&#x27;t slide around.</li>
 </ol>
+
 
 
 

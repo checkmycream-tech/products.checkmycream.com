@@ -1,0 +1,158 @@
+---
+title: Neutrogena Healthy Defense Daily Moisturizer, SPF 30, Light Tint 1.7 Ounces,
+description: Neutrogena Healthy Defense Daily Moisturizer, SPF 30, Light Tint 1.7 Ounces,
+author: Suvojit Manna,
+tags: Neutrogena Healthy Defense Daily Moisturizer, SPF 30, Light Tint 1.7 Ounces,
+publishedAt: Fri Jan 10 2020 14:59:27 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:59:27 GMT+0530 (India Standard Time),
+---
+
+# [Neutrogena Healthy Defense Daily Moisturizer, SPF 30, Light Tint 1.7 Ounces](https://products.checkmycream.com/products/Neutrogena-Healthy-Defense-Daily-Moisturizer-SPF-30-Light-Tint-1.7-Ounces.html)
+
+### Positive Reviews
+
+<ol>
+      <li>Perfect combination of sun protection and color for your face!  </li>
+      <li>It is perfect for wearing alone or under makeup.</li>
+      <li>Very good produc</li>
+      <li>this a very good product but has been discontinued by the manufacturer.</li>
+      <li>It works great before and during the race</li>
+      <li>Great for when I need a hint of makeup but protection from the sun.</li>
+      <li>I was very happy to be able to find this great product on line.  </li>
+      <li>I have been very happy with the service you provide, also, my products have all been okay, and like shopping with you.</li>
+      <li>Good for face.  </li>
+      <li>I loved it but could never find it in stores in Colorado.  </li>
+      <li>So I was thrilled to find CCR&#x27;s amazing story told by Albert Ruben in \\&quot;The People&#x27;s Lawyer\\&quot; -- and what a story he tells!</li>
+      <li>Much better than just a sunblock!</li>
+      <li>Love the product, but not the hefty overpricing !</li>
+      <li>I have very fair skin with golden undertones.</li>
+      <li>This produce worked amazingly well.  </li>
+      <li>they make a product and when it gets popular</li>
+      <li>I ordered this neutrogena healthy defense sunscreen.  </li>
+      <li>My wife have being using it for a couple of years and always ask me to buy some more.</li>
+      <li>I like that it is tinted as I use it and go without foundation most of the time.</li>
+      <li>I love that this product has a tint so that I don&#x27;t need to wear make or powder.</li>
+      <li>The ingredients also seem pretty good and healthy for the skin.</li>
+      <li>Such a great product....happy to be able to get it!</li>
+      <li>I&#x27;m in my 30s with very fair skin and Neutrogena Healthy Defense Daily Moisturizer,</li>
+      <li>I apply a light, even coating of moisturizer to my face and neck--right out of the shower--and it gives me a healthy glow without having to wear foundation.</li>
+      <li>It has a light tint and an SPF 30 and that combination is not always easy to find.  </li>
+      <li>From his portrait of the legendary William Kunstler, one of the founders, to his description of how the brave young lawyers of CCR continue to defend civil rights today,his compelling story left me so grateful that they are out there on our domestic battle lines, continuing to fight the good fight.</li>
+      <li>This is a fantastic moisturizer.  </li>
+      <li>This is a fabulous product, and it&#x27;s being discontinued.  </li>
+      <li>It is my hope that I may continue to find this great product in the future.  </li>
+      <li>I suggest the Olay Total Effects or Pro-X line which is just as cheap on amazon as this trash, but actually does what it is supposed to it works Wonderfully.</li>
+      <li>It was also too dark for my skin tone, even though this is labeled as \\&quot;light tint.\\&quot; I gave 3 stars because the consistency is very smooth and the application glides on very easily.</li>
+      <li>It did not absorb quickly as stated on the package, either.</li>
+      <li>I have found that wearing a moisturizer with a lite tint works beautifully with gray or white hair and looks natural.  </li>
+      <li>Great for men to have a little color with no \\&quot;make-up\\&quot; look.  </li>
+      <li>When you reach the older years and your skin is  not like younger ladies, wearing regular makeup is not the best choice as it makes one look like a clown to put in mild terms.  </li>
+      <li>I know that the market is for the younger folks but we of advantaged age like to look nice also.  </li>
+      <li>The product was delivered quickly and was exactly as ordered.</li>
+      <li>this product works well for my wife it goes on clean with a light tint yet keep her face soft</li>
+      <li>Right on the package it claims fragrance-free, yet it smells like sunscreen.</li>
+      <li>Right on the package it claims non-greasy, yet when I put it on my legs it was greasy for hours</li>
+      <li>It&#x27;s great all year round and really evens out the look of my skin.</li>
+      <li>It does not hurt that the product can be found at a reasonable price versus the high priced available makeup.</li>
+      <li>I need something that is really unscented.</li>
+      <li>thanks you again.</li>
+      <li>I really like this product not greasy.  </li>
+      <li>Light Tint, SPF 30 is the only facial moisturizer I use.</li>
+      <li>I also do mudruns and have done numerous where the sunscreen works really well.</li>
+      <li>It is very greasy and does not sink in well, and I even have dry skin.</li>
+      <li>The \\&quot;light tint\\&quot; was a nightmare, it gave my face a very unattractive uneven tint of orange!!!!</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> Perfect combination of sun protection and color for your face!  </li>
+<li> It is perfect for wearing alone or under makeup.</li>
+<li> Very good produc</li>
+<li> this a very good product but has been discontinued by the manufacturer.</li>
+<li> It works great before and during the race</li>
+<li> Great for when I need a hint of makeup but protection from the sun.</li>
+<li> I was very happy to be able to find this great product on line.  </li>
+<li> I have been very happy with the service you provide, also, my products have all been okay, and like shopping with you.</li>
+<li> Good for face.  </li>
+<li> I loved it but could never find it in stores in Colorado.  </li>
+<li> So I was thrilled to find CCR&#x27;s amazing story told by Albert Ruben in \\&quot;The People&#x27;s Lawyer\\&quot; -- and what a story he tells!</li>
+<li> Much better than just a sunblock!</li>
+<li> Love the product, but not the hefty overpricing !</li>
+<li> I have very fair skin with golden undertones.</li>
+<li> This produce worked amazingly well.  </li>
+<li> they make a product and when it gets popular</li>
+<li> I ordered this neutrogena healthy defense sunscreen.  </li>
+<li> My wife have being using it for a couple of years and always ask me to buy some more.</li>
+<li> I like that it is tinted as I use it and go without foundation most of the time.</li>
+<li> I love that this product has a tint so that I don&#x27;t need to wear make or powder.</li>
+<li> The ingredients also seem pretty good and healthy for the skin.</li>
+<li> Such a great product....happy to be able to get it!</li>
+<li> I&#x27;m in my 30s with very fair skin and Neutrogena Healthy Defense Daily Moisturizer,</li>
+<li> I apply a light, even coating of moisturizer to my face and neck--right out of the shower--and it gives me a healthy glow without having to wear foundation.</li>
+<li> It has a light tint and an SPF 30 and that combination is not always easy to find.  </li>
+<li> From his portrait of the legendary William Kunstler, one of the founders, to his description of how the brave young lawyers of CCR continue to defend civil rights today,his compelling story left me so grateful that they are out there on our domestic battle lines, continuing to fight the good fight.</li>
+<li> This is a fantastic moisturizer.  </li>
+<li> This is a fabulous product, and it&#x27;s being discontinued.  </li>
+<li> It is my hope that I may continue to find this great product in the future.  </li>
+<li> I suggest the Olay Total Effects or Pro-X line which is just as cheap on amazon as this trash, but actually does what it is supposed to it works Wonderfully.</li>
+<li> It was also too dark for my skin tone, even though this is labeled as \\&quot;light tint.\\&quot; I gave 3 stars because the consistency is very smooth and the application glides on very easily.</li>
+<li> It did not absorb quickly as stated on the package, either.</li>
+<li> I have found that wearing a moisturizer with a lite tint works beautifully with gray or white hair and looks natural.  </li>
+<li> Great for men to have a little color with no \\&quot;make-up\\&quot; look.  </li>
+<li> When you reach the older years and your skin is  not like younger ladies, wearing regular makeup is not the best choice as it makes one look like a clown to put in mild terms.  </li>
+<li> I know that the market is for the younger folks but we of advantaged age like to look nice also.  </li>
+<li> The product was delivered quickly and was exactly as ordered.</li>
+<li> this product works well for my wife it goes on clean with a light tint yet keep her face soft</li>
+<li> Right on the package it claims fragrance-free, yet it smells like sunscreen.</li>
+<li> Right on the package it claims non-greasy, yet when I put it on my legs it was greasy for hours</li>
+<li> It&#x27;s great all year round and really evens out the look of my skin.</li>
+<li> It does not hurt that the product can be found at a reasonable price versus the high priced available makeup.</li>
+<li> I need something that is really unscented.</li>
+<li> thanks you again.</li>
+<li> I really like this product not greasy.  </li>
+<li> Light Tint, SPF 30 is the only facial moisturizer I use.</li>
+<li> I also do mudruns and have done numerous where the sunscreen works really well.</li>
+<li> It is very greasy and does not sink in well, and I even have dry skin.</li>
+<li> The \\&quot;light tint\\&quot; was a nightmare, it gave my face a very unattractive uneven tint of orange!!!!</li>
+<li> I particularly appreciate the SPF 30 because I burn with very little exposure.</li>
+<li> I have several other ladies who agree.  </li>
+<li> The moisturizer does help when one lives in a dry climate like Colorado.</li>
+<li> For years I&#x27;ve admired the Center for Constitutional Rights, the organization that defends us against any and all threats to our civil rights.</li>
+<li> I have purchased this product for several years but of late can not find it in the stores.  </li>
+<li> It does look dark coming out of the tube, but I distribute it evenly over the fingers of both hands before application and it lightens as you spread it over your skin.</li>
+<li> We have had trouble finding this product in drug stores, but AMAZON is THE place to shop for hard to find items!</li>
+<li> I am seriously looking for another&lt;br /&gt;product to use and it won&#x27;t be a Neutrogena product...</li>
+<li> Perhaps the reason the tube I bought for 50 cents was in a closeout/seconds place was there was something wrong with it</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> I ordered this neutrogena healthy defense sunscreen.  I really like this product not greasy.  Good for face.  thanks you again.</li>
+    <li> I&#x27;m in my 30s with very fair skin and Neutrogena Healthy Defense Daily Moisturizer, Light Tint, SPF 30 is the only facial moisturizer I use. I apply a light, even coating of moisturizer to my face and neck--right out of the shower--and it gives me a healthy glow without having to wear foundation. It does look dark coming out of the tube, but I distribute it evenly over the fingers of both hands before application and it lightens as you spread it over your skin. I also appreciate that it is unscented. My daily makeup routine consists of this moisturizer, eye makeup, blush, and lipstick. Even on my wedding day I wore only this moisturizer as my foundation, with a dusting of Mineral Veil to reduce shine. I particularly appreciate the SPF 30 because I burn with very little exposure. I do add sunscreen if I&#x27;m going to be outside for a while (mountain biking, water park, picnic, etc.) but this is all I need for daily protection.</li>
+    <li> It is very greasy and does not sink in well, and I even have dry skin. The \\&quot;light tint\\&quot; was a nightmare, it gave my face a very unattractive uneven tint of orange!!!! Fully hideous, I returned it immediately.   I suggest the Olay Total Effects or Pro-X line which is just as cheap on amazon as this trash, but actually does what it is supposed to it works Wonderfully.</li>
+    <li> I repeatedly purchase this product.  It has a light tint and an SPF 30 and that combination is not always easy to find.  This product is not greasy and never causes me any skin problems.  The price has increased over the years, but Amazon offered a 2-pack deal for a competitive price.  The product was delivered quickly and was exactly as ordered.</li>
+    <li> For years I&#x27;ve admired the Center for Constitutional Rights, the organization that defends us against any and all threats to our civil rights. So I was thrilled to find CCR&#x27;s amazing story told by Albert Ruben in \\&quot;The People&#x27;s Lawyer\\&quot; -- and what a story he tells! From his portrait of the legendary William Kunstler, one of the founders, to his description of how the brave young lawyers of CCR continue to defend civil rights today,his compelling story left me so grateful that they are out there on our domestic battle lines, continuing to fight the good fight.</li>
+    <li> This is a fantastic moisturizer.  I like that it is tinted as I use it and go without foundation most of the time.</li>
+    <li> I have been very happy with the service you provide, also, my products have all been okay, and like shopping with you. Jan</li>
+    <li> Why are all my go to standards fading away.  This is a fabulous product, and it&#x27;s being discontinued.  Rats!</li>
+    <li> Perhaps the reason the tube I bought for 50 cents was in a closeout/seconds place was there was something wrong with it and it wasn&#x27;t made properly. I was looking for something nongreasy and unscented that I can use on my face. Right on the package it claims fragrance-free, yet it smells like sunscreen. Right on the package it claims non-greasy, yet when I put it on my legs it was greasy for hours and I even slipped when kneeling on a vinyl floor. It did not absorb quickly as stated on the package, either. I used to like their products, but I think they are skimping on ingredients these days. I am not putting it on my face. I need something that is really unscented.</li>
+    <li> Love the product, but not the hefty overpricing !</li>
+    <li> Such a great product....happy to be able to get it!</li>
+    <li> Recommended by our dematologist for my husband&#x27;s skin problems.  This produce worked amazingly well.  Will continue to purchase and use it.</li>
+    <li> I have very fair skin with golden undertones. This did not match my skin tone. It was too beige-orangey-pink. It was also too dark for my skin tone, even though this is labeled as \\&quot;light tint.\\&quot; I gave 3 stars because the consistency is very smooth and the application glides on very easily. The ingredients also seem pretty good and healthy for the skin.</li>
+    <li> this product works well for my wife it goes on clean with a light tint yet keep her face soft</li>
+    <li> Perfect combination of sun protection and color for your face!  Great for men to have a little color with no \\&quot;make-up\\&quot; look.  We have had trouble finding this product in drug stores, but AMAZON is THE place to shop for hard to find items!</li>
+    <li> My friend from Australia let me use hers while we were vacationing in Peru.  I loved it but could never find it in stores in Colorado.  It is perfect for wearing alone or under makeup.</li>
+    <li> Why did Neutrogena stop making this product? I use to pay $12. for it and now have to shell out $25!&lt;br /&gt;Supply &amp; demand I guess....unless it&#x27;s a SCAM by Neutrogena?? I am seriously looking for another&lt;br /&gt;product to use and it won&#x27;t be a Neutrogena product... they make a product and when it gets popular&lt;br /&gt;they stop making it....makes you wonder what is going on in the cosmetic world.</li>
+    <li> My wife have being using it for a couple of years and always ask me to buy some more. Very good produc</li>
+    <li> Great for when I need a hint of makeup but protection from the sun. Much better than just a sunblock!</li>
+    <li> this a very good product but has been discontinued by the manufacturer. its replacement product looks, feels and smells like paint</li>
+    <li> I have purchased this product for several years but of late can not find it in the stores.  I was very happy to be able to find this great product on line.  When you reach the older years and your skin is  not like younger ladies, wearing regular makeup is not the best choice as it makes one look like a clown to put in mild terms.  I have found that wearing a moisturizer with a lite tint works beautifully with gray or white hair and looks natural.  I have several other ladies who agree.  I know that the market is for the younger folks but we of advantaged age like to look nice also.  The moisturizer does help when one lives in a dry climate like Colorado. It is my hope that I may continue to find this great product in the future.  It does not hurt that the product can be found at a reasonable price versus the high priced available makeup.</li>
+    <li> I love that this product has a tint so that I don&#x27;t need to wear make or powder. It&#x27;s great all year round and really evens out the look of my skin. I also do mudruns and have done numerous where the sunscreen works really well. It does need to reapplied after the 5k of being submerged in water numerous times happens but what wouldn&#x27;t. It works great before and during the race and I&#x27;ve never had to reapply for just daily wear.</li>
+</ol>
+
+
+
+

@@ -1,0 +1,161 @@
+---
+title: Matrix Biolage Styling Gelee 500 ml / 16.9 oz,
+description: Matrix Biolage Styling Gelee 500 ml / 16.9 oz,
+author: Suvojit Manna,
+tags: Matrix Biolage Styling Gelee 500 ml / 16.9 oz,
+publishedAt: Fri Jan 10 2020 15:00:16 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:16 GMT+0530 (India Standard Time),
+---
+
+# [Matrix Biolage Styling Gelee 500 ml / 16.9 oz](https://products.checkmycream.com/products/Matrix-Biolage-Styling-Gelee-500-ml-16.9-oz.html)
+
+### Positive Reviews
+
+<ol>
+      <li>The gel works awesome on my curly hair.</li>
+      <li>The best gel I have ever used.  </li>
+      <li>One of the best products that I have found for my hair.  </li>
+      <li>This gelee is wonderful and I can&#x27;t style my hair without it.  </li>
+      <li>Very good price.</li>
+      <li>and i&#x27;m happy with it.</li>
+      <li>great for my curly hair.</li>
+      <li>so I was happy to find it in Amazon for $17.</li>
+      <li>Great product.</li>
+      <li>A good deal for the price.</li>
+      <li>Product came on time and in good condition.  </li>
+      <li>LOVE IT!</li>
+      <li>Great for fine hair.</li>
+      <li>My hair has way more body with it.</li>
+      <li>Love it.</li>
+      <li>This was a a better deal through amazon.  </li>
+      <li>This is a light weight gel.</li>
+      <li>And free shipping over 25.</li>
+      <li>THis is my absolute favorite product.  </li>
+      <li>If this is true Biolage I will eat it</li>
+      <li>The good news is that they also changed their packaging so you can tell if you have the new or older version.</li>
+      <li>This gel is my favorite because it works with no white flakes like most have.</li>
+      <li>Then I put about a quarters worth of gel on my hand and rub together than put into my hair.</li>
+      <li>VERY NICE GEL, JUST NEED A LITTLE BIT TO GET THE SHINE</li>
+      <li>It is not messy or gooey and washes out easily.  </li>
+      <li>It does not make it hard and it smells great.</li>
+      <li>Perhaps this is good for people looking for dramatic spikes, but my hair ended up looking absolutely bizarre.</li>
+      <li>I really like this styling gelee.  </li>
+      <li>It puts an even, light coat on all the strands and last for about 2 days.</li>
+      <li>I am very displeased with this product.</li>
+      <li>My hair is fine and limp and this product does not weigh my hair down and gives it good body .</li>
+      <li>Cant&#x27; live with out it!</li>
+      <li>and this is the older version which DOES work,.</li>
+      <li>Love the Biolage shampoo for my very fine, limp hair, so I thought I would try their firm hold gel.  </li>
+      <li>Some other gels I have used require more than one shampoo to wash out the old gel, but not this one.  </li>
+      <li>Not thick and gooey.&lt;br /&gt;I</li>
+      <li>An amazing failure for a product of any price.</li>
+      <li>Highly recommended it because it doesn&#x27;t leave your hair stiff and you can easily comb thru it.  </li>
+      <li>it have natural curly hair</li>
+      <li>Not crusty, doesn&#x27;t lose it&#x27;s holding power, and my hair stays soft and shines all day--even in humid or rainy weather.</li>
+      <li>Sorry, was ready to love it as much as the shampoo, but no.</li>
+      <li>Not heavy or gummy.</li>
+      <li>It left my hair very sticky as if it were all alcohol.  </li>
+      <li>While it held my hair in place, it was thick and goey and I went through the bottle pretty quick.</li>
+      <li>I will never buy from this seller again and I will never buy high end beauty products from a 3rd party.  </li>
+      <li>If you have thin , fine hair</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> The gel works awesome on my curly hair.</li>
+<li> The best gel I have ever used.  </li>
+<li> One of the best products that I have found for my hair.  </li>
+<li> This gelee is wonderful and I can&#x27;t style my hair without it.  </li>
+<li> Very good price.</li>
+<li> and i&#x27;m happy with it.</li>
+<li> great for my curly hair.</li>
+<li> so I was happy to find it in Amazon for $17.</li>
+<li> Great product.</li>
+<li> A good deal for the price.</li>
+<li> Product came on time and in good condition.  </li>
+<li> LOVE IT!</li>
+<li> Great for fine hair.</li>
+<li> My hair has way more body with it.</li>
+<li> Love it.</li>
+<li> This was a a better deal through amazon.  </li>
+<li> This is a light weight gel.</li>
+<li> And free shipping over 25.</li>
+<li> THis is my absolute favorite product.  </li>
+<li> If this is true Biolage I will eat it</li>
+<li> The good news is that they also changed their packaging so you can tell if you have the new or older version.</li>
+<li> This gel is my favorite because it works with no white flakes like most have.</li>
+<li> Then I put about a quarters worth of gel on my hand and rub together than put into my hair.</li>
+<li> VERY NICE GEL, JUST NEED A LITTLE BIT TO GET THE SHINE</li>
+<li> It is not messy or gooey and washes out easily.  </li>
+<li> It does not make it hard and it smells great.</li>
+<li> Perhaps this is good for people looking for dramatic spikes, but my hair ended up looking absolutely bizarre.</li>
+<li> I really like this styling gelee.  </li>
+<li> It puts an even, light coat on all the strands and last for about 2 days.</li>
+<li> I am very displeased with this product.</li>
+<li> My hair is fine and limp and this product does not weigh my hair down and gives it good body .</li>
+<li> Cant&#x27; live with out it!</li>
+<li> and this is the older version which DOES work,.</li>
+<li> Love the Biolage shampoo for my very fine, limp hair, so I thought I would try their firm hold gel.  </li>
+<li> Some other gels I have used require more than one shampoo to wash out the old gel, but not this one.  </li>
+<li> Not thick and gooey.&lt;br /&gt;I</li>
+<li> An amazing failure for a product of any price.</li>
+<li> Highly recommended it because it doesn&#x27;t leave your hair stiff and you can easily comb thru it.  </li>
+<li> it have natural curly hair</li>
+<li> Not crusty, doesn&#x27;t lose it&#x27;s holding power, and my hair stays soft and shines all day--even in humid or rainy weather.</li>
+<li> Sorry, was ready to love it as much as the shampoo, but no.</li>
+<li> Not heavy or gummy.</li>
+<li> It left my hair very sticky as if it were all alcohol.  </li>
+<li> While it held my hair in place, it was thick and goey and I went through the bottle pretty quick.</li>
+<li> I will never buy from this seller again and I will never buy high end beauty products from a 3rd party.  </li>
+<li> If you have thin , fine hair</li>
+<li> I am graying a little for I am getting older.  </li>
+<li> so I couldn&#x27;t even really finish blow-drying it with my round brush--it would often get stuck in place!</li>
+<li> ; in the palm of your hand is all you need to finger through your hair before you dry and style it.  </li>
+<li> I blown dry and then use curling iron.</li>
+<li> wash my hair and towel dry.</li>
+<li> It is harder to come through my hair now.  </li>
+<li> This stuff definitely holds, but in my case, even a small dab of it weighed down my hair, made it feel stiff and dry, and basically glued the strands together</li>
+<li> It is far worse quality than the generic brand of Biolage I usually buy from Sally Beauty.  </li>
+<li> It does not weigh down the hair.</li>
+<li> I have been using Biolage for years product has went way down.</li>
+<li> It&#x27;s not too thick and a little goes a long way.</li>
+<li> Made my hair very dry and hard to manage.  </li>
+<li> This is a product that helps hold the curl and doesn&#x27;t leave your hair feeling dry, dull or stiff.  </li>
+<li> It holds the few curls I do put in my hair for height and width.</li>
+<li> YOU WANT FOR YOUR EVERYDAY LOOK!</li>
+<li> Just a small &amp;#34;dab&amp;#34</li>
+<li> I have been using this product for 15 or 20 years for impossible curly hair.</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> This is a product that helps hold the curl and doesn&#x27;t leave your hair feeling dry, dull or stiff.  My hair stylist recommended it.  Just a small &amp;#34;dab&amp;#34; in the palm of your hand is all you need to finger through your hair before you dry and style it.  I recommend this product and will purchase it again.</li>
+    <li> The gel works awesome on my curly hair. It does not make it hard and it smells great.</li>
+    <li> I really like this styling gelee.  I have a perm &amp; somewhat wavy hair &amp; this works well.</li>
+    <li> The Biolage Gelee Firm Hold Gel really works as a holding and styling gel.  It is not messy or gooey and washes out easily.  Some other gels I have used require more than one shampoo to wash out the old gel, but not this one.  Arrived on time.</li>
+    <li> Love the Biolage shampoo for my very fine, limp hair, so I thought I would try their firm hold gel.  Different experience.  Made my hair very dry and hard to manage.  Sorry, was ready to love it as much as the shampoo, but no.</li>
+    <li> The best gel I have ever used.  I am graying a little for I am getting older.  The only product that holds your hair without changing your hair color and making your hair turn grayer.  Great product.</li>
+    <li> THis is my absolute favorite product.  It does not make my curly hair crunchy, but it holds well.  LOVE IT!</li>
+    <li> One of the best products that I have found for my hair.  My hair is fine and limp and this product does not weigh my hair down and gives it good body . I would recommend to anyone.</li>
+    <li> If this is true Biolage I will eat it the product is not gelled it is almost like water and it does not work in hair. I have been using Biolage for years product has went way down. Do not buy!</li>
+    <li> My hair dresser uses this on my hair at her shop.  She also sells it.  This was a a better deal through amazon.  Great for fine hair.</li>
+    <li> Product came on time and in good condition.  This gel is my favorite because it works with no white flakes like most have.</li>
+    <li> This product has to be expired or a knock off.  It is far worse quality than the generic brand of Biolage I usually buy from Sally Beauty.  I will never buy from this seller again and I will never buy high end beauty products from a 3rd party.  It left my hair very sticky as if it were all alcohol.  It also left residue that several washes will not get rid of.  It is harder to come through my hair now.  I am very displeased with this product.</li>
+    <li> This gelee is wonderful and I can&#x27;t style my hair without it.  Highly recommended it because it doesn&#x27;t leave your hair stiff and you can easily comb thru it.  My hair has way more body with it.</li>
+    <li> I used to have the big 33.8oz bottle of this gel. When it ran out, I thought I&#x27;d try something cheaper and picked up some &amp;#34;men&#x27;s gel&amp;#34; from the local store. While it held my hair in place, it was thick and goey and I went through the bottle pretty quick. Once I ran out, I went back to the Biolage gel. It&#x27;s not too thick and a little goes a long way.</li>
+    <li> Not crusty, doesn&#x27;t lose it&#x27;s holding power, and my hair stays soft and shines all day--even in humid or rainy weather.</li>
+    <li> If you have thin , fine hair like I do than you will like this product. It does not weigh down the hair. It is not sticky. It holds the few curls I do put in my hair for height and width.This is a light weight gel. Not thick and gooey.&lt;br /&gt;I wash my hair and towel dry. Then I put about a quarters worth of gel on my hand and rub together than put into my hair.I blown dry and then use curling iron. I also use P.M. Freeze and Shine for hair spray.&lt;br /&gt;I could not find this product close by and beauty salon charge twice the amount so I was happy to find it in Amazon for $17. Very good price. And free shipping over 25. Love it.</li>
+    <li> VERY NICE GEL, JUST NEED A LITTLE BIT TO GET THE SHINE AND HOLD YOU WANT FOR YOUR EVERYDAY LOOK! HOLDS AGAINST THE RAIN AND ALL WEATHER</li>
+    <li> Biolage has changed their formula for their Gelee and this is the older version which DOES work,. The newer one, not so well. The good news is that they also changed their packaging so you can tell if you have the new or older version.</li>
+    <li> A good deal for the price.</li>
+    <li> I have been using this product for 15 or 20 years for impossible curly hair. It puts an even, light coat on all the strands and last for about 2 days. Not heavy or gummy. Cant&#x27; live with out it!</li>
+    <li> great for my curly hair. i have medium curls...</li>
+    <li> this is a product i&#x27;ve been using for a while.  it have natural curly hair and i&#x27;m happy with it. my hair still has movement but not all over the place.</li>
+    <li> I thought the gel I was using before I tried this was drying out my hair! Ha!  This stuff definitely holds, but in my case, even a small dab of it weighed down my hair, made it feel stiff and dry, and basically glued the strands together so I couldn&#x27;t even really finish blow-drying it with my round brush--it would often get stuck in place! Perhaps this is good for people looking for dramatic spikes, but my hair ended up looking absolutely bizarre. An amazing failure for a product of any price.</li>
+</ol>
+
+
+
+

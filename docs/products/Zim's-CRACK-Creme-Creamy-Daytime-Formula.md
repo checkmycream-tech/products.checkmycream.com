@@ -1,0 +1,296 @@
+---
+title: Zim&#x27;s CRACK Creme? Creamy Daytime Formula,
+description: Zim&#x27;s CRACK Creme? Creamy Daytime Formula,
+author: Suvojit Manna,
+tags: Zim&#x27;s CRACK Creme? Creamy Daytime Formula,
+publishedAt: Fri Jan 10 2020 14:59:20 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:59:20 GMT+0530 (India Standard Time),
+---
+
+# [Zim&#x27;s CRACK Creme? Creamy Daytime Formula](https://products.checkmycream.com/products/Zim&#x27;s-CRACK-Creme-Creamy-Daytime-Formula.html)
+
+### Positive Reviews
+
+<ol>
+      <li>Best creme I have ever used.</li>
+      <li>This stuff is the best!</li>
+      <li>Just awesome.  </li>
+      <li>Great product!</li>
+      <li>Crack Crème is one of the best treatments we have found.  </li>
+      <li>Great stuff!</li>
+      <li>best suff for my crack ever</li>
+      <li>I found it on Amazon and was very happy.</li>
+      <li>This is the best cream I have ever found.</li>
+      <li>This is the best thing I have found for my feet.  </li>
+      <li>Zim&#x27;s works perfect.</li>
+      <li>This creme is the best thing I have found for skin cracks during the winter.  </li>
+      <li>This is the best stuff for cracked fingers and hands.  </li>
+      <li>It&#x27;s not fool proof yet, it is the best I have ever tried!  </li>
+      <li>My split fingers are legendary!  </li>
+      <li>This is the best product I&#x27;ve found for cracked skin on my fingers.  </li>
+      <li>It really is a great help.</li>
+      <li>Made a great stocking stuffer.</li>
+      <li>Great product.  </li>
+      <li>it smells great.</li>
+      <li>Works great but perfer the Night Time cream</li>
+      <li>great product works like nothing else,  </li>
+      <li>Good stuff.  </li>
+      <li>It is also both non-greasy and  smells good.</li>
+      <li>Even better than anything the doctors prescribed!</li>
+      <li>Great product,  healed my split fingers very quickly and I would suggest this to everyone.  </li>
+      <li>This cream is amazing.  </li>
+      <li>and I haven&#x27;t been able to find it for many years, so was really happy to see it offered on Amazon.</li>
+      <li>It works fairly well and will buy more if needed.</li>
+      <li>The best think I&#x27;ve found to help so far</li>
+      <li>seems to be best so far.</li>
+      <li>It absorbs quickly, and has a pleasant smell.  </li>
+      <li>This is one of the better products out there if your fingers crack and hurt.</li>
+      <li>great stuff for really cry chapped hands - love the smell.</li>
+      <li>Love this product.  </li>
+      <li>When I tried to buy more no one sold it anymore.</li>
+      <li>I&#x27;ve tried many hand lotions that were supposed to guard your skin from chapping and cracking.  </li>
+      <li>Doesn&#x27;t seem to be sold in stores any more, just online.</li>
+      <li>I keep it on my kitchen counter top.  </li>
+      <li>I&#x27;m a nurse, and wash my hands many times a day.</li>
+      <li>We tried everything before ordering this, and this worked better than anything else.</li>
+      <li>I would have given this product a &amp;#34;5&amp;#34;, but one of the tubes has a quarter-inch opening on the seamed top edge.</li>
+      <li>While it is not the perfect answer to stop the cracks (only Vaseline seems to do that)</li>
+      <li>I tried purchasing this product from many stores with no luck.  </li>
+      <li>Doesn&#x27;t make it go away, but it is better.  </li>
+      <li>So glad she did.  </li>
+      <li>Love this stuff.</li>
+      <li>I discovered this creme many years ago when working as a nurse.  </li>
+      <li>Better than anything I&#x27;ve ever tried.</li>
+      <li>I am very happy that I was able to not only find this item</li>
+      <li>After I discovered it,  I recommended it to my podiatrist when he commented on how much better my feet were looking.</li>
+      <li>The original &amp;#34;Zim&#x27;s Crack Creme&amp;#34; was amazing.  </li>
+      <li>I actually liked the smell and it disappears quickly.  </li>
+      <li>This is the best creme out there for dry, cracked hands.  </li>
+      <li>and I keep it on the corner of my desk for easy access.</li>
+      <li>I love this stuff and have even used it on my horses for special dry-skin issues.</li>
+      <li>It makes my skin feel like a baby&#x27;s skin, silky and smooth..  </li>
+      <li>This creme is the very best for cracked raw hands from winter weather.&lt;br /&gt;I</li>
+      <li>great for dry and cracked heels</li>
+      <li>I will be buy more from this seller as they were fast to fill and ship item.</li>
+      <li>The creme is good but the tube cracked at the end opposite the cap</li>
+      <li>This is by far the best cream for dry cracked hands.</li>
+      <li>Seems to be not as strong when it first came out.</li>
+      <li>received very quickly and was exactly what I needed.</li>
+      <li>It&#x27;s not greasy and absorbs quickly.</li>
+      <li>This crème is not greasy and absorbs quickly.  </li>
+      <li>it is the next best thing as I&#x27;ve tried countless creams until I found Zim&#x27;s.</li>
+      <li>Zim&#x27;s absorbs quickly and helps to heal the cracks, so I don&#x27;t have to wear band-aids that make me look like a leper.</li>
+      <li>Fast shipping!!</li>
+      <li>but I was able to order it extremely easy and simple.  </li>
+      <li>great stuf for dry chapped hands , does not smell to good but it works in just a few days.</li>
+      <li>It is a great product that I bought a few years ago.</li>
+      <li>I apply this, because it absorbs completely, to my hands then put lotion on top.</li>
+      <li>I smooth it in especially at night and put gloves while I sleep and in the morning they feel better.</li>
+      <li>Would REALLY like to find the original formula.  </li>
+      <li>I just whipped out my phone and ordered it right in their aisle.  </li>
+      <li>As soon as I put it on, the pain goes away, and the skin heals very fast.</li>
+      <li>After I received the cream, all it took was a couple of applications to bring real relief to my hands!</li>
+      <li>I used it yesterday for the first time.  </li>
+      <li>I know I need my Crack Creme nearby when that first wind of winter howls.  </li>
+      <li>This creme really soothes and softens his skin!</li>
+      <li>Smells strong,works pretty well</li>
+      <li>I really don&#x27;t care for the smell (cloves) but it works so well that it&#x27;s totally worth it.</li>
+      <li>I purchased both of these products and it does exactly what the company claims it will do.  </li>
+      <li>This is the first time I have tried it</li>
+      <li>Just the remedy for sore summer hands from too much weeding!</li>
+      <li>I make sure I always have enough of this stuff.  </li>
+      <li>Zims Crack Cream is the only product that I have ever found to be successful in eliminating the cracks that occur around your fingernails in the dry winter air.  </li>
+      <li>Also, the shipping was fast and the packaging was really well-done!</li>
+      <li>Ordered recently from Amazon the smell is not as strong, does work on my hubby crack feet but took couple days longer.</li>
+      <li>really helps to keep the finger tip cracks at bay in the wintertime.</li>
+      <li>I would&#x27;ve been much happier if the cream worked along with the dryness &amp; tightness.</li>
+      <li>Thanks..</li>
+      <li>Best lotion for fingers that crack in cold weather.</li>
+      <li>I always try to have this product on hand as it is very healing and comforts my hands well.</li>
+      <li>but this stuff heals it up fast.  </li>
+      <li>I used the crack stuff that looks like nail polish called nexicare and that REALLY helped for the cuts</li>
+      <li>product really works!I apply at night.</li>
+      <li>Zim&#x27;s  Crack Creme is the one that REALLY does protect your skin.</li>
+      <li>I use other cremes most of the year</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> Best creme I have ever used.</li>
+<li> This stuff is the best!</li>
+<li> Just awesome.  </li>
+<li> Great product!</li>
+<li> Crack Crème is one of the best treatments we have found.  </li>
+<li> Great stuff!</li>
+<li> best suff for my crack ever</li>
+<li> I found it on Amazon and was very happy.</li>
+<li> This is the best cream I have ever found.</li>
+<li> This is the best thing I have found for my feet.  </li>
+<li> Zim&#x27;s works perfect.</li>
+<li> This creme is the best thing I have found for skin cracks during the winter.  </li>
+<li> This is the best stuff for cracked fingers and hands.  </li>
+<li> It&#x27;s not fool proof yet, it is the best I have ever tried!  </li>
+<li> My split fingers are legendary!  </li>
+<li> This is the best product I&#x27;ve found for cracked skin on my fingers.  </li>
+<li> It really is a great help.</li>
+<li> Made a great stocking stuffer.</li>
+<li> Great product.  </li>
+<li> it smells great.</li>
+<li> Works great but perfer the Night Time cream</li>
+<li> great product works like nothing else,  </li>
+<li> Good stuff.  </li>
+<li> It is also both non-greasy and  smells good.</li>
+<li> Even better than anything the doctors prescribed!</li>
+<li> Great product,  healed my split fingers very quickly and I would suggest this to everyone.  </li>
+<li> This cream is amazing.  </li>
+<li> and I haven&#x27;t been able to find it for many years, so was really happy to see it offered on Amazon.</li>
+<li> It works fairly well and will buy more if needed.</li>
+<li> The best think I&#x27;ve found to help so far</li>
+<li> seems to be best so far.</li>
+<li> It absorbs quickly, and has a pleasant smell.  </li>
+<li> This is one of the better products out there if your fingers crack and hurt.</li>
+<li> great stuff for really cry chapped hands - love the smell.</li>
+<li> Love this product.  </li>
+<li> When I tried to buy more no one sold it anymore.</li>
+<li> I&#x27;ve tried many hand lotions that were supposed to guard your skin from chapping and cracking.  </li>
+<li> Doesn&#x27;t seem to be sold in stores any more, just online.</li>
+<li> I keep it on my kitchen counter top.  </li>
+<li> I&#x27;m a nurse, and wash my hands many times a day.</li>
+<li> We tried everything before ordering this, and this worked better than anything else.</li>
+<li> I would have given this product a &amp;#34;5&amp;#34;, but one of the tubes has a quarter-inch opening on the seamed top edge.</li>
+<li> While it is not the perfect answer to stop the cracks (only Vaseline seems to do that)</li>
+<li> I tried purchasing this product from many stores with no luck.  </li>
+<li> Doesn&#x27;t make it go away, but it is better.  </li>
+<li> So glad she did.  </li>
+<li> Love this stuff.</li>
+<li> I discovered this creme many years ago when working as a nurse.  </li>
+<li> Better than anything I&#x27;ve ever tried.</li>
+<li> I am very happy that I was able to not only find this item</li>
+<li> After I discovered it,  I recommended it to my podiatrist when he commented on how much better my feet were looking.</li>
+<li> The original &amp;#34;Zim&#x27;s Crack Creme&amp;#34; was amazing.  </li>
+<li> I actually liked the smell and it disappears quickly.  </li>
+<li> This is the best creme out there for dry, cracked hands.  </li>
+<li> and I keep it on the corner of my desk for easy access.</li>
+<li> I love this stuff and have even used it on my horses for special dry-skin issues.</li>
+<li> It makes my skin feel like a baby&#x27;s skin, silky and smooth..  </li>
+<li> This creme is the very best for cracked raw hands from winter weather.&lt;br /&gt;I</li>
+<li> great for dry and cracked heels</li>
+<li> I will be buy more from this seller as they were fast to fill and ship item.</li>
+<li> The creme is good but the tube cracked at the end opposite the cap</li>
+<li> This is by far the best cream for dry cracked hands.</li>
+<li> Seems to be not as strong when it first came out.</li>
+<li> received very quickly and was exactly what I needed.</li>
+<li> It&#x27;s not greasy and absorbs quickly.</li>
+<li> This crème is not greasy and absorbs quickly.  </li>
+<li> it is the next best thing as I&#x27;ve tried countless creams until I found Zim&#x27;s.</li>
+<li> Zim&#x27;s absorbs quickly and helps to heal the cracks, so I don&#x27;t have to wear band-aids that make me look like a leper.</li>
+<li> Fast shipping!!</li>
+<li> but I was able to order it extremely easy and simple.  </li>
+<li> great stuf for dry chapped hands , does not smell to good but it works in just a few days.</li>
+<li> It is a great product that I bought a few years ago.</li>
+<li> I apply this, because it absorbs completely, to my hands then put lotion on top.</li>
+<li> I smooth it in especially at night and put gloves while I sleep and in the morning they feel better.</li>
+<li> Would REALLY like to find the original formula.  </li>
+<li> I just whipped out my phone and ordered it right in their aisle.  </li>
+<li> As soon as I put it on, the pain goes away, and the skin heals very fast.</li>
+<li> After I received the cream, all it took was a couple of applications to bring real relief to my hands!</li>
+<li> I used it yesterday for the first time.  </li>
+<li> I know I need my Crack Creme nearby when that first wind of winter howls.  </li>
+<li> This creme really soothes and softens his skin!</li>
+<li> Smells strong,works pretty well</li>
+<li> I really don&#x27;t care for the smell (cloves) but it works so well that it&#x27;s totally worth it.</li>
+<li> I purchased both of these products and it does exactly what the company claims it will do.  </li>
+<li> This is the first time I have tried it</li>
+<li> Just the remedy for sore summer hands from too much weeding!</li>
+<li> I make sure I always have enough of this stuff.  </li>
+<li> Zims Crack Cream is the only product that I have ever found to be successful in eliminating the cracks that occur around your fingernails in the dry winter air.  </li>
+<li> Also, the shipping was fast and the packaging was really well-done!</li>
+<li> Ordered recently from Amazon the smell is not as strong, does work on my hubby crack feet but took couple days longer.</li>
+<li> really helps to keep the finger tip cracks at bay in the wintertime.</li>
+<li> I would&#x27;ve been much happier if the cream worked along with the dryness &amp; tightness.</li>
+<li> Thanks..</li>
+<li> Best lotion for fingers that crack in cold weather.</li>
+<li> I always try to have this product on hand as it is very healing and comforts my hands well.</li>
+<li> but this stuff heals it up fast.  </li>
+<li> I used the crack stuff that looks like nail polish called nexicare and that REALLY helped for the cuts</li>
+<li> product really works!I apply at night.</li>
+<li> Zim&#x27;s  Crack Creme is the one that REALLY does protect your skin.</li>
+<li> I use other cremes most of the year</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> It works fairly well and will buy more if needed.</li>
+    <li> really helps to keep the finger tip cracks at bay in the wintertime.</li>
+    <li> This is the best creme out there for dry, cracked hands.  Start using it in October before the weather gets too cold.  I&#x27;m not fond of the scent, but this works so well that I look past that.  Highly recommend.</li>
+    <li> Great product.  I have serious issues with finger cracking and bleeding in the winter.  Zim&#x27;s crack Creme really lessens the affects of the cold</li>
+    <li> I&#x27;ve tried numerous moisturizers trying to control my hands from cracking...especially in the winter.  Put Zim&#x27;s on at night with cotton gloves.  Didn&#x27;t help at all.  The best think I&#x27;ve found to help so far is rinsing my hands in vinegar every couple of days.  Doesn&#x27;t make it go away, but it is better.  Zim&#x27;s also smells pretty bad.</li>
+    <li> It is a great product that I bought a few years ago. When I tried to buy more no one sold it anymore. I found it on Amazon and was very happy. I will be buy more from this seller as they were fast to fill and ship item. I would recommend this to everyone.</li>
+    <li> I am using this cream for my severe psoriasis and it is helping my condition to dial down a few notches.  It helps to stop the itching and a lot of the bleeding, yes bleeding, which this condition causes.  Just don&#x27;t stop making it!</li>
+    <li> Winter is rough on older skin.  I know I need my Crack Creme nearby when that first wind of winter howls.  I discovered this creme many years ago when working as a nurse.  It heals those cracked areas that painfully reach out from the corners of my nails. Prompt delivery ensures I&#x27;m not without.</li>
+    <li> great stuff for really cry chapped hands - love the smell.</li>
+    <li> This creme is the best thing I have found for skin cracks during the winter.  It does not take long and the crack is healed.  If you have ever found yourself with a severe crack on your finger or thumb that is horribly sore, this works.&lt;br /&gt;&lt;br /&gt;We could not find this in the stores but found it on Amazon!  Thank you Amazon!</li>
+    <li> Smells strong,works pretty well</li>
+    <li> My fingers tend to crack really bad in the dry Arizona winters, and Zim&#x27;s is the best that I&#x27;ve found to get me through the season.  It&#x27;s not greasy and does not leave a greasy feeling on your hands.  I keep a tube in my desk at work, in my truck and at home, and use after washing my hands.  While it is not the perfect answer to stop the cracks (only Vaseline seems to do that) it is the next best thing as I&#x27;ve tried countless creams until I found Zim&#x27;s.</li>
+    <li> My family loves Zim&#x27;s CRACK Creme! I made it though the coldest part of the winter with no splitting or cracking of my finger tips. I have eczema and my fingers will split until they are a extremely sore mess without Zim&#x27;s. My son loves it as well, he works with sharp metals in his computer business and his fingers get tiny cuts that become major issues without care. Zim&#x27;s works perfect. I use other cremes most of the year but when it is cold or my hands have to be in water for extended periods I rely totally on Zim&#x27;s for preventing them from chapping and peeling.</li>
+    <li> This is the best thing I have found for my feet.  I had foot surgery, live in a dry climate (30% humidity is wringing wet) and wear sandals much of the time.  This is the only product I have found that keeps my scar pliable and keeps my feet and elbows soft and uncracked through the day without having to be reapplied every 2 hours.  It is also both non-greasy and  smells good. After I discovered it,  I recommended it to my podiatrist when he commented on how much better my feet were looking.</li>
+    <li> I&#x27;ve been using Zim&#x27;s for years and it makes a long winter less painful. A friend recommended it to me in the last millennium and I keep it on the corner of my desk for easy access. Try it; you won&#x27;t regret the purchase.</li>
+    <li> We all wish that there was something that could instantaneously heal those cracks we get in our fingertip skin in dry, winter weather.  Crack Crème is one of the best treatments we have found.  However, it does not work instantaneously.  It generally takes several days for crack to heal.  It also works relatively well as a preventive treatment to forestall cracking when the weather turns dry.</li>
+    <li> I work with horses and fibers, and in the winter especially, these two things do not agree with each other.  My hands get really rough, and fibers snag... but Crack Creme every night helps to solve the problem.  I love this stuff and have even used it on my horses for special dry-skin issues.</li>
+    <li> Just awesome.  Had cracks on my heals and nothing would work.  This stuff is the best!</li>
+    <li> A friend turned me onto this and since it worked so well, I ordered some for both of us.  If you tend toward cracked hands in the winter months as I do, this is the cream for you.&lt;br /&gt;&lt;br /&gt;Not only does it work, it is quickly absorbed into the skin, leaving no greasy mess behind.  Try it. You won&#x27;t be disappointed!</li>
+    <li> I am very happy that I was able to not only find this item but I was able to order it extremely easy and simple.  Love this stuff.</li>
+    <li> I used to buy this all the time at Walgreen&#x27;s, but then they quit selling it and I haven&#x27;t been able to find it for many years, so was really happy to see it offered on Amazon. I really don&#x27;t care for the smell (cloves) but it works so well that it&#x27;s totally worth it. I&#x27;m a nurse, and wash my hands many times a day. So as a result my skin often becomes raw and cracked. This cream numbs the painful cracking, and soothes the skin immediately. It&#x27;s not greasy and absorbs quickly. Also, the shipping was fast and the packaging was really well-done!</li>
+    <li> We&#x27;ve looked all over locally for this product.  I finally decided to look online and was pleasantly surprised to find it.  Made a great stocking stuffer.</li>
+    <li> If you have cracked fingers and problems with hang nails, try this product.  It is the answer for me.  Better than anything I&#x27;ve ever tried.</li>
+    <li> My husband has a lot of cracked skin on his hands as he&#x27;s out in the sun everyday. This creme really soothes and softens his skin!</li>
+    <li> I had recurring and painful skin splits on my fingertips for years, especially during winter, so I ordered this product from Amazon. Zim&#x27;s absorbs quickly and helps to heal the cracks, so I don&#x27;t have to wear band-aids that make me look like a leper. It works well just by applying it to specific areas, and so -- unlike greasy hand lotions that feel like I just changed the oil on my car -- Zim&#x27;s doesn&#x27;t get all over things like cell phones, steering wheels, clothing and TV remotes.</li>
+    <li> seems to be best so far.</li>
+    <li> I would have given this product a &amp;#34;5&amp;#34;, but one of the tubes has a quarter-inch opening on the seamed top edge.</li>
+    <li> This is the best cream I have ever found. I work outside in the dirt every day my hands become cracked and dry and this product is the answer.</li>
+    <li> I do a lot of dish washing by hand and in the Winter my hands look and feel like I&#x27;ve been in a fight with a box cutter.  They get red raw and cut to pieces.  I used the crack stuff that looks like nail polish called nexicare and that REALLY helped for the cuts but I needed something for the red rawness and this helped tremendously.  It took out the stinging.  I keep it on my kitchen counter top.  It may smell a bit loud to you, it did to me but it fades.  I only use it when I&#x27;m done with working in the kitchen. You don&#x27;t want any products getting in food!  I don&#x27;t need it in the Summer.  It really is a great help.</li>
+    <li> I purchased both of these products and it does exactly what the company claims it will do.  Heals and softens the bottoms of my feet which were very rough...probably from going barefoot throughout childhood and beyond.  The hand cream heals my cracked cuticles and softens my dry hands.  Love this product.  Going to order the hand cream for my daughter.  This product was suggested to me by my manicurist who gives me pedicures as well.  So glad she did.  I tried purchasing this product from many stores with no luck.  Had to order online.&lt;br /&gt;&lt;br /&gt;Grandma from Michigan</li>
+    <li> Several years ago during a nasty winter, my fingertips repeatedly cracked and were incredibly painful.  I had heard an advertisement for Zim&#x27;s on the radio and thought I&#x27;d give it a try.  Not only were my fingers healed in less than a week, Zim&#x27;s became a standby for the rest of that winter.  Recently, my fingers cracked again and I went to the store where I had bought it before.  Seems that dropped it from their inventory, so I just whipped out my phone and ordered it right in their aisle.  I also recommended it to a friend whose husband&#x27;s fingers were so badly cracked that he dreaded winter.  She ordered it, and thanks me at least once a week for the relief he has gotten.  Zim&#x27;s Crack Creme is a must in the medicine cabinet!</li>
+    <li> My hands were cracked and bleeding from the constant exposure to very dry conditions. I looked at a couple of drug stores in my town and they didn&#x27;t have any Zimm&#x27;s so I ordered some from Amazon. After I received the cream, all it took was a couple of applications to bring real relief to my hands!</li>
+    <li> My husband had used this creme before and we could no longer find it in the stores so i ordered it online.  The creme is good but the tube cracked at the end opposite the cap so it squirts out there.</li>
+    <li> Just the remedy for sore summer hands from too much weeding!</li>
+    <li> Had sample of this cream over 10 years ago smell was strong and it worked on dry cracked skin and healed on 2nd day. Ordered recently from Amazon the smell is not as strong, does work on my hubby crack feet but took couple days longer. Seems to be not as strong when it first came out.</li>
+    <li> I have very dry skin that cracks in the wintertime.  I always try to have this product on hand as it is very healing and comforts my hands well.</li>
+    <li> best suff for my crack ever</li>
+    <li> Can&#x27;t beat it for cracked winter hands. I apply this, because it absorbs completely, to my hands then put lotion on top. The only problem would be if you do not care for the smell of cloves because that&#x27;s what it smells like to me.</li>
+    <li> IF YOU HAVE EXTREMELY DRY SKIN OR A MOISTURE RASH...SOOTHES AND HEALS IMMEDIATELY.......I RECOMMEND IT HIGHLY</li>
+    <li> I have used this product for years. Heals and prevents painful fingertip cracks on dried out hands. The aroma (clove) is not all that unpleasant. Doesn&#x27;t seem to be sold in stores any more, just online.</li>
+    <li> I ordered Zim&#x27;s Crack Crème daytime formula 3/28/14 after reading the reviews, good and bad.  I used it yesterday for the first time.  This cream is amazing.  It makes my skin feel like a baby&#x27;s skin, silky and smooth..  This is the first time I have tried it and I will definitely buy it again.  The negative reviews that I read mainly stated that the customers did not like the smell.  The smell reminds me of cloves.  I actually liked the smell and it disappears quickly.  This crème is not greasy and absorbs quickly.  Great product!</li>
+    <li> This reasonably priced creme is the only product I have found that actually works to prevent skin at the fingertips from cracking in cold winter weather.  It is a natural, non-prescription creme.  It absorbs quickly, and has a pleasant smell.  If used regularly it works.</li>
+    <li> Winter weather takes a toll on my fingers.(cracking etc.)&lt;br /&gt;This product really works!I apply at night.By morning,I can tell the difference.&lt;br /&gt;I use the product on the tips of my fingers to stop the splits.</li>
+    <li> This creme is the very best for cracked raw hands from winter weather.&lt;br /&gt;I have used it for several years now with 100% success.  You should put it on&lt;br /&gt;before bedtime and wear white cotton gloves.  Hands will be cleared up&lt;br /&gt;next morning.</li>
+    <li> My father used this and saw a noticeable difference in severely dried and cracked hands in as as little as a week. We tried everything before ordering this, and this worked better than anything else. Even better than anything the doctors prescribed! Great stuff!</li>
+    <li> This is by far the best cream for dry cracked hands. I have never found a moisturizer that doesn&#x27;t leave your hands greasy after you use it.</li>
+    <li> Zims Crack Cream is the only product that I have ever found to be successful in eliminating the cracks that occur around your fingernails in the dry winter air.  These cracks can be very painful and this cream is really good stuff!</li>
+    <li> If you suffer from winter cracked hands like I do, this is the cream for you. It really does help heal painful cracked hands. I smooth it in especially at night and put gloves while I sleep and in the morning they feel better.</li>
+    <li> My husbands fingers were drying and cracking and he has tried everything and couldn&#x27;t get it to go away this cream has helped it a lot and started to heal!</li>
+    <li> Item just as described!! Fast shipping!! Thanks..</li>
+    <li> I am a repeat user. Crack Creme works like nothing else with my painful dry winter fingertips. I can&#x27;t find it locally.</li>
+    <li> This is the best stuff for cracked fingers and hands.  My fingertips crack during cold weather.  My Dad told me about Zim&#x27;s crack cream.  It is very painful when fingertips crack but this stuff heals it up fast.  I make sure I always have enough of this stuff.  Nothing else works.</li>
+    <li> Never slippery hands. No more concrete cracked hands. Best creme I have ever used. I can highly recomend this product.</li>
+    <li> This is the best product I&#x27;ve found for cracked skin on my fingers.  As soon as I put it on, the pain goes away, and the skin heals very fast.</li>
+    <li> My split fingers are legendary!  I finally asked my doctor if there was any miracle cure they had as I was desperate and would try anything!  She recommended Zim&#x27;s!  It&#x27;s not fool proof yet, it is the best I have ever tried!  I am getting less splits and those that sneak through go away very quickly.  I heartily recommend it.  I now have some at work, in my car, next to my bed, and by the TV table!  You won&#x27;t be disappointed</li>
+    <li> I used this product a decade ago and it worked wonders.  I don&#x27;t know what went wrong.  Seems to have the same scent &amp; texture, but seemed very over drying on my hands making me look well beyond my 51 years as of today.  I would&#x27;ve been much happier if the cream worked along with the dryness &amp; tightness.</li>
+    <li> great product works like nothing else,  finally something that works tired of buying stuff that doesn&#x27;t work.  5 stars all day long</li>
+    <li> Great product,  healed my split fingers very quickly and I would suggest this to everyone.  received very quickly and was exactly what I needed.</li>
+    <li> great stuf for dry chapped hands , does not smell to good but it works in just a few days.</li>
+    <li> great for dry and cracked heels</li>
+    <li> Best lotion for fingers that crack in cold weather. Helps healing like no other plau it smells great. I would order again.</li>
+    <li> Works great but perfer the Night Time cream</li>
+    <li> This is one of the better products out there if your fingers crack and hurt. We use it every day, especially in the winter.</li>
+    <li> I&#x27;ve tried many hand lotions that were supposed to guard your skin from chapping and cracking.  Zim&#x27;s  Crack Creme is the one that REALLY does protect your skin.</li>
+    <li> Good stuff.  I have used it for years...recommended it to my brother and he has had the same positive results.</li>
+    <li> When your hands have cracked from dry winter weather, this creme helps them heal. I travel with it in my car.</li>
+    <li> Beware:  The original &amp;#34;Zim&#x27;s Crack Creme&amp;#34; was amazing.  This latest version is worthless.  Would REALLY like to find the original formula.  Guess I&#x27;m out of luck though.</li>
+</ol>
+
+
+
+

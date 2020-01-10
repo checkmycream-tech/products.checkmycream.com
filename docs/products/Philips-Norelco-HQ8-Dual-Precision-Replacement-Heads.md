@@ -3,8 +3,8 @@ title: Philips Norelco HQ8 Dual Precision Replacement Heads,
 description: Philips Norelco HQ8 Dual Precision Replacement Heads,
 author: Suvojit Manna,
 tags: Philips Norelco HQ8 Dual Precision Replacement Heads,
-publishedAt: Thu Jan 09 2020 19:08:20 GMT+0530 (India Standard Time),
-modifiedAt: Thu Jan 09 2020 19:08:20 GMT+0530 (India Standard Time),
+publishedAt: Fri Jan 10 2020 14:58:58 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:58:58 GMT+0530 (India Standard Time),
 ---
 
 # [Philips Norelco HQ8 Dual Precision Replacement Heads](https://products.checkmycream.com/products/Philips-Norelco-HQ8-Dual-Precision-Replacement-Heads.html)
@@ -12,211 +12,211 @@ modifiedAt: Thu Jan 09 2020 19:08:20 GMT+0530 (India Standard Time),
 ### Positive Reviews
 
 <ol>
-      <li>The packaging was excellent and delivery was prompt.  </li>
-      <li>Working great in my shaver!</li>
-      <li>Best deal is to buy this with subscribe and save</li>
-      <li>so are an excellent buy.</li>
-      <li>Perfect replacement unit .</li>
-      <li>the experience on this order was wonderful.</li>
-      <li>You&#x27;re doing a great job!  </li>
-      <li>These are the best blades going.</li>
-      <li>They perform as always in an excellent manner.  </li>
-      <li>Works great!</li>
-      <li>Heads]]I checked online and in stores, and found this product to be the best price at Amazon.com.  </li>
-      <li>shipped quickly, great price!</li>
-      <li>Amazon was the best price and, with Prime deliver, I saved there too.  </li>
-      <li>I am very impressed with the results.</li>
-      <li>Delivery of the replacement heads was prompt and they arrive in excellent condition.  </li>
-      <li>Works great!  </li>
-      <li>These blades are an awesome value!!!</li>
-      <li>Excellent replacement blades!!!</li>
-      <li>Wonderful for traveling or just to keep in the car.  </li>
-      <li>I was especially pleased by the savings I achieved by not having to go to the shaver&#x27;s online store.  </li>
-      <li>These are a perfect replacement for my worn out blades.</li>
-      <li>THE BLADE REPLACEMENTS FOR MY PHILLIPS NORELCO RAZOR ARE EXCELLENT.</li>
-      <li>The price at amazon is excellent.</li>
-      <li>The product worked perfectly.  </li>
-      <li>...it is just excellent.  </li>
-      <li>Very pleased with Amazon!!</li>
-      <li>At best I will get 6 months out of them.</li>
-      <li>Works great!</li>
-      <li>Since these are made by Philips they work perfectly.</li>
-      <li>Part of the perfect shaving tool for my husband.</li>
-      <li>This replacement heads are still excellent quality.</li>
-      <li>I am very happy with this product.  </li>
-      <li>Just what my husband ordered and he is very happy.</li>
-      <li>Not the best quality around.  </li>
-      <li>The HQ8 heads fitted perfectly, however, they seem to be of poorer quality than the originals.</li>
-      <li>Excellent product.  </li>
-      <li>company.&lt;br /&gt;Buying online is the best way to go vs trying to go from store to store or spending time trying to locate them by phoning stores.&lt;br /&gt;I</li>
-      <li>The Norelco replacement heads were just what I needed and they work perfectly.</li>
       <li>The replacement heads arrived promptly and work wonderfully.</li>
+      <li>I am very happy with this product.  </li>
       <li>Excellent replacement rotary blades.</li>
-      <li>Perfect to replace shaver&#x27;s heads yearly.  </li>
-      <li>Enjoy!!!!!</li>
-      <li>A great way to save money, replace the blades!</li>
-      <li>I ordered this for my 88xx series Norelco razor and the product arrived on time in perfect condition.</li>
-      <li>Excellent product!</li>
-      <li>The price I got at Amazon was the best I found.</li>
-      <li>anyway I did not have a very good experience with this item !!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!</li>
-      <li>Wonderful that you can do this.&lt;br</li>
-      <li>Works wonderfully.  </li>
-      <li>Great product!  </li>
-      <li>Excellent razor, but</li>
-      <li>Thanks!!!!!!!!!!</li>
-      <li>One of the best electric razors I&#x27;ve ever used.  </li>
-      <li>Great product!!</li>
-      <li>After shopping at nearby stores, we found that Amazon had the best price, and with Amazon Prime it was a snap to order it.  </li>
-      <li>Everything Norelco is excellent.</li>
-      <li>The replacement blades worked beautifully !!!!</li>
-      <li>I&#x27;m very happy with the replacement heads!</li>
-      <li>I&#x27;m very happy with this purchase.......</li>
-      <li>received with no hazzle or problem and installed in my shaver giving me the closest cut i can always get-very good job!!!</li>
-      <li>EXCELLENT RAZOR HEADS</li>
-      <li>The best Norelco has.  </li>
-      <li>He is very happy.  </li>
-      <li>Best price I could find for replacement.</li>
-      <li>That is the best electric shaver I have had.</li>
-      <li>Norelco makes an excellent shaving product.</li>
-      <li>Awesome deal for everyone.</li>
-      <li>Thank you Amazon, for a great deal... again!</li>
-      <li>Very happy with buying experience</li>
-      <li>Seattles on a Four Head Panasonic and find it to be the best razor i&#x27;ve ever Usedom.  </li>
-      <li>These were a perfect replacement for my worn out heads.  </li>
-      <li>I have ordered before and they have the best price.</li>
-      <li>They have continued to work perfectly from there.</li>
-      <li>Awesome Factory replacement head.</li>
-      <li>It fits the razor perfectly.</li>
-      <li>Excellent product.</li>
-      <li>Greatly helps if you have opposable thumbs!</li>
-      <li>Great!  </li>
-      <li>Fits my Philips Norelco PT720 perfect!</li>
-      <li>Perfect.</li>
-      <li>Excellently done!</li>
-      <li>And the cost of these heads through Amazon was the best that I could find.  </li>
-      <li>They work perfect for my shaver.</li>
+      <li>Working great in my shaver!</li>
       <li>And great price at the time of purchase....!</li>
+      <li>Perfect to replace shaver&#x27;s heads yearly.  </li>
       <li>These blades are the best price online</li>
       <li>The best blades on the market,with no pulling,or binding,in use.</li>
+      <li>They work perfect for my shaver.</li>
+      <li>and it worked perfectly.</li>
+      <li>They work wonderfully.</li>
+      <li>Also, awesome price!!</li>
       <li>Very happy with this product.</li>
       <li>These work great!</li>
+      <li>Best deal is to buy this with subscribe and save</li>
+      <li>Fits my electronic shaver perfectly</li>
+      <li>It is the perfect replacement.</li>
       <li>Works perfectly with  my electric razor.</li>
+      <li>so are an excellent buy.</li>
+      <li>Just what my husband ordered and he is very happy.</li>
+      <li>very happy with the Norelco brand.</li>
       <li>Excellent.</li>
       <li>Great price!</li>
       <li>They work great!</li>
       <li>Excellent product.  </li>
+      <li>Perfect replacement unit .</li>
+      <li>Enjoy!!!!!</li>
+      <li>I am very happy with the product.</li>
+      <li>A great way to save money, replace the blades!</li>
+      <li>The replacement heads are perfect!</li>
+      <li>Perfect replacement blades for my Norelco 7325xl razor.</li>
+      <li>Works perfectly.</li>
+      <li>This replacement heads are still excellent quality.</li>
       <li>Fits perfectly!</li>
       <li>/&gt;This was the best price I could find.</li>
+      <li>And the cost of these heads through Amazon was the best that I could find.  </li>
       <li>Best shave</li>
+      <li>Fits perfectly, just what I ordered!</li>
       <li>I prefer using Norelco shavers...since I have been shaving for about 60 years, my experience tells me this is the best product for me.  </li>
+      <li>the experience on this order was wonderful.</li>
+      <li>Part of the perfect shaving tool for my husband.</li>
+      <li>Excellently done!</li>
+      <li>The Norelco replacement heads were just what I needed and they work perfectly.</li>
+      <li>Since these are made by Philips they work perfectly.</li>
+      <li>company.&lt;br /&gt;Buying online is the best way to go vs trying to go from store to store or spending time trying to locate them by phoning stores.&lt;br /&gt;I</li>
       <li>This one is great!</li>
+      <li>Perfect.</li>
       <li>Great Deal on Amazon on these heads!</li>
+      <li>Great price--quick delivery!</li>
       <li>wonderful.</li>
+      <li>Fits my Philips Norelco PT720 perfect!</li>
+      <li>I&#x27;m not too impressed with this product for that reason.</li>
+      <li>I ordered this for my 88xx series Norelco razor and the product arrived on time in perfect condition.</li>
+      <li>Works great!</li>
+      <li>Great!  </li>
+      <li>My husband said the replacement worked perfectly.  </li>
+      <li>Wonderful!  </li>
+      <li>THIS IS PERFECT REPLACEMENT, IT IS JUST WHAT</li>
+      <li>$20 replacements cost over $80&lt;br /&gt;Anyway, these are excellent blades.</li>
+      <li>Best electric shave heads...</li>
+      <li>Excellent product.  </li>
+      <li>Excellent replacement.</li>
+      <li>Greatly helps if you have opposable thumbs!</li>
+      <li>&lt;br /&gt;i&#x27;m very happy with it</li>
+      <li>Excellent product!</li>
+      <li>Awesome.</li>
+      <li>Excellent product.</li>
+      <li>The heads work perfectly and have improved my shaves a lot.</li>
+      <li>So very cheap in price!!!!!!</li>
+      <li>You&#x27;re doing a great job!  </li>
+      <li>Works great!</li>
+      <li>These are the best blades going.</li>
+      <li>It&#x27;s a excellent product and it was on time.</li>
+      <li>They perform as always in an excellent manner.  </li>
+      <li>the best they&#x27;ve ever made</li>
+      <li>What can you say about a perfect product......</li>
+      <li>Fitted my husbands needs perfectly.</li>
+      <li>Very happy with this purchase.</li>
+      <li>Once installed, works great!</li>
+      <li>They are the best.</li>
+      <li>At best I will get 6 months out of them.</li>
+      <li>Buy them on Amazon for the best price.</li>
+      <li>It fits the razor perfectly.</li>
+      <li>The price I got at Amazon was the best I found.</li>
+      <li>Perfect.  </li>
+      <li>Yes, the replacement rotary blades are perfect</li>
+      <li>It took a bit of juggling to install them, however they work great!</li>
+      <li>It is great!  </li>
+      <li>Excellent service and quality.</li>
+      <li>Very pleased with Amazon!!</li>
+      <li>Awesome Factory replacement head.</li>
+      <li>excellent buy!</li>
+      <li>They have continued to work perfectly from there.</li>
+      <li>I have been using these replacement units for years, and they are excellent.</li>
+      <li>Not the best quality around.  </li>
+      <li>I have ordered before and they have the best price.</li>
+      <li>Good price with coupon!!</li>
+      <li>Everything was great!</li>
+      <li>...it is just excellent.  </li>
+      <li>anyway I did not have a very good experience with this item !!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!</li>
 </ol>
 
 
 <h2>Negative Reviews</h2>
 <ol>
-<li> The packaging was excellent and delivery was prompt.  </li>
-<li> Working great in my shaver!</li>
-<li> Best deal is to buy this with subscribe and save</li>
-<li> so are an excellent buy.</li>
-<li> Perfect replacement unit .</li>
-<li> the experience on this order was wonderful.</li>
-<li> You&#x27;re doing a great job!  </li>
-<li> These are the best blades going.</li>
-<li> They perform as always in an excellent manner.  </li>
-<li> Works great!</li>
-<li> Heads]]I checked online and in stores, and found this product to be the best price at Amazon.com.  </li>
-<li> shipped quickly, great price!</li>
-<li> Amazon was the best price and, with Prime deliver, I saved there too.  </li>
-<li> I am very impressed with the results.</li>
-<li> Delivery of the replacement heads was prompt and they arrive in excellent condition.  </li>
-<li> Works great!  </li>
-<li> These blades are an awesome value!!!</li>
-<li> Excellent replacement blades!!!</li>
-<li> Wonderful for traveling or just to keep in the car.  </li>
-<li> I was especially pleased by the savings I achieved by not having to go to the shaver&#x27;s online store.  </li>
-<li> These are a perfect replacement for my worn out blades.</li>
-<li> THE BLADE REPLACEMENTS FOR MY PHILLIPS NORELCO RAZOR ARE EXCELLENT.</li>
-<li> The price at amazon is excellent.</li>
-<li> The product worked perfectly.  </li>
-<li> ...it is just excellent.  </li>
-<li> Very pleased with Amazon!!</li>
-<li> At best I will get 6 months out of them.</li>
-<li> Works great!</li>
-<li> Since these are made by Philips they work perfectly.</li>
-<li> Part of the perfect shaving tool for my husband.</li>
-<li> This replacement heads are still excellent quality.</li>
-<li> I am very happy with this product.  </li>
-<li> Just what my husband ordered and he is very happy.</li>
-<li> Not the best quality around.  </li>
-<li> The HQ8 heads fitted perfectly, however, they seem to be of poorer quality than the originals.</li>
-<li> Excellent product.  </li>
-<li> company.&lt;br /&gt;Buying online is the best way to go vs trying to go from store to store or spending time trying to locate them by phoning stores.&lt;br /&gt;I</li>
-<li> The Norelco replacement heads were just what I needed and they work perfectly.</li>
 <li> The replacement heads arrived promptly and work wonderfully.</li>
+<li> I am very happy with this product.  </li>
 <li> Excellent replacement rotary blades.</li>
-<li> Perfect to replace shaver&#x27;s heads yearly.  </li>
-<li> Enjoy!!!!!</li>
-<li> A great way to save money, replace the blades!</li>
-<li> I ordered this for my 88xx series Norelco razor and the product arrived on time in perfect condition.</li>
-<li> Excellent product!</li>
-<li> The price I got at Amazon was the best I found.</li>
-<li> anyway I did not have a very good experience with this item !!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!</li>
-<li> Wonderful that you can do this.&lt;br</li>
-<li> Works wonderfully.  </li>
-<li> Great product!  </li>
-<li> Excellent razor, but</li>
-<li> Thanks!!!!!!!!!!</li>
-<li> One of the best electric razors I&#x27;ve ever used.  </li>
-<li> Great product!!</li>
-<li> After shopping at nearby stores, we found that Amazon had the best price, and with Amazon Prime it was a snap to order it.  </li>
-<li> Everything Norelco is excellent.</li>
-<li> The replacement blades worked beautifully !!!!</li>
-<li> I&#x27;m very happy with the replacement heads!</li>
-<li> I&#x27;m very happy with this purchase.......</li>
-<li> received with no hazzle or problem and installed in my shaver giving me the closest cut i can always get-very good job!!!</li>
-<li> EXCELLENT RAZOR HEADS</li>
-<li> The best Norelco has.  </li>
-<li> He is very happy.  </li>
-<li> Best price I could find for replacement.</li>
-<li> That is the best electric shaver I have had.</li>
-<li> Norelco makes an excellent shaving product.</li>
-<li> Awesome deal for everyone.</li>
-<li> Thank you Amazon, for a great deal... again!</li>
-<li> Very happy with buying experience</li>
-<li> Seattles on a Four Head Panasonic and find it to be the best razor i&#x27;ve ever Usedom.  </li>
-<li> These were a perfect replacement for my worn out heads.  </li>
-<li> I have ordered before and they have the best price.</li>
-<li> They have continued to work perfectly from there.</li>
-<li> Awesome Factory replacement head.</li>
-<li> It fits the razor perfectly.</li>
-<li> Excellent product.</li>
-<li> Greatly helps if you have opposable thumbs!</li>
-<li> Great!  </li>
-<li> Fits my Philips Norelco PT720 perfect!</li>
-<li> Perfect.</li>
-<li> Excellently done!</li>
-<li> And the cost of these heads through Amazon was the best that I could find.  </li>
-<li> They work perfect for my shaver.</li>
+<li> Working great in my shaver!</li>
 <li> And great price at the time of purchase....!</li>
+<li> Perfect to replace shaver&#x27;s heads yearly.  </li>
 <li> These blades are the best price online</li>
 <li> The best blades on the market,with no pulling,or binding,in use.</li>
+<li> They work perfect for my shaver.</li>
+<li> and it worked perfectly.</li>
+<li> They work wonderfully.</li>
+<li> Also, awesome price!!</li>
 <li> Very happy with this product.</li>
 <li> These work great!</li>
+<li> Best deal is to buy this with subscribe and save</li>
+<li> Fits my electronic shaver perfectly</li>
+<li> It is the perfect replacement.</li>
 <li> Works perfectly with  my electric razor.</li>
+<li> so are an excellent buy.</li>
+<li> Just what my husband ordered and he is very happy.</li>
+<li> very happy with the Norelco brand.</li>
 <li> Excellent.</li>
 <li> Great price!</li>
 <li> They work great!</li>
 <li> Excellent product.  </li>
+<li> Perfect replacement unit .</li>
+<li> Enjoy!!!!!</li>
+<li> I am very happy with the product.</li>
+<li> A great way to save money, replace the blades!</li>
+<li> The replacement heads are perfect!</li>
+<li> Perfect replacement blades for my Norelco 7325xl razor.</li>
+<li> Works perfectly.</li>
+<li> This replacement heads are still excellent quality.</li>
 <li> Fits perfectly!</li>
 <li> /&gt;This was the best price I could find.</li>
+<li> And the cost of these heads through Amazon was the best that I could find.  </li>
 <li> Best shave</li>
+<li> Fits perfectly, just what I ordered!</li>
 <li> I prefer using Norelco shavers...since I have been shaving for about 60 years, my experience tells me this is the best product for me.  </li>
+<li> the experience on this order was wonderful.</li>
+<li> Part of the perfect shaving tool for my husband.</li>
+<li> Excellently done!</li>
+<li> The Norelco replacement heads were just what I needed and they work perfectly.</li>
+<li> Since these are made by Philips they work perfectly.</li>
+<li> company.&lt;br /&gt;Buying online is the best way to go vs trying to go from store to store or spending time trying to locate them by phoning stores.&lt;br /&gt;I</li>
 <li> This one is great!</li>
+<li> Perfect.</li>
 <li> Great Deal on Amazon on these heads!</li>
+<li> Great price--quick delivery!</li>
 <li> wonderful.</li>
+<li> Fits my Philips Norelco PT720 perfect!</li>
+<li> I&#x27;m not too impressed with this product for that reason.</li>
+<li> I ordered this for my 88xx series Norelco razor and the product arrived on time in perfect condition.</li>
+<li> Works great!</li>
+<li> Great!  </li>
+<li> My husband said the replacement worked perfectly.  </li>
+<li> Wonderful!  </li>
+<li> THIS IS PERFECT REPLACEMENT, IT IS JUST WHAT</li>
+<li> $20 replacements cost over $80&lt;br /&gt;Anyway, these are excellent blades.</li>
+<li> Best electric shave heads...</li>
+<li> Excellent product.  </li>
+<li> Excellent replacement.</li>
+<li> Greatly helps if you have opposable thumbs!</li>
+<li> &lt;br /&gt;i&#x27;m very happy with it</li>
+<li> Excellent product!</li>
+<li> Awesome.</li>
+<li> Excellent product.</li>
+<li> The heads work perfectly and have improved my shaves a lot.</li>
+<li> So very cheap in price!!!!!!</li>
+<li> You&#x27;re doing a great job!  </li>
+<li> Works great!</li>
+<li> These are the best blades going.</li>
+<li> It&#x27;s a excellent product and it was on time.</li>
+<li> They perform as always in an excellent manner.  </li>
+<li> the best they&#x27;ve ever made</li>
+<li> What can you say about a perfect product......</li>
+<li> Fitted my husbands needs perfectly.</li>
+<li> Very happy with this purchase.</li>
+<li> Once installed, works great!</li>
+<li> They are the best.</li>
+<li> At best I will get 6 months out of them.</li>
+<li> Buy them on Amazon for the best price.</li>
+<li> It fits the razor perfectly.</li>
+<li> The price I got at Amazon was the best I found.</li>
+<li> Perfect.  </li>
+<li> Yes, the replacement rotary blades are perfect</li>
+<li> It took a bit of juggling to install them, however they work great!</li>
+<li> It is great!  </li>
+<li> Excellent service and quality.</li>
+<li> Very pleased with Amazon!!</li>
+<li> Awesome Factory replacement head.</li>
+<li> excellent buy!</li>
+<li> They have continued to work perfectly from there.</li>
+<li> I have been using these replacement units for years, and they are excellent.</li>
+<li> Not the best quality around.  </li>
+<li> I have ordered before and they have the best price.</li>
+<li> Good price with coupon!!</li>
+<li> Everything was great!</li>
+<li> ...it is just excellent.  </li>
+<li> anyway I did not have a very good experience with this item !!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!</li>
 </ol>
 
 <h2>All Reviews</h2>
@@ -2827,6 +2827,7 @@ modifiedAt: Thu Jan 09 2020 19:08:20 GMT+0530 (India Standard Time),
     <li> Received it quickly. It is the same product that is available at stores locally, but by getting from Amazon I saved some money. It&#x27;s just replacement heads for a razor, not much else can be said about them.</li>
     <li> Forgot how well my electric razor does the job until these new heads were installed. Great price, Prime shipping got them to me lickety-split and now my face is as smooth as a baby&#x27;s . . .</li>
 </ol>
+
 
 
 

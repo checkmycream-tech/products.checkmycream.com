@@ -3,8 +3,8 @@ title: Waterpik Aquarius Water Flosser,
 description: Waterpik Aquarius Water Flosser,
 author: Suvojit Manna,
 tags: Waterpik Aquarius Water Flosser,
-publishedAt: Thu Jan 09 2020 19:08:40 GMT+0530 (India Standard Time),
-modifiedAt: Thu Jan 09 2020 19:08:40 GMT+0530 (India Standard Time),
+publishedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
 ---
 
 # [Waterpik Aquarius Water Flosser](https://products.checkmycream.com/products/Waterpik-Aquarius-Water-Flosser.html)
@@ -12,211 +12,211 @@ modifiedAt: Thu Jan 09 2020 19:08:40 GMT+0530 (India Standard Time),
 ### Positive Reviews
 
 <ol>
-      <li>EXCELLENT!!  </li>
-      <li>AWESOME</li>
-      <li>The product was excellent</li>
-      <li>I got the best price at Wal-mart on line.</li>
       <li>This is a perfect waterpik.</li>
-      <li>I&#x27;ve been using a Waterpik for almost 14 years and this is the best one yet.  </li>
-      <li>Best!!!!!</li>
-      <li>I&#x27;ve used Waterpiks for about 30 years and this is one of the best.</li>
-      <li>It works great though!</li>
-      <li>It seems to be working perfectly as it dislodges food particles that my Sonicare electric toothbrush has missed.</li>
-      <li>excellent choice for a water flosser.</li>
-      <li>Works wonderfully and as intended.</li>
-      <li>very happy</li>
-      <li>Wonderful!</li>
-      <li>Cant complain, works perfect!</li>
-      <li>I am very happy that I bought this.</li>
-      <li>One of the best purchases I&#x27;ve ever made.</li>
-      <li>Arrived packaged well in perfect shape.</li>
-      <li>Best thing since sliced bread.  </li>
-      <li>Maybe not the best looking teeth on the block but the cleanest.</li>
-      <li>I am very happy with this product.</li>
-      <li>Doing wonderful.  </li>
-      <li>but I got the best check up.</li>
+      <li>One of the best water cleaning piks on the market.</li>
+      <li>One of the best items I have ever bought.</li>
+      <li>Works well and happy with the way my gums feel now!</li>
+      <li>Great buy!!!</li>
+      <li>Awesome I have braces....</li>
       <li>Works great!</li>
-      <li>can&#x27;t say this is the best model</li>
-      <li>Awesome product!</li>
-      <li>Otherwise ,it is an excellent dental cleaning device.</li>
-      <li>this is the best waterpik ever.</li>
-      <li>This is my 4th waterpik.and the best..</li>
-      <li>Great!!</li>
-      <li>He was impressed with it and wanted to partner up with my grandfather to manufacture it.  </li>
-      <li>BEST price out there.  </li>
-      <li>Very good, helpful product!</li>
-      <li>I am very happy with this water flosser.  </li>
-      <li>Great!</li>
-      <li>Works great for kids with braces, now if you can get them to use it and brush twice a day!</li>
-      <li>My Primary Care Physician just informed me that PLAQUE in the MOUTH CAUSES PLAQUE in the ARTERIES AND VEINS! !! ! !!</li>
-      <li>My Primary Care Physician just informed me that PLAQUE in the MOUTH CAUSES PLAQUE in the ARTERIES AND VEINS! !! ! !!</li>
-      <li>until you get used to controlling the water, LOL!</li>
-      <li>This is a awesome machine.  </li>
-      <li>It&#x27;s wonderful.  </li>
-      <li>The best water flosser I ever had</li>
+      <li>Excellent product.......</li>
+      <li>It feels so good!!  </li>
+      <li>AWESOME GADGET saved me plenty of time</li>
+      <li>Best thing that ever happened to my teeth and gums!</li>
+      <li>but I thought this model had to be the best.</li>
+      <li>Im very happy with this product!</li>
+      <li>best investment ever!</li>
+      <li>Does a great job!  </li>
+      <li>Very happy with the waterpik.</li>
+      <li>to use!&lt;br /&gt;&lt;br /&gt;I have seen a great improvement in my gum health since beginning use!</li>
+      <li>Perfect size.  </li>
+      <li>It is the best.</li>
+      <li>Excellent and as described...</li>
+      <li>I like this product very attractive .</li>
+      <li>Excellent!</li>
+      <li>Best product ever used for my gums!</li>
+      <li>this is the best yet..</li>
       <li>Works great!</li>
+      <li>this water pick, is the best</li>
+      <li>Excellent quality.</li>
+      <li>Great water pik!!!</li>
+      <li>My wife and I are very happy with this device.  </li>
+      <li>, this is an excellent machine to use at home.</li>
+      <li>and i&#x27;m very happy with it.  </li>
+      <li>(I keep the pressure at 1 and it works great!)</li>
+      <li>my teeth are in the best condition in years.</li>
+      <li>They both did a wonderful job</li>
+      <li>Excellent design and functionality in every way.  </li>
+      <li>Everyone should get one and the price is great!</li>
+      <li>Great product!</li>
+      <li>An excellent water flosser.  </li>
+      <li>It&#x27;s very good!</li>
+      <li>It&#x27;s the best thing I have ever used for oral hygiene.</li>
+      <li>I am very happy with this Waterpik model.  </li>
+      <li>Otherwise works great!!</li>
+      <li>Works excellently.</li>
+      <li>Excellent product and does not just cleaning but also flossing and tissue massage.</li>
+      <li>EXCELLENT!!  </li>
+      <li>The wand fits perfectly into its holder.</li>
+      <li>This product is so awesome for dental health.</li>
+      <li>We have used just about all of them to figure out which work best with her hardware.  </li>
+      <li>Does excellent job.</li>
+      <li>Excellent product!  </li>
+      <li>Great unit!</li>
+      <li>Now that would be perfect!</li>
+      <li>Awesome!!</li>
+      <li>Works perfectly and as advertised.</li>
+      <li>Excellent water pik, flosser, massager</li>
+      <li>We all use this in our house and have great results!</li>
+      <li>Great!  </li>
       <li>Works great!</li>
       <li>It is an excellent tool for your teeth and gums.</li>
-      <li>Otherwise works great!!</li>
-      <li>Everyone should get one and the price is great!</li>
-      <li>Great water pik!!!</li>
-      <li>Excellent!</li>
-      <li>to use!&lt;br /&gt;&lt;br /&gt;I have seen a great improvement in my gum health since beginning use!</li>
-      <li>but I thought this model had to be the best.</li>
-      <li>Excellent product.......</li>
-      <li>One of the best water cleaning piks on the market.</li>
-      <li>So happy I bought it!  </li>
-      <li>Best thing that ever happened to my teeth and gums!</li>
-      <li>It is the best.</li>
-      <li>this water pick, is the best</li>
-      <li>Works excellently.</li>
+      <li>best item for your buck!</li>
+      <li>VERY GOOD!</li>
+      <li>Here&#x27;s the best part about these waterpiks:  </li>
+      <li>Works great!</li>
       <li>This was the best investment I ever made.</li>
+      <li>AWESOME</li>
       <li>Perfect product and price for my needs.  </li>
       <li>I especially love the array of brushes that came with the unit.</li>
+      <li>If you have never used one of thee they are awesome.  </li>
+      <li>The best product I bought this year!</li>
+      <li>/&gt;It takes a while to figure out the best way to use it, but I am very happy with this purchase.</li>
       <li>Great product!</li>
+      <li>This is totally awesome.</li>
+      <li>Great product!</li>
+      <li>Man oh man, the best waterpik yet.</li>
+      <li>This was for my daughter and she is very happy with it</li>
       <li>But works well - great check up at the dentist!</li>
+      <li>It is wonderful!</li>
+      <li>Its wonderful and your teeth felt cleaner.</li>
+      <li>Works great!</li>
+      <li>The kids floss now - happily!</li>
+      <li>The best water flosser I ever had</li>
+      <li>Does a really great job!</li>
+      <li>Awesome product!!</li>
+      <li>Best I tried (Sonicare,</li>
+      <li>Very happy with how unit works and the results from its use.</li>
+      <li>Does an excellent job of cleaning below the gums.</li>
+      <li>It&#x27;s wonderful.  </li>
+      <li>The best water pik for cleaning between the teeth and the gums.</li>
       <li>Best investment I have ever made for my teeth.</li>
+      <li>Works perfectly for me.</li>
+      <li>What a wonderful machine.</li>
+      <li>This is the best.</li>
+      <li>This is a awesome machine.  </li>
+      <li>Best water pik</li>
+      <li>Works real good.</li>
+      <li>excellent water flosser!</li>
+      <li>Best investment I ever made.</li>
+      <li>until you get used to controlling the water, LOL!</li>
       <li>Does a wonderful job.</li>
       <li>Perfect.  </li>
-      <li>Perfect</li>
-      <li>its not the best</li>
-      <li>An excellent product that works as advertsed</li>
-      <li>Absolutely wonderful!!!!!!</li>
-      <li>My best Waterpik ever.  </li>
-      <li>/&gt;What is best about this product, however, is that it produces results!</li>
-      <li>Excellent product.</li>
-      <li>/&gt;Overall, excellent product.</li>
-      <li>best one they&#x27;ve ever made... very happy with it!</li>
-      <li>It was the perfect gift.</li>
-      <li>My rating is Excellent - Item delivered on time, and as described.  </li>
-      <li>Very happy with the product.</li>
-      <li>Works great!</li>
-      <li>But with an excellent improvement in performance too.</li>
-      <li>My dentist&#x27;s reports have been excellent since I have started using this.</li>
-      <li>The product quality is awesome, and it cleans your mouth like anything else.</li>
-      <li>This model (WP-660) of the Waterpik is the best one yet.&lt;br /&gt;The</li>
-      <li>best purchase for my oral hygiene..</li>
-      <li>Great device!</li>
-      <li>My mouth feels wonderful afterwards.</li>
-      <li>It works perfectly and gets the job done.</li>
-      <li>Not the best built</li>
-      <li>For all those out there who are fans of this type of product, this one is the best.</li>
-      <li>While I understand this is not an alternative to brushing, it is an excellent addition to it.</li>
-      <li>Awesome product!!</li>
-      <li>Works well and happy with the way my gums feel now!</li>
-      <li>Man oh man, the best waterpik yet.</li>
-      <li>excellent water pic.</li>
-      <li>It perfect for my needs.</li>
-      <li>I have had some oral issues and this thing is awesome!!!</li>
-      <li>Works wonderfully, just like at the dentist.</li>
-      <li>Works perfect.</li>
-      <li>I am very happy with the purchase.</li>
-      <li>Best water pick I have used</li>
 </ol>
 
 
 <h2>Negative Reviews</h2>
 <ol>
-<li> EXCELLENT!!  </li>
-<li> AWESOME</li>
-<li> The product was excellent</li>
-<li> I got the best price at Wal-mart on line.</li>
 <li> This is a perfect waterpik.</li>
-<li> I&#x27;ve been using a Waterpik for almost 14 years and this is the best one yet.  </li>
-<li> Best!!!!!</li>
-<li> I&#x27;ve used Waterpiks for about 30 years and this is one of the best.</li>
-<li> It works great though!</li>
-<li> It seems to be working perfectly as it dislodges food particles that my Sonicare electric toothbrush has missed.</li>
-<li> excellent choice for a water flosser.</li>
-<li> Works wonderfully and as intended.</li>
-<li> very happy</li>
-<li> Wonderful!</li>
-<li> Cant complain, works perfect!</li>
-<li> I am very happy that I bought this.</li>
-<li> One of the best purchases I&#x27;ve ever made.</li>
-<li> Arrived packaged well in perfect shape.</li>
-<li> Best thing since sliced bread.  </li>
-<li> Maybe not the best looking teeth on the block but the cleanest.</li>
-<li> I am very happy with this product.</li>
-<li> Doing wonderful.  </li>
-<li> but I got the best check up.</li>
+<li> One of the best water cleaning piks on the market.</li>
+<li> One of the best items I have ever bought.</li>
+<li> Works well and happy with the way my gums feel now!</li>
+<li> Great buy!!!</li>
+<li> Awesome I have braces....</li>
 <li> Works great!</li>
-<li> can&#x27;t say this is the best model</li>
-<li> Awesome product!</li>
-<li> Otherwise ,it is an excellent dental cleaning device.</li>
-<li> this is the best waterpik ever.</li>
-<li> This is my 4th waterpik.and the best..</li>
-<li> Great!!</li>
-<li> He was impressed with it and wanted to partner up with my grandfather to manufacture it.  </li>
-<li> BEST price out there.  </li>
-<li> Very good, helpful product!</li>
-<li> I am very happy with this water flosser.  </li>
-<li> Great!</li>
-<li> Works great for kids with braces, now if you can get them to use it and brush twice a day!</li>
-<li> My Primary Care Physician just informed me that PLAQUE in the MOUTH CAUSES PLAQUE in the ARTERIES AND VEINS! !! ! !!</li>
-<li> My Primary Care Physician just informed me that PLAQUE in the MOUTH CAUSES PLAQUE in the ARTERIES AND VEINS! !! ! !!</li>
-<li> until you get used to controlling the water, LOL!</li>
-<li> This is a awesome machine.  </li>
-<li> It&#x27;s wonderful.  </li>
-<li> The best water flosser I ever had</li>
+<li> Excellent product.......</li>
+<li> It feels so good!!  </li>
+<li> AWESOME GADGET saved me plenty of time</li>
+<li> Best thing that ever happened to my teeth and gums!</li>
+<li> but I thought this model had to be the best.</li>
+<li> Im very happy with this product!</li>
+<li> best investment ever!</li>
+<li> Does a great job!  </li>
+<li> Very happy with the waterpik.</li>
+<li> to use!&lt;br /&gt;&lt;br /&gt;I have seen a great improvement in my gum health since beginning use!</li>
+<li> Perfect size.  </li>
+<li> It is the best.</li>
+<li> Excellent and as described...</li>
+<li> I like this product very attractive .</li>
+<li> Excellent!</li>
+<li> Best product ever used for my gums!</li>
+<li> this is the best yet..</li>
 <li> Works great!</li>
+<li> this water pick, is the best</li>
+<li> Excellent quality.</li>
+<li> Great water pik!!!</li>
+<li> My wife and I are very happy with this device.  </li>
+<li> , this is an excellent machine to use at home.</li>
+<li> and i&#x27;m very happy with it.  </li>
+<li> (I keep the pressure at 1 and it works great!)</li>
+<li> my teeth are in the best condition in years.</li>
+<li> They both did a wonderful job</li>
+<li> Excellent design and functionality in every way.  </li>
+<li> Everyone should get one and the price is great!</li>
+<li> Great product!</li>
+<li> An excellent water flosser.  </li>
+<li> It&#x27;s very good!</li>
+<li> It&#x27;s the best thing I have ever used for oral hygiene.</li>
+<li> I am very happy with this Waterpik model.  </li>
+<li> Otherwise works great!!</li>
+<li> Works excellently.</li>
+<li> Excellent product and does not just cleaning but also flossing and tissue massage.</li>
+<li> EXCELLENT!!  </li>
+<li> The wand fits perfectly into its holder.</li>
+<li> This product is so awesome for dental health.</li>
+<li> We have used just about all of them to figure out which work best with her hardware.  </li>
+<li> Does excellent job.</li>
+<li> Excellent product!  </li>
+<li> Great unit!</li>
+<li> Now that would be perfect!</li>
+<li> Awesome!!</li>
+<li> Works perfectly and as advertised.</li>
+<li> Excellent water pik, flosser, massager</li>
+<li> We all use this in our house and have great results!</li>
+<li> Great!  </li>
 <li> Works great!</li>
 <li> It is an excellent tool for your teeth and gums.</li>
-<li> Otherwise works great!!</li>
-<li> Everyone should get one and the price is great!</li>
-<li> Great water pik!!!</li>
-<li> Excellent!</li>
-<li> to use!&lt;br /&gt;&lt;br /&gt;I have seen a great improvement in my gum health since beginning use!</li>
-<li> but I thought this model had to be the best.</li>
-<li> Excellent product.......</li>
-<li> One of the best water cleaning piks on the market.</li>
-<li> So happy I bought it!  </li>
-<li> Best thing that ever happened to my teeth and gums!</li>
-<li> It is the best.</li>
-<li> this water pick, is the best</li>
-<li> Works excellently.</li>
+<li> best item for your buck!</li>
+<li> VERY GOOD!</li>
+<li> Here&#x27;s the best part about these waterpiks:  </li>
+<li> Works great!</li>
 <li> This was the best investment I ever made.</li>
+<li> AWESOME</li>
 <li> Perfect product and price for my needs.  </li>
 <li> I especially love the array of brushes that came with the unit.</li>
+<li> If you have never used one of thee they are awesome.  </li>
+<li> The best product I bought this year!</li>
+<li> /&gt;It takes a while to figure out the best way to use it, but I am very happy with this purchase.</li>
 <li> Great product!</li>
+<li> This is totally awesome.</li>
+<li> Great product!</li>
+<li> Man oh man, the best waterpik yet.</li>
+<li> This was for my daughter and she is very happy with it</li>
 <li> But works well - great check up at the dentist!</li>
+<li> It is wonderful!</li>
+<li> Its wonderful and your teeth felt cleaner.</li>
+<li> Works great!</li>
+<li> The kids floss now - happily!</li>
+<li> The best water flosser I ever had</li>
+<li> Does a really great job!</li>
+<li> Awesome product!!</li>
+<li> Best I tried (Sonicare,</li>
+<li> Very happy with how unit works and the results from its use.</li>
+<li> Does an excellent job of cleaning below the gums.</li>
+<li> It&#x27;s wonderful.  </li>
+<li> The best water pik for cleaning between the teeth and the gums.</li>
 <li> Best investment I have ever made for my teeth.</li>
+<li> Works perfectly for me.</li>
+<li> What a wonderful machine.</li>
+<li> This is the best.</li>
+<li> This is a awesome machine.  </li>
+<li> Best water pik</li>
+<li> Works real good.</li>
+<li> excellent water flosser!</li>
+<li> Best investment I ever made.</li>
+<li> until you get used to controlling the water, LOL!</li>
 <li> Does a wonderful job.</li>
 <li> Perfect.  </li>
-<li> Perfect</li>
-<li> its not the best</li>
-<li> An excellent product that works as advertsed</li>
-<li> Absolutely wonderful!!!!!!</li>
-<li> My best Waterpik ever.  </li>
-<li> /&gt;What is best about this product, however, is that it produces results!</li>
-<li> Excellent product.</li>
-<li> /&gt;Overall, excellent product.</li>
-<li> best one they&#x27;ve ever made... very happy with it!</li>
-<li> It was the perfect gift.</li>
-<li> My rating is Excellent - Item delivered on time, and as described.  </li>
-<li> Very happy with the product.</li>
-<li> Works great!</li>
-<li> But with an excellent improvement in performance too.</li>
-<li> My dentist&#x27;s reports have been excellent since I have started using this.</li>
-<li> The product quality is awesome, and it cleans your mouth like anything else.</li>
-<li> This model (WP-660) of the Waterpik is the best one yet.&lt;br /&gt;The</li>
-<li> best purchase for my oral hygiene..</li>
-<li> Great device!</li>
-<li> My mouth feels wonderful afterwards.</li>
-<li> It works perfectly and gets the job done.</li>
-<li> Not the best built</li>
-<li> For all those out there who are fans of this type of product, this one is the best.</li>
-<li> While I understand this is not an alternative to brushing, it is an excellent addition to it.</li>
-<li> Awesome product!!</li>
-<li> Works well and happy with the way my gums feel now!</li>
-<li> Man oh man, the best waterpik yet.</li>
-<li> excellent water pic.</li>
-<li> It perfect for my needs.</li>
-<li> I have had some oral issues and this thing is awesome!!!</li>
-<li> Works wonderfully, just like at the dentist.</li>
-<li> Works perfect.</li>
-<li> I am very happy with the purchase.</li>
-<li> Best water pick I have used</li>
 </ol>
 
 <h2>All Reviews</h2>
@@ -2094,6 +2094,7 @@ modifiedAt: Thu Jan 09 2020 19:08:40 GMT+0530 (India Standard Time),
     <li> It&#x27;s a 35% improvement over my old one.  I like the looks of it , as well.</li>
     <li> Love it! I would absolutely reccomend this, it has great pressure and very easy to use.</li>
 </ol>
+
 
 
 

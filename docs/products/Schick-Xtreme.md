@@ -1,0 +1,216 @@
+---
+title: Schick Xtreme,
+description: Schick Xtreme,
+author: Suvojit Manna,
+tags: Schick Xtreme,
+publishedAt: Fri Jan 10 2020 15:00:06 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:06 GMT+0530 (India Standard Time),
+---
+
+# [Schick Xtreme](https://products.checkmycream.com/products/Schick-Xtreme.html)
+
+### Positive Reviews
+
+<ol>
+      <li>Best way to purchase my razors</li>
+      <li>The best place to purchase this product.</li>
+      <li>&lt;br /&gt;Gillette says it&#x27;s the best a man can get but not this man.</li>
+      <li>They are the best hands</li>
+      <li>I was not all that impressed with the Gillette ones I had been using</li>
+      <li>, I am very happy with the razors.</li>
+      <li>Faster shipping schedule, excellent product</li>
+      <li>and yes – I am using this for me – lol ---</li>
+      <li>otherwise it&#x27;s a very nice shave (not to mention my carotid once)--so</li>
+      <li>My razors at a good price.</li>
+      <li>Used to be easy to find in stores, so I&#x27;m happy to stock-up on Schick&#x27;s Xtreme3 razors here at Amazon --- for a much better price than stores as well.</li>
+      <li>Good razor, comfortable shave.</li>
+      <li>How would a man with a full face if hair use these!?!</li>
+      <li>Good disposable razor, but never as good as the real deal.&lt;br</li>
+      <li>I&#x27;ve used many, many types of disposable razors and some of the more popular non-disposables.</li>
+      <li>They&#x27;re usually ok for women&#x27;s legs though.&lt;br</li>
+      <li>That&#x27;s actually the best - cause</li>
+      <li>– Love</li>
+      <li>I love these.</li>
+      <li>The pack provides razors for several months, and with subscribe and save, is a great deal!</li>
+      <li>So, I&#x27;ve saved even more money for the quality of my shaves.</li>
+      <li>you can go with the non-disposable (always better).</li>
+      <li>This is the only razor my husband will use, lasts the longest, and best price</li>
+      <li>and they feel flimsy and cheap and not at all what a woman is looking for to shave with, let alone a man!</li>
+      <li>A disposable razor rarely gives as good of a shave as razors with replaceable heads.  </li>
+      <li>Clean shave and no bleeding!</li>
+      <li>Totally fine for women :)</li>
+      <li>I had to subscribe this product – love how smooth my legs are</li>
+      <li>The real thing at a good price.</li>
+      <li>No disposable razors give as nice of a shave while still leaving your skin fresh without irritation.  </li>
+      <li>Best razor, I agree with other reviews.</li>
+      <li>the Schick Tracer (not bad) and dozens more.</li>
+      <li>It is smooth, no cuts, no knicks and no problems.</li>
+      <li>This is a mid price razor that yield a great shave.</li>
+      <li>Honestly, the ones I got from the 99 Cent Only store worked better.</li>
+      <li>I get many shaves as much as two week out of one.</li>
+      <li>They are the only razors that I can get good lines out of when shaping my faciall hair.  </li>
+      <li>Not bad.</li>
+      <li>I used to cut myself even though the Schick plain xtreme3 was very good.</li>
+      <li>I read many reviews and after trying several brands, the shick extreme 3 is a very good razor.</li>
+      <li>The price is right, too.</li>
+      <li>I recommend them as the lesser of many evils.</li>
+      <li>Repeat customer for sure in the future !</li>
+      <li>Most recently, it was the Gillette Fusion.</li>
+      <li>Hands down the best razor I ever used is the schick extreme 3 disposable razor</li>
+      <li>but purely so you can film it and upload your reactions on youtube.</li>
+      <li>Gives a close, smooth shave several times from each blade without razor burn or nicks.</li>
+      <li>You might not want to be careful, then you just spend more.</li>
+      <li>Fast shipping, just what I wanted</li>
+      <li>Just a smooth and quick 3-minutes or less shave.</li>
+      <li>In the commercial a guy waiting for an interview sees the owner is bald and so buys a razor and quickly shaves all the hair from his head.  </li>
+      <li>/&gt;Although I knew some guys on the water polo team in high school that used it on their legs...and also some women who won&#x27;t admit that they&#x27;ve used it for their &#x27;staches.  </li>
+      <li>These green razors are not half as good as the blue ones that they replaced.</li>
+      <li>Now, cuts are NOT happening due to the genuine quality of &amp;#34;sensitive&amp;#34;razors.  </li>
+      <li>I think I found new method for buying razors.  </li>
+      <li>I guess I have a low IQ, because Gillette hooked me simply by sending me a free handle with one cartridge.</li>
+      <li>/&gt;Not that I&#x27;ve done scientific testing, but this one seems to shave a little more smoothly and last a bit longer than other razors.</li>
+      <li>Note, I shave in the shower with a heavily lathered visage, so I am as easy on razors as I can be.&lt;br /&gt;&lt;br</li>
+      <li>Only razors that flex which make shaving my head much easier.</li>
+      <li>I sliced open my jugular a number of times using a straight razor--</li>
+      <li>High quality low price compared to stores.</li>
+      <li>For my coarse hair --- both head and face --- the blades surprisingly last as much as two weeks.</li>
+      <li>For some reason, pink ones (womens) cost more than green ones, even though they are the same.</li>
+      <li>Recently I saw this ad for the Schick Sensitive 3 Razor.  </li>
+      <li>No regrets.</li>
+      <li>randomly picked up this kind of razor on a trip.</li>
+      <li>I got tired of pay more than $20-30 dollars</li>
+      <li>I mean every couple of swipes I had to clean the gunk out from between the blades</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> Best way to purchase my razors</li>
+<li> The best place to purchase this product.</li>
+<li> &lt;br /&gt;Gillette says it&#x27;s the best a man can get but not this man.</li>
+<li> They are the best hands</li>
+<li> I was not all that impressed with the Gillette ones I had been using</li>
+<li> , I am very happy with the razors.</li>
+<li> Faster shipping schedule, excellent product</li>
+<li> and yes – I am using this for me – lol ---</li>
+<li> otherwise it&#x27;s a very nice shave (not to mention my carotid once)--so</li>
+<li> My razors at a good price.</li>
+<li> Used to be easy to find in stores, so I&#x27;m happy to stock-up on Schick&#x27;s Xtreme3 razors here at Amazon --- for a much better price than stores as well.</li>
+<li> Good razor, comfortable shave.</li>
+<li> How would a man with a full face if hair use these!?!</li>
+<li> Good disposable razor, but never as good as the real deal.&lt;br</li>
+<li> I&#x27;ve used many, many types of disposable razors and some of the more popular non-disposables.</li>
+<li> They&#x27;re usually ok for women&#x27;s legs though.&lt;br</li>
+<li> That&#x27;s actually the best - cause</li>
+<li> – Love</li>
+<li> I love these.</li>
+<li> The pack provides razors for several months, and with subscribe and save, is a great deal!</li>
+<li> So, I&#x27;ve saved even more money for the quality of my shaves.</li>
+<li> you can go with the non-disposable (always better).</li>
+<li> This is the only razor my husband will use, lasts the longest, and best price</li>
+<li> and they feel flimsy and cheap and not at all what a woman is looking for to shave with, let alone a man!</li>
+<li> A disposable razor rarely gives as good of a shave as razors with replaceable heads.  </li>
+<li> Clean shave and no bleeding!</li>
+<li> Totally fine for women :)</li>
+<li> I had to subscribe this product – love how smooth my legs are</li>
+<li> The real thing at a good price.</li>
+<li> No disposable razors give as nice of a shave while still leaving your skin fresh without irritation.  </li>
+<li> Best razor, I agree with other reviews.</li>
+<li> the Schick Tracer (not bad) and dozens more.</li>
+<li> It is smooth, no cuts, no knicks and no problems.</li>
+<li> This is a mid price razor that yield a great shave.</li>
+<li> Honestly, the ones I got from the 99 Cent Only store worked better.</li>
+<li> I get many shaves as much as two week out of one.</li>
+<li> They are the only razors that I can get good lines out of when shaping my faciall hair.  </li>
+<li> Not bad.</li>
+<li> I used to cut myself even though the Schick plain xtreme3 was very good.</li>
+<li> I read many reviews and after trying several brands, the shick extreme 3 is a very good razor.</li>
+<li> The price is right, too.</li>
+<li> I recommend them as the lesser of many evils.</li>
+<li> Repeat customer for sure in the future !</li>
+<li> Most recently, it was the Gillette Fusion.</li>
+<li> Hands down the best razor I ever used is the schick extreme 3 disposable razor</li>
+<li> but purely so you can film it and upload your reactions on youtube.</li>
+<li> Gives a close, smooth shave several times from each blade without razor burn or nicks.</li>
+<li> You might not want to be careful, then you just spend more.</li>
+<li> Fast shipping, just what I wanted</li>
+<li> Just a smooth and quick 3-minutes or less shave.</li>
+<li> In the commercial a guy waiting for an interview sees the owner is bald and so buys a razor and quickly shaves all the hair from his head.  </li>
+<li> /&gt;Although I knew some guys on the water polo team in high school that used it on their legs...and also some women who won&#x27;t admit that they&#x27;ve used it for their &#x27;staches.  </li>
+<li> These green razors are not half as good as the blue ones that they replaced.</li>
+<li> Now, cuts are NOT happening due to the genuine quality of &amp;#34;sensitive&amp;#34;razors.  </li>
+<li> I think I found new method for buying razors.  </li>
+<li> I guess I have a low IQ, because Gillette hooked me simply by sending me a free handle with one cartridge.</li>
+<li> /&gt;Not that I&#x27;ve done scientific testing, but this one seems to shave a little more smoothly and last a bit longer than other razors.</li>
+<li> Note, I shave in the shower with a heavily lathered visage, so I am as easy on razors as I can be.&lt;br /&gt;&lt;br</li>
+<li> Only razors that flex which make shaving my head much easier.</li>
+<li> I sliced open my jugular a number of times using a straight razor--</li>
+<li> High quality low price compared to stores.</li>
+<li> For my coarse hair --- both head and face --- the blades surprisingly last as much as two weeks.</li>
+<li> For some reason, pink ones (womens) cost more than green ones, even though they are the same.</li>
+<li> Recently I saw this ad for the Schick Sensitive 3 Razor.  </li>
+<li> No regrets.</li>
+<li> randomly picked up this kind of razor on a trip.</li>
+<li> I got tired of pay more than $20-30 dollars</li>
+<li> I mean every couple of swipes I had to clean the gunk out from between the blades</li>
+<li> As long as they continue to make these, I will not go back to national brand.</li>
+<li> They last a long time, and the snap on cap is nicer than others - doesn&#x27;t get lost or fall off in my makeup bag.</li>
+<li> minor cuts -that</li>
+<li> And, they last a minimum of one month IF you shake off the water carefully after rinsing carefully.</li>
+<li> They stopped carrying anything less than four blades at the stores around my home, and I only want three.</li>
+<li> Then I spent perhaps tens of thousands of dollars on cartridges over the next few years.</li>
+<li> Did not work as well as some other blades of this brand.</li>
+<li> then I&amp;#34;m not afraid of cutting myself in my makeup/gym bag.</li>
+<li> These sharp razors do the trick!</li>
+<li> The whole time, I found it uncomfortable and razor burny, hard to maneuver around my face, and basically idiotic with all of the blades to get hung up on my powerful chin and mustache hairs.</li>
+<li> So I buy green.</li>
+<li> That makes it unlike the horrid Fusion, which requires an increasingly heavy hand after a few days.</li>
+<li> Before that, the Sensor, the Bic Metal shaver (cheap and efficient but brutal,)</li>
+<li> Seriously, Ive tried them all.  </li>
+<li> Though this is not a good idea ladies- get some threading or waxing done instead.  </li>
+<li> The result was pretty pathetic.  </li>
+<li> I&#x27;d have grown a beard if I didn&#x27;t hate having the things on me, as well as distrust any man younger than Kenny Rogers who wears one.&lt;br /&gt;&lt;br /&gt;I</li>
+<li> I am not happy with women razor – but this one –</li>
+<li> Awful product.</li>
+<li> Absolutely awful!!!!</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> My razors at a good price.</li>
+    <li> Best way to purchase my razors</li>
+    <li> I had to subscribe this product – love how smooth my legs are and yes – I am using this for me – lol --- I am not happy with women razor – but this one –oh my gosh – Love ---&lt;br /&gt;&lt;br /&gt;Reena</li>
+    <li> This is the only razor my husband will use, lasts the longest, and best price</li>
+    <li> The real thing at a good price. No question about it, buy these babies while they last.</li>
+    <li> These green razors are not half as good as the blue ones that they replaced. Two shaves and they are trash. I don&#x27;t know why they changed this design with a lighter razor with inferior blades. I&#x27;m looking for another brand.</li>
+    <li> Buying again and again</li>
+    <li> Did not work as well as some other blades of this brand.</li>
+    <li> Faster shipping schedule, excellent product, I am very happy with the razors.</li>
+    <li> Best razor, I agree with other reviews. Totally fine for women :) Clean shave and no bleeding! The price is right, too.</li>
+    <li> A disposable razor rarely gives as good of a shave as razors with replaceable heads.  They&#x27;re usually ok for women&#x27;s legs though.&lt;br /&gt;Although I knew some guys on the water polo team in high school that used it on their legs...and also some women who won&#x27;t admit that they&#x27;ve used it for their &#x27;staches.  Though this is not a good idea ladies- get some threading or waxing done instead.  And guys, I&#x27;d advise trying threading/waxing as well... but purely so you can film it and upload your reactions on youtube.</li>
+    <li> Seriously, Ive tried them all.  No disposable razors give as nice of a shave while still leaving your skin fresh without irritation.  They are the only razors that I can get good lines out of when shaping my faciall hair.  They are the best hands down.&lt;br /&gt;&lt;br /&gt;Buy with confidence!</li>
+    <li> Fast shipping, just what I wanted</li>
+    <li> Not bad. And that&#x27;s basically it. I&#x27;ve used many, many types of disposable razors and some of the more popular non-disposables. Most recently, it was the Gillette Fusion. I guess I have a low IQ, because Gillette hooked me simply by sending me a free handle with one cartridge. Then I spent perhaps tens of thousands of dollars on cartridges over the next few years. The whole time, I found it uncomfortable and razor burny, hard to maneuver around my face, and basically idiotic with all of the blades to get hung up on my powerful chin and mustache hairs. Before that, the Sensor, the Bic Metal shaver (cheap and efficient but brutal,) the Schick Tracer (not bad) and dozens more. I sliced open my jugular a number of times using a straight razor--otherwise it&#x27;s a very nice shave (not to mention my carotid once)--so I finally stopped using those too. I&#x27;d have grown a beard if I didn&#x27;t hate having the things on me, as well as distrust any man younger than Kenny Rogers who wears one.&lt;br /&gt;&lt;br /&gt;I randomly picked up this kind of razor on a trip. I didn&#x27;t pay much attention to it, but after a few shaves, I noticed it still was shaving well. That makes it unlike the horrid Fusion, which requires an increasingly heavy hand after a few days. Note, I shave in the shower with a heavily lathered visage, so I am as easy on razors as I can be.&lt;br /&gt;&lt;br /&gt;Not that I&#x27;ve done scientific testing, but this one seems to shave a little more smoothly and last a bit longer than other razors. I recommend them as the lesser of many evils.</li>
+    <li> The best place to purchase this product.</li>
+    <li> No complaints - I think I found new method for buying razors.  Repeat customer for sure in the future !</li>
+    <li> The ONLY disposable razor I have ever and will ever use. Simply because the triple-blades bend to the shape and bones of my face and bald head hair style. No cuts. No bloodshed. No regrets. Just a smooth and quick 3-minutes or less shave. Used to be easy to find in stores, so I&#x27;m happy to stock-up on Schick&#x27;s Xtreme3 razors here at Amazon --- for a much better price than stores as well. For my coarse hair --- both head and face --- the blades surprisingly last as much as two weeks. So, I&#x27;ve saved even more money for the quality of my shaves. I regularly get the results of a well groomed shave, rather than a war zone, BUY THIS!!</li>
+    <li> I love these. They stopped carrying anything less than four blades at the stores around my home, and I only want three. They are flexible blades. For some reason, pink ones (womens) cost more than green ones, even though they are the same. So I buy green.</li>
+    <li> Good razor, comfortable shave.</li>
+    <li> These sharp razors do the trick! They last a long time, and the snap on cap is nicer than others - doesn&#x27;t get lost or fall off in my makeup bag. That&#x27;s actually the best - cause then I&amp;#34;m not afraid of cutting myself in my makeup/gym bag. The pack provides razors for several months, and with subscribe and save, is a great deal!</li>
+    <li> High quality low price compared to stores.</li>
+    <li> I like Schick razors. When the  supermarket did not have them, I went to Amazon</li>
+    <li> WHAT Schick did to the Xtreme3 ?????</li>
+    <li> Good disposable razor, but never as good as the real deal.&lt;br /&gt;I&#x27;ve minor cuts -that never happened with the non-disposable.&lt;br /&gt;&lt;br /&gt;If you can go with the non-disposable (always better).</li>
+    <li> I have been shaving for 20 plus years and I can tell you that this razor is the only one I&#x27;ve used that doesn&#x27;t cut my face or leave some sort of irritation from too close of a shave. I wish I would have found this razor before now...&lt;br /&gt;Gillette says it&#x27;s the best a man can get but not this man. Hands down the best razor I ever used is the schick extreme 3 disposable razor</li>
+    <li> Absolutely awful!!!! I cut myself to shreads, there&#x27;s only one blade and they feel flimsy and cheap and not at all what a woman is looking for to shave with, let alone a man! How would a man with a full face if hair use these!?! Awful product.</li>
+    <li> I used to cut myself even though the Schick plain xtreme3 was very good. Now, cuts are NOT happening due to the genuine quality of &amp;#34;sensitive&amp;#34;razors.  And, they last a minimum of one month IF you shake off the water carefully after rinsing carefully. You might not want to be careful, then you just spend more.</li>
+    <li> Only razors that flex which make shaving my head much easier.</li>
+    <li> I got tired of pay more than $20-30 dollars a pop for national brand shavers. I read many reviews and after trying several brands, the shick extreme 3 is a very good razor. I get many shaves as much as two week out of one. It is smooth, no cuts, no knicks and no problems. They are moderately prices. I used to be a gillete person. As long as they continue to make these, I will not go back to national brand. You get what you pay for on the disposable brands. This is a mid price razor that yield a great shave.</li>
+    <li> Recently I saw this ad for the Schick Sensitive 3 Razor.  In the commercial a guy waiting for an interview sees the owner is bald and so buys a razor and quickly shaves all the hair from his head.  I was not all that impressed with the Gillette ones I had been using so I decided to give these razors a try.  The result was pretty pathetic.  I mean every couple of swipes I had to clean the gunk out from between the blades so they&#x27;d work.  And it&#x27;s not like I had Duck Dynasty facial hair going either.  Honestly, the ones I got from the 99 Cent Only store worked better.</li>
+    <li> Gives a close, smooth shave several times from each blade without razor burn or nicks.</li>
+</ol>
+
+
+
+

@@ -1,0 +1,157 @@
+---
+title: ICON India Shampoo + Conditioner 8.5 fl oz &quot;Combo Set&quot; by Vidimear,
+description: ICON India Shampoo + Conditioner 8.5 fl oz &quot;Combo Set&quot; by Vidimear,
+author: Suvojit Manna,
+tags: ICON India Shampoo + Conditioner 8.5 fl oz &quot;Combo Set&quot; by Vidimear,
+publishedAt: Fri Jan 10 2020 15:00:06 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:06 GMT+0530 (India Standard Time),
+---
+
+# [ICON India Shampoo + Conditioner 8.5 fl oz &quot;Combo Set&quot; by Vidimear](https://products.checkmycream.com/products/ICON-India-Shampoo-+-Conditioner-8.5-fl-oz-&quot;Combo-Set&quot;-by-Vidimear.html)
+
+### Positive Reviews
+
+<ol>
+      <li>This product is changing the texture of my hair for the best.  </li>
+      <li>Since then I&#x27;ve done some research in an attempt to find something else in the line that has the wonderful fragrance.  </li>
+      <li>EXCELLENT SHAMPOO AND CONDITIONER</li>
+      <li>Excellent Product!</li>
+      <li>I LOVE this collection!!!</li>
+      <li>is a great.</li>
+      <li>Just the smell alone is amazing!</li>
+      <li>These are excellent products; my hair never looked better.</li>
+      <li>The smell is awesome and the conditioner really lathers great!</li>
+      <li>Ordered this with a good detangling brush and can&#x27;t believe the difference in my hair after years of using the drugstore stuff.</li>
+      <li>My hair stylist loves the smell and honestly recognizes that this is a great product..</li>
+      <li>I love it!</li>
+      <li>Love these products!</li>
+      <li>I have curly frizzy hair and this product has been amazing.</li>
+      <li>This shampoo is amazing.</li>
+      <li>Nice scent, leaves hair nice, feeling moisturized without residue.</li>
+      <li>Very happy to find a reasonable price and will def buy again from this seller.</li>
+      <li>This is the most amazing shampoo and conditioner I have ever used.</li>
+      <li>Strongly recommend!</li>
+      <li>I love it</li>
+      <li>I love this shampoo/conditioner.</li>
+      <li>Love it.</li>
+      <li>I love this Shampoo and &#x27;Conditioner.  </li>
+      <li>I love this shampoo.  </li>
+      <li>and it tangles really easily.  </li>
+      <li>The ICON India Shampoo and Conditioner was delivered very quickly.  </li>
+      <li>When my &#x27;sample&#x27; sizes run out I&#x27;ll be moving up to the full liters.</li>
+      <li>Perfect for my dry, thick and curly hair, makes my hair shiny and smooth</li>
+      <li>I absolutely love ICON Red</li>
+      <li>Thanks!</li>
+      <li>You will see improvement after the first wash.  </li>
+      <li>I will be buying more ICON shampoo &amp; conditioner in the future.</li>
+      <li>So far, I&#x27;m in love with the product in general.  </li>
+      <li>Such a fantastic product.</li>
+      <li>The smell is very sensual and unisex - not fruity or flowery at all.</li>
+      <li>I do not think this is the real product.</li>
+      <li>I highly recommend!</li>
+      <li>I was even able to bleach my hair professionally four times in one day to go from a red head to a blonde and my hair is still silky smooth.</li>
+      <li>This product line not only brought my hair to a manageable state, it made it movie star worthy.</li>
+      <li>I have been using for a couple of years now and can&#x27;t live without this.</li>
+      <li>I&#x27;m completely satisified with my purchase.  </li>
+      <li>My color is lasting so much longer since using this product.</li>
+      <li>No longer, my shoulder length hair is soft and bouncy.</li>
+      <li>but this is so different from the real one.</li>
+      <li>It does not lather and it does not leave my hair soft from the conditioner.</li>
+      <li>this product has made my hair so much healthier and LONG.</li>
+      <li>I have a lot of straight caucasian color treated dry hair -</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> This product is changing the texture of my hair for the best.  </li>
+<li> Since then I&#x27;ve done some research in an attempt to find something else in the line that has the wonderful fragrance.  </li>
+<li> EXCELLENT SHAMPOO AND CONDITIONER</li>
+<li> Excellent Product!</li>
+<li> I LOVE this collection!!!</li>
+<li> is a great.</li>
+<li> Just the smell alone is amazing!</li>
+<li> These are excellent products; my hair never looked better.</li>
+<li> The smell is awesome and the conditioner really lathers great!</li>
+<li> Ordered this with a good detangling brush and can&#x27;t believe the difference in my hair after years of using the drugstore stuff.</li>
+<li> My hair stylist loves the smell and honestly recognizes that this is a great product..</li>
+<li> I love it!</li>
+<li> Love these products!</li>
+<li> I have curly frizzy hair and this product has been amazing.</li>
+<li> This shampoo is amazing.</li>
+<li> Nice scent, leaves hair nice, feeling moisturized without residue.</li>
+<li> Very happy to find a reasonable price and will def buy again from this seller.</li>
+<li> This is the most amazing shampoo and conditioner I have ever used.</li>
+<li> Strongly recommend!</li>
+<li> I love it</li>
+<li> I love this shampoo/conditioner.</li>
+<li> Love it.</li>
+<li> I love this Shampoo and &#x27;Conditioner.  </li>
+<li> I love this shampoo.  </li>
+<li> and it tangles really easily.  </li>
+<li> The ICON India Shampoo and Conditioner was delivered very quickly.  </li>
+<li> When my &#x27;sample&#x27; sizes run out I&#x27;ll be moving up to the full liters.</li>
+<li> Perfect for my dry, thick and curly hair, makes my hair shiny and smooth</li>
+<li> I absolutely love ICON Red</li>
+<li> Thanks!</li>
+<li> You will see improvement after the first wash.  </li>
+<li> I will be buying more ICON shampoo &amp; conditioner in the future.</li>
+<li> So far, I&#x27;m in love with the product in general.  </li>
+<li> Such a fantastic product.</li>
+<li> The smell is very sensual and unisex - not fruity or flowery at all.</li>
+<li> I do not think this is the real product.</li>
+<li> I highly recommend!</li>
+<li> I was even able to bleach my hair professionally four times in one day to go from a red head to a blonde and my hair is still silky smooth.</li>
+<li> This product line not only brought my hair to a manageable state, it made it movie star worthy.</li>
+<li> I have been using for a couple of years now and can&#x27;t live without this.</li>
+<li> I&#x27;m completely satisified with my purchase.  </li>
+<li> My color is lasting so much longer since using this product.</li>
+<li> No longer, my shoulder length hair is soft and bouncy.</li>
+<li> but this is so different from the real one.</li>
+<li> It does not lather and it does not leave my hair soft from the conditioner.</li>
+<li> this product has made my hair so much healthier and LONG.</li>
+<li> I have a lot of straight caucasian color treated dry hair -</li>
+<li> This shampoo and conditioner left my hair dry and itchy.  </li>
+<li> It was so dry and brittle.</li>
+<li> and I suffer from dry hair.  </li>
+<li> and I spent tons of money!  </li>
+<li> My hair had been previously damaged due to coloring and heat.  </li>
+<li> that this is half the price you pay at the salon, and can&#x27;t beat it.</li>
+<li> With this stuff, I just need a little bit and it cleans and untangles with one condition.  </li>
+<li> Olive Oil by Regis, Designline, and BoiSilk just to name a few.</li>
+<li> Conditioner is way too thick...</li>
+<li> it&#x27;s thin</li>
+<li> Expensive</li>
+<li> Very disappointed, product not worth the money.</li>
+<li> I had THE worst hair.</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> This product is changing the texture of my hair for the best.  I highlight every 6 weeks and I suffer from dry hair.  I&#x27;ve tried everything my stylists have recommended and nothing improved it and I spent tons of money!  You will see improvement after the first wash.  Love it.</li>
+    <li> The ICON India Shampoo and Conditioner was delivered very quickly.  These are excellent products; my hair never looked better.</li>
+    <li> Perfect for my dry, thick and curly hair, makes my hair shiny and smooth</li>
+    <li> I have a lot of straight caucasian color treated dry hair - it&#x27;s thin but I have a lot of it and it tangles really easily.  I often have to condition twice to get the tangles out.  With this stuff, I just need a little bit and it cleans and untangles with one condition.  Expensive but you get what you pay for.</li>
+    <li> I do not think this is the real product. I absolutely love ICON Red but this is so different from the real one. It does not lather and it does not leave my hair soft from the conditioner.</li>
+    <li> I LOVE this collection!!! this product has made my hair so much healthier and LONG. I cut my hair 2 yrs ago to my chin and my hair today is just above bra length which to me is a great. My hair stylist loves the smell and honestly recognizes that this is a great product..</li>
+    <li> I love this shampoo/conditioner. The smell is awesome and the conditioner really lathers great!</li>
+    <li> Such a fantastic product. Ordered this with a good detangling brush and can&#x27;t believe the difference in my hair after years of using the drugstore stuff. I couldn&#x27;t be happier. Factor in that this is half the price you pay at the salon, and can&#x27;t beat it.</li>
+    <li> Excellent Product! This was my third order and my hair continues to improve in terms of healthiness. Before, I had to keep my hair in a shorter style to keep it from being stringy as it grew out. No longer, my shoulder length hair is soft and bouncy.</li>
+    <li> This shampoo is amazing. I used to have to wash my hair every day and this shampoo and conditioner allows me to go 3 days. My hair is healthier and shiny. My color is lasting so much longer since using this product. I highly recommend!</li>
+    <li> Just the smell alone is amazing! I don&#x27;t wash my hair often since it is dyed all sorts of colors, but when I do I use this stuff and get totally absorbed in the aroma, which lasts for a least a couple of days. Strongly recommend!</li>
+    <li> EXCELLENT SHAMPOO AND CONDITIONER</li>
+    <li> I love this shampoo.  I&#x27;m completely satisified with my purchase.  I will be buying more ICON shampoo &amp; conditioner in the future.</li>
+    <li> Conditioner is way too thick...can&#x27;t get it out of the bottle. Shampoo turned my hair into straw. Very disappointed, product not worth the money.</li>
+    <li> I came into possession of some of the ICON India Oil from a friend who received it from a Salon.  Since then I&#x27;ve done some research in an attempt to find something else in the line that has the wonderful fragrance.  So far, I&#x27;m in love with the product in general.  When my &#x27;sample&#x27; sizes run out I&#x27;ll be moving up to the full liters.</li>
+    <li> I love this Shampoo and &#x27;Conditioner.  My hair had been previously damaged due to coloring and heat.  This product has performed miracles on my hair.  I love it!</li>
+    <li> I did not purchase this from Amazon, instead at my local salon. This is the most amazing shampoo and conditioner I have ever used. I have tried over a dozen different lines of salon products. Redken, It&#x27;s a 10, Olive Oil by Regis, Designline, and BoiSilk just to name a few. Nothing can hold a candle to this product. I had THE worst hair. It was so dry and brittle. This product line not only brought my hair to a manageable state, it made it movie star worthy. I was even able to bleach my hair professionally four times in one day to go from a red head to a blonde and my hair is still silky smooth. I would recommend this to everybody!</li>
+    <li> I have curly frizzy hair and this product has been amazing. The smell is very sensual and unisex - not fruity or flowery at all. I love it</li>
+    <li> Nice scent, leaves hair nice, feeling moisturized without residue.</li>
+    <li> Love these products! I have been using for a couple of years now and can&#x27;t live without this. Very happy to find a reasonable price and will def buy again from this seller. Thanks!</li>
+    <li> I purchased this product from Amazon and although it looked and smelled the same as the shampoo and conditioner I got from my salon, it definitely was not.  This shampoo and conditioner left my hair dry and itchy.  I think it may have been counterfeit.</li>
+</ol>
+
+
+
+

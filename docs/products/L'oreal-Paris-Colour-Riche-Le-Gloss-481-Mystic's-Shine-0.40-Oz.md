@@ -1,0 +1,157 @@
+---
+title: L&#x27;oreal Paris Colour Riche Le Gloss 481 Mystic&#x27;s Shine 0.40 Oz,
+description: L&#x27;oreal Paris Colour Riche Le Gloss 481 Mystic&#x27;s Shine 0.40 Oz,
+author: Suvojit Manna,
+tags: L&#x27;oreal Paris Colour Riche Le Gloss 481 Mystic&#x27;s Shine 0.40 Oz,
+publishedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
+---
+
+# [L&#x27;oreal Paris Colour Riche Le Gloss 481 Mystic&#x27;s Shine 0.40 Oz](https://products.checkmycream.com/products/L&#x27;oreal-Paris-Colour-Riche-Le-Gloss-481-Mystic&#x27;s-Shine-0.40-Oz.html)
+
+### Positive Reviews
+
+<ol>
+      <li>i think im gonna buy myself another one! :D</li>
+      <li>The color of this is great!</li>
+      <li>Very sexy!!</li>
+      <li>WHAT A BEAUTIFUL COLOR!</li>
+      <li>it&#x27;s very bright.</li>
+      <li>it&#x27;s a gorgeous color!</li>
+      <li>UNDESCRIBABLE BEAUTIFUL LIPGLOSS.</li>
+      <li>the smell is great and its not to sticky</li>
+      <li>I WAS ABLE TO FIND THIS ITEM.THIS IS GREAT STUFF!</li>
+      <li>Bright shiny, adds a splash of color, wears off by the time u get to work.</li>
+      <li>I made a good choice.</li>
+      <li>I love this lipgloss!</li>
+      <li>I love this!</li>
+      <li>It looks nice over lipstick also.</li>
+      <li>Nice lipgloss neutral color</li>
+      <li>Goes on easily, stays on for hours and tastes good too.</li>
+      <li>Fast service and very good price.</li>
+      <li>Feels good on lips and the color is fantastic</li>
+      <li>It&#x27;s priced better on amazon than stores.</li>
+      <li>This shade is more of a finishing gloss on top of lipsticks because it</li>
+      <li>GLAD</li>
+      <li>What more could I want?</li>
+      <li>I love this color ....</li>
+      <li>I love the way it looks on...</li>
+      <li>On my lips there&#x27;s definitely a lavender pearl that have a very pleasant glow!</li>
+      <li>I love this lip gloss.</li>
+      <li>I love the smell and texture of loreal le gloss lip gloss.</li>
+      <li>And this shade is really unique!</li>
+      <li>has so many colors when light hits it light lavender tint with many hues.</li>
+      <li>Used them in the past Great Product cannot be beat!</li>
+      <li>Love colour riche legloss, own several shades.</li>
+      <li>I love this so much.</li>
+      <li>I love this color and it really shines.</li>
+      <li>but it is very pretty.</li>
+      <li>So pretty on my lips!</li>
+      <li>This particular shade make teeth look really white and looks good over my berry shades of lipstick.</li>
+      <li>This is a nice lip gloss, but it makes my lips feel very dry after it was off.</li>
+      <li>The exact color I wanted.</li>
+      <li>it&#x27;s nothing like what u first see in the tube.</li>
+      <li>The lipstick alone is pretty, but when you add the Mystic Shine...</li>
+      <li>The mystics shine in particular is pretty on the lips with a pinky purple duo chrome color.</li>
+      <li>I really like this gloss.</li>
+      <li>Really shiny, pearl-like glisten.</li>
+      <li>I must agree the color is unusual....</li>
+      <li>I&#x27;m definitely satisfied and plan on trying other shades of these glosses.</li>
+      <li>These are creamy, smooth rich glosses that last fairly long on lips.</li>
+      <li>It looks purple/silver in the tube but goes on as clear with a pink iridescence in light.</li>
+      <li>i really clear with some sparkles</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> i think im gonna buy myself another one! :D</li>
+<li> The color of this is great!</li>
+<li> Very sexy!!</li>
+<li> WHAT A BEAUTIFUL COLOR!</li>
+<li> it&#x27;s very bright.</li>
+<li> it&#x27;s a gorgeous color!</li>
+<li> UNDESCRIBABLE BEAUTIFUL LIPGLOSS.</li>
+<li> the smell is great and its not to sticky</li>
+<li> I WAS ABLE TO FIND THIS ITEM.THIS IS GREAT STUFF!</li>
+<li> Bright shiny, adds a splash of color, wears off by the time u get to work.</li>
+<li> I made a good choice.</li>
+<li> I love this lipgloss!</li>
+<li> I love this!</li>
+<li> It looks nice over lipstick also.</li>
+<li> Nice lipgloss neutral color</li>
+<li> Goes on easily, stays on for hours and tastes good too.</li>
+<li> Fast service and very good price.</li>
+<li> Feels good on lips and the color is fantastic</li>
+<li> It&#x27;s priced better on amazon than stores.</li>
+<li> This shade is more of a finishing gloss on top of lipsticks because it</li>
+<li> GLAD</li>
+<li> What more could I want?</li>
+<li> I love this color ....</li>
+<li> I love the way it looks on...</li>
+<li> On my lips there&#x27;s definitely a lavender pearl that have a very pleasant glow!</li>
+<li> I love this lip gloss.</li>
+<li> I love the smell and texture of loreal le gloss lip gloss.</li>
+<li> And this shade is really unique!</li>
+<li> has so many colors when light hits it light lavender tint with many hues.</li>
+<li> Used them in the past Great Product cannot be beat!</li>
+<li> Love colour riche legloss, own several shades.</li>
+<li> I love this so much.</li>
+<li> I love this color and it really shines.</li>
+<li> but it is very pretty.</li>
+<li> So pretty on my lips!</li>
+<li> This particular shade make teeth look really white and looks good over my berry shades of lipstick.</li>
+<li> This is a nice lip gloss, but it makes my lips feel very dry after it was off.</li>
+<li> The exact color I wanted.</li>
+<li> it&#x27;s nothing like what u first see in the tube.</li>
+<li> The lipstick alone is pretty, but when you add the Mystic Shine...</li>
+<li> The mystics shine in particular is pretty on the lips with a pinky purple duo chrome color.</li>
+<li> I really like this gloss.</li>
+<li> Really shiny, pearl-like glisten.</li>
+<li> I must agree the color is unusual....</li>
+<li> I&#x27;m definitely satisfied and plan on trying other shades of these glosses.</li>
+<li> These are creamy, smooth rich glosses that last fairly long on lips.</li>
+<li> It looks purple/silver in the tube but goes on as clear with a pink iridescence in light.</li>
+<li> i really clear with some sparkles</li>
+<li> It is a limited edition color I believe from the holiday last year I got at Rite Aid.</li>
+<li> They smell like vanilla and are not sticky but are long wearing glosses.</li>
+<li> It goes with the L&#x27;Oreal Project Runway Limited Edition Lipstick</li>
+<li> Just a little different and can be worn alone or over my regular lipstick to give it a little sparkle !</li>
+<li> Ur typical gloss, but</li>
+<li> Waste of money for me.</li>
+<li> A HARD</li>
+<li> Non drying and as a bonus they smell and taste yummy, almost a caramel vanilla scent, at least to me.</li>
+<li> I don&#x27;t think the product is bad it just did not work for me.</li>
+<li> My money was refunded but I was disappointed.</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> Feels good on lips and the color is fantastic has so many colors when light hits it light lavender tint with many hues. Fast service and very good price.</li>
+    <li> Nice lipgloss neutral color</li>
+    <li> I ordered The Mystic&#x27;s Shine and got 653-Short Shorts. Which is is a lavender purple. Not iridescent or sparkly at all.</li>
+    <li> Love colour riche legloss, own several shades. These are creamy, smooth rich glosses that last fairly long on lips. Non drying and as a bonus they smell and taste yummy, almost a caramel vanilla scent, at least to me. This particular shade make teeth look really white and looks good over my berry shades of lipstick.</li>
+    <li> Used them in the past Great Product cannot be beat!</li>
+    <li> I really like this gloss. It&#x27;s not sticky and has a yummy smell (vanilla? Some sort of baked goody!). It&#x27;s priced better on amazon than stores. And this shade is really unique! It looks purple/silver in the tube but goes on as clear with a pink iridescence in light. I&#x27;m definitely satisfied and plan on trying other shades of these glosses.</li>
+    <li> I love the smell and texture of loreal le gloss lip gloss. They smell like vanilla and are not sticky but are long wearing glosses. The mystics shine in particular is pretty on the lips with a pinky purple duo chrome color. This shade is more of a finishing gloss on top of lipsticks because it i really clear with some sparkles but it is very pretty.</li>
+    <li> I love this color and it really shines. The name is perfect,Mystic it is. I bought two and gave one to my daughter and she loves it. I made a good choice.</li>
+    <li> The exact color I wanted. Goes on easily, stays on for hours and tastes good too. What more could I want?</li>
+    <li> Waste of money for me. I have only used the product once. I don&#x27;t think the product is bad it just did not work for me. Would not recommend.</li>
+    <li> Ur typical gloss, but I must agree the color is unusual....it&#x27;s nothing like what u first see in the tube. Bright shiny, adds a splash of color, wears off by the time u get to work. Reapply, reapply... But I don&#x27;t want to look like ur stepping out for the night.</li>
+    <li> Really shiny, pearl-like glisten.</li>
+    <li> I love this! On my lips there&#x27;s definitely a lavender pearl that have a very pleasant glow! I wear it alone or over a nude lipstick</li>
+    <li> I love this lipgloss! It goes with the L&#x27;Oreal Project Runway Limited Edition Lipstick The Mystic&#x27;s Kiss. The lipstick alone is pretty, but when you add the Mystic Shine...it&#x27;s a gorgeous color! I have medium brown skin and the color pops on me. I just ordered another tube!</li>
+    <li> WHAT A BEAUTIFUL COLOR! the smell is great and its not to sticky i think im gonna buy myself another one! :D</li>
+    <li> I love this color .... Just a little different and can be worn alone or over my regular lipstick to give it a little sparkle !</li>
+    <li> This gloss is the bomb! So pretty on my lips! It looks nice over lipstick also. Very sexy!!</li>
+    <li> I love this so much. I dropped mine in the street and had to throw away. It is a limited edition color I believe from the holiday last year I got at Rite Aid. When I saw this on Amazon I bought it again and I wasn&#x27;t charged for shipping so I bought 2. I love this lip gloss.</li>
+    <li> I ordered this to be sent to a friend and it arrived already opened and tampered with. My money was refunded but I was disappointed.</li>
+    <li> This is a nice lip gloss, but it makes my lips feel very dry after it was off.</li>
+    <li> The color of this is great! I love the way it looks on...it&#x27;s very bright. If you don&#x27;t like showy color this isn&#x27;t for you.</li>
+    <li> UNDESCRIBABLE BEAUTIFUL LIPGLOSS. A HARD TO FIND ITEM.I AM GLAD I WAS ABLE TO FIND THIS ITEM.THIS IS GREAT STUFF!</li>
+</ol>
+
+
+
+

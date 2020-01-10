@@ -3,8 +3,8 @@ title: Real Techniques Core Collection Set,
 description: Real Techniques Core Collection Set,
 author: Suvojit Manna,
 tags: Real Techniques Core Collection Set,
-publishedAt: Thu Jan 09 2020 19:08:33 GMT+0530 (India Standard Time),
-modifiedAt: Thu Jan 09 2020 19:08:33 GMT+0530 (India Standard Time),
+publishedAt: Fri Jan 10 2020 15:00:05 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:05 GMT+0530 (India Standard Time),
 ---
 
 # [Real Techniques Core Collection Set](https://products.checkmycream.com/products/Real-Techniques-Core-Collection-Set.html)
@@ -12,211 +12,211 @@ modifiedAt: Thu Jan 09 2020 19:08:33 GMT+0530 (India Standard Time),
 ### Positive Reviews
 
 <ol>
+      <li>Price was perfect.</li>
+      <li>my make up came out looking flawless.</li>
+      <li>The detailer brush is perfect for covering spots and I&#x27;ve read that a lot of people like it as a lip brush.</li>
+      <li>If you are thinking about purchasing them get two pairs awesome x 100!</li>
       <li>Great for OCC Liptars!</li>
+      <li>I&#x27;m very happy with these brushes.  </li>
+      <li>This is the perfect core collection of brushes.</li>
+      <li>These are the best brushes everr!</li>
+      <li>but I think it&#x27;s perfect for contouring.</li>
+      <li>The contour brush is also awesome.</li>
+      <li>is a flawless application.</li>
+      <li>But the brushes are perfect!</li>
+      <li>Best brushes ever</li>
+      <li>Excellent quality.  </li>
+      <li>These are awesome brushes.</li>
       <li>Great brushes for the foundation of your face!</li>
+      <li>This is the best balance you can find between the price and the quality.</li>
+      <li>best best best best brushes ever .</li>
+      <li>awesome brushes.....worth the money</li>
+      <li>I have to say this is the best brush you can find on this price.</li>
       <li>Perfect for travel.  </li>
+      <li>Very good product !!!</li>
+      <li>These brushes are the best I&#x27;ve ever used/owned.</li>
+      <li>It really is perfect for that purpose!  </li>
+      <li>Best brushes I have used in years!</li>
+      <li>perfect for all cosmetic use.</li>
+      <li>These brushes are GREAT!</li>
+      <li>The foundation brush is one of the best I ever tried, you need it !</li>
+      <li>It blends perfectly.  </li>
+      <li>These brushes are amazing!!!</li>
+      <li>THE BEST BRUSHES  I&#x27;VE</li>
       <li>These are the best brushes in the kit in my opinion.</li>
+      <li>Great!!  </li>
+      <li>I bought both :D</li>
+      <li>It&#x27;s compact and buffs my powders and blush flawlessly!</li>
+      <li>These brushes are simply perfect.</li>
+      <li>Price is great too!</li>
+      <li>Amazing quality!!!</li>
+      <li>is awesome</li>
       <li>, they are wonderful!</li>
+      <li>Those brushes can really do a great job!</li>
+      <li>So awesome!</li>
+      <li>Awesome buy.</li>
+      <li>I would say you get what you pay for, but these are so inexpensive, that you&#x27;re defiantly getting a great deal!</li>
+      <li>These are the best!!</li>
+      <li>This brushes are absolutely awesome.</li>
+      <li>What a great deal!  </li>
+      <li>They work awesome.</li>
+      <li>These brushes have been a great addition to my collection!!!</li>
+      <li>These are AWESOME!</li>
+      <li>Best</li>
+      <li>Best purchase ever.</li>
+      <li>Excellent quality.</li>
+      <li>these are great!  </li>
+      <li>Still a great price!</li>
+      <li>When it done with your make application your face will look flawless!!</li>
+      <li>She knows well what she is doing and what we need for achieving the perfect make up!!</li>
+      <li>This girl who stand on manufacturing those gorgeous brushes is not Joking!!</li>
+      <li>Best brushes ever!!!</li>
       <li>I purchased these a year ago and still in excellent condition.</li>
+      <li>This is the best set of face brushes ever!</li>
+      <li>These brushes are the best, and what a great price!</li>
+      <li>omg it works wonderful!</li>
+      <li>But what I&#x27;ve noticed afterwards is that perfect, neat, skillful make up application on her face.</li>
+      <li>but they&#x27;re not the best I&#x27;ve ever tried.  </li>
+      <li>Awesome set</li>
+      <li>Very good!</li>
+      <li>They are awesome and you can&#x27;t beat the price!</li>
+      <li>Great as presents too!  </li>
+      <li>so it&#x27;s perfect for me to apply my pressed powder foundation.</li>
+      <li>Apply great application!</li>
+      <li>AND BEST OF ALL! ITEM AS DESCRIBE!</li>
       <li>Loved these!!!!!</li>
       <li>Best brushes out there</li>
-      <li>and they all are perfect.</li>
-      <li>My makeup looks flawless!</li>
-      <li>I also use the concealer brush for blemishes, works great!</li>
-      <li>Wife was impressed</li>
-      <li>Awesome travel set.&lt;br /&gt;Let</li>
-      <li>They&#x27;re perfect for foundation application, blending, highlight and contour..</li>
-      <li>best brushes I have ever purchased.</li>
-      <li>It work perfectly.</li>
-      <li>This was a really great brush set for the price!  </li>
-      <li>These are the best makeup brushes I&#x27;ve used.</li>
-      <li>best brush set</li>
-      <li>great brushes!!!!</li>
-      <li>These are just wonderful by comparison!</li>
-      <li>Great brushes!</li>
-      <li>These brushes are amazing!!!!!!!</li>
-      <li>I use it for liquid foundation and it buffs in flawlessly.</li>
-      <li>The contour brush is perfect to apply my bronzer to contour under the cheekbones.</li>
-      <li>Excellent brushes!  </li>
-      <li>Awesome!</li>
-      <li>Great Brush set!</li>
-      <li>Great function and form!</li>
-      <li>Perfect!</li>
-      <li>Great brushes for the price!</li>
-      <li>But the contour brush is perfect and so is</li>
-      <li>I hav hi-end to low-end brushes and these are the best.  </li>
-      <li>I have no complaints , my brushes haven&#x27;t shed and they make my application of my makeup flawless</li>
-      <li>Is a excellent product!!!</li>
-      <li>The buffing brush and contour brush are excellent.</li>
-      <li>Getting this for my best friend because I have it.</li>
-      <li>It&#x27;s a wonderful gift for any birthday or holiday.</li>
-      <li>Very good quality for the price!</li>
-      <li>Best starter brush set ever!</li>
-      <li>Core Collection Set is superb quality.</li>
-      <li>The length and shape of the bristles are perfect for what it&#x27;s intended use is.  </li>
-      <li>The colors of the brushes are very beautiful as well!</li>
-      <li>The buffing brush works flawlessly with my mineral powder foundation.</li>
-      <li>Perfect.</li>
-      <li>&lt;3 &lt;3</li>
-      <li>the brushes are excellent.</li>
-      <li>Im very happy with my purchase.</li>
-      <li>awesome!!</li>
-      <li>and it was perfect for my skin.</li>
-      <li>, I received them on time and in perfect condition.</li>
-      <li>and i think it is best make up tool for me.</li>
-      <li>The pouch that it came in is also great!</li>
-      <li>the core collection is perfect for applying all face makeup...</li>
-      <li>Very excellent</li>
-      <li>It looks beautiful!</li>
-      <li>Apply great application!</li>
-      <li>Great value !</li>
-      <li>Also, this brushes wash beautifully within hours!</li>
-      <li>This could be perfect for traveling too as it comes with a brush kit.</li>
-      <li>I am a makeup artist in video production... and these brushes are perfect!  </li>
-      <li>for a great price!</li>
-      <li>Great quality makeup brushes!</li>
-      <li>Excellent makeup brushes.</li>
-      <li>so these work perfect to blend</li>
-      <li>Best brushes I ever used.</li>
-      <li>It&#x27;s perfect for contouring.</li>
-      <li>These brushes were perfect!!</li>
-      <li>Awesome product!!</li>
-      <li>Best brushes I have ever bought.</li>
-      <li>Great brush set!</li>
-      <li>However, I was not thoroughly impressed with all of them.  </li>
-      <li>These brushes are great!</li>
-      <li>These are the best brushes I have used.</li>
-      <li>A great buy!!!</li>
-      <li>so it&#x27;s perfect for me to apply my pressed powder foundation.</li>
-      <li>They are awesome and you can&#x27;t beat the price!</li>
-      <li>Very good!</li>
-      <li>These brushes are the best, and what a great price!</li>
-      <li>Still a great price!</li>
-      <li>Excellent quality.</li>
-      <li>Best purchase ever.</li>
-      <li>Best</li>
-      <li>These are AWESOME!</li>
-      <li>This brushes are absolutely awesome.</li>
-      <li>Awesome buy.</li>
-      <li>Great!!  </li>
-      <li>THE BEST BRUSHES  I&#x27;VE</li>
-      <li>These brushes are amazing!!!</li>
-      <li>Best brushes I have used in years!</li>
-      <li>Very good product !!!</li>
-      <li>But the brushes are perfect!</li>
-      <li>Excellent quality.  </li>
-      <li>These brushes are GREAT!</li>
-      <li>I would say you get what you pay for, but these are so inexpensive, that you&#x27;re defiantly getting a great deal!</li>
-      <li>these are great!  </li>
-      <li>AND BEST OF ALL! ITEM AS DESCRIBE!</li>
+      <li>use the buffing brush to apply powder, and it works perfectly for me!&lt;br /&gt;&lt;br</li>
+      <li>Perfect for traveling and doing all the basics.</li>
+      <li>The brushes do not shed and the size of the case is perfect!</li>
       <li>GREAT!</li>
+      <li>and I&#x27;m impressed!</li>
+      <li>A great buy!!!</li>
+      <li>This set was AWESOME</li>
+      <li>and they all are perfect.</li>
+      <li>Very happy with this purchase!</li>
+      <li>I am VERY happy with my purchase, the price and quality.</li>
+      <li>The softness of the bristles are wonderful as well as the sturdiness of the ends of the brushes.</li>
+      <li>I especially love the buffing brush for applying my cream foundation.</li>
+      <li>and I was very happy</li>
+      <li>It looks beautiful!</li>
+      <li>buffing blush is perfect for foundation and even powder.&lt;br /&gt;I</li>
+      <li>The buffer brush is perfect for putting on foundation.</li>
+      <li>My makeup looks flawless!</li>
+      <li>If you are looking for the best brushes at an affordable cost then this.</li>
       <li>These are the best makeup brushes you can find!</li>
+      <li>These are the best brushes I have used.</li>
+      <li>but hey it&#x27;s one of the BEST brushes on there.</li>
+      <li>I also use the concealer brush for blemishes, works great!</li>
+      <li>They apply make-up perfectly!</li>
       <li>Great brushes!</li>
+      <li>The foundation brush is perfect for applying under eye concealer, the contor blush is PERFECT for contoring and can also be used as a blush brush as well.</li>
+      <li>the contour brush is perfect for the apples of my cheeks</li>
 </ol>
 
 
 <h2>Negative Reviews</h2>
 <ol>
+<li> Price was perfect.</li>
+<li> my make up came out looking flawless.</li>
+<li> The detailer brush is perfect for covering spots and I&#x27;ve read that a lot of people like it as a lip brush.</li>
+<li> If you are thinking about purchasing them get two pairs awesome x 100!</li>
 <li> Great for OCC Liptars!</li>
+<li> I&#x27;m very happy with these brushes.  </li>
+<li> This is the perfect core collection of brushes.</li>
+<li> These are the best brushes everr!</li>
+<li> but I think it&#x27;s perfect for contouring.</li>
+<li> The contour brush is also awesome.</li>
+<li> is a flawless application.</li>
+<li> But the brushes are perfect!</li>
+<li> Best brushes ever</li>
+<li> Excellent quality.  </li>
+<li> These are awesome brushes.</li>
 <li> Great brushes for the foundation of your face!</li>
+<li> This is the best balance you can find between the price and the quality.</li>
+<li> best best best best brushes ever .</li>
+<li> awesome brushes.....worth the money</li>
+<li> I have to say this is the best brush you can find on this price.</li>
 <li> Perfect for travel.  </li>
+<li> Very good product !!!</li>
+<li> These brushes are the best I&#x27;ve ever used/owned.</li>
+<li> It really is perfect for that purpose!  </li>
+<li> Best brushes I have used in years!</li>
+<li> perfect for all cosmetic use.</li>
+<li> These brushes are GREAT!</li>
+<li> The foundation brush is one of the best I ever tried, you need it !</li>
+<li> It blends perfectly.  </li>
+<li> These brushes are amazing!!!</li>
+<li> THE BEST BRUSHES  I&#x27;VE</li>
 <li> These are the best brushes in the kit in my opinion.</li>
+<li> Great!!  </li>
+<li> I bought both :D</li>
+<li> It&#x27;s compact and buffs my powders and blush flawlessly!</li>
+<li> These brushes are simply perfect.</li>
+<li> Price is great too!</li>
+<li> Amazing quality!!!</li>
+<li> is awesome</li>
 <li> , they are wonderful!</li>
+<li> Those brushes can really do a great job!</li>
+<li> So awesome!</li>
+<li> Awesome buy.</li>
+<li> I would say you get what you pay for, but these are so inexpensive, that you&#x27;re defiantly getting a great deal!</li>
+<li> These are the best!!</li>
+<li> This brushes are absolutely awesome.</li>
+<li> What a great deal!  </li>
+<li> They work awesome.</li>
+<li> These brushes have been a great addition to my collection!!!</li>
+<li> These are AWESOME!</li>
+<li> Best</li>
+<li> Best purchase ever.</li>
+<li> Excellent quality.</li>
+<li> these are great!  </li>
+<li> Still a great price!</li>
+<li> When it done with your make application your face will look flawless!!</li>
+<li> She knows well what she is doing and what we need for achieving the perfect make up!!</li>
+<li> This girl who stand on manufacturing those gorgeous brushes is not Joking!!</li>
+<li> Best brushes ever!!!</li>
 <li> I purchased these a year ago and still in excellent condition.</li>
+<li> This is the best set of face brushes ever!</li>
+<li> These brushes are the best, and what a great price!</li>
+<li> omg it works wonderful!</li>
+<li> But what I&#x27;ve noticed afterwards is that perfect, neat, skillful make up application on her face.</li>
+<li> but they&#x27;re not the best I&#x27;ve ever tried.  </li>
+<li> Awesome set</li>
+<li> Very good!</li>
+<li> They are awesome and you can&#x27;t beat the price!</li>
+<li> Great as presents too!  </li>
+<li> so it&#x27;s perfect for me to apply my pressed powder foundation.</li>
+<li> Apply great application!</li>
+<li> AND BEST OF ALL! ITEM AS DESCRIBE!</li>
 <li> Loved these!!!!!</li>
 <li> Best brushes out there</li>
-<li> and they all are perfect.</li>
-<li> My makeup looks flawless!</li>
-<li> I also use the concealer brush for blemishes, works great!</li>
-<li> Wife was impressed</li>
-<li> Awesome travel set.&lt;br /&gt;Let</li>
-<li> They&#x27;re perfect for foundation application, blending, highlight and contour..</li>
-<li> best brushes I have ever purchased.</li>
-<li> It work perfectly.</li>
-<li> This was a really great brush set for the price!  </li>
-<li> These are the best makeup brushes I&#x27;ve used.</li>
-<li> best brush set</li>
-<li> great brushes!!!!</li>
-<li> These are just wonderful by comparison!</li>
-<li> Great brushes!</li>
-<li> These brushes are amazing!!!!!!!</li>
-<li> I use it for liquid foundation and it buffs in flawlessly.</li>
-<li> The contour brush is perfect to apply my bronzer to contour under the cheekbones.</li>
-<li> Excellent brushes!  </li>
-<li> Awesome!</li>
-<li> Great Brush set!</li>
-<li> Great function and form!</li>
-<li> Perfect!</li>
-<li> Great brushes for the price!</li>
-<li> But the contour brush is perfect and so is</li>
-<li> I hav hi-end to low-end brushes and these are the best.  </li>
-<li> I have no complaints , my brushes haven&#x27;t shed and they make my application of my makeup flawless</li>
-<li> Is a excellent product!!!</li>
-<li> The buffing brush and contour brush are excellent.</li>
-<li> Getting this for my best friend because I have it.</li>
-<li> It&#x27;s a wonderful gift for any birthday or holiday.</li>
-<li> Very good quality for the price!</li>
-<li> Best starter brush set ever!</li>
-<li> Core Collection Set is superb quality.</li>
-<li> The length and shape of the bristles are perfect for what it&#x27;s intended use is.  </li>
-<li> The colors of the brushes are very beautiful as well!</li>
-<li> The buffing brush works flawlessly with my mineral powder foundation.</li>
-<li> Perfect.</li>
-<li> &lt;3 &lt;3</li>
-<li> the brushes are excellent.</li>
-<li> Im very happy with my purchase.</li>
-<li> awesome!!</li>
-<li> and it was perfect for my skin.</li>
-<li> , I received them on time and in perfect condition.</li>
-<li> and i think it is best make up tool for me.</li>
-<li> The pouch that it came in is also great!</li>
-<li> the core collection is perfect for applying all face makeup...</li>
-<li> Very excellent</li>
-<li> It looks beautiful!</li>
-<li> Apply great application!</li>
-<li> Great value !</li>
-<li> Also, this brushes wash beautifully within hours!</li>
-<li> This could be perfect for traveling too as it comes with a brush kit.</li>
-<li> I am a makeup artist in video production... and these brushes are perfect!  </li>
-<li> for a great price!</li>
-<li> Great quality makeup brushes!</li>
-<li> Excellent makeup brushes.</li>
-<li> so these work perfect to blend</li>
-<li> Best brushes I ever used.</li>
-<li> It&#x27;s perfect for contouring.</li>
-<li> These brushes were perfect!!</li>
-<li> Awesome product!!</li>
-<li> Best brushes I have ever bought.</li>
-<li> Great brush set!</li>
-<li> However, I was not thoroughly impressed with all of them.  </li>
-<li> These brushes are great!</li>
-<li> These are the best brushes I have used.</li>
-<li> A great buy!!!</li>
-<li> so it&#x27;s perfect for me to apply my pressed powder foundation.</li>
-<li> They are awesome and you can&#x27;t beat the price!</li>
-<li> Very good!</li>
-<li> These brushes are the best, and what a great price!</li>
-<li> Still a great price!</li>
-<li> Excellent quality.</li>
-<li> Best purchase ever.</li>
-<li> Best</li>
-<li> These are AWESOME!</li>
-<li> This brushes are absolutely awesome.</li>
-<li> Awesome buy.</li>
-<li> Great!!  </li>
-<li> THE BEST BRUSHES  I&#x27;VE</li>
-<li> These brushes are amazing!!!</li>
-<li> Best brushes I have used in years!</li>
-<li> Very good product !!!</li>
-<li> But the brushes are perfect!</li>
-<li> Excellent quality.  </li>
-<li> These brushes are GREAT!</li>
-<li> I would say you get what you pay for, but these are so inexpensive, that you&#x27;re defiantly getting a great deal!</li>
-<li> these are great!  </li>
-<li> AND BEST OF ALL! ITEM AS DESCRIBE!</li>
+<li> use the buffing brush to apply powder, and it works perfectly for me!&lt;br /&gt;&lt;br</li>
+<li> Perfect for traveling and doing all the basics.</li>
+<li> The brushes do not shed and the size of the case is perfect!</li>
 <li> GREAT!</li>
+<li> and I&#x27;m impressed!</li>
+<li> A great buy!!!</li>
+<li> This set was AWESOME</li>
+<li> and they all are perfect.</li>
+<li> Very happy with this purchase!</li>
+<li> I am VERY happy with my purchase, the price and quality.</li>
+<li> The softness of the bristles are wonderful as well as the sturdiness of the ends of the brushes.</li>
+<li> I especially love the buffing brush for applying my cream foundation.</li>
+<li> and I was very happy</li>
+<li> It looks beautiful!</li>
+<li> buffing blush is perfect for foundation and even powder.&lt;br /&gt;I</li>
+<li> The buffer brush is perfect for putting on foundation.</li>
+<li> My makeup looks flawless!</li>
+<li> If you are looking for the best brushes at an affordable cost then this.</li>
 <li> These are the best makeup brushes you can find!</li>
+<li> These are the best brushes I have used.</li>
+<li> but hey it&#x27;s one of the BEST brushes on there.</li>
+<li> I also use the concealer brush for blemishes, works great!</li>
+<li> They apply make-up perfectly!</li>
 <li> Great brushes!</li>
+<li> The foundation brush is perfect for applying under eye concealer, the contor blush is PERFECT for contoring and can also be used as a blush brush as well.</li>
+<li> the contour brush is perfect for the apples of my cheeks</li>
 </ol>
 
 <h2>All Reviews</h2>
@@ -1641,6 +1641,7 @@ modifiedAt: Thu Jan 09 2020 19:08:33 GMT+0530 (India Standard Time),
     <li> Love these brushes :) the handles are very easy to grip and the bristles work amazingly with any profuct and blend beautifully</li>
     <li> I&#x27;m very happy with these brushes.  I have only ever used cheaper brushes (and never natural hair) so I don&#x27;t have a ton of experience to compare these to, but I find them to be very satisfactory.  I wish all the handles tapered a little more, but they&#x27;re designed to stand up so they are fat all the way down.  They get a little bulky in my brush cup for this reason- especially since I have a couple other large RT brushes.  All of those big bases take up a lot of room.  The brushes wash well and I have not lost a single hair in 5 or so washings. I use the contouring brush for contouring and blush (I need to get the blush brush stat!); I use the flat foundation brush for concealer because it is tiny, I use the detail brush for lips or spot concealer, depending, and I use the buffing brush to smooth and blend everything out.  I think the brushes are a little odd looking by themselves but once I added the eye set and a couple others, they all look cute together.&lt;br /&gt;&lt;br /&gt;The case is super useless, so I laugh when people point out how great it is in video reviews.  It sucks. The only time it would be good is if you&#x27;re traveling, but a standard case would work just as well because the stand is lame.  It&#x27;s a good concept but the brushes are really hard to remove from the elastic, especially with their rubberized bases; the case is flimsy, cheap and lightweight, and it would be a PITA to put each brush back in the elastic.  However, I have discovered that people will actually buy these cases on ebay.  So I was able to make a bit of money back on each of the sets I have (this one and the eye set).  The case concept might be a good idea in heavy leather with better quality elastic- then you wouldn&#x27;t have to hold down the case to pull each brush out.</li>
 </ol>
+
 
 
 

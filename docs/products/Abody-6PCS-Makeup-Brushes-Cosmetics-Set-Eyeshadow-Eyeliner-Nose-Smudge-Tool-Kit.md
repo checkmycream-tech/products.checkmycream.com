@@ -1,0 +1,310 @@
+---
+title: Abody 6PCS Makeup Brushes Cosmetics Set Eyeshadow Eyeliner Nose Smudge Tool Kit,
+description: Abody 6PCS Makeup Brushes Cosmetics Set Eyeshadow Eyeliner Nose Smudge Tool Kit,
+author: Suvojit Manna,
+tags: Abody 6PCS Makeup Brushes Cosmetics Set Eyeshadow Eyeliner Nose Smudge Tool Kit,
+publishedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
+---
+
+# [Abody 6PCS Makeup Brushes Cosmetics Set Eyeshadow Eyeliner Nose Smudge Tool Kit](https://products.checkmycream.com/products/Abody-6PCS-Makeup-Brushes-Cosmetics-Set-Eyeshadow-Eyeliner-Nose-Smudge-Tool-Kit.html)
+
+### Positive Reviews
+
+<ol>
+      <li>Great assortment of brushes!  </li>
+      <li>great product!!</li>
+      <li>Not the best but still usable</li>
+      <li>Great brush set!</li>
+      <li>Great buy!</li>
+      <li>But all in all, I was impressed.</li>
+      <li>Excellent eyebrow brush though.</li>
+      <li>Awesome brushes!</li>
+      <li>Awesome!</li>
+      <li>For the price it is excellent.</li>
+      <li>It turned out perfect!!!!!!</li>
+      <li>I was rather impressed.  </li>
+      <li>These are the best brushes I&#x27;ve ever had</li>
+      <li>They also are not as flimsy as they look online, and for off-brand brushes, they are AMAZING!!</li>
+      <li>These brushes ARENT very good.</li>
+      <li>Good price, but not the best brushes...</li>
+      <li>These brushes are perfect so much better than spending $40 for them in a store!</li>
+      <li>Great brushes</li>
+      <li>lol</li>
+      <li>just got the, great shipping time.</li>
+      <li>Aside from that, great product for the price.</li>
+      <li>Happy with the purchase</li>
+      <li>These brushes are really great quality considering the price.</li>
+      <li>and it&#x27;s a great price for it too.</li>
+      <li>these are great brushes.</li>
+      <li>Packaged very nicely.</li>
+      <li>Not so good ...</li>
+      <li>Good brushes for the price</li>
+      <li>It&#x27;s good for a travel brush set</li>
+      <li>so i thought these were a good eye brush starter set.</li>
+      <li>They are good for beginners.</li>
+      <li>The quality is good with no shedding and fair application.</li>
+      <li>Brushes are awesome, cheep, and smooth.</li>
+      <li>they arrived on time and are just as good as sephora.</li>
+      <li>Otherwise-pretty good brushes for home use.</li>
+      <li>great value for the price - but just OK brushes</li>
+      <li>This is a handy and convenient set.  </li>
+      <li>they came nicely packaged and didn&#x27;t smell like anything.</li>
+      <li>I love these the work good and</li>
+      <li>Nice brushes for the price.</li>
+      <li>Fast and perfect condition shipping!</li>
+      <li>Love these brushes nice quality love the price</li>
+      <li>and they looked pretty nice and had a good variety of brushes</li>
+      <li>I love my brushes; Thank you</li>
+      <li>I absolutely love these for the price</li>
+      <li>Perfect size, and all different types of brush styles..</li>
+      <li>They are well-constructed and excellent to apply eye makeup, especially for brows.  </li>
+      <li>The variety can work magic for the eye.</li>
+      <li>I love them</li>
+      <li>Nice smooth lines for my brows</li>
+      <li>I was not at all satisfied with this purchase.</li>
+      <li>It could be better</li>
+      <li>Love them</li>
+      <li>okay to pack on color, not to blend.</li>
+      <li>I love them.</li>
+      <li>I love these brushes</li>
+      <li>Pretty good.</li>
+      <li>So I set out for the search and found some pretty good ones here.</li>
+      <li>Not nearly as soft as I thought they would be but over all work great!!</li>
+      <li>They are soft, they clean easily and the ones I do use work flawlessly with my makeup.</li>
+      <li>They were just what I needed because I wanted to define my eyebrows and make it a more &amp;#34;crisp&amp;#34; clean look.</li>
+      <li>They&#x27;re easy to work with.&lt;br /&gt;&lt;br</li>
+      <li>pretty good and super cheap</li>
+      <li>Super glad I bought these.</li>
+      <li>, I&#x27;m ready to order more!</li>
+      <li>I do makeup, and this kit certainly came in handy</li>
+      <li>I own five Real Techniques eyeshadow brushes and four e.l.f.</li>
+      <li>These work quite well and are easy to clean.</li>
+      <li>Substantial, they are easy to clean.</li>
+      <li>I really enjoy them every day</li>
+      <li>stick/gloss smoothly.</li>
+      <li>However, their bristles are stiff so these are best for brows, lips, and smudging liner.</li>
+      <li>it has been very useful.</li>
+      <li>I love love love these brushes, they aren&#x27;t to light and aren&#x27;t to strong, they make blending and getting small details amazing.</li>
+      <li>i love these brushes they are so smooth and work really well.</li>
+      <li>Arrived as promised, I didnt think that the quality would be good, but its better than expected.</li>
+      <li>The price is right!</li>
+      <li>Super excited</li>
+      <li>I really don&#x27;t use these, but would love to.</li>
+      <li>and I love these just as much.  </li>
+      <li>overall i think they are good starter brushes for me.</li>
+      <li>I love these brushes because they are soft, and yet still get the job done!!!</li>
+      <li>anyway, I&#x27;m still learning my way around the artistic application of face products, so here&#x27;s hoping I learn a use for them soon.</li>
+      <li>My very first brushes.</li>
+      <li>Beware - you do not receive exactly what is pictured!</li>
+      <li>I bought these as practice brushes, but I loved them so much that I bought another set that I&#x27;m currently waiting for.</li>
+      <li>Exactly what i wanted, as described, and delivered quickly.</li>
+      <li>It took forever so if you don&#x27;t need them right away</li>
+      <li>A good, basic set and the brushes are smaller so you can easily bring them with you wherever you go.</li>
+      <li>The bristles are very soft, but firm enough to be precise and the brushes themselves are the perfect size.</li>
+      <li>I wasn&#x27;t expecting very much for the price I paid, but these brushes have no quality whatsoever.</li>
+      <li>However there is a funny smell on the brushes, some of them smell like Circus peanuts (here&#x27;s a link if you don&#x27;t know what that is)</li>
+      <li>only problem was that the metal part that meets the bristles was scraped on one of the brushes, but it doesn&#x27;t affect the product quality or being able to use it</li>
+      <li>The brushes came pretty fast!</li>
+      <li>all the different sizes gives you many options on a applying make up</li>
+      <li>I received my package on time and they were carefully wrapped, which was nice.</li>
+      <li>But they were exactly as described.</li>
+      <li>Just save your money and buy some real brushes!</li>
+      <li>small and effective!</li>
+      <li>the bullet looking one would seem to be good for crease blending, but it&#x27;s too stiff.</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> Great assortment of brushes!  </li>
+<li> great product!!</li>
+<li> Not the best but still usable</li>
+<li> Great brush set!</li>
+<li> Great buy!</li>
+<li> But all in all, I was impressed.</li>
+<li> Excellent eyebrow brush though.</li>
+<li> Awesome brushes!</li>
+<li> Awesome!</li>
+<li> For the price it is excellent.</li>
+<li> It turned out perfect!!!!!!</li>
+<li> I was rather impressed.  </li>
+<li> These are the best brushes I&#x27;ve ever had</li>
+<li> They also are not as flimsy as they look online, and for off-brand brushes, they are AMAZING!!</li>
+<li> These brushes ARENT very good.</li>
+<li> Good price, but not the best brushes...</li>
+<li> These brushes are perfect so much better than spending $40 for them in a store!</li>
+<li> Great brushes</li>
+<li> lol</li>
+<li> just got the, great shipping time.</li>
+<li> Aside from that, great product for the price.</li>
+<li> Happy with the purchase</li>
+<li> These brushes are really great quality considering the price.</li>
+<li> and it&#x27;s a great price for it too.</li>
+<li> these are great brushes.</li>
+<li> Packaged very nicely.</li>
+<li> Not so good ...</li>
+<li> Good brushes for the price</li>
+<li> It&#x27;s good for a travel brush set</li>
+<li> so i thought these were a good eye brush starter set.</li>
+<li> They are good for beginners.</li>
+<li> The quality is good with no shedding and fair application.</li>
+<li> Brushes are awesome, cheep, and smooth.</li>
+<li> they arrived on time and are just as good as sephora.</li>
+<li> Otherwise-pretty good brushes for home use.</li>
+<li> great value for the price - but just OK brushes</li>
+<li> This is a handy and convenient set.  </li>
+<li> they came nicely packaged and didn&#x27;t smell like anything.</li>
+<li> I love these the work good and</li>
+<li> Nice brushes for the price.</li>
+<li> Fast and perfect condition shipping!</li>
+<li> Love these brushes nice quality love the price</li>
+<li> and they looked pretty nice and had a good variety of brushes</li>
+<li> I love my brushes; Thank you</li>
+<li> I absolutely love these for the price</li>
+<li> Perfect size, and all different types of brush styles..</li>
+<li> They are well-constructed and excellent to apply eye makeup, especially for brows.  </li>
+<li> The variety can work magic for the eye.</li>
+<li> I love them</li>
+<li> Nice smooth lines for my brows</li>
+<li> I was not at all satisfied with this purchase.</li>
+<li> It could be better</li>
+<li> Love them</li>
+<li> okay to pack on color, not to blend.</li>
+<li> I love them.</li>
+<li> I love these brushes</li>
+<li> Pretty good.</li>
+<li> So I set out for the search and found some pretty good ones here.</li>
+<li> Not nearly as soft as I thought they would be but over all work great!!</li>
+<li> They are soft, they clean easily and the ones I do use work flawlessly with my makeup.</li>
+<li> They were just what I needed because I wanted to define my eyebrows and make it a more &amp;#34;crisp&amp;#34; clean look.</li>
+<li> They&#x27;re easy to work with.&lt;br /&gt;&lt;br</li>
+<li> pretty good and super cheap</li>
+<li> Super glad I bought these.</li>
+<li> , I&#x27;m ready to order more!</li>
+<li> I do makeup, and this kit certainly came in handy</li>
+<li> I own five Real Techniques eyeshadow brushes and four e.l.f.</li>
+<li> These work quite well and are easy to clean.</li>
+<li> Substantial, they are easy to clean.</li>
+<li> I really enjoy them every day</li>
+<li> stick/gloss smoothly.</li>
+<li> However, their bristles are stiff so these are best for brows, lips, and smudging liner.</li>
+<li> it has been very useful.</li>
+<li> I love love love these brushes, they aren&#x27;t to light and aren&#x27;t to strong, they make blending and getting small details amazing.</li>
+<li> i love these brushes they are so smooth and work really well.</li>
+<li> Arrived as promised, I didnt think that the quality would be good, but its better than expected.</li>
+<li> The price is right!</li>
+<li> Super excited</li>
+<li> I really don&#x27;t use these, but would love to.</li>
+<li> and I love these just as much.  </li>
+<li> overall i think they are good starter brushes for me.</li>
+<li> I love these brushes because they are soft, and yet still get the job done!!!</li>
+<li> anyway, I&#x27;m still learning my way around the artistic application of face products, so here&#x27;s hoping I learn a use for them soon.</li>
+<li> My very first brushes.</li>
+<li> Beware - you do not receive exactly what is pictured!</li>
+<li> I bought these as practice brushes, but I loved them so much that I bought another set that I&#x27;m currently waiting for.</li>
+<li> Exactly what i wanted, as described, and delivered quickly.</li>
+<li> It took forever so if you don&#x27;t need them right away</li>
+<li> A good, basic set and the brushes are smaller so you can easily bring them with you wherever you go.</li>
+<li> The bristles are very soft, but firm enough to be precise and the brushes themselves are the perfect size.</li>
+<li> I wasn&#x27;t expecting very much for the price I paid, but these brushes have no quality whatsoever.</li>
+<li> However there is a funny smell on the brushes, some of them smell like Circus peanuts (here&#x27;s a link if you don&#x27;t know what that is)</li>
+<li> only problem was that the metal part that meets the bristles was scraped on one of the brushes, but it doesn&#x27;t affect the product quality or being able to use it</li>
+<li> The brushes came pretty fast!</li>
+<li> all the different sizes gives you many options on a applying make up</li>
+<li> I received my package on time and they were carefully wrapped, which was nice.</li>
+<li> But they were exactly as described.</li>
+<li> Just save your money and buy some real brushes!</li>
+<li> small and effective!</li>
+<li> the bullet looking one would seem to be good for crease blending, but it&#x27;s too stiff.</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> Exactly what I needed.&lt;br /&gt;Shipped really quck.&lt;br /&gt;Yes, I would purchase again.</li>
+    <li> thank you!! great product!!</li>
+    <li> Happy with the purchase</li>
+    <li> I never received my item from the manufacturer and I even emailed them twice about it !! What a ripoff.  I&#x27;m a very unsatisfied , unhappy customer!!</li>
+    <li> The shipping to a little longer than I expected. But they were exactly as described.</li>
+    <li> Small not what I expected.</li>
+    <li> Slow delivery good for what they cost</li>
+    <li> Awesome! I love them. You would pay so much in department stores for these. Great buy!</li>
+    <li> Great brushes I really enjoy them every day</li>
+    <li> Decent brushes for the price, although if I had a complaint, I would say the fibers are very stiff.  Excellent eyebrow brush though.</li>
+    <li> I bought these as practice brushes, but I loved them so much that I bought another set that I&#x27;m currently waiting for. The bristles are very soft, but firm enough to be precise and the brushes themselves are the perfect size. They&#x27;re easy to work with.&lt;br /&gt;&lt;br /&gt;My only problem was that the metal part that meets the bristles was scraped on one of the brushes, but it doesn&#x27;t affect the product quality or being able to use it so I still give it 5 stars.</li>
+    <li> Awesome brushes! Perfect size, and all different types of brush styles.. Inexpensive too!</li>
+    <li> Nice brushes for the price.</li>
+    <li> Arrived as promised, I didnt think that the quality would be good, but its better than expected. Nice smooth lines for my brows</li>
+    <li> You get what you pay for....complete waste of money....cheap and poor quality</li>
+    <li> I bought these brushes because I was in need of smaller, more precise brushes, and just new brushes in general.  When I received them, I marveled at how soft they were, considering the price.  They also are not as flimsy as they look online, and for off-brand brushes, they are AMAZING!! I own five Real Techniques eyeshadow brushes and four e.l.f. eyeshadow brushes and I love these just as much.  Very recommended.</li>
+    <li> I wish they were bigger brushes</li>
+    <li> I like these brushes a lot. However, I do wish there had been a little hint what all these brushes are used for, hence my 4 star rating. . That would be my only complaint. They are soft, they clean easily and the ones I do use work flawlessly with my makeup. Yes I do recommend these.</li>
+    <li> Good brushes for the price</li>
+    <li> Love these brushes nice quality love the price and they are super soft yet firm</li>
+    <li> great value for the price - but just OK brushes</li>
+    <li> Really soft brushes, can&#x27;t wait to use them!</li>
+    <li> These are the best brushes I&#x27;ve ever had</li>
+    <li> Brushes are awesome, cheep, and smooth. I recommend. The variety can work magic for the eye. I do makeup, and this kit certainly came in handy, I&#x27;m ready to order more!</li>
+    <li> So I was told as a beginner freelance makeup artist to buy myself affordable brushes. So I set out for the search and found some pretty good ones here. I love these brushes because they are soft, and yet still get the job done!!! Most of all I didn&#x27;t break the bank on them like the other stores I had seen. Fast and perfect condition shipping!</li>
+    <li> Unbelievably soft.  Was not expecting such amazing quality in such a low cost item.  Holds eye shadow well, no to little fall out. Applies concealer and lip stick/gloss smoothly.</li>
+    <li> Great assortment of brushes!  They are well-constructed and excellent to apply eye makeup, especially for brows.  Substantial, they are easy to clean.</li>
+    <li> I did not receive the brushes in the picture. Mine are cheap oddly shaped brushes that I don&#x27;t have use for except maybe give them to my two year old for painting. There&#x27;s no angled brush, they are all bigger than I expected. Just horrible, I&#x27;ll be surprised if I can use one of them, don&#x27;t buy from this company. NOT RECOMMENDED</li>
+    <li> Tried to return it but it&#x27;s very hard to and I couldn&#x27;t</li>
+    <li> Pretty good. No complaints</li>
+    <li> I was not at all satisfied with this purchase. I wasn&#x27;t expecting very much for the price I paid, but these brushes have no quality whatsoever. First of all, they are very rough and bristly and using them caused my eyelids to become irritated and red. Secondly, the brushes kept shedding constantly whether it was in my eye shadows or on my face while I was doing my makeup, the brushes frustrated me and wasted my time and money. I wouldn&#x27;t recommend these to anyone and the only reason I gave them one star was because they were shipped to me on time and they looked pretty nice and had a good variety of brushes</li>
+    <li> I love these brushes all the different sizes gives you many options on a applying make up</li>
+    <li> I love my brushes; Thank you</li>
+    <li> I guess they get the job done for the price. Just save your money and buy some real brushes!</li>
+    <li> I bought these just to add to my make up brush collection. When I purchased these brushes I wasn&#x27;t expecting very much since they were only five dollars. I received my package on time and they were carefully wrapped, which was nice. When I opened them one of the brushes had a piece of metal missing from where the wooden handle and brush fibers meet. And the circular brush shed very badly. The rest of the brushes held their hair well. The bristles are firm and hey do not smell bad at all, which is a plus. I pretty much got what I paid for. They are good for beginners.</li>
+    <li> i got these brushes today. they came way earlier than expected which is amazing. I.m not sure what some of them do which is a thumbs down for me. I&#x27;m new to make up so i thought these were a good eye brush starter set. they came nicely packaged and didn&#x27;t smell like anything. If they apply colors well i would give it a 4 out of 5 but like i said i&#x27;m no professional so don&#x27;t take my word for that. overall i think they are good starter brushes for me.</li>
+    <li> i love these brushes they are so smooth and work really well. Thankyou</li>
+    <li> These brushes ARENT very good. There is one decent one, and that&#x27;s the creased dome brush</li>
+    <li> The brushes came pretty fast! They were just what I needed because I wanted to define my eyebrows and make it a more &amp;#34;crisp&amp;#34; clean look. By doing so, I&#x27;ll apply concealer underneath my eyebrows using the angle brush. It turned out perfect!!!!!! I&#x27;ll be ordering these brushes again!!</li>
+    <li> These brushes are really great quality considering the price. However, their bristles are stiff so these are best for brows, lips, and smudging liner. Not so much blending shadows. One con is that if you don&#x27;t properly clean them frequently they shed like crazy. Aside from that, great product for the price.</li>
+    <li> I received these brushes on time and they were packaged well.  The handle size is a bit short.  It&#x27;s good for a travel brush set and it&#x27;s a great price for it too.</li>
+    <li> just got the, great shipping time. they were smaller than i thought, but i didn&#x27;t check the specs. nonetheless, i like them I was looking for a pointed crease brush specifically,I like  them all though. the sponge end of the double one feels like a beauty blender. it&#x27;s not cloth. It should be good for applying base.      Update! I really don&#x27;t use these, but would love to. just don&#x27;t know what for yet. they are very stiff and dense, but soft. the bullet looking one would seem to be good for crease blending, but it&#x27;s too stiff. anyway, I&#x27;m still learning my way around the artistic application of face products, so here&#x27;s hoping I learn a use for them soon. they are really cute, and not cheap by my opinion.</li>
+    <li> Not the best but still usable</li>
+    <li> Beware - you do not receive exactly what is pictured! I specifically ordered this so I could have an angled flat brush and my set did not come with one. I will now have to place another order to get the brush I wanted.</li>
+    <li> My only complaint is I wish it would have come with just a brief explanation as to what each brush did.</li>
+    <li> Not so good ... It could be better</li>
+    <li> This has met my expectations for eye make up brushes. it has been very useful.</li>
+    <li> These is my go to brushes I love these the work good and a lot help whit the make-up........</li>
+    <li> Kind of hard, they get the product in but not enough to blend</li>
+    <li> pretty good and super cheap</li>
+    <li> Still confused on which brush is which</li>
+    <li> I absolutely love these for the price I was shocked!</li>
+    <li> Good price, but not the best brushes... okay to pack on color, not to blend.</li>
+    <li> Product is very fragile they look disposable..</li>
+    <li> I like this set. I use it occasionally to do my eye make up and it hasn&#x27;t given me any problems so far. A good, basic set and the brushes are smaller so you can easily bring them with you wherever you go.</li>
+    <li> I purchased these for my little sister that is starting to use brushes and they work great for her but as for myself I wouldn&#x27;t use them.</li>
+    <li> I was rather impressed.  These work quite well and are easy to clean. You don&#x27;t get a lot of fall out from the eye shadows.  They actually hold the eye shadow. The only reason I didn&#x27;t rate this a 5star is because the brushes are smaller than what I thought I was getting.  But all in all, I was impressed.</li>
+    <li> Great brush set! The price is right!</li>
+    <li> They work pretty well, i dont like the big flat one though, always get powder flung into my eye ... everytime!!</li>
+    <li> I keep this in my make-up to go bag! small and effective! these are great brushes.</li>
+    <li> Not worth it not useful</li>
+    <li> Exactly what i wanted, as described, and delivered quickly.</li>
+    <li> Brushes are as expected.</li>
+    <li> Would not purchase again.  I don&#x27;t like what the brushes are made of.</li>
+    <li> Only 1 or 2 of the brushes are useful but you can&#x27;t beat the price. No fallout on the bristles, but the edges are cut pretty jagged on one of the brushes, then the flat brush is way too big for makeup, and the bristles are not packed densely enough to pick up much color. not a great buy but you could find worse lol</li>
+    <li> I love love love these brushes, they aren&#x27;t to light and aren&#x27;t to strong, they make blending and getting small details amazing. Super glad I bought these.</li>
+    <li> It took forever so if you don&#x27;t need them right away these are a good item but other than that it took a long time</li>
+    <li> Smaller than expected otherwise they were great</li>
+    <li> Not nearly as soft as I thought they would be but over all work great!! Would buy again!!</li>
+    <li> I had to reglue all the brushes bc they weren&#x27;t attached or they were flimsy. Will not purchase or advise to purchase</li>
+    <li> This is a handy and convenient set.  For the price it is excellent.</li>
+    <li> I received my brushes way sooner than expected. Packaged very nicely. They are soft and for the price not bad especially compared to the cheaper ones you buy in a set at Wal-Mart. The only reason for the 4 star rating is because while using the shadow brush it doesn&#x27;t hold the shadow well and it flakes off. I even wet my eye brushes with a little saline to get the full color of the shadow. Otherwise-pretty good brushes for home use.</li>
+    <li> These brushes are tiny in width so not very useful for more than applying gel liner or shaping brows using the liquid concealer technique. I  probably wouldn&#x27;t purchase this item again. However, the price was very feasible for a frugal gal like myself.</li>
+    <li> Very soft brushes highly recommended</li>
+    <li> These brushes are perfect so much better than spending $40 for them in a store! I love them they arrived on time and are just as good as sephora.</li>
+    <li> Brushes came just as shown in the picture and they are so soft !! Love them</li>
+    <li> Giving it 3 stars because I just received them yesterday and have not tried them yet and they were much smaller than expected. I did however check to see how the bristles felt and they were soft. However there is a funny smell on the brushes, some of them smell like Circus peanuts (here&#x27;s a link if you don&#x27;t know what that is) http://www.amazon.com/Circus-Marshmallow-Peanuts-16-Oz/dp/B000H6O3TQ and others smell like cleaning supplies. Also the tracking of the item wasn&#x27;t accurate or helpful my delivery window was a month wide.</li>
+    <li> They are ok just too small.  I expected them to be regular size. The quality is good with no shedding and fair application.</li>
+    <li> My very first brushes. Super excited and they work very well..</li>
+    <li> Poor quality and came in with broken brushes. Took longer than expected to get in.</li>
+    <li> These are a bit too stiff for my liking. I like full brushes and these are really thin and don&#x27;t spread product very well.</li>
+</ol>
+
+
+
+

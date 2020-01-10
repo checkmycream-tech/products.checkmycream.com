@@ -1,0 +1,123 @@
+---
+title: Bath Body Works Black Amethyst Body Lotion 8.0 oz,
+description: Bath Body Works Black Amethyst Body Lotion 8.0 oz,
+author: Suvojit Manna,
+tags: Bath Body Works Black Amethyst Body Lotion 8.0 oz,
+publishedAt: Fri Jan 10 2020 15:00:32 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:32 GMT+0530 (India Standard Time),
+---
+
+# [Bath Body Works Black Amethyst Body Lotion 8.0 oz](https://products.checkmycream.com/products/Bath-Body-Works-Black-Amethyst-Body-Lotion-8.0-oz.html)
+
+### Positive Reviews
+
+<ol>
+      <li>It&#x27;s smells AMAZING!!!</li>
+      <li>Does the job, smells delicious, and it&#x27;s just awesome all around.</li>
+      <li>Then I found it online and almost cried tears of joy!</li>
+      <li>Looks Great!</li>
+      <li>I was happy when a employer from bath and body works, told me where to order the lotion from</li>
+      <li>Was in great packaging.</li>
+      <li>AMAZING product!</li>
+      <li>Loved the scent and got a lot of compliments on it.</li>
+      <li>SO HAPPY. :)</li>
+      <li>my very favorite B&amp;BW scent</li>
+      <li>Smells great I love using this lotion.</li>
+      <li>I was thrilled to find it online</li>
+      <li>i have enjoyed this body lotion with great pleasure, it is one of my favorite body lotions from bath and body works.</li>
+      <li>Now I can re-stock and love the way I smell even more!</li>
+      <li>this product was exactly as we had asked for and works great, love it and will buy again.</li>
+      <li>Love BBW collections but</li>
+      <li>it&#x27;s one of my favorite fragrances by bath and body, and was delivered in a timely manner.</li>
+      <li>I love this and when It was discontinued at bath and body works stores</li>
+      <li>love this lotion and scent.</li>
+      <li>My mom and dad love this lotion.</li>
+      <li>I love my lotion</li>
+      <li>my wife is pleased with this product I am sure she will be buying more</li>
+      <li>But I thought this was a bit strong.</li>
+      <li>THANKS !!!</li>
+      <li>This body lotion is absolutely lovely-it has a real clean and fresh scent-received as a gift and purchased as a gift-</li>
+      <li>/&gt;Black Amethyst has always been my absolute FAVORITE scent from Bath and Body Works</li>
+      <li>keeps my skin nice and soft</li>
+      <li>I bought this as a present for my mom and she loved it.</li>
+      <li>Very speedy shipping!!</li>
+      <li>/&gt;It has a lovely fresh, soft, floral scent that lasts for hours.</li>
+      <li>The product is not long carried by Bath and Body Works, so I was really glad to find it here.</li>
+      <li>I really like this scent!</li>
+      <li>Highly recommend it!</li>
+      <li>and I love the Black Amethyst body mist.</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> It&#x27;s smells AMAZING!!!</li>
+<li> Does the job, smells delicious, and it&#x27;s just awesome all around.</li>
+<li> Then I found it online and almost cried tears of joy!</li>
+<li> Looks Great!</li>
+<li> I was happy when a employer from bath and body works, told me where to order the lotion from</li>
+<li> Was in great packaging.</li>
+<li> AMAZING product!</li>
+<li> Loved the scent and got a lot of compliments on it.</li>
+<li> SO HAPPY. :)</li>
+<li> my very favorite B&amp;BW scent</li>
+<li> Smells great I love using this lotion.</li>
+<li> I was thrilled to find it online</li>
+<li> i have enjoyed this body lotion with great pleasure, it is one of my favorite body lotions from bath and body works.</li>
+<li> Now I can re-stock and love the way I smell even more!</li>
+<li> this product was exactly as we had asked for and works great, love it and will buy again.</li>
+<li> Love BBW collections but</li>
+<li> it&#x27;s one of my favorite fragrances by bath and body, and was delivered in a timely manner.</li>
+<li> I love this and when It was discontinued at bath and body works stores</li>
+<li> love this lotion and scent.</li>
+<li> My mom and dad love this lotion.</li>
+<li> I love my lotion</li>
+<li> my wife is pleased with this product I am sure she will be buying more</li>
+<li> But I thought this was a bit strong.</li>
+<li> THANKS !!!</li>
+<li> This body lotion is absolutely lovely-it has a real clean and fresh scent-received as a gift and purchased as a gift-</li>
+<li> /&gt;Black Amethyst has always been my absolute FAVORITE scent from Bath and Body Works</li>
+<li> keeps my skin nice and soft</li>
+<li> I bought this as a present for my mom and she loved it.</li>
+<li> Very speedy shipping!!</li>
+<li> /&gt;It has a lovely fresh, soft, floral scent that lasts for hours.</li>
+<li> The product is not long carried by Bath and Body Works, so I was really glad to find it here.</li>
+<li> I really like this scent!</li>
+<li> Highly recommend it!</li>
+<li> and I love the Black Amethyst body mist.</li>
+<li> the sent this gives is more for older women :(</li>
+<li> Other than that I can&#x27;t complain.</li>
+<li> Unless you&#x27;re wearing the Black Amethyst body mist with it.</li>
+<li> I got it just a few days after ordering!&lt;br</li>
+<li> /be versatile with my body sprays or at least not overpower it and this does overpower it.</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> I really like this scent!</li>
+    <li> This was replacement for Tuberose that was discontinued.</li>
+    <li> Smells great I love using this lotion.</li>
+    <li> Looks Great! My mom and dad love this lotion. This is a gift. Was in great packaging. Can not wait to give this to them. thank you.</li>
+    <li> love this lotion and scent. keeps my skin nice and soft</li>
+    <li> Very speedy shipping!! I got it just a few days after ordering!&lt;br /&gt;Black Amethyst has always been my absolute FAVORITE scent from Bath and Body Works so once they discontinued it at the store I was so upset. Then I found it online and almost cried tears of joy! Now I can re-stock and love the way I smell even more! SO HAPPY. :)</li>
+    <li> Loved the scent and got a lot of compliments on it.</li>
+    <li> this product was exactly as we had asked for and works great, love it and will buy again.</li>
+    <li> Love BBW collections but the sent this gives is more for older women :(</li>
+    <li> I love this and when It was discontinued at bath and body works stores I was thrilled to find it online</li>
+    <li> i have enjoyed this body lotion with great pleasure, it is one of my favorite body lotions from bath and body works. I was happy when a employer from bath and body works, told me where to order the lotion from</li>
+    <li> I got this for my friend because it&#x27;s all she wears.  It&#x27;s easier and cheaper to order on Amazon than drive 30 miles to the mall.&lt;br /&gt;&lt;br /&gt;It has a lovely fresh, soft, floral scent that lasts for hours.</li>
+    <li> my wife is pleased with this product I am sure she will be buying more</li>
+    <li> This scent is intoxicating ... my very favorite B&amp;BW scent</li>
+    <li> I love my lotion it&#x27;s one of my favorite fragrances by bath and body, and was delivered in a timely manner.</li>
+    <li> Does the job, smells delicious, and it&#x27;s just awesome all around.</li>
+    <li> I bought this because I needed lotion and I love the Black Amethyst body mist. But I thought this was a bit strong. I like my lotion to compliment my different body sprays/be versatile with my body sprays or at least not overpower it and this does overpower it. Unless you&#x27;re wearing the Black Amethyst body mist with it. Then they go together well. Other than that I can&#x27;t complain.</li>
+    <li> I bought this as a present for my mom and she loved it. The product is not long carried by Bath and Body Works, so I was really glad to find it here.</li>
+    <li> This body lotion is absolutely lovely-it has a real clean and fresh scent-received as a gift and purchased as a gift-</li>
+    <li> AMAZING product! Can&#x27;t say enough about it. It&#x27;s smells AMAZING!!! Just what I was looking for! Highly recommend it! A must buy!</li>
+    <li> AWSOME PRODUCT AND SERVICE !!! THANKS !!!</li>
+</ol>
+
+
+
+

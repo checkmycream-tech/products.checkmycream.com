@@ -1,0 +1,183 @@
+---
+title: Canus Goat&#x27;s Milk Natural Olive Oil and Wheat Protein Lotion, 16 Ounce,
+description: Canus Goat&#x27;s Milk Natural Olive Oil and Wheat Protein Lotion, 16 Ounce,
+author: Suvojit Manna,
+tags: Canus Goat&#x27;s Milk Natural Olive Oil and Wheat Protein Lotion, 16 Ounce,
+publishedAt: Fri Jan 10 2020 14:59:33 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:59:33 GMT+0530 (India Standard Time),
+---
+
+# [Canus Goat&#x27;s Milk Natural Olive Oil and Wheat Protein Lotion, 16 Ounce](https://products.checkmycream.com/products/Canus-Goat&#x27;s-Milk-Natural-Olive-Oil-and-Wheat-Protein-Lotion-16-Ounce.html)
+
+### Positive Reviews
+
+<ol>
+      <li>It is an excellent product</li>
+      <li>I have always used Canus Goat&#x27;s Milk products and this lotion is wonderful...</li>
+      <li>This is the best lotion I have ever used.&lt;br</li>
+      <li>Very good price.  </li>
+      <li>Ideal for people with allergies.</li>
+      <li>It works great for all purposes and makes my life simpler.  </li>
+      <li>I think it&#x27;s great</li>
+      <li>Always works great.  </li>
+      <li>This is great lotion, non-greasy, soaks in well, non-allergic, soothing.</li>
+      <li>Your price is good and no freight.</li>
+      <li>very excellent, best and only solution for eczema.</li>
+      <li>I am very pleased with this product and love the feel on my skin.  </li>
+      <li>So, good quality, doesn&#x27;t irritate, just a nice clean feel after applying.</li>
+      <li>It is the best lotion which can be used my newborn, infant and adult as we did with my son.</li>
+      <li>It is very lightly scented.</li>
+      <li>I love this lotion.  </li>
+      <li>My skin has never been better</li>
+      <li>sure you get the one with fragrance.</li>
+      <li>This stuff rocks :)</li>
+      <li>Most lotions are greasy and don&#x27;t rub in well.</li>
+      <li>I love this lotion.</li>
+      <li>I love Canus products.</li>
+      <li>and I love it.</li>
+      <li>I am also pleased with the returned shipping label and instruction.  </li>
+      <li>I expect to be buying some more when I run out.</li>
+      <li>I have even recommended it to others, and they now love the lotion, too.</li>
+      <li>It made my skin feel silky smooth and moisturized!</li>
+      <li>I buy it on subscription, which saves even more money.</li>
+      <li>The Goats Milk and Olive Oil and Wheat Protein in this item is Amazing and worth the purchase.</li>
+      <li>The product arrived in perfect condition, however, the moisturizing level is not what I expected.  </li>
+      <li>The lotion keeps you hydrated and is light.  </li>
+      <li>I like the light scent, also.</li>
+      <li>Its a backup when light scent on unscented lotions run out.</li>
+      <li>Service is good: shipping is very well handled and fast.  </li>
+      <li>It is rich and the fragrance is not overpowering  and more of a natural smell.  </li>
+      <li>are bold and colorful</li>
+      <li>First off let me start by saying that I have to thank my friend for telling me about the product!</li>
+      <li>/&gt;It&#x27;s not oily, and smells fresh -- unlike the over-processed perfumed</li>
+      <li>I love the natural ingredients and the very reasonable cost.  </li>
+      <li>The soap is just right in scent, this is a nasal nuclear assault</li>
+      <li>Though I do love how well this helps to moisturize the skin, and it seems to have calmed down my psoriasis a bit :)</li>
+      <li>Will definitely buy more.</li>
+      <li>and I have to open the top to get the lotion out.</li>
+      <li>/&gt;It is not greasy, makes your skin feel soft and smooth</li>
+      <li>Plus, the smell, if one is more sensitive, may not prefer the significant smell since it&#x27;s a little strong.</li>
+      <li>Really feels good and long lasting.</li>
+      <li>in it makes your skin so smooth especially during the year when your skin dries out so much...</li>
+      <li>I have now simplified my moisturizing routine and I use this lotion for my face and my whole body.  </li>
+      <li>He was amazed with how fresh the month old tattoo looked.  </li>
+      <li>Highly recommnend it as an all skin type body lotion!  </li>
+      <li>at first i used regular unsented lotion and my tattoos faded quickly</li>
+      <li>It does smell funny when you first put it on, sort of flat and &amp;#34;wheaty&amp;#34; (which is why I withheld the 5th star), but after a few minutes, a light warm white musk scent emerges (which I like), to match the soap.</li>
+      <li>I have serve dry skin and this lotion is fantastic and does not call any irritation at all&amp;#62; I use it on my face &amp; body.</li>
+      <li>it is new to me and I would hightly recomment it for all skin types...with Olive Oil</li>
+      <li>My tattoo artist did a new tattoo on me</li>
+      <li>I discovered Canus Goat&#x27;s Milk Lotion about 3 years ago and bought it to use as a facial moisturizer, not realizing that the huge 34 oz bottle of it would last a looong time.  </li>
+      <li>no side effect even when my son have sensitive skin.</li>
+      <li>It soaks into you skin completely and does not leave that gross, greasy residue.</li>
+      <li>I was looking for a new lotion that would help with my dry skin that I always get in winter and during the summer from being outside all the time.  </li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> It is an excellent product</li>
+<li> I have always used Canus Goat&#x27;s Milk products and this lotion is wonderful...</li>
+<li> This is the best lotion I have ever used.&lt;br</li>
+<li> Very good price.  </li>
+<li> Ideal for people with allergies.</li>
+<li> It works great for all purposes and makes my life simpler.  </li>
+<li> I think it&#x27;s great</li>
+<li> Always works great.  </li>
+<li> This is great lotion, non-greasy, soaks in well, non-allergic, soothing.</li>
+<li> Your price is good and no freight.</li>
+<li> very excellent, best and only solution for eczema.</li>
+<li> I am very pleased with this product and love the feel on my skin.  </li>
+<li> So, good quality, doesn&#x27;t irritate, just a nice clean feel after applying.</li>
+<li> It is the best lotion which can be used my newborn, infant and adult as we did with my son.</li>
+<li> It is very lightly scented.</li>
+<li> I love this lotion.  </li>
+<li> My skin has never been better</li>
+<li> sure you get the one with fragrance.</li>
+<li> This stuff rocks :)</li>
+<li> Most lotions are greasy and don&#x27;t rub in well.</li>
+<li> I love this lotion.</li>
+<li> I love Canus products.</li>
+<li> and I love it.</li>
+<li> I am also pleased with the returned shipping label and instruction.  </li>
+<li> I expect to be buying some more when I run out.</li>
+<li> I have even recommended it to others, and they now love the lotion, too.</li>
+<li> It made my skin feel silky smooth and moisturized!</li>
+<li> I buy it on subscription, which saves even more money.</li>
+<li> The Goats Milk and Olive Oil and Wheat Protein in this item is Amazing and worth the purchase.</li>
+<li> The product arrived in perfect condition, however, the moisturizing level is not what I expected.  </li>
+<li> The lotion keeps you hydrated and is light.  </li>
+<li> I like the light scent, also.</li>
+<li> Its a backup when light scent on unscented lotions run out.</li>
+<li> Service is good: shipping is very well handled and fast.  </li>
+<li> It is rich and the fragrance is not overpowering  and more of a natural smell.  </li>
+<li> are bold and colorful</li>
+<li> First off let me start by saying that I have to thank my friend for telling me about the product!</li>
+<li> /&gt;It&#x27;s not oily, and smells fresh -- unlike the over-processed perfumed</li>
+<li> I love the natural ingredients and the very reasonable cost.  </li>
+<li> The soap is just right in scent, this is a nasal nuclear assault</li>
+<li> Though I do love how well this helps to moisturize the skin, and it seems to have calmed down my psoriasis a bit :)</li>
+<li> Will definitely buy more.</li>
+<li> and I have to open the top to get the lotion out.</li>
+<li> /&gt;It is not greasy, makes your skin feel soft and smooth</li>
+<li> Plus, the smell, if one is more sensitive, may not prefer the significant smell since it&#x27;s a little strong.</li>
+<li> Really feels good and long lasting.</li>
+<li> in it makes your skin so smooth especially during the year when your skin dries out so much...</li>
+<li> I have now simplified my moisturizing routine and I use this lotion for my face and my whole body.  </li>
+<li> He was amazed with how fresh the month old tattoo looked.  </li>
+<li> Highly recommnend it as an all skin type body lotion!  </li>
+<li> at first i used regular unsented lotion and my tattoos faded quickly</li>
+<li> It does smell funny when you first put it on, sort of flat and &amp;#34;wheaty&amp;#34; (which is why I withheld the 5th star), but after a few minutes, a light warm white musk scent emerges (which I like), to match the soap.</li>
+<li> I have serve dry skin and this lotion is fantastic and does not call any irritation at all&amp;#62; I use it on my face &amp; body.</li>
+<li> it is new to me and I would hightly recomment it for all skin types...with Olive Oil</li>
+<li> My tattoo artist did a new tattoo on me</li>
+<li> I discovered Canus Goat&#x27;s Milk Lotion about 3 years ago and bought it to use as a facial moisturizer, not realizing that the huge 34 oz bottle of it would last a looong time.  </li>
+<li> no side effect even when my son have sensitive skin.</li>
+<li> It soaks into you skin completely and does not leave that gross, greasy residue.</li>
+<li> I was looking for a new lotion that would help with my dry skin that I always get in winter and during the summer from being outside all the time.  </li>
+<li> Long and behold my tattoo</li>
+<li> She has at her disposal all my stuff as well as multiple other items.</li>
+<li> /&gt;It helps ease my skin allergies, and dry winter</li>
+<li> The olive oil helps dry and damaged skin.  </li>
+<li> I was disappointed - I love the Goat&#x27;s milk soap -</li>
+<li> This lotion really makes my skin soft, it smells bad, if you are going to buy</li>
+<li> Would Recommend this to anyone that has trouble with dry or cracked skin.</li>
+<li> i just transferred it to a little carrying bottle i can take with me.</li>
+<li> I am not a huge fan of the smell.</li>
+<li> I use very little of it when I do at all.</li>
+<li> From dirt cheap to stupid expensive, but this is what she uses and what she likes.</li>
+<li> The smell is faint</li>
+<li> I hate lotion.</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> I love this lotion.  The olive oil helps dry and damaged skin.  It is rich and the fragrance is not overpowering  and more of a natural smell.  The pump does not work well though and I have to open the top to get the lotion out.</li>
+    <li> I was disappointed - I love the Goat&#x27;s milk soap - but this has an added perfume - and I find I can&#x27;t use it; it will be a give-away soon.</li>
+    <li> The lotion keeps you hydrated and is light.  Very good price.  I buy it on subscription, which saves even more money.</li>
+    <li> This lotion really makes my skin soft, it smells bad, if you are going to buy this make sure you get the one with fragrance.</li>
+    <li> I have always used Canus Goat&#x27;s Milk products and this lotion is wonderful...it is new to me and I would hightly recomment it for all skin types...with Olive Oil in it makes your skin so smooth especially during the year when your skin dries out so much...winter and summer...</li>
+    <li> Always works great.  Moisterizing and softens hands.  Really feels good and long lasting. Your price is good and no freight.</li>
+    <li> very excellent, best and only solution for eczema. My kid has eczema and we had tried multiple things. After using Canus just once or twice u can see the difference in your skin. It is the best lotion which can be used my newborn, infant and adult as we did with my son. no side effect even when my son have sensitive skin.</li>
+    <li> This is the best lotion I have ever used.&lt;br /&gt;It is not greasy, makes your skin feel soft and smooth</li>
+    <li> This is great lotion, non-greasy, soaks in well, non-allergic, soothing. I think it&#x27;s great and I will buy it again!</li>
+    <li> I have serve dry skin and this lotion is fantastic and does not call any irritation at all&amp;#62; I use it on my face &amp; body.</li>
+    <li> I discovered Canus Goat&#x27;s Milk Lotion about 3 years ago and bought it to use as a facial moisturizer, not realizing that the huge 34 oz bottle of it would last a looong time.  I have now simplified my moisturizing routine and I use this lotion for my face and my whole body.  It works great for all purposes and makes my life simpler.  I love the natural ingredients and the very reasonable cost.  It is an excellent product and I don&#x27;t see any reason to go back to using a variety of different creams, all of which were more expensive than the Canus.</li>
+    <li> This stuff is great!&lt;br /&gt;&lt;br /&gt;It&#x27;s not oily, and smells fresh -- unlike the over-processed perfumed stuff.&lt;br /&gt;It helps ease my skin allergies, and dry winter skin.&lt;br /&gt;&lt;br /&gt;I have purchased this before, and will continue to buy this. I have even recommended it to others, and they now love the lotion, too.</li>
+    <li> I am very pleased with this product and love the feel on my skin.  Highly recommnend it as an all skin type body lotion!  Service is good: shipping is very well handled and fast.  I am also pleased with the returned shipping label and instruction.  Will definitely buy more.</li>
+    <li> I am not a huge fan of the smell. Makes me think of sunblock. Though I do love how well this helps to moisturize the skin, and it seems to have calmed down my psoriasis a bit :)</li>
+    <li> I bought this after purchasing the same version of the soap. The soap is just right in scent, this is a nasal nuclear assault&lt;br /&gt;so I use very little of it when I do at all. Its a backup when light scent on unscented lotions run out.</li>
+    <li> Like everyone else, I like how it makes my skin feel.  It does smell funny when you first put it on, sort of flat and &amp;#34;wheaty&amp;#34; (which is why I withheld the 5th star), but after a few minutes, a light warm white musk scent emerges (which I like), to match the soap. It could just be me, though...everyone has different body chemistry.</li>
+    <li> I love this lotion. I use it for my tattoos. (Yes ladies and gentlemen i use it for my tattoos) at first i used regular unsented lotion and my tattoos faded quickly so i decided to experiment with this.  Long and behold my tattoo are bold and colorful like i just got em done. Now this is all i use for my tattoos. My tattoo artist did a new tattoo on me and i showed him the ones he did a month ago. He was amazed with how fresh the month old tattoo looked.  I just use it 2xs a day (1 in the morning and 1 at night) i just transferred it to a little carrying bottle i can take with me. This stuff rocks :)</li>
+    <li> First off let me start by saying that I have to thank my friend for telling me about the product! I was looking for a new lotion that would help with my dry skin that I always get in winter and during the summer from being outside all the time.  THIS product did just that. It made my skin feel silky smooth and moisturized! The smell is faint and I love it. Would Recommend this to anyone that has trouble with dry or cracked skin. The Goats Milk and Olive Oil and Wheat Protein in this item is Amazing and worth the purchase.</li>
+    <li> The product arrived in perfect condition, however, the moisturizing level is not what I expected.  Plus, the smell, if one is more sensitive, may not prefer the significant smell since it&#x27;s a little strong.</li>
+    <li> Stocking stuffer for the daughter. She has at her disposal all my stuff as well as multiple other items. From dirt cheap to stupid expensive, but this is what she uses and what she likes. So, good quality, doesn&#x27;t irritate, just a nice clean feel after applying.</li>
+    <li> My skin has never been better</li>
+    <li> I love Canus products. The Olive oil moisturizer absorbs well. It is very lightly scented. Ideal for people with allergies.</li>
+    <li> I hate lotion. Or I did, until I tried this. Most lotions are greasy and don&#x27;t rub in well. But this does. It soaks into you skin completely and does not leave that gross, greasy residue. I can get back to what I was doing immediately after using this. I like the light scent, also. No downs for me on this one. I expect to be buying some more when I run out.</li>
+</ol>
+
+
+
+

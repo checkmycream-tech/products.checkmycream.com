@@ -1,0 +1,190 @@
+---
+title: Neutrogena Deep Clean Gentle Scrub, 4.2 Ounce,
+description: Neutrogena Deep Clean Gentle Scrub, 4.2 Ounce,
+author: Suvojit Manna,
+tags: Neutrogena Deep Clean Gentle Scrub, 4.2 Ounce,
+publishedAt: Fri Jan 10 2020 14:59:55 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:59:55 GMT+0530 (India Standard Time),
+---
+
+# [Neutrogena Deep Clean Gentle Scrub, 4.2 Ounce](https://products.checkmycream.com/products/Neutrogena-Deep-Clean-Gentle-Scrub-4.2-Ounce.html)
+
+### Positive Reviews
+
+<ol>
+      <li>One of the best neutrogena products I have used.</li>
+      <li>Wich is perfect for the days that I go out rt after work.</li>
+      <li>This worked perfect for me.</li>
+      <li>The best acne scrub in the market...</li>
+      <li>I&#x27;m writing this review because I think this is a great product.</li>
+      <li>Amazing!</li>
+      <li>Just keep looking around until you find a good product that reacts well with your skin type.</li>
+      <li>Very pleased.</li>
+      <li>This product is amazing.</li>
+      <li>To be honest I didn&#x27;t buy this on Amazon.</li>
+      <li>My face is prone to having an oily T-zone, and this product sure does a good job in removing shine from the area for a couple of hours.</li>
+      <li>I love it.</li>
+      <li>In fact, I felt that I had a film on top of my face, so I had to wash my face again to get rid of that.</li>
+      <li>Great product,  it really controls the oily shine.</li>
+      <li>Being allergic to salicylic acid, this product stunningly doesn&#x27;t bother me.</li>
+      <li>I even felt like my skin had more shine and oil the week that I used this product.</li>
+      <li>Our favorite face scrub and cheaper than grocery store</li>
+      <li>I have used this product for many years.  </li>
+      <li>It helped the redness on my face go away very quickly</li>
+      <li>As a male, I have tried both Nivea and Neutrogena for men face wash products and have been happy with both.</li>
+      <li>Cheap too, I got this for around $5.</li>
+      <li>and so far so good with this product.</li>
+      <li>I bought this face wash because Im a waitress and walk in and out of a hot kitchen so my face gets greasy real quick.</li>
+      <li>Its true to its word, this stuff is for shine control.</li>
+      <li>My oily skin is under control, it really worked and I love this cleanser</li>
+      <li>It sells out quickly in the stores, so I started ordering it in bulk on-line.</li>
+      <li>But it certainly has made a huge difference for me in terms of complexion.</li>
+      <li>It worth it!!!&lt;br</li>
+      <li>my face stays looking fresh all through work and after.</li>
+      <li>Because If you use only one kind of face treatment there will come a day your face will get so use to it that treatment will no longer be useful.</li>
+      <li>It works to keep your face feeling and looking fresh all day</li>
+      <li>My face feels clean and smooth, not dried out in any way and leaves no redness.</li>
+      <li>only thing about face creams and face liquids that may be important to know if you want great and fast result is you need to use at least more than two.</li>
+      <li>, it is very gentle, leaves my skin very soft and smooth after.  </li>
+      <li>May not have even been this face wash but to be on the safe side I am going back to using Nivea for men products which I have never had any problems with.</li>
+      <li>Definitely, decreases shine, good shine control when used daily.</li>
+      <li>you are looking for something that really works for your NON SEVERE acne, you have to buy it</li>
+      <li>This does work on my face very well.</li>
+      <li>Scrub works very well.</li>
+      <li>I use this twice a day, in the morning in the shower and at night before bed, and my skin would absolutely ridden with acne.</li>
+      <li>I have a very shine and oily skin on my T-zone, it is so shining</li>
+      <li>B003QOTDB4 Neutrogena Deep Clean Long-Last Shine Control, Cleanser/mask, 6 Ounce (</li>
+      <li>I hate to diss Neutrogena because I love them, but this is definitely not their best product.</li>
+      <li>I&#x27;ve tried other products of their Deep Clean line, and they were better by far.</li>
+      <li>I noticed that if I leave it on as a mask, I do find that cooling, cleaning feeling (I know that this product is offered as a mask, and the concentration of salicylic acid is too high for my skin).</li>
+      <li>I&#x27;ve tried a lot of different Neutrogena, Clearasil and Clean &amp; Clear products.</li>
+      <li>It just says deep clean shine control daily scrub.</li>
+      <li>I guess the deep clean part actually works</li>
+      <li>I have out of control oily skin and hair, and though this doesn&#x27;t keep my skin clear all day, it truly works for oily skin.</li>
+      <li>I find that around the 5 or 6 hour mark after i&#x27;ve washed my face, it&#x27;s oily again, but the blotting sheets keep my face clear for the rest of the day.</li>
+      <li>I do not have sensitive skin, in fact I have never had a rash like this.</li>
+      <li>Ever since I&#x27;ve used 4 different Neutrogena my face has really improved.</li>
+      <li>I didn&#x27;t notice any change in how much shine appeared on my skin, nor did my skin feel any \\&quot;deep clean.\\&quot;</li>
+      <li>I bought Neutrogena&#x27;s long lasting deep clean oil control cleanser/mask and use it on my face once every day, it worked like a charm.  </li>
+      <li>It has small microbeads that are just there that sits on your face to me,not like clean and clear shine control cleanser there</li>
+      <li>Not much works on my very oily skin</li>
+      <li>Of course, while this clears away shine, I do recommend using an oil-free, non-comedogenic moisturizer after using, simply because it keeps your skin from producing natural oils to keep it hydrated (not because I found this product drying in any way).</li>
+      <li>I use it mostly in the winter, and it is the only facial scrub I&#x27;ve used that doesn&#x27;t leave my skin a little raw.</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> One of the best neutrogena products I have used.</li>
+<li> Wich is perfect for the days that I go out rt after work.</li>
+<li> This worked perfect for me.</li>
+<li> The best acne scrub in the market...</li>
+<li> I&#x27;m writing this review because I think this is a great product.</li>
+<li> Amazing!</li>
+<li> Just keep looking around until you find a good product that reacts well with your skin type.</li>
+<li> Very pleased.</li>
+<li> This product is amazing.</li>
+<li> To be honest I didn&#x27;t buy this on Amazon.</li>
+<li> My face is prone to having an oily T-zone, and this product sure does a good job in removing shine from the area for a couple of hours.</li>
+<li> I love it.</li>
+<li> In fact, I felt that I had a film on top of my face, so I had to wash my face again to get rid of that.</li>
+<li> Great product,  it really controls the oily shine.</li>
+<li> Being allergic to salicylic acid, this product stunningly doesn&#x27;t bother me.</li>
+<li> I even felt like my skin had more shine and oil the week that I used this product.</li>
+<li> Our favorite face scrub and cheaper than grocery store</li>
+<li> I have used this product for many years.  </li>
+<li> It helped the redness on my face go away very quickly</li>
+<li> As a male, I have tried both Nivea and Neutrogena for men face wash products and have been happy with both.</li>
+<li> Cheap too, I got this for around $5.</li>
+<li> and so far so good with this product.</li>
+<li> I bought this face wash because Im a waitress and walk in and out of a hot kitchen so my face gets greasy real quick.</li>
+<li> Its true to its word, this stuff is for shine control.</li>
+<li> My oily skin is under control, it really worked and I love this cleanser</li>
+<li> It sells out quickly in the stores, so I started ordering it in bulk on-line.</li>
+<li> But it certainly has made a huge difference for me in terms of complexion.</li>
+<li> It worth it!!!&lt;br</li>
+<li> my face stays looking fresh all through work and after.</li>
+<li> Because If you use only one kind of face treatment there will come a day your face will get so use to it that treatment will no longer be useful.</li>
+<li> It works to keep your face feeling and looking fresh all day</li>
+<li> My face feels clean and smooth, not dried out in any way and leaves no redness.</li>
+<li> only thing about face creams and face liquids that may be important to know if you want great and fast result is you need to use at least more than two.</li>
+<li> , it is very gentle, leaves my skin very soft and smooth after.  </li>
+<li> May not have even been this face wash but to be on the safe side I am going back to using Nivea for men products which I have never had any problems with.</li>
+<li> Definitely, decreases shine, good shine control when used daily.</li>
+<li> you are looking for something that really works for your NON SEVERE acne, you have to buy it</li>
+<li> This does work on my face very well.</li>
+<li> Scrub works very well.</li>
+<li> I use this twice a day, in the morning in the shower and at night before bed, and my skin would absolutely ridden with acne.</li>
+<li> I have a very shine and oily skin on my T-zone, it is so shining</li>
+<li> B003QOTDB4 Neutrogena Deep Clean Long-Last Shine Control, Cleanser/mask, 6 Ounce (</li>
+<li> I hate to diss Neutrogena because I love them, but this is definitely not their best product.</li>
+<li> I&#x27;ve tried other products of their Deep Clean line, and they were better by far.</li>
+<li> I noticed that if I leave it on as a mask, I do find that cooling, cleaning feeling (I know that this product is offered as a mask, and the concentration of salicylic acid is too high for my skin).</li>
+<li> I&#x27;ve tried a lot of different Neutrogena, Clearasil and Clean &amp; Clear products.</li>
+<li> It just says deep clean shine control daily scrub.</li>
+<li> I guess the deep clean part actually works</li>
+<li> I have out of control oily skin and hair, and though this doesn&#x27;t keep my skin clear all day, it truly works for oily skin.</li>
+<li> I find that around the 5 or 6 hour mark after i&#x27;ve washed my face, it&#x27;s oily again, but the blotting sheets keep my face clear for the rest of the day.</li>
+<li> I do not have sensitive skin, in fact I have never had a rash like this.</li>
+<li> Ever since I&#x27;ve used 4 different Neutrogena my face has really improved.</li>
+<li> I didn&#x27;t notice any change in how much shine appeared on my skin, nor did my skin feel any \\&quot;deep clean.\\&quot;</li>
+<li> I bought Neutrogena&#x27;s long lasting deep clean oil control cleanser/mask and use it on my face once every day, it worked like a charm.  </li>
+<li> It has small microbeads that are just there that sits on your face to me,not like clean and clear shine control cleanser there</li>
+<li> Not much works on my very oily skin</li>
+<li> Of course, while this clears away shine, I do recommend using an oil-free, non-comedogenic moisturizer after using, simply because it keeps your skin from producing natural oils to keep it hydrated (not because I found this product drying in any way).</li>
+<li> I use it mostly in the winter, and it is the only facial scrub I&#x27;ve used that doesn&#x27;t leave my skin a little raw.</li>
+<li> This works and the little pellets, they say, are biodegradable so the fact that the particles are so small that they do not get filtered out during the sewage treatment phase (and are so light they stay on the surface) is a plus.</li>
+<li> This is the only product I have found that my teenage daughter can use that doesnt dry out her skin, helps with her acne and doesnt cost a fortune.  </li>
+<li> I wish I didn&#x27;t wait so long to try it.</li>
+<li> Neutrogena products have been pretty disappointing lately, maybe because other products boast fewer chemicals and have better results.</li>
+<li> I only scrubbed my face, and what rinsed down must have caused the rash.</li>
+<li> I decided to give this one a try due to the &amp;#34;Shine Control&amp;#34; but have stopped using it since I noticed my face started to break out shortly after a few days of use and no visual improvements to my forehead&#x27;s shine.</li>
+<li> It doesn&#x27;t do anything that the description says it will, not even remotely.</li>
+<li> so I have to be twice as careful,</li>
+<li> well this broke me out bad all over my right side of my face especially!!</li>
+<li> Just not worth it.</li>
+<li> Anyways also the smell is very floral,its also blue so that was the only reason why I gave this one star because I hate cleansers/scrubs/exfoliators or anything else that makes me wanna just pass out.</li>
+<li> this did not even keep the shine down for a hour.</li>
+<li> No more shine for long time, yes a day!</li>
+<li> and I wanted this to keep the shine down for at least 4 hours.</li>
+<li> May have been some sort of allergic reaction however not sure.</li>
+<li> I usually buy this in the store when it goes on sale.</li>
+<li> It&#x27;s so bad, I have had to wear high neck clothes just to hide it.</li>
+<li> I hardly ever have pimples now.</li>
+<li> Not great for the environment --</li>
+<li> It looks dirty during the day.  </li>
+<li> So I was so mad</li>
+<li> So don&#x27;t feel bad if it doesn&#x27;t work for you.</li>
+<li> but it&#x27;s not that bad.</li>
+<li> I hate to give a product one star, but this scrub was simply bad.</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> I hate to give a product one star, but this scrub was simply bad. It doesn&#x27;t do anything that the description says it will, not even remotely. It does have the texture of a scrub, but that is about it. I didn&#x27;t notice any change in how much shine appeared on my skin, nor did my skin feel any \\&quot;deep clean.\\&quot; In fact, I felt that I had a film on top of my face, so I had to wash my face again to get rid of that. I even felt like my skin had more shine and oil the week that I used this product. I&#x27;ve tried other products of their Deep Clean line, and they were better by far. This product just doesn&#x27;t deliver.</li>
+    <li> This is the only product I have found that my teenage daughter can use that doesnt dry out her skin, helps with her acne and doesnt cost a fortune.  It sells out quickly in the stores, so I started ordering it in bulk on-line. Very pleased.</li>
+    <li> Does what it says, controls oil and shine!!! It&#x27;s summer in California and my skin started getting oily and sunscreen wasn&#x27;t helping. This product is amazing. I can use serum, moisturizer, and SPF without getting oily!!! Amazing! Cheap too, I got this for around $5.</li>
+    <li> The best acne scrub in the market... It worth it!!!&lt;br /&gt;If you are looking for something that really works for your NON SEVERE acne, you have to buy it</li>
+    <li> Not much works on my very oily skin but this face wash has become a staple in my house.</li>
+    <li> I used this product for two days and I got a rash all over my chest. It&#x27;s so bad, I have had to wear high neck clothes just to hide it. I do not have sensitive skin, in fact I have never had a rash like this. I only scrubbed my face, and what rinsed down must have caused the rash. It was the only thing I changed, I did not eat anything different and I have no allergies. I think it&#x27;s either the Wax in it or the Rice Protein maybe, either way I am going to try to return it and get my money back. I hate to diss Neutrogena because I love them, but this is definitely not their best product.</li>
+    <li> This works and the little pellets, they say, are biodegradable so the fact that the particles are so small that they do not get filtered out during the sewage treatment phase (and are so light they stay on the surface) is a plus.</li>
+    <li> Neutrogena products have been pretty disappointing lately, maybe because other products boast fewer chemicals and have better results. I bought this scrub for the shine control factor alone but I haven&#x27;t noticed any changes in the amount of shine on my face. I also found that it contains Ethylene Oxide and Phenoxyethanol which cause organ system toxicity. Just not worth it.</li>
+    <li> Great product,  it really controls the oily shine.</li>
+    <li> I have a very shine and oily skin on my T-zone, it is so shining and you could see a reflection from the mirror.  It looks dirty during the day.  I bought Neutrogena&#x27;s long lasting deep clean oil control cleanser/mask and use it on my face once every day, it worked like a charm.  My oily skin is under control, it really worked and I love this cleanser, it is very gentle, leaves my skin very soft and smooth after.  No more shine for long time, yes a day! I have stayed with this product for several months and will continue using it.  [[ASIN:B003QOTDB4 Neutrogena Deep Clean Long-Last Shine Control, Cleanser/mask, 6 Ounce (Pack of 2)]]</li>
+    <li> I wanted to try this for about 3 weeks ago every since I seen them displaying it on tv. So I finally bought it but thinking to myself this will not work,so I tried it for a couple of days and it had no signs that it was working,no tingling no feeling that its going in your pores nothing. It has small microbeads that are just there that sits on your face to me,not like clean and clear shine control cleanser there microbeads to me feel like scrubbers getting rid of dirt. Anyways also the smell is very floral,its also blue so that was the only reason why I gave this one star because I hate cleansers/scrubs/exfoliators or anything else that makes me wanna just pass out. But that&#x27;s not my biggest concern I have oily skin and I wanted this to keep the shine down for at least 4 hours. HA!! What a joke this did not even keep the shine down for a hour. And I have acne prone skin to so I have to be twice as careful,well this broke me out bad all over my right side of my face especially!! So I was so mad I returned it and got my money back. I will continue to search for my shine control cleanser that works for me.</li>
+    <li> I have used this product for many years.  I use it mostly in the winter, and it is the only facial scrub I&#x27;ve used that doesn&#x27;t leave my skin a little raw. My face feels clean and smooth, not dried out in any way and leaves no redness. I love it.</li>
+    <li> To be honest I didn&#x27;t buy this on Amazon. I usually buy this in the store when it goes on sale. I&#x27;m writing this review because I think this is a great product. When I was younger I had a lot of pimple on my face. I tried a lot of different products to reduce the breakouts. I&#x27;ve tried a lot of different Neutrogena, Clearasil and Clean &amp; Clear products. A lot of them didn&#x27;t work for me. I think it&#x27;s because everyone has different types of skin and our skin will react differently with each product. For some reason this product has helped reduce my pimples. I hardly ever have pimples now. Maybe once in a while I might get one after I eat a steak and cheese sandwich but it&#x27;s not that bad. The front of the bottle doesn&#x27;t claim to remove any pimples. It just says deep clean shine control daily scrub. I guess the deep clean part actually works and it cleans out all the junk that causes pimples. I don&#x27;t know. All I know is it works for me.&lt;br /&gt;&lt;br /&gt;I would recommend this product to anyone reading this review. Try it out and I hope it works for you. But remember everyone has different skin. So don&#x27;t feel bad if it doesn&#x27;t work for you. Just keep looking around until you find a good product that reacts well with your skin type.</li>
+    <li> Our favorite face scrub and cheaper than grocery store</li>
+    <li> This worked perfect for me. I bought this face wash because Im a waitress and walk in and out of a hot kitchen so my face gets greasy real quick. Since I started using this my face stays looking fresh all through work and after. Wich is perfect for the days that I go out rt after work. It works to keep your face feeling and looking fresh all day</li>
+    <li> It is a miracle. Not great for the environment -- micro balls in lakes.  But it certainly has made a huge difference for me in terms of complexion.</li>
+    <li> Scrub works very well. One of the best neutrogena products I have used. Definitely, decreases shine, good shine control when used daily.</li>
+    <li> I have only been using it for about a week and so far so good with this product. My face is prone to having an oily T-zone, and this product sure does a good job in removing shine from the area for a couple of hours. I wish I didn&#x27;t wait so long to try it. I&#x27;ll probably have to wait another month or so to see if my skin gets used to this product, to determine if I need to add anything extra to mix and match with.</li>
+    <li> Its true to its word, this stuff is for shine control. I have out of control oily skin and hair, and though this doesn&#x27;t keep my skin clear all day, it truly works for oily skin. I use this twice a day, in the morning in the shower and at night before bed, and my skin would absolutely ridden with acne. Being allergic to salicylic acid, this product stunningly doesn&#x27;t bother me. I noticed that if I leave it on as a mask, I do find that cooling, cleaning feeling (I know that this product is offered as a mask, and the concentration of salicylic acid is too high for my skin). I find that around the 5 or 6 hour mark after i&#x27;ve washed my face, it&#x27;s oily again, but the blotting sheets keep my face clear for the rest of the day. Of course, while this clears away shine, I do recommend using an oil-free, non-comedogenic moisturizer after using, simply because it keeps your skin from producing natural oils to keep it hydrated (not because I found this product drying in any way).</li>
+    <li> This does work on my face very well. It helped the redness on my face go away very quickly, I was impressed.&lt;br /&gt;The only thing about face creams and face liquids that may be important to know if you want great and fast result is you need to use at least more than two. Because If you use only one kind of face treatment there will come a day your face will get so use to it that treatment will no longer be useful. Ever since I&#x27;ve used 4 different Neutrogena my face has really improved.</li>
+    <li> As a male, I have tried both Nivea and Neutrogena for men face wash products and have been happy with both. I decided to give this one a try due to the &amp;#34;Shine Control&amp;#34; but have stopped using it since I noticed my face started to break out shortly after a few days of use and no visual improvements to my forehead&#x27;s shine. May have been some sort of allergic reaction however not sure. May not have even been this face wash but to be on the safe side I am going back to using Nivea for men products which I have never had any problems with.</li>
+</ol>
+
+
+
+

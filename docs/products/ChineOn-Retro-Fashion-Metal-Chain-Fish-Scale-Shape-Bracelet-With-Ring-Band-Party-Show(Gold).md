@@ -1,0 +1,111 @@
+---
+title: ChineOn Retro Fashion Metal Chain Fish Scale Shape Bracelet With Ring Band Party Show(Gold),
+description: ChineOn Retro Fashion Metal Chain Fish Scale Shape Bracelet With Ring Band Party Show(Gold),
+author: Suvojit Manna,
+tags: ChineOn Retro Fashion Metal Chain Fish Scale Shape Bracelet With Ring Band Party Show(Gold),
+publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
+---
+
+# [ChineOn Retro Fashion Metal Chain Fish Scale Shape Bracelet With Ring Band Party Show(Gold)](https://products.checkmycream.com/products/ChineOn-Retro-Fashion-Metal-Chain-Fish-Scale-Shape-Bracelet-With-Ring-Band-Party-Show(Gold).html)
+
+### Positive Reviews
+
+<ol>
+      <li>Very good price</li>
+      <li>lol</li>
+      <li>It was good quality for the price</li>
+      <li>A sleek exotic piece they were beautiful on my model and</li>
+      <li>I hope she will love it!</li>
+      <li>Is nice but the way they glue the ring is sideways..</li>
+      <li>Nice product.</li>
+      <li>I liked it a lot, it looks really nice on a hand and it doesn&#x27;t look cheap.</li>
+      <li>I kept the ring part because it was cute</li>
+      <li>Really cute.</li>
+      <li>It&#x27;s okay</li>
+      <li>The quality is ok.</li>
+      <li>&amp; I received it very quickly.</li>
+      <li>However, it is cheaply made.</li>
+      <li>I purchased this bracelet &amp; ring combo for a teenaged granddaughter, because it&#x27;s so unique.</li>
+      <li>Even if you want to make someone laugh, or buy for throw away jewelry, don&#x27;t!</li>
+      <li>Received it very quickly but the bracelet part was huge and it broke the first time I wore it.</li>
+      <li>This item was well worth what I paid for it.  </li>
+      <li>Broke first time putting it on</li>
+      <li>I bought another one of these in silver and they both lose their color after wear for about 20 minutes in hot weather</li>
+      <li>The ring part broke off from the chain the first time I put it on</li>
+      <li>This is very flimsy.  </li>
+      <li>I bought this item as a joke for my grandmother, knowing it was going to be cheap since it was only $2.00.</li>
+      <li>Also, it&#x27;s a cute &amp; inexpensive gift to give for no special reason, or to add to her Christmas gifts.</li>
+      <li>This item is cute, but incredibly delicate; and takes am extremely long time to arrive</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> Very good price</li>
+<li> lol</li>
+<li> It was good quality for the price</li>
+<li> A sleek exotic piece they were beautiful on my model and</li>
+<li> I hope she will love it!</li>
+<li> Is nice but the way they glue the ring is sideways..</li>
+<li> Nice product.</li>
+<li> I liked it a lot, it looks really nice on a hand and it doesn&#x27;t look cheap.</li>
+<li> I kept the ring part because it was cute</li>
+<li> Really cute.</li>
+<li> It&#x27;s okay</li>
+<li> The quality is ok.</li>
+<li> &amp; I received it very quickly.</li>
+<li> However, it is cheaply made.</li>
+<li> I purchased this bracelet &amp; ring combo for a teenaged granddaughter, because it&#x27;s so unique.</li>
+<li> Even if you want to make someone laugh, or buy for throw away jewelry, don&#x27;t!</li>
+<li> Received it very quickly but the bracelet part was huge and it broke the first time I wore it.</li>
+<li> This item was well worth what I paid for it.  </li>
+<li> Broke first time putting it on</li>
+<li> I bought another one of these in silver and they both lose their color after wear for about 20 minutes in hot weather</li>
+<li> The ring part broke off from the chain the first time I put it on</li>
+<li> This is very flimsy.  </li>
+<li> I bought this item as a joke for my grandmother, knowing it was going to be cheap since it was only $2.00.</li>
+<li> Also, it&#x27;s a cute &amp; inexpensive gift to give for no special reason, or to add to her Christmas gifts.</li>
+<li> This item is cute, but incredibly delicate; and takes am extremely long time to arrive</li>
+<li> Shipping takes to long</li>
+<li> the chain is to long from the finger to the wrist.</li>
+<li> Very ill fitting.</li>
+<li> Product as expected, but (although stated it would be slow) was even longer than expected as other items ordered from over seas; on the same day can a week sooner.</li>
+<li> ring too small, bracelet too big.</li>
+<li> The only thing that was bad , few of the little rings in the chain were not closed properly, so I had to fix it with pliers so that it wouldn&#x27;t fall apart.</li>
+<li> Part of the bracelet was held together with a green goo...instead of soldered together.</li>
+<li> I have small hands and it was even too small for my hands.</li>
+<li> Arrived broken.</li>
+<li> Got this item today and it was already broken.</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> Got this item today and it was already broken.</li>
+    <li> The ring part broke off from the chain the first time I put it on</li>
+    <li> Received it very quickly but the bracelet part was huge and it broke the first time I wore it.</li>
+    <li> A sleek exotic piece they were beautiful on my model and My Date was complimented all night&lt;br /&gt;I will check and buy from this company again</li>
+    <li> I bought this item as a joke for my grandmother, knowing it was going to be cheap since it was only $2.00. When she received it, the chain was not connect to the already smashed ring, or the bracelet. Part of the bracelet was held together with a green goo...instead of soldered together. Even if you want to make someone laugh, or buy for throw away jewelry, don&#x27;t!</li>
+    <li> This item is cute, but incredibly delicate; and takes am extremely long time to arrive</li>
+    <li> Is nice but the way they glue the ring is sideways..I steel like it but ..is crapy</li>
+    <li> Broke! I kept the ring part because it was cute lol</li>
+    <li> the chain is to long from the finger to the wrist.</li>
+    <li> Product as expected, but (although stated it would be slow) was even longer than expected as other items ordered from over seas; on the same day can a week sooner.</li>
+    <li> This item was well worth what I paid for it.  It was good quality for the price &amp; I received it very quickly.</li>
+    <li> Very ill fitting. ring too small, bracelet too big.</li>
+    <li> I bought another one of these in silver and they both lose their color after wear for about 20 minutes in hot weather I&#x27;m never buying these again.</li>
+    <li> Nice product. Shipping takes to long</li>
+    <li> It&#x27;s okay and I like it. However, it is cheaply made.</li>
+    <li> Arrived broken. Can&#x27;t complain, you get what you pay for!</li>
+    <li> Broke first time putting it on</li>
+    <li> Really cute. Very good price</li>
+    <li> I purchased this bracelet &amp; ring combo for a teenaged granddaughter, because it&#x27;s so unique. Also, it&#x27;s a cute &amp; inexpensive gift to give for no special reason, or to add to her Christmas gifts. I hope she will love it!</li>
+    <li> This is very flimsy.  I bought it for my daughter to wear to her senior Prom but the ring broke off before she even got the chain part hooked.</li>
+    <li> I liked it a lot, it looks really nice on a hand and it doesn&#x27;t look cheap. The only thing that was bad , few of the little rings in the chain were not closed properly, so I had to fix it with pliers so that it wouldn&#x27;t fall apart.</li>
+    <li> I have small hands and it was even too small for my hands. The quality is ok.</li>
+</ol>
+
+
+
+

@@ -1,0 +1,277 @@
+---
+title: Eyelash and Eyebrow Growth Serum Enhancer - Fuller, Longer, Sronger and Darker Eyelashes - Easy to Use and Clinically Proven (0.34 oz),
+description: Eyelash and Eyebrow Growth Serum Enhancer - Fuller, Longer, Sronger and Darker Eyelashes - Easy to Use and Clinically Proven (0.34 oz),
+author: Suvojit Manna,
+tags: Eyelash and Eyebrow Growth Serum Enhancer - Fuller, Longer, Sronger and Darker Eyelashes - Easy to Use and Clinically Proven (0.34 oz),
+publishedAt: Fri Jan 10 2020 15:01:05 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:01:05 GMT+0530 (India Standard Time),
+---
+
+# [Eyelash and Eyebrow Growth Serum Enhancer - Fuller, Longer, Sronger and Darker Eyelashes - Easy to Use and Clinically Proven (0.34 oz)](https://products.checkmycream.com/products/Eyelash-and-Eyebrow-Growth-Serum-Enhancer-Fuller-Longer-Sronger-and-Darker-Eyelashes-Easy-to-Use-and-Clinically-Proven-(0.34-oz).html)
+
+### Positive Reviews
+
+<ol>
+      <li>She is very happy with the product</li>
+      <li>This is wonderful!  </li>
+      <li>I can&#x27;t believe how good this smells !!!!</li>
+      <li>so my results are not drastic, but I am already seeing wonderful changes.</li>
+      <li>I have damaged my eyelashes over the years, and now they aren&#x27;t their best.</li>
+      <li>You do not have to use the serum twice per day, but I do because that is how you get the best results.</li>
+      <li>I love this Brand !!!</li>
+      <li>I feel great, and I look great!</li>
+      <li>I am beyond happy and confident that this product is going to be a home run !!!</li>
+      <li>I&#x27;m hoping to someday ditch my eyeliner for good!</li>
+      <li>Simonida eyelash growth serum arrives in a beautiful box.</li>
+      <li>She said it work.s really great.</li>
+      <li>I received this wonderful product at a discount in exchnage for my honest review.&lt;br /&gt;&lt;br</li>
+      <li>I LOVE the chocolate smell in the morning!!</li>
+      <li>Amazing product!</li>
+      <li>I loved that it was an irritant.</li>
+      <li>Feels good.</li>
+      <li>gave it a good shot, just tried to return it</li>
+      <li>I am very satisfied with my purchase of MaxxLash.</li>
+      <li>This is one of my favorite brands to review By the way :) !!</li>
+      <li>If I could give this more than 5 Stars, I would in a heartbeat!</li>
+      <li>also Cruelty Free !!  </li>
+      <li>I think this product is absolutely amazing, and I am honored to have been chosen to receive this as a sample, in exchange for my honest, unbiased opinion and feedback.  </li>
+      <li>I&#x27;m over 50 and grew up in the 70&#x27;s when it was popular to pluck your eyebrows.</li>
+      <li>purchased this elixir at a discount in exchange for my honest unbiased review.</li>
+      <li>I was thrilled when I was given the opportunity to test this product and give my honest unbiased opinion.&lt;br</li>
+      <li>I attest this review is my honest opinion.</li>
+      <li>I was chosen to try MaxxLash and give my honest and unbiased opinion.  </li>
+      <li>It is very easy to use.</li>
+      <li>product goes on very easily.  </li>
+      <li>This product is very easy to put on and causes no burning or irritation to the eye and skin area.</li>
+      <li>I was able to purchase Maxxlash during a special promotion to try out and am so glad I did!!</li>
+      <li>If something sounds too good to be true...</li>
+      <li>so putting mascara on has become more time consuming than it used to be.</li>
+      <li>Does what it&#x27;s supposed to do and certainly love the price.</li>
+      <li>It&#x27;s okay.</li>
+      <li>This Eye lash growth serum and brow enhancer is Paraben free!</li>
+      <li>so I&#x27;m sure I probly over applied and</li>
+      <li>I love that it is made in the USA, too.</li>
+      <li>I can now feel better about myself and my appearance.</li>
+      <li>I received this eyelash growth serum enhancer for a consumer review and I love it.</li>
+      <li>I needed this more for my eyebrows than my lashes.  </li>
+      <li>It is risk free and it works, so give it a try!</li>
+      <li>I was super excited to be able to get this product at a promotional price and share my honest and unbiased opinion with you!</li>
+      <li>When I saw an opportunity to recieve this i was excited!</li>
+      <li>I really love how easy it is and the results it gives.</li>
+      <li>I love how this product is easy to apply,  no need to touch up during the day</li>
+      <li>The brush is tiny and perfect for lining your make up free lash line morning and night.  </li>
+      <li>The packaging is super cute and very easy to handle</li>
+      <li>/&gt;MaxxLash is extremely easy to use.  </li>
+      <li>and it is easy to apply .the</li>
+      <li>It is, however, easy to apply.</li>
+      <li>The applicator is so easy to use.</li>
+      <li>It was easy to apply just like applying liquid eyeliner.</li>
+      <li>This product is really easy to use.</li>
+      <li>Time will tell, but this serum looks very promising to me.&lt;br /&gt;I was given this product at no cost for my honest and unbiased review of it.</li>
+      <li>I recieved this awesome product for longer fuller lashes for an unbiased opinion, (: When applying mascara my right lashs seem to be always longer than my left and it bugged up.</li>
+      <li>It goes on smooth and easy.</li>
+      <li>It comes in a pretty box suitable for gifting with easy instructions.</li>
+      <li>I haven&#x27;t noticed a huge difference in lashes</li>
+      <li>It’s a great product with a 30 day money back</li>
+      <li>/&gt;While this product was received for free</li>
+      <li>so when I was given the opportunity to purchase these at a reduced cost to test for quality, I was excited.  </li>
+      <li>I will update in a few weeks although I&#x27;m confident this will deliver lol .</li>
+      <li>I was so excited to try this product at a special Amazon launch price because I&#x27;ve needed this for years.</li>
+      <li>I think it would also make a great gift for bridesmaids/maid of honor before the big day to really enhance their eyes for all the photos!</li>
+      <li>full effect.&lt;br /&gt;&lt;br</li>
+      <li>There is no smell and no bad side effects of this product.</li>
+      <li>It hasn’t caused any irritations for problems so far, and this is great because I have very sensitive skin.</li>
+      <li>The serum comes with a money back guarantee, but before you get your money back make sure that you have given the product 10-14 days to see how great it works.</li>
+      <li>First I want to say I love the packaging its very sleek  .</li>
+      <li>I was given the opportunity to test this product complimentary, and share my experiences and feedback.</li>
+      <li>I don’t need the eyebrow thickening as those seem to be ok so far.</li>
+      <li>I didn&#x27;t really see any growth in my lashes or brows, but both seem to be much softer, and my bristly eyebrows have become more &amp;#34;tameable&amp;#34;, like when you use a conditioner on your hair.</li>
+      <li>The hair is starting to grow in on my right eyebrow, and that is amazing in itself.</li>
+      <li>I definitely recommend this product to anyone looking to get back those voluptuous, full lashes, or to anyone that has experienced a hair loss in either their eyebrows or eyelashes.</li>
+      <li>directions are easy to understand and clearly says apply</li>
+      <li>I will definitely be purchasing this again and can honestly recommend it to everyone who wants fuller, longer lashes.</li>
+      <li>The product is easy to use and apply and is not very large so it easily fits into your purse.</li>
+      <li>I&#x27;m a product reviewer as well, but I am also a firm believer in really using a product for the required amount of time before giving an HONEST review, and I feel with this product, you cannot get a good enough review unless you use it longer than a week.&lt;br /&gt;&lt;br</li>
+      <li>The only thing these products don&#x27;t do, that I wish they would, is add more lashes.</li>
+      <li>but I can most definitely see a difference.  </li>
+      <li>Once it’s on you really can&#x27;t tell that you even put it on!</li>
+      <li>I love this product because it actually works.</li>
+      <li>You&#x27;re not going to see results the first couple of days you use this product, as with any product.</li>
+      <li>I actually had better results just using a coconut oil, castor oil, and lavender oil mixture.</li>
+      <li>Just brush the serum on to your lower eyelid exactly how you would apply your eyeliner.</li>
+      <li>It is easy to apply and safe enough to use daily.</li>
+      <li>It is still early on to tell the full benefits yet.</li>
+      <li>I feel it was kind of waste of my money, but at least now there will be an HONEST review from a product reviewer who actually purchased the product with their own money and no reimbursement for it.</li>
+      <li>To be honest with you, I feel like my new tube is empty.  </li>
+      <li>It really is amazing!&lt;br /&gt;&lt;br</li>
+      <li>I have been blown away at how much my lashes have grown since I started using this.</li>
+      <li>It&#x27;s a blow to the self esteem really.</li>
+      <li>really, really wanted this to work, but</li>
+      <li>Honestly I really don&#x27;t like it.  </li>
+      <li>Itsnt to much product in the container,I didn&#x27;t why,.still try....</li>
+      <li>I am a firm believer in giving  the product the required amount of time before giving an honest opinion</li>
+      <li>I&#x27;ve also have an area on my right eyebrow where there is a scar from an injury in my early childhood.</li>
+      <li>I love this product I have noticed a difference bought other brands didn&#x27;t notice any difference.</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> She is very happy with the product</li>
+<li> This is wonderful!  </li>
+<li> I can&#x27;t believe how good this smells !!!!</li>
+<li> so my results are not drastic, but I am already seeing wonderful changes.</li>
+<li> I have damaged my eyelashes over the years, and now they aren&#x27;t their best.</li>
+<li> You do not have to use the serum twice per day, but I do because that is how you get the best results.</li>
+<li> I love this Brand !!!</li>
+<li> I feel great, and I look great!</li>
+<li> I am beyond happy and confident that this product is going to be a home run !!!</li>
+<li> I&#x27;m hoping to someday ditch my eyeliner for good!</li>
+<li> Simonida eyelash growth serum arrives in a beautiful box.</li>
+<li> She said it work.s really great.</li>
+<li> I received this wonderful product at a discount in exchnage for my honest review.&lt;br /&gt;&lt;br</li>
+<li> I LOVE the chocolate smell in the morning!!</li>
+<li> Amazing product!</li>
+<li> I loved that it was an irritant.</li>
+<li> Feels good.</li>
+<li> gave it a good shot, just tried to return it</li>
+<li> I am very satisfied with my purchase of MaxxLash.</li>
+<li> This is one of my favorite brands to review By the way :) !!</li>
+<li> If I could give this more than 5 Stars, I would in a heartbeat!</li>
+<li> also Cruelty Free !!  </li>
+<li> I think this product is absolutely amazing, and I am honored to have been chosen to receive this as a sample, in exchange for my honest, unbiased opinion and feedback.  </li>
+<li> I&#x27;m over 50 and grew up in the 70&#x27;s when it was popular to pluck your eyebrows.</li>
+<li> purchased this elixir at a discount in exchange for my honest unbiased review.</li>
+<li> I was thrilled when I was given the opportunity to test this product and give my honest unbiased opinion.&lt;br</li>
+<li> I attest this review is my honest opinion.</li>
+<li> I was chosen to try MaxxLash and give my honest and unbiased opinion.  </li>
+<li> It is very easy to use.</li>
+<li> product goes on very easily.  </li>
+<li> This product is very easy to put on and causes no burning or irritation to the eye and skin area.</li>
+<li> I was able to purchase Maxxlash during a special promotion to try out and am so glad I did!!</li>
+<li> If something sounds too good to be true...</li>
+<li> so putting mascara on has become more time consuming than it used to be.</li>
+<li> Does what it&#x27;s supposed to do and certainly love the price.</li>
+<li> It&#x27;s okay.</li>
+<li> This Eye lash growth serum and brow enhancer is Paraben free!</li>
+<li> so I&#x27;m sure I probly over applied and</li>
+<li> I love that it is made in the USA, too.</li>
+<li> I can now feel better about myself and my appearance.</li>
+<li> I received this eyelash growth serum enhancer for a consumer review and I love it.</li>
+<li> I needed this more for my eyebrows than my lashes.  </li>
+<li> It is risk free and it works, so give it a try!</li>
+<li> I was super excited to be able to get this product at a promotional price and share my honest and unbiased opinion with you!</li>
+<li> When I saw an opportunity to recieve this i was excited!</li>
+<li> I really love how easy it is and the results it gives.</li>
+<li> I love how this product is easy to apply,  no need to touch up during the day</li>
+<li> The brush is tiny and perfect for lining your make up free lash line morning and night.  </li>
+<li> The packaging is super cute and very easy to handle</li>
+<li> /&gt;MaxxLash is extremely easy to use.  </li>
+<li> and it is easy to apply .the</li>
+<li> It is, however, easy to apply.</li>
+<li> The applicator is so easy to use.</li>
+<li> It was easy to apply just like applying liquid eyeliner.</li>
+<li> This product is really easy to use.</li>
+<li> Time will tell, but this serum looks very promising to me.&lt;br /&gt;I was given this product at no cost for my honest and unbiased review of it.</li>
+<li> I recieved this awesome product for longer fuller lashes for an unbiased opinion, (: When applying mascara my right lashs seem to be always longer than my left and it bugged up.</li>
+<li> It goes on smooth and easy.</li>
+<li> It comes in a pretty box suitable for gifting with easy instructions.</li>
+<li> I haven&#x27;t noticed a huge difference in lashes</li>
+<li> It’s a great product with a 30 day money back</li>
+<li> /&gt;While this product was received for free</li>
+<li> so when I was given the opportunity to purchase these at a reduced cost to test for quality, I was excited.  </li>
+<li> I will update in a few weeks although I&#x27;m confident this will deliver lol .</li>
+<li> I was so excited to try this product at a special Amazon launch price because I&#x27;ve needed this for years.</li>
+<li> I think it would also make a great gift for bridesmaids/maid of honor before the big day to really enhance their eyes for all the photos!</li>
+<li> full effect.&lt;br /&gt;&lt;br</li>
+<li> There is no smell and no bad side effects of this product.</li>
+<li> It hasn’t caused any irritations for problems so far, and this is great because I have very sensitive skin.</li>
+<li> The serum comes with a money back guarantee, but before you get your money back make sure that you have given the product 10-14 days to see how great it works.</li>
+<li> First I want to say I love the packaging its very sleek  .</li>
+<li> I was given the opportunity to test this product complimentary, and share my experiences and feedback.</li>
+<li> I don’t need the eyebrow thickening as those seem to be ok so far.</li>
+<li> I didn&#x27;t really see any growth in my lashes or brows, but both seem to be much softer, and my bristly eyebrows have become more &amp;#34;tameable&amp;#34;, like when you use a conditioner on your hair.</li>
+<li> The hair is starting to grow in on my right eyebrow, and that is amazing in itself.</li>
+<li> I definitely recommend this product to anyone looking to get back those voluptuous, full lashes, or to anyone that has experienced a hair loss in either their eyebrows or eyelashes.</li>
+<li> directions are easy to understand and clearly says apply</li>
+<li> I will definitely be purchasing this again and can honestly recommend it to everyone who wants fuller, longer lashes.</li>
+<li> The product is easy to use and apply and is not very large so it easily fits into your purse.</li>
+<li> I&#x27;m a product reviewer as well, but I am also a firm believer in really using a product for the required amount of time before giving an HONEST review, and I feel with this product, you cannot get a good enough review unless you use it longer than a week.&lt;br /&gt;&lt;br</li>
+<li> The only thing these products don&#x27;t do, that I wish they would, is add more lashes.</li>
+<li> but I can most definitely see a difference.  </li>
+<li> Once it’s on you really can&#x27;t tell that you even put it on!</li>
+<li> I love this product because it actually works.</li>
+<li> You&#x27;re not going to see results the first couple of days you use this product, as with any product.</li>
+<li> I actually had better results just using a coconut oil, castor oil, and lavender oil mixture.</li>
+<li> Just brush the serum on to your lower eyelid exactly how you would apply your eyeliner.</li>
+<li> It is easy to apply and safe enough to use daily.</li>
+<li> It is still early on to tell the full benefits yet.</li>
+<li> I feel it was kind of waste of my money, but at least now there will be an HONEST review from a product reviewer who actually purchased the product with their own money and no reimbursement for it.</li>
+<li> To be honest with you, I feel like my new tube is empty.  </li>
+<li> It really is amazing!&lt;br /&gt;&lt;br</li>
+<li> I have been blown away at how much my lashes have grown since I started using this.</li>
+<li> It&#x27;s a blow to the self esteem really.</li>
+<li> really, really wanted this to work, but</li>
+<li> Honestly I really don&#x27;t like it.  </li>
+<li> Itsnt to much product in the container,I didn&#x27;t why,.still try....</li>
+<li> I am a firm believer in giving  the product the required amount of time before giving an honest opinion</li>
+<li> I&#x27;ve also have an area on my right eyebrow where there is a scar from an injury in my early childhood.</li>
+<li> I love this product I have noticed a difference bought other brands didn&#x27;t notice any difference.</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> I didn&#x27;t notice any difference.</li>
+    <li> Not able to use as eyelash growth product.  Like to have never gotten rid of the pain caused from using it on my upper lid...Had to rinse and rinse and rinse...could not go to sleep for several hours because of reaction to product.  Am not able to tell if product is going on when applying to sparse eyebrows.  I just keep hoping it is and that it will work.</li>
+    <li> To be honest with you, I feel like my new tube is empty.  As I take out the wand, hardly any comes out so I am dissatisfied.</li>
+    <li> I have been trying this out for a few days and have yet to see any change but the product says it needs around a month to see results so I have some time.The product is easy to use and apply and is not very large so it easily fits into your purse. I am a firm believer in giving  the product the required amount of time before giving an honest opinion however I am require to right something within ten days, so I will adjust this review in a few weeks when I have had enough time to honestly give it a chance.&lt;br /&gt;&lt;br /&gt;While this product was received for free I attest this review is my honest opinion.</li>
+    <li> I dont see results again</li>
+    <li> It&#x27;s okay. Even with my horrible hayfever &amp; allergies, this stuff gave me no problems. I didn&#x27;t really see any growth in my lashes or brows, but both seem to be much softer, and my bristly eyebrows have become more &amp;#34;tameable&amp;#34;, like when you use a conditioner on your hair.</li>
+    <li> Did I miss the instructions? I find no where that says if you are to line the entire length of the lash base or just the middle area.</li>
+    <li> Every woman wants thick long eyelashes.  How many times have you heard someone look at a little boy with long eyelashes and they say &amp;#34;those eyelashes were wasted on a a boy&amp;#34;  now I do not go that far.  I think boys with long eyelashes are very cute.&lt;br /&gt;&lt;br /&gt;As I have gotten older though I have noticed that my eyelashes are getting thinner. I had heard of the prescription medicine that would help grow your lashes but did not want to go to that extreme.  I was thrilled when I was given the opportunity to test this product and give my honest unbiased opinion.&lt;br /&gt;&lt;br /&gt;The product goes on very easily.  It stays on your lashes and does not run.  That has always been my fear of using a product like this.  I wear contacts and have to be careful of what I put on my eyes. This is a a product where you will be getting results for a while.  It is not immediate.  The tube should last a month.&lt;br /&gt;&lt;br /&gt;So far I can say my eyelashes are softer so I can see where they will grow in the long term.&lt;br /&gt;&lt;br /&gt;I would recommend this product in order to make your lashes thicker and longer.</li>
+    <li> I recieved this awesome product for longer fuller lashes for an unbiased opinion, (: When applying mascara my right lashs seem to be always longer than my left and it bugged up. When I saw an opportunity to recieve this i was excited! Within the end of the week of applying the MaxxLash I could tell I slight difference in my left lashes, I only applied to that side so I could tell a difference. It was easy to apply just like applying liquid eyeliner. I&#x27;m excited to see how the next coming weeks my lashes will look like. I did fiber mascara and that was a no no. But this, i have hope for! The packaging is super cute and very easy to handle</li>
+    <li> Due to my zealous over plucking in the nineties. I&#x27;ve been left with the need for thicker brows. I decided to try MaxxLash Growth enhancing Lash + Brow Elixir. Here&#x27;s my take:&lt;br /&gt;*easy to apply&lt;br /&gt;*you can use it on both your eyebrows and eyelashes&lt;br /&gt;*no chemical smell&lt;br /&gt;*no stinging or weird sensation&lt;br /&gt;*no left over residue feeling after application&lt;br /&gt;*great price&lt;br /&gt;&lt;br /&gt;I have been applying this after I wash my face in the morning &amp; evening. It is still early on to tell the full benefits yet. I am excited about the potential effects. I am sticking to this and will update after one months usage. I recommend this for everyone.&lt;br /&gt;&lt;br /&gt;I purchased this elixir at a discount in exchange for my honest unbiased review.</li>
+    <li> It hasn&#x27;t worked for me, my lashes show no difference. I&#x27;ve used it AM &amp; PM as instructed, for going on 2 months now.  It&#x27;s hard to tell if your putting any on as the applicator brush doesn&#x27;t hold much so I&#x27;m sure I probly over applied and still nothing sorry for the bad review but no results at all for me</li>
+    <li> I&#x27;ve used the item as directed, twice daily for several weeks now and there aren&#x27;t any changes. Maybe I am immune to one of the active ingredients, who knows. I am still going to finish my tube to see if there are any changes, but so far nothing.</li>
+    <li> Itsnt to much product in the container,I didn&#x27;t why,.still try....we see</li>
+    <li> So far it hasn&#x27;t worked at all, and it&#x27;s been almost three weeks. I&#x27;ll most likely send it back unless something miraculous happens in the next week or so. It hasn&#x27;t helped my lashes grow at all. I haven&#x27;t noticed any difference. It is, however, easy to apply.</li>
+    <li> Not happy with it at all! I believe my tiube was empty! There was a red gel that came out. The brush was very dry all the time. Would not buy again.</li>
+    <li> As I age, I am finding that I am losing some eyelashes, which was a big surprise to me. I always had very thick lashes, and never had they shed as much as I have lately. So I decided to try this eyelash growth serum on my lashes. I usually apply it once a day, whenever I think about it. It hasn’t caused any irritations for problems so far, and this is great because I have very sensitive skin. I have only been using this product for a few days, so I will have to update in the future, but for the most part, my eyelashes look and feel healthier even after a few days. I don’t need the eyebrow thickening as those seem to be ok so far. Time will tell, but this serum looks very promising to me.&lt;br /&gt;I was given this product at no cost for my honest and unbiased review of it.</li>
+    <li> If something sounds too good to be true...&lt;br /&gt;&lt;br /&gt;I really, really wanted this to work, but nothing. Waste of money.</li>
+    <li> I love this product I have noticed a difference bought other brands didn&#x27;t notice any difference. When you use it for a few months the difference clearly reveals itself.</li>
+    <li> Growth serum for eyelashes. Feels good. No irritation. Excited to see the long term results.</li>
+    <li> I was so excited to try this product at a special Amazon launch price because I&#x27;ve needed this for years. I&#x27;m over 50 and grew up in the 70&#x27;s when it was popular to pluck your eyebrows. If you do that long enough they never really grow back. My eyebrows have been getting thinner and thinner. I&#x27;ve been using eyebrow pencil for the last decade to fill them in the empty spots. I&#x27;ve also lost the volume in my eyelashes so putting mascara on has become more time consuming than it used to be. I&#x27;m using this product morning and night and seeing results in just a week. It comes in a pretty box suitable for gifting with easy instructions. It will take a little practice on the eyelashes, the eyebrows are easy. It has a super thin applicator with clear serum that has no scent. I&#x27;m hoping to someday ditch my eyeliner for good!</li>
+    <li> I have been cursed with my family&#x27;s weenie eyelashes.  They are pathetically short and thin so when I was given the opportunity to purchase these at a reduced cost to test for quality, I was excited.  I will admit, I was skeptical that anything could help these poor lashes.&lt;br /&gt;&lt;br /&gt;I have been using this product for about a week now and I am starting to see some density growth of my eyelashes.  Not a lot yet, but some.  The directions state the product needs to be used twice a day for at least  four weeks to achieve full effect.&lt;br /&gt;&lt;br /&gt;MaxxLash is extremely easy to use.  The brush is tiny and perfect for lining your make up free lash line morning and night.  There is no chemical odor to the product and it does not burn or irritate my eyes.  I wear contacts as well and they are not affected.  That&#x27;s all there is to it.  After it dries in the morning, I apply my eyeliner over it.  Overall, I am very encouraged by the response of my lashes to this product so far and will definitely continue to use it.</li>
+    <li> I don&#x27;t know what I had expected with this product. I see a lot of reviews raving about it, but I also see that all of those reviews are of people who received the product at no cost to them to test. I&#x27;m a product reviewer as well, but I am also a firm believer in really using a product for the required amount of time before giving an HONEST review, and I feel with this product, you cannot get a good enough review unless you use it longer than a week.&lt;br /&gt;&lt;br /&gt;That being said, I purchased this product out of pocket based on the reviews. I have used this twice (sometimes three or four times) a day, every single day, for a month. I purchased it February 25th. Today is March 27th. No change at all in the length of my eyelashes. Thickness is impossible to achieve. You can&#x27;t grow thicker lashes no matter what you do, but it is possible to grow longer ones and this stuff just doesn&#x27;t do it. I actually had better results just using a coconut oil, castor oil, and lavender oil mixture. I feel it was kind of waste of my money, but at least now there will be an HONEST review from a product reviewer who actually purchased the product with their own money and no reimbursement for it.</li>
+    <li> Absolutely horrible. Totally does not work. Should have just spend the money on Latisse.</li>
+    <li> After trying the Eyelash/Eyebrow Serum for two weeks, I can say that I haven&#x27;t had any issues. I have no noticeable growth, but I am noticing that my eyebrows in particular are softer than they were. If I can have less brittle brows (meaning less breakage), I can call that a win.&lt;br /&gt;&lt;br /&gt;There is no noticeable scent with this serum. I completely fill in my brows, then trace along the entire length of my upper and lower lashes a couple of times. I always wait to apply my moisturizer until after I&#x27;ve applied the serum. Once the lash/brow serum has dried, I continue with my routine. Depending on the humidity in the bathroom, I have noticed it might take a little longer to dry on some days than others.&lt;br /&gt;&lt;br /&gt;I received this product in exchange for my inspection and unbiased opinion.</li>
+    <li> Honestly I really don&#x27;t like it.  It seemed like there was not much in the bottle.  Even the first time I used it not much was on the brush.  I don&#x27;t see my brows or eyelashes growing but that might be because there is not much I can put on them.  Not sure if an old bottle but disappointed.</li>
+    <li> I LOVE the chocolate smell in the morning!!</li>
+    <li> After using it for a month, have not noticed any difference in my eyelashes.</li>
+    <li> Works as described to enhance eyelash growth.  Did not irritate my eyes, either.</li>
+    <li> Does what it&#x27;s supposed to do and certainly love the price. It thickened and lengthened my lashes. The only thing these products don&#x27;t do, that I wish they would, is add more lashes. That&#x27;s my issue.; my lashes started thinning out due to a medication causing quick weight loss (nutrition). :-\</li>
+    <li> I don&#x27;t see a difference in my lashes and there seems to very little product in the tube.  I&#x27;ll stick with LiLash.</li>
+    <li> Does not seem to work. Brush very small and it is difficult to get enough of the product in order to moisten the base of your lashes</li>
+    <li> I love this product because it actually works. I&#x27;ve used at least 5 other similar products and this exceeds their performance by far.</li>
+    <li> I&#x27;ve always been curious about using a product like this. I&#x27;ve noticed a slight thickening and plan on continuing to use it to see what will happen after a few more months.</li>
+    <li> I needed this more for my eyebrows than my lashes.  I have really long lashes, but due to a bad waxing experience several years ago, I have a tiny bald spot on my left brow.  Not anymore!  I have been using this for the past month and my bald spot is filling in nicely.  It was awkward while the short hairs were beginning to grow, but with some creative brow shading, the past is over, FINALLY!!  I have also used this on my lash line, and my already thick, long lashes are starting to get thicker and longer.  I have actually had to trim my lashes because my mascara dots my eyelids, terribly, so I think I will stick to using this on my brows.  However, if you have any doubts about this product....don&#x27;t!  It works miracles on brows and lashes.&lt;br /&gt;&lt;br /&gt;It arrived in a box, which is sealed.  I also have some eye sensitivity due to being mildly Type 2 Diabetic, and I have had absolutely NO irritation, whatsoever.  This is wonderful!  I think this product is absolutely amazing, and I am honored to have been chosen to receive this as a sample, in exchange for my honest, unbiased opinion and feedback.  If I could give this more than 5 Stars, I would in a heartbeat!</li>
+    <li> I have horrible light, short eyelashes and I am constantly trying to find mascara or any other product that would help my eyelashes out in any way! I was super excited to be able to get this product at a promotional price and share my honest and unbiased opinion with you! Simonida eyelash growth serum arrives in a beautiful box. This product is really easy to use. You simply apply it from the inner top corner along the lash line to the outer corner. It goes on smooth and easy. There is no smell and no bad side effects of this product. Once it’s on you really can&#x27;t tell that you even put it on! It’s a great product with a 30 day money back guarantee so you have nothing to worry about! The only reason I gave this product 4 stars is because I have not used it long enough to see the full results.</li>
+    <li> I love this Brand !!! I have learned one thing about this company and that is they stand behind their product 100% . This brand does not disappoint !&lt;br /&gt;so when Received an opportunity to review  this Eyelash Growth Serum and Brow enhancer as part of a promotion I Jumped at the chance !! This is one of my favorite brands to review By the way :) !! I Just started using this product so I do not really have any change in my Lashes . you really have to give it a few weeks In my opinion . I will update in a few weeks although I&#x27;m confident this will deliver lol . * I want to add I am not being paid for this review it is solely my opinion !! *  First I want to say I love the packaging its very sleek  . The wand is sturdy and made well and it is easy to apply .the directions are easy to understand and clearly says apply 2 x&#x27;s a day.  I can&#x27;t believe how good this smells !!!! Wow !! another thing im ecstatic about is that This company is in Florida and their products are Made in the USA !! This Eye lash growth serum and brow enhancer is Paraben free! also Cruelty Free !!  woo hoo !!  and with the unconditional 30 day money back guarantee. you really can not loose !!!!!! I am beyond happy and confident that this product is going to be a home run !!!</li>
+    <li> I am very satisfied with my purchase of MaxxLash. Every girl wants long and voluminous lashes. I was chosen to try MaxxLash and give my honest and unbiased opinion.  I have been using MaxxLash for about a week now. There hasn&#x27;t been a drastic change but I can most definitely see a difference.  I can definitely already tell that its working. I will definitely be continuing to use it on my lashes.</li>
+    <li> I have been using this eyelash moisturizer faithfully for 3 weeks !  It makes my eyelashes soft, but no length eyelashes or brows yet!  I am patiently still using product and will keep you posted - if and when I see GROWTH of my EYELASHES and BROWS!!</li>
+    <li> My lashes are light and short, something I have always been frustrated with. My natural hair color is a strawberry blonde so I refuse to leave my house without mascara. I have tried multiple growth serums in the past and nothing really gave me a significant difference. I was able to purchase Maxxlash during a special promotion to try out and am so glad I did!! I have only been using it for a week so my results are not drastic, but I am already seeing wonderful changes. I like that the serum does not have an awful chemical smell like some others I have tried did. It is easy to apply and safe enough to use daily. Make it part of your daily routine, like I did, and you will have no problem remembering to put it on twice daily. I will definitely continue using this product and recommend it.</li>
+    <li> I have damaged my eyelashes over the years, and now they aren&#x27;t their best. I&#x27;ve also have an area on my right eyebrow where there is a scar from an injury in my early childhood. This makes me self conscious because it&#x27;s very noticeable, and hair does not grow very well around it. It&#x27;s a blow to the self esteem really. I&#x27;ve tried hair growth serums before, but no luck with either my eyelashes or my eyebrow. Then came this product. I was given the opportunity to test this product complimentary, and share my experiences and feedback. I feel great, and I look great! You&#x27;re not going to see results the first couple of days you use this product, as with any product. I can assure you after a week of using this, I got results! My eyelashes are longer and fuller. I don&#x27;t look like I had singed them off anymore! The hair is starting to grow in on my right eyebrow, and that is amazing in itself. I can now feel better about myself and my appearance. You apply it twice a day, I do morning and night. The applicator is so easy to use. It&#x27;s so small, but so necessary to reach as close to the roots as it can. I definitely recommend this product to anyone looking to get back those voluptuous, full lashes, or to anyone that has experienced a hair loss in either their eyebrows or eyelashes. Amazing product!</li>
+    <li> Don&#x27;t expect this product to do its job overnight but it WILL work. it doesn&#x27;t cause irritation when you accidently poke yourself in the eye as I tend to do every so often. I loved that it was an irritant. My eyes are very sensitive and swell with a lot of mascaras etc.  I had no problems with this product. If you need to grow the eyelashes purchase this product to help</li>
+    <li> This product is very easy to put on and causes no burning or irritation to the eye and skin area. I haven&#x27;t noticed a huge difference in lashes but I am enjoying the product and seeing small results.  After using  for a longer period will be eager to see if time will tell.</li>
+    <li> I have been using this for one week so far.  It applies smoothly like a liquid eyeliner along the base of your top and bottom eyelashes; the elixir is clear so it can go on well beneath your everyday makeup without being sticky or goopy.  I have not had any irritations, but also have not yet observed a noticeable difference, however, being that it&#x27;s not been that long I will continue to test it and see if results appear.&lt;br /&gt;&lt;br /&gt;*Sample provided for testing and review.  Statements made based on my personal use.</li>
+    <li> I love how this product is easy to apply,  no need to touch up during the day</li>
+    <li> Annoying- gave it a good shot, just tried to return it bc it doesn&#x27;t work at all and I can&#x27;t return it anymore. But I could have returned it yesterday!&lt;br /&gt;This did not work at all. What a scam.</li>
+    <li> I received this eyelash growth serum enhancer for a consumer review and I love it. It is very easy to use. Just brush the serum on to your lower eyelid exactly how you would apply your eyeliner. (for lash use) I do not use it for my brows because they grow fast and thick enough, but I dont think, as a woman, you can ever have eye lashes that are &amp;#34;too long&amp;#34;. You do not have to use the serum twice per day, but I do because that is how you get the best results. The serum comes to you in a 10 ml tube so it will last you at least one month.  It did not cause me any irritation and it does not feel heavy or greasy. The serum comes with a money back guarantee, but before you get your money back make sure that you have given the product 10-14 days to see how great it works. It will make your lashes fuller, longer and thicker. I love that it is made in the USA, too. I will be getting some of this for my teen daughters, sister and sister in law and my girlfriends for Christmas. I think it would also make a great gift for bridesmaids/maid of honor before the big day to really enhance their eyes for all the photos! It is risk free and it works, so give it a try!</li>
+    <li> Disclaimer: I received this wonderful product at a discount in exchnage for my honest review.&lt;br /&gt;&lt;br /&gt;First of all, I want to mention that I was a little skeptical at how this works but I have to admit, IT DOES WORK! I have been blown away at how much my lashes have grown since I started using this. Results weren&#x27;t immediate but after using it for a while, there was a small difference that I, myself, could notice. After using it longer, my friends and family started noticing. It really is amazing!&lt;br /&gt;&lt;br /&gt;The little brush makes it really easy to apply twice a day, as recommended. I just do it as part of my daily makeup routine, it only takes a few seconds! I really love how easy it is and the results it gives. I will definitely be purchasing this again and can honestly recommend it to everyone who wants fuller, longer lashes.</li>
+    <li> MY wife use this Eyelash serum. She said it work.s really great. it hold all day while she is working. She is very happy with the product</li>
+</ol>
+
+
+
+

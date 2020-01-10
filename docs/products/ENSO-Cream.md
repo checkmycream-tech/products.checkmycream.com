@@ -1,0 +1,259 @@
+---
+title: ENSO - Cream,
+description: ENSO - Cream,
+author: Suvojit Manna,
+tags: ENSO - Cream,
+publishedAt: Fri Jan 10 2020 15:01:07 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:01:07 GMT+0530 (India Standard Time),
+---
+
+# [ENSO - Cream](https://products.checkmycream.com/products/ENSO-Cream.html)
+
+### Positive Reviews
+
+<ol>
+      <li>The best part about this moisturizing cream is the way it leaves your skin the longer you use it.</li>
+      <li>This cream is lightweight and perfect for under makeup or alone.</li>
+      <li>Enso is wonderfully understated in scent and application.  </li>
+      <li>This cream feels like it&#x27;s in perfect balance.</li>
+      <li>This moisturizing cream is the best I&#x27;ve ever used.</li>
+      <li>Excellent stuff.</li>
+      <li>So this cream is ideal for</li>
+      <li>, so it’s tricky to find a great organic cream.  </li>
+      <li>and my skin looks and feels great.  </li>
+      <li>For the price, it&#x27;s a great deal.</li>
+      <li>It&#x27;s not just a great moisturizer (my 57-year-old sun-and-chlorine damaged swimmer&#x27;s skin feels like velvet), it&#x27;s healing.</li>
+      <li>My friend gifted me a jar of this cream at the perfect time.  </li>
+      <li>The scent is spectacular!</li>
+      <li>It feels good on my skin.&lt;br /</li>
+      <li>Given the amount provided and the quality of the product, I feel it&#x27;s fairly priced.</li>
+      <li>and they&#x27;re not even as good as this one.  </li>
+      <li>The product is super great!</li>
+      <li>I love it!  </li>
+      <li>In fact my skin now looks better than ever!  </li>
+      <li>and I love it!</li>
+      <li>My skin looks and feels better than ever!</li>
+      <li>I love this cream!  </li>
+      <li>I love this product!  </li>
+      <li>I love it  and encourage everyone to try it!</li>
+      <li>It looks better than it ever has!  </li>
+      <li>and I&#x27;m so glad I made this investment!</li>
+      <li>cream is amazing.</li>
+      <li>It&#x27;s more than a fair price too.</li>
+      <li>It has a light, yet pleasant scent of coco butter.</li>
+      <li>I&#x27;m allergic to so many things, and all the face creams I have tried made me break out.  </li>
+      <li>I love the cocoa butter smell when putting on, but it immediately disipates.</li>
+      <li>more I use this cream,</li>
+      <li>the more I like it.</li>
+      <li>Your skin will love it and you will notice a difference.</li>
+      <li>The longer I use it the more</li>
+      <li>What a delight find a soothing cream that nurtures my skin in such an awesome way!</li>
+      <li>I think she is going to love it.  </li>
+      <li>Don&#x27;t let the words &amp;#34;essential oil&amp;#34; fool you into thinking it&#x27;s oily; it&#x27;s not at all, but very rich and concentrated.&lt;br</li>
+      <li>I love that it&#x27;s organic and doesn&#x27;t have a strong perfume scent.</li>
+      <li>Very smooth, great &amp;#34;cream and run&amp;#34; leaving your face soft and smooth and well moisturized.  </li>
+      <li>so it&#x27;s easy for me to use.&lt;br</li>
+      <li>The product is super smooth and has a light scent of cocoa butter!</li>
+      <li>and I&#x27;ve never found anything I&#x27;ve liked as much.</li>
+      <li>It feels light to me.  </li>
+      <li>I started using Enso cream about 4 months ago, and i&#x27;m excited it&#x27;s now available on amazon.  </li>
+      <li>It glides on easily and absorbs quickly.  </li>
+      <li>I recommend it to everyone but especially people with many allergies and skin sensitivities like me, you will love it and be amazed!</li>
+      <li>me.&lt;br /&gt;It has a rich texture.  </li>
+      <li>special.  </li>
+      <li>Much softer and more hydrated.</li>
+      <li>Love this cream, absorbs really well.  </li>
+      <li>This is a full proof solution.</li>
+      <li>I cannot say enough good things about this product.</li>
+      <li>I also very much like that it&#x27;s scentless as I&#x27;ve never cared for strong colognes or scents</li>
+      <li>Which is one of the many reasons I love Enso Organics Essential Repair Cream.</li>
+      <li>I am very sensitive to smells and this cream is definitely natural with no fragrances added and still smells good.  </li>
+      <li>I don&#x27;t like things that feel oily nor do I like things that feel too light, and as if they evaporate as fast as you put it</li>
+      <li>I tend to slather it on, yet it still feels light and absorbs very well.</li>
+      <li>I love that the ingredients are so natural and organic.  </li>
+      <li>and this one is by far my favorite.  </li>
+      <li>I love this product, my skin is soft and not greasy.</li>
+      <li>It feels fresh</li>
+      <li>It&#x27;s worth it.</li>
+      <li>I love that it is naturally scented.  </li>
+      <li>And what&#x27;s funny is yesterday my daughter said to me out of the blue how good i looked, and i told her i started using this cream, and now she wants some too.</li>
+      <li>Also, my skin tends to break out more than usual when I&#x27;m pregnant, and I want to do all i can to prevent any more stretch marks.  </li>
+      <li>having hydrated skin is another first for me.  </li>
+      <li>We need more products like facial cleanser&#x27;s etc!</li>
+      <li>It feels really smooth and soft going on</li>
+      <li>This is the first one I have tried that didn&#x27;t give me an allergic reaction.  </li>
+      <li>Unlike so many facial creams that tend to be filmy and lay on the skin’s surface,  Enso is silky and soothing.  </li>
+      <li>I use it right after a shower, and it alleviates dry skin better than anything I&#x27;ve ever used.</li>
+      <li>My whole body feels soft and because it absorbs so quickly, I can exercise right after I put it on</li>
+      <li>and when I do get a break out, it&#x27;s less intense, and it heals much more quickly.  </li>
+      <li>Minimalist yet strong as its inspired name suggests, Enso is a terrific organic cream I’ll buy again.  </li>
+      <li>I am in my fifties and  have looked for an effective natural moisturizer for a long time.</li>
+      <li>I am 7 months pregnant and the first thing I want to say is i feel safe using this cream because it uses natural, organic plant based ingredients, and doesn&#x27;t have the harmful chemicals that are so prevalent in other creams.</li>
+      <li>Heard about this product through a friend and decided to give it a try considering how much my friend loves it.  </li>
+      <li>Thanks Enso Organics people.</li>
+      <li>I wanted a moisturizer that was reasonably priced, not sticky, not overly scented, and quenched my thirsty face.  </li>
+      <li>It made me laugh and after four days using it, my skin felt soft, my wrinkles around my eyes are finer, and my skin is tighter.</li>
+      <li>My skin tone has evened out, the texture has improved and, and my skin really is glowing.  </li>
+      <li>Very hydrating but non-greasy.</li>
+      <li>I first tried this cream about 3 months ago, I really didn&#x27;t expect it to be different, in fact I had pretty much given up on my skin, but my mother-in-law encouraged me (somewhat relentlessly) to try it.  </li>
+      <li>No idea how it&#x27;s not more popular on Amazon.</li>
+      <li>In fact my skin feels really nice, and so far no more stretch marks.</li>
+      <li>After living in a dry climate all of my 60 years and not being particularly careful about how I took care of my skin, this amazing product has revitalized and taken years off the age of my skin.  </li>
+      <li>My skin is very sensitive to breakouts and this just never causes that.</li>
+      <li>I&#x27;m sensitive to overly fragranced skin care products (I stopped wearing perfume years ago!)</li>
+      <li>The only scent it has is the miild scent in the jar of what it contains, reminiscent of cocoa butter and aloe vera gel (two of its main ingredients), and even that quickly dissipates on the skin.</li>
+      <li>and I decided to give this natural cream a try--WOW!</li>
+      <li>Deep forehead furrows and those Bassett hound things around the mouth were softer and less noticeable after just a few weeks of lightly applying this cream day and night, but some nights I didn&#x27;t even need to use more.</li>
+      <li>I often get comments on how soft my hands are (age 51).  </li>
+      <li>I also use this on my 20 month old baby.</li>
+      <li>I had roseca for some time and this cream completely cured it.</li>
+      <li>My skin is actually soft, and looks hydrated.  </li>
+      <li>So far so good, my skin is clearer than ever, and that tight, dry, slightly itchy feeling I got across my belly during my last pregnancy isn&#x27;t there.  </li>
+      <li>It left my skin so soft.</li>
+      <li>Love the subtle scent of cocoa!</li>
+      <li>I also broke out like a teenager after three days of use and developed a large dry spot that took five days of my previous lotion to clear up.  </li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> The best part about this moisturizing cream is the way it leaves your skin the longer you use it.</li>
+<li> This cream is lightweight and perfect for under makeup or alone.</li>
+<li> Enso is wonderfully understated in scent and application.  </li>
+<li> This cream feels like it&#x27;s in perfect balance.</li>
+<li> This moisturizing cream is the best I&#x27;ve ever used.</li>
+<li> Excellent stuff.</li>
+<li> So this cream is ideal for</li>
+<li> , so it’s tricky to find a great organic cream.  </li>
+<li> and my skin looks and feels great.  </li>
+<li> For the price, it&#x27;s a great deal.</li>
+<li> It&#x27;s not just a great moisturizer (my 57-year-old sun-and-chlorine damaged swimmer&#x27;s skin feels like velvet), it&#x27;s healing.</li>
+<li> My friend gifted me a jar of this cream at the perfect time.  </li>
+<li> The scent is spectacular!</li>
+<li> It feels good on my skin.&lt;br /</li>
+<li> Given the amount provided and the quality of the product, I feel it&#x27;s fairly priced.</li>
+<li> and they&#x27;re not even as good as this one.  </li>
+<li> The product is super great!</li>
+<li> I love it!  </li>
+<li> In fact my skin now looks better than ever!  </li>
+<li> and I love it!</li>
+<li> My skin looks and feels better than ever!</li>
+<li> I love this cream!  </li>
+<li> I love this product!  </li>
+<li> I love it  and encourage everyone to try it!</li>
+<li> It looks better than it ever has!  </li>
+<li> and I&#x27;m so glad I made this investment!</li>
+<li> cream is amazing.</li>
+<li> It&#x27;s more than a fair price too.</li>
+<li> It has a light, yet pleasant scent of coco butter.</li>
+<li> I&#x27;m allergic to so many things, and all the face creams I have tried made me break out.  </li>
+<li> I love the cocoa butter smell when putting on, but it immediately disipates.</li>
+<li> more I use this cream,</li>
+<li> the more I like it.</li>
+<li> Your skin will love it and you will notice a difference.</li>
+<li> The longer I use it the more</li>
+<li> What a delight find a soothing cream that nurtures my skin in such an awesome way!</li>
+<li> I think she is going to love it.  </li>
+<li> Don&#x27;t let the words &amp;#34;essential oil&amp;#34; fool you into thinking it&#x27;s oily; it&#x27;s not at all, but very rich and concentrated.&lt;br</li>
+<li> I love that it&#x27;s organic and doesn&#x27;t have a strong perfume scent.</li>
+<li> Very smooth, great &amp;#34;cream and run&amp;#34; leaving your face soft and smooth and well moisturized.  </li>
+<li> so it&#x27;s easy for me to use.&lt;br</li>
+<li> The product is super smooth and has a light scent of cocoa butter!</li>
+<li> and I&#x27;ve never found anything I&#x27;ve liked as much.</li>
+<li> It feels light to me.  </li>
+<li> I started using Enso cream about 4 months ago, and i&#x27;m excited it&#x27;s now available on amazon.  </li>
+<li> It glides on easily and absorbs quickly.  </li>
+<li> I recommend it to everyone but especially people with many allergies and skin sensitivities like me, you will love it and be amazed!</li>
+<li> me.&lt;br /&gt;It has a rich texture.  </li>
+<li> special.  </li>
+<li> Much softer and more hydrated.</li>
+<li> Love this cream, absorbs really well.  </li>
+<li> This is a full proof solution.</li>
+<li> I cannot say enough good things about this product.</li>
+<li> I also very much like that it&#x27;s scentless as I&#x27;ve never cared for strong colognes or scents</li>
+<li> Which is one of the many reasons I love Enso Organics Essential Repair Cream.</li>
+<li> I am very sensitive to smells and this cream is definitely natural with no fragrances added and still smells good.  </li>
+<li> I don&#x27;t like things that feel oily nor do I like things that feel too light, and as if they evaporate as fast as you put it</li>
+<li> I tend to slather it on, yet it still feels light and absorbs very well.</li>
+<li> I love that the ingredients are so natural and organic.  </li>
+<li> and this one is by far my favorite.  </li>
+<li> I love this product, my skin is soft and not greasy.</li>
+<li> It feels fresh</li>
+<li> It&#x27;s worth it.</li>
+<li> I love that it is naturally scented.  </li>
+<li> And what&#x27;s funny is yesterday my daughter said to me out of the blue how good i looked, and i told her i started using this cream, and now she wants some too.</li>
+<li> Also, my skin tends to break out more than usual when I&#x27;m pregnant, and I want to do all i can to prevent any more stretch marks.  </li>
+<li> having hydrated skin is another first for me.  </li>
+<li> We need more products like facial cleanser&#x27;s etc!</li>
+<li> It feels really smooth and soft going on</li>
+<li> This is the first one I have tried that didn&#x27;t give me an allergic reaction.  </li>
+<li> Unlike so many facial creams that tend to be filmy and lay on the skin’s surface,  Enso is silky and soothing.  </li>
+<li> I use it right after a shower, and it alleviates dry skin better than anything I&#x27;ve ever used.</li>
+<li> My whole body feels soft and because it absorbs so quickly, I can exercise right after I put it on</li>
+<li> and when I do get a break out, it&#x27;s less intense, and it heals much more quickly.  </li>
+<li> Minimalist yet strong as its inspired name suggests, Enso is a terrific organic cream I’ll buy again.  </li>
+<li> I am in my fifties and  have looked for an effective natural moisturizer for a long time.</li>
+<li> I am 7 months pregnant and the first thing I want to say is i feel safe using this cream because it uses natural, organic plant based ingredients, and doesn&#x27;t have the harmful chemicals that are so prevalent in other creams.</li>
+<li> Heard about this product through a friend and decided to give it a try considering how much my friend loves it.  </li>
+<li> Thanks Enso Organics people.</li>
+<li> I wanted a moisturizer that was reasonably priced, not sticky, not overly scented, and quenched my thirsty face.  </li>
+<li> It made me laugh and after four days using it, my skin felt soft, my wrinkles around my eyes are finer, and my skin is tighter.</li>
+<li> My skin tone has evened out, the texture has improved and, and my skin really is glowing.  </li>
+<li> Very hydrating but non-greasy.</li>
+<li> I first tried this cream about 3 months ago, I really didn&#x27;t expect it to be different, in fact I had pretty much given up on my skin, but my mother-in-law encouraged me (somewhat relentlessly) to try it.  </li>
+<li> No idea how it&#x27;s not more popular on Amazon.</li>
+<li> In fact my skin feels really nice, and so far no more stretch marks.</li>
+<li> After living in a dry climate all of my 60 years and not being particularly careful about how I took care of my skin, this amazing product has revitalized and taken years off the age of my skin.  </li>
+<li> My skin is very sensitive to breakouts and this just never causes that.</li>
+<li> I&#x27;m sensitive to overly fragranced skin care products (I stopped wearing perfume years ago!)</li>
+<li> The only scent it has is the miild scent in the jar of what it contains, reminiscent of cocoa butter and aloe vera gel (two of its main ingredients), and even that quickly dissipates on the skin.</li>
+<li> and I decided to give this natural cream a try--WOW!</li>
+<li> Deep forehead furrows and those Bassett hound things around the mouth were softer and less noticeable after just a few weeks of lightly applying this cream day and night, but some nights I didn&#x27;t even need to use more.</li>
+<li> I often get comments on how soft my hands are (age 51).  </li>
+<li> I also use this on my 20 month old baby.</li>
+<li> I had roseca for some time and this cream completely cured it.</li>
+<li> My skin is actually soft, and looks hydrated.  </li>
+<li> So far so good, my skin is clearer than ever, and that tight, dry, slightly itchy feeling I got across my belly during my last pregnancy isn&#x27;t there.  </li>
+<li> It left my skin so soft.</li>
+<li> Love the subtle scent of cocoa!</li>
+<li> I also broke out like a teenager after three days of use and developed a large dry spot that took five days of my previous lotion to clear up.  </li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> I&#x27;m sensitive to overly fragranced skin care products (I stopped wearing perfume years ago!), so it’s tricky to find a great organic cream.  Enso is wonderfully understated in scent and application.  Unlike so many facial creams that tend to be filmy and lay on the skin’s surface,  Enso is silky and soothing.  Minimalist yet strong as its inspired name suggests, Enso is a terrific organic cream I’ll buy again.  </li>
+    <li> The product is super great! It can be used for your face and body. The scent is spectacular! We need more products like facial cleanser&#x27;s etc!</li>
+    <li> It has a terrible bad smell to it like food that&#x27;s gone bad.  Need to return it.  Terrible</li>
+    <li> I&#x27;m a canary; if there&#x27;s a strong fragrance or undesirable odor nearby, even if it&#x27;s &amp;#34;natural,&amp;#34; I can become nauseated, headachy, even asthmatic. Which is one of the many reasons I love Enso Organics Essential Repair Cream. The only scent it has is the miild scent in the jar of what it contains, reminiscent of cocoa butter and aloe vera gel (two of its main ingredients), and even that quickly dissipates on the skin. No symptoms, no sensitivity, no gross-out.&lt;br /&gt;&lt;br /&gt;And my skin just loves this stuff! It&#x27;s not just a great moisturizer (my 57-year-old sun-and-chlorine damaged swimmer&#x27;s skin feels like velvet), it&#x27;s healing. I&#x27;m seeing old recurring blemishes shrink and close up; even some red marks and scars caused from sensitivity to medical patches are disappearing. Deep forehead furrows and those Bassett hound things around the mouth were softer and less noticeable after just a few weeks of lightly applying this cream day and night, but some nights I didn&#x27;t even need to use more. Don&#x27;t let the words &amp;#34;essential oil&amp;#34; fool you into thinking it&#x27;s oily; it&#x27;s not at all, but very rich and concentrated.&lt;br /&gt;&lt;br /&gt;The more I use this cream, the more I like it. I&#x27;m on my second jar. Whatever you guys sell in the future, I&#x27;ll be buying.</li>
+    <li> I have really dry, really sensitive skin!  I have tried all kinds of moisturizers from very expensive brands to natural health store brands, prescriptions, you name it, and either I have an immediate reaction where my skins get bright red and itchy, I break out, or the creams aren&#x27;t thick enough to moisturize my skin.&lt;br /&gt;&lt;br /&gt;When I first tried this cream about 3 months ago, I really didn&#x27;t expect it to be different, in fact I had pretty much given up on my skin, but my mother-in-law encouraged me (somewhat relentlessly) to try it.  Well, I can&#x27;t believe the difference in my skin!  It looks better than it ever has!  It breaks out way, way less and when I do get a break out, it&#x27;s less intense, and it heals much more quickly.  My skin is actually soft, and looks hydrated.  I live in a dry climate, so having hydrated skin is another first for me.  I originally only used it on my face, but now I can&#x27;t resist using it everywhere.  My whole body feels soft and because it absorbs so quickly, I can exercise right after I put it on and it doesn&#x27;t sweat off.  I cannot say enough good things about this product. I love it  and encourage everyone to try it!</li>
+    <li> Heard about this product through a friend and decided to give it a try considering how much my friend loves it.  I was surprised at how well the product moisturized and that it didn&#x27;t have such a strong odor as other products that I have used in the past. The best part about this moisturizing cream is the way it leaves your skin the longer you use it. Much softer and more hydrated. Your skin will love it and you will notice a difference. Just gotta give it a try!!</li>
+    <li> After living in a dry climate all of my 60 years and not being particularly careful about how I took care of my skin, this amazing product has revitalized and taken years off the age of my skin.  I also very much like that it&#x27;s scentless as I&#x27;ve never cared for strong colognes or scents so it&#x27;s easy for me to use.&lt;br /&gt;You&#x27;ll be doing yourself and your skin a favor by using this.&lt;br /&gt;Doug H</li>
+    <li> I had roseca for some time and this cream completely cured it. I use it right after a shower, and it alleviates dry skin better than anything I&#x27;ve ever used.</li>
+    <li> I live in a dry, desert climate and my skin suffers from it. After buying this however, I&#x27;ve yet to have a problem with dry skin and I&#x27;m so glad I made this investment! Seriously, check it out. It&#x27;s worth it.</li>
+    <li> I am in my fifties and  have looked for an effective natural moisturizer for a long time. I have been using Enso Organics for approximately 3 weeks and have seen a dramatic decrease in the lines between my eyes and around my mouth. I tend to slather it on, yet it still feels light and absorbs very well. It has a light, yet pleasant scent of coco butter. Given the amount provided and the quality of the product, I feel it&#x27;s fairly priced. I will definitely continue using it.</li>
+    <li> I&#x27;ve tried a lot of different moisturizers for my hands and face to help with dry skin.  I work with people in a hands on health profession and wash my hands a lot and this one is by far my favorite.  I often get comments on how soft my hands are (age 51).  I love that it&#x27;s organic and doesn&#x27;t have a strong perfume scent.</li>
+    <li> I&#x27;m allergic to so many things, and all the face creams I have tried made me break out.  This is the first one I have tried that didn&#x27;t give me an allergic reaction.  I love it!  It feels really smooth and soft going on and my skin looks and feels great.  In fact my skin now looks better than ever!  The longer I use it the more I notice how healing it is.  My skin tone has evened out, the texture has improved and, and my skin really is glowing.  I recommend it to everyone but especially people with many allergies and skin sensitivities like me, you will love it and be amazed!</li>
+    <li> My skin 8s softer the and smootg</li>
+    <li> The product is super smooth and has a light scent of cocoa butter! I use it on my face! It feels fresh and I love it!</li>
+    <li> Not only does it smell awful, it burns both skin and eyes.  I also broke out like a teenager after three days of use and developed a large dry spot that took five days of my previous lotion to clear up.  I don&#x27;t believe that this product has any benefit to human skin.</li>
+    <li> I wanted a moisturizer that was reasonably priced, not sticky, not overly scented, and quenched my thirsty face.  This cream met all of my requirements.  I&#x27;ve noticed my skin continues to improve as I use it.  I&#x27;ve found my go-to face moisturizer.</li>
+    <li> It left my skin so soft. I have dry, and sensitive skin and have used it for a week now.&lt;br /&gt;I would definitely purchase again.</li>
+    <li> This cream is lightweight and perfect for under makeup or alone. Very hydrating but non-greasy. Love the subtle scent of cocoa! I would recommend this for all skin types.</li>
+    <li> I started using Enso cream about 4 months ago, and i&#x27;m excited it&#x27;s now available on amazon.  I am 7 months pregnant and the first thing I want to say is i feel safe using this cream because it uses natural, organic plant based ingredients, and doesn&#x27;t have the harmful chemicals that are so prevalent in other creams. Also, my skin tends to break out more than usual when I&#x27;m pregnant, and I want to do all i can to prevent any more stretch marks.  So far so good, my skin is clearer than ever, and that tight, dry, slightly itchy feeling I got across my belly during my last pregnancy isn&#x27;t there.  In fact my skin feels really nice, and so far no more stretch marks. Woohoo!</li>
+    <li> I love that it is naturally scented.  I don&#x27;t like products with artificial scents, they often give me a headache.  So this cream is ideal for me.&lt;br /&gt;It has a rich texture.  Nothing artificial. It feels good on my skin.&lt;br /&gt; I recommend it.</li>
+    <li> I have really dry skin and I decided to give this natural cream a try--WOW! What a delight find a soothing cream that nurtures my skin in such an awesome way! By having no scent, it doesn&#x27;t infere with my perfume (which I like). I&#x27;ve used this moisturizer for several weeks now and this is truly a five star product!</li>
+    <li> My friend gifted me a jar of this cream at the perfect time.  I was almost out of my Clinique Dramatically Different Moisturizing lotion and I was wondering what I would use for the two months until Clinique ran their &amp;#34;gift with a purchase&amp;#34; special.  I love this product!  No more Clinique lotion for me!  This cream is heavy enough to moisturize but doesn&#x27;t feel greasy at all.  It feels light to me.  I like that it has a very subtle scent (almost like chocolate) that doesn&#x27;t conflict at all with my perfume.  Considering the quality of this cream, the price is inexpensive.  I know because I&#x27;ve tried the more expensive creams and they&#x27;re not even as good as this one.  I am now paying it forward by buying a jar of this and giving it to another friend who is the ultimate connoisseur of skin care products.  I think she is going to love it.  Stay tuned for her review...</li>
+    <li> I love this product, my skin is soft and not greasy.</li>
+    <li> This cream was recommended to me by a friend. But she sounded dead serious about her recommendation, so I ordered two. This cream feels like it&#x27;s in perfect balance. I don&#x27;t like things that feel oily nor do I like things that feel too light, and as if they evaporate as fast as you put it on.&lt;br /&gt;&lt;br /&gt;This cream is amazing. It quietly feels like it wakes up my face. My skin is softer. It made me laugh and after four days using it, my skin felt soft, my wrinkles around my eyes are finer, and my skin is tighter. Go figure.&lt;br /&gt;&lt;br /&gt;This company has it going on. No compromise. No kidding. I never write reviews. I can&#x27;t be bothered. This got my attention. Get it. It&#x27;s more than a fair price too. And it lasts and goes a long way with a little. Thanks Enso Organics people.</li>
+    <li> Very smooth, great &amp;#34;cream and run&amp;#34; leaving your face soft and smooth and well moisturized.  I love the cocoa butter smell when putting on, but it immediately disipates.</li>
+    <li> Love this cream, absorbs really well.  I also use this on my 20 month old baby.</li>
+    <li> This moisturizing cream is the best I&#x27;ve ever used. I&#x27;ve tried several other high end facial moisturizers that I&#x27;ve purchased everywhere from Neiman-Marcus to Nordstrom and I&#x27;ve never found anything I&#x27;ve liked as much. The distinguishing characteristic is that it moisturizes and absorbs immediately but leaves no oily feeling nor does it make your skin shiny. My skin is very sensitive to breakouts and this just never causes that. Excellent stuff.</li>
+    <li> Living in Salt Lake, the dry air gets to me. This is a full proof solution. I&#x27;d recommend this to anyone. No idea how it&#x27;s not more popular on Amazon. For the price, it&#x27;s a great deal.</li>
+    <li> I love this cream!  I use it on my face and my body.  It glides on easily and absorbs quickly.  I am very sensitive to smells and this cream is definitely natural with no fragrances added and still smells good.  It even made my cold sore go away quickly probably because of the Manuka Honey that&#x27;s in it.  I love that the ingredients are so natural and organic.  My skin looks and feels better than ever!</li>
+    <li> I have just started using this product and already I can see and feel a difference in my skin.  It says on the label that it nourishes the skin, and that&#x27;s what it feels like. Like it&#x27;s giving my skin what it needs to thrive.  And what&#x27;s funny is yesterday my daughter said to me out of the blue how good i looked, and i told her i started using this cream, and now she wants some too.</li>
+</ol>
+
+
+
+

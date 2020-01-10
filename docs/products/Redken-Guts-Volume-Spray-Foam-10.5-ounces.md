@@ -1,0 +1,114 @@
+---
+title: Redken Guts Volume Spray Foam 10.5 ounces,
+description: Redken Guts Volume Spray Foam 10.5 ounces,
+author: Suvojit Manna,
+tags: Redken Guts Volume Spray Foam 10.5 ounces,
+publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
+---
+
+# [Redken Guts Volume Spray Foam 10.5 ounces](https://products.checkmycream.com/products/Redken-Guts-Volume-Spray-Foam-10.5-ounces.html)
+
+### Positive Reviews
+
+<ol>
+      <li>Great delivery!!</li>
+      <li>Very good price.  </li>
+      <li>This gives great volume with no stickiness.  </li>
+      <li>Great product.  </li>
+      <li>Works &amp;#34;ok&amp;#34; but nothing great.  </li>
+      <li>Amazing!</li>
+      <li>I have always loved this product.</li>
+      <li>Great for the roots of fine fair.</li>
+      <li>Still a good product but was better before.</li>
+      <li>Love this product.</li>
+      <li>Love love love guts 10.  </li>
+      <li>and I love it.</li>
+      <li>I love how easy this is to apply and helps maintain my style without frizz throughout the day.  </li>
+      <li>I like it just fine.  </li>
+      <li>Great product for short hair.  </li>
+      <li>Good hold, not heavy or sticky.</li>
+      <li>and I got it right away!  </li>
+      <li>It leaves my blown-dry hair full and bouncy.  </li>
+      <li>Really like this because it&#x27;s light weight but works for my fine hair.</li>
+      <li>However, a quick finger brush takes care of that</li>
+      <li>Have tried many hair products and keep going back to this one...excellent product!</li>
+      <li>Had tape over the top so it wouldn&#x27;t spray and had double packaging to protect can....</li>
+      <li>I have short textured hair and this product is fabulous for volume!</li>
+      <li>Fast delivery.</li>
+      <li>My hair feels healthy and has a natural feel to it instead of some volume products that leave your hair too stiff and sticky.  </li>
+      <li>Glad I bought small size.</li>
+      <li>Gives my short hair so much body and volume</li>
+      <li>It poofs up my thin hair nicely.</li>
+      <li>I could swear it&#x27;s not the same as my old Guts.</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> Great delivery!!</li>
+<li> Very good price.  </li>
+<li> This gives great volume with no stickiness.  </li>
+<li> Great product.  </li>
+<li> Works &amp;#34;ok&amp;#34; but nothing great.  </li>
+<li> Amazing!</li>
+<li> I have always loved this product.</li>
+<li> Great for the roots of fine fair.</li>
+<li> Still a good product but was better before.</li>
+<li> Love this product.</li>
+<li> Love love love guts 10.  </li>
+<li> and I love it.</li>
+<li> I love how easy this is to apply and helps maintain my style without frizz throughout the day.  </li>
+<li> I like it just fine.  </li>
+<li> Great product for short hair.  </li>
+<li> Good hold, not heavy or sticky.</li>
+<li> and I got it right away!  </li>
+<li> It leaves my blown-dry hair full and bouncy.  </li>
+<li> Really like this because it&#x27;s light weight but works for my fine hair.</li>
+<li> However, a quick finger brush takes care of that</li>
+<li> Have tried many hair products and keep going back to this one...excellent product!</li>
+<li> Had tape over the top so it wouldn&#x27;t spray and had double packaging to protect can....</li>
+<li> I have short textured hair and this product is fabulous for volume!</li>
+<li> Fast delivery.</li>
+<li> My hair feels healthy and has a natural feel to it instead of some volume products that leave your hair too stiff and sticky.  </li>
+<li> Glad I bought small size.</li>
+<li> Gives my short hair so much body and volume</li>
+<li> It poofs up my thin hair nicely.</li>
+<li> I could swear it&#x27;s not the same as my old Guts.</li>
+<li> I put it on with damp hair and dry it.</li>
+<li> Does not really help add volume toy roots in the way I thought it would.</li>
+<li> I don&#x27;t use any other product than this one.</li>
+<li> Sometimes I don&#x27;t use a hair dryer and it can get slightly clumpy.  </li>
+<li> , This was not nearly as good</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> Great product for short hair.  Very good price.  Fast delivery.</li>
+    <li> I have short textured hair and this product is fabulous for volume! I put it on with damp hair and dry it. I don&#x27;t use any other product than this one. Amazing!</li>
+    <li> Have tried many hair products and keep going back to this one...excellent product!</li>
+    <li> I&#x27;ve been using guts for years and will never be out of stock.  It leaves my blown-dry hair full and bouncy.  It also helps my brush glide through my hair while blow drying.  Word of warning, though:  This is NOT to be applied like a mousse.  It&#x27;s for ROOT application only. Section your hair and apply to the roots where you want fullness.  If you apply it through your hair, your hair may feel oily.</li>
+    <li> Eh.  Works &amp;#34;ok&amp;#34; but nothing great.  Glad I bought small size.</li>
+    <li> Guts I all I use on my hair.  I like it just fine.  Gives my hair volume which I need.</li>
+    <li> Use this almost every day.</li>
+    <li> Great product.  Will buy again from same seller.</li>
+    <li> Great delivery!! Had tape over the top so it wouldn&#x27;t spray and had double packaging to protect can....and I got it right away!  Saved me a nightmare stop at Walmart over the holidays...</li>
+    <li> Did not work well. Have used a Matrix product for years that is no longer being made., This was not nearly as good</li>
+    <li> I have used it for years and I love it. Good hold, not heavy or sticky.</li>
+    <li> I think they changed the formula when they changed the bottle. Still a good product but was better before.</li>
+    <li> Great for the roots of fine fair. Gives me lots of body without being sticky.</li>
+    <li> I love how easy this is to apply and helps maintain my style without frizz throughout the day.  Sometimes I don&#x27;t use a hair dryer and it can get slightly clumpy.  However, a quick finger brush takes care of that and I&#x27;m back in business.</li>
+    <li> Love love love guts 10.  Gives my short hair so much body and volume</li>
+    <li> I have always loved this product. Works extrememly well.</li>
+    <li> Really like this because it&#x27;s light weight but works for my fine hair.</li>
+    <li> I have used Guts 10 for years.  They changed the can and my opinion is--the formula.  I could swear it&#x27;s not the same as my old Guts.</li>
+    <li> This gives great volume with no stickiness.  My hair feels healthy and has a natural feel to it instead of some volume products that leave your hair too stiff and sticky.  Will definitely buy again.</li>
+    <li> Love this product. Gives my hair the lift it needs!</li>
+    <li> I like that it&#x27;s root-directed, that is, not sprayed in the hand to rub over the hair.  It poofs up my thin hair nicely.</li>
+    <li> Does not really help add volume toy roots in the way I thought it would.</li>
+</ol>
+
+
+
+

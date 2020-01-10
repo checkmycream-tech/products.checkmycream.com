@@ -1,0 +1,114 @@
+---
+title: CoverGirl Outlast All Day Two Step Lipcolor, Spiced Latte 577, 0.13 Ounce,
+description: CoverGirl Outlast All Day Two Step Lipcolor, Spiced Latte 577, 0.13 Ounce,
+author: Suvojit Manna,
+tags: CoverGirl Outlast All Day Two Step Lipcolor, Spiced Latte 577, 0.13 Ounce,
+publishedAt: Fri Jan 10 2020 14:59:32 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:59:32 GMT+0530 (India Standard Time),
+---
+
+# [CoverGirl Outlast All Day Two Step Lipcolor, Spiced Latte 577, 0.13 Ounce](https://products.checkmycream.com/products/CoverGirl-Outlast-All-Day-Two-Step-Lipcolor-Spiced-Latte-577-0.13-Ounce.html)
+
+### Positive Reviews
+
+<ol>
+      <li>Best Price!</li>
+      <li>Best color ever!</li>
+      <li>Great product, which is probably why it&#x27;s always on backorder!</li>
+      <li>Excellent Transaction--Great Product--Fast Shipping--</li>
+      <li>This is a great shade for almost any person.</li>
+      <li>and it is a great product</li>
+      <li>Great color.</li>
+      <li>Like a nude to a brown and great to have and 24 hours staying power....</li>
+      <li>and it&#x27;s great to get</li>
+      <li>Great color too.</li>
+      <li>Good staying power.</li>
+      <li>I have a fair complexion and I get compliments on the shade weekly.</li>
+      <li>Love it!</li>
+      <li>Love it and good value</li>
+      <li>But love the lipstick brand differently a good brand.</li>
+      <li>love it thank you</li>
+      <li>Love it The reason I give a 4 star</li>
+      <li>This is my favorite line.</li>
+      <li>I love makeup that I put on once</li>
+      <li>glad to find this product as I use it all the time</li>
+      <li>I thought this would be cute,</li>
+      <li>Love how it&#x27;s applied, love how it stays on for hours.  </li>
+      <li>I love Outlast Lipcolor, and wish they came in more&lt;</li>
+      <li>Its easy to apply, and stays on all day.</li>
+      <li>Love the color and you really can go all day without applying again but</li>
+      <li>Not bad just dont think its my color.</li>
+      <li>but it leaves your lip&#x27;s dry.... unless u reply the top coat!  </li>
+      <li>it&#x27;s really 90&#x27;s looking.</li>
+      <li>I like to purchase these on Amazon as they often have unusual discontinued colors and the prices lower than the drug stores.</li>
+      <li>It does stay on for a long time but you have to keep using the clear quite often.</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> Best Price!</li>
+<li> Best color ever!</li>
+<li> Great product, which is probably why it&#x27;s always on backorder!</li>
+<li> Excellent Transaction--Great Product--Fast Shipping--</li>
+<li> This is a great shade for almost any person.</li>
+<li> and it is a great product</li>
+<li> Great color.</li>
+<li> Like a nude to a brown and great to have and 24 hours staying power....</li>
+<li> and it&#x27;s great to get</li>
+<li> Great color too.</li>
+<li> Good staying power.</li>
+<li> I have a fair complexion and I get compliments on the shade weekly.</li>
+<li> Love it!</li>
+<li> Love it and good value</li>
+<li> But love the lipstick brand differently a good brand.</li>
+<li> love it thank you</li>
+<li> Love it The reason I give a 4 star</li>
+<li> This is my favorite line.</li>
+<li> I love makeup that I put on once</li>
+<li> glad to find this product as I use it all the time</li>
+<li> I thought this would be cute,</li>
+<li> Love how it&#x27;s applied, love how it stays on for hours.  </li>
+<li> I love Outlast Lipcolor, and wish they came in more&lt;</li>
+<li> Its easy to apply, and stays on all day.</li>
+<li> Love the color and you really can go all day without applying again but</li>
+<li> Not bad just dont think its my color.</li>
+<li> but it leaves your lip&#x27;s dry.... unless u reply the top coat!  </li>
+<li> it&#x27;s really 90&#x27;s looking.</li>
+<li> I like to purchase these on Amazon as they often have unusual discontinued colors and the prices lower than the drug stores.</li>
+<li> It does stay on for a long time but you have to keep using the clear quite often.</li>
+<li> I can&#x27;t imagine reapplying lipstick all day long and having it smear all over everything and ruin clothing.</li>
+<li> it makes your lips very dry.</li>
+<li> This is my standard lipstick I use everyday.</li>
+<li> This one is fairly dark and more&lt;br /&gt;of</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> I only apply in the morning and it lasts all day!</li>
+    <li> This is a great shade for almost any person. I use it as my daily work color. I work in the medical field and have to keep my color options neutral. Its easy to apply, and stays on all day. If I eat something greasy, I do have to re-apply. I purchase this shade all the time. Its one of my favorites.</li>
+    <li> Love the color and you really can go all day without applying again but sometimes after you eat if you wipe your mouth it might start coming off so you would re-apply then.</li>
+    <li> glad to find this product as I use it all the time and it is a great product</li>
+    <li> Great color. Good staying power.</li>
+    <li> Love it The reason I give a 4 star I wanted the color 2 be darker</li>
+    <li> This is my standard lipstick I use everyday. It lasts all day and I&#x27;ve used it for over ten years. I can&#x27;t imagine reapplying lipstick all day long and having it smear all over everything and ruin clothing. This is my favorite line. I like to purchase these on Amazon as they often have unusual discontinued colors and the prices lower than the drug stores.</li>
+    <li> Love it and good value</li>
+    <li> Excellent Transaction--Great Product--Fast Shipping--A+A+A+</li>
+    <li> I love Outlast Lipcolor, and wish they came in more&lt;br /&gt;brownish shades.  This one is fairly dark and more&lt;br /&gt;of an evening look.  I have a lighter one that I use&lt;br /&gt;for day.  Hope they come up with one that is more&lt;br /&gt;of a rusty tint.</li>
+    <li> Not bad just dont think its my color. But love the lipstick brand differently a good brand.</li>
+    <li> Love how it&#x27;s applied, love how it stays on for hours.  Great product, which is probably why it&#x27;s always on backorder!</li>
+    <li> I love makeup that I put on once and it stays! This brand stays on well. The darker the tint the longer it stays.</li>
+    <li> it makes your lips very dry. It does stay on for a long time but you have to keep using the clear quite often. would i buy again ??? yes</li>
+    <li> love it thank you and it last all day .</li>
+    <li> Stays on all day just like it says it will. Great color too. Love it!</li>
+    <li> I like this color and it&#x27;s great to get but it leaves your lip&#x27;s dry.... unless u reply the top coat!  Like a nude to a brown and great to have and 24 hours staying power....</li>
+    <li> Wears almost all day.</li>
+    <li> I thought this would be cute, bit it&#x27;s really 90&#x27;s looking. I guess if you&#x27;re going for that, yay.</li>
+    <li> I Don&#x27;t like the lipstick</li>
+    <li> Best color ever! Best Price! Truly lasts all day. I have a fair complexion and I get compliments on the shade weekly.</li>
+</ol>
+
+
+
+

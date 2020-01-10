@@ -3,8 +3,8 @@ title: Panasonic ER-GN30-K Nose, Ear n Facial Hair Trimmer Wet/Dry with Vortex C
 description: Panasonic ER-GN30-K Nose, Ear n Facial Hair Trimmer Wet/Dry with Vortex Cleaning System,
 author: Suvojit Manna,
 tags: Panasonic ER-GN30-K Nose, Ear n Facial Hair Trimmer Wet/Dry with Vortex Cleaning System,
-publishedAt: Thu Jan 09 2020 19:08:32 GMT+0530 (India Standard Time),
-modifiedAt: Thu Jan 09 2020 19:08:32 GMT+0530 (India Standard Time),
+publishedAt: Fri Jan 10 2020 14:59:59 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:59:59 GMT+0530 (India Standard Time),
 ---
 
 # [Panasonic ER-GN30-K Nose, Ear n Facial Hair Trimmer Wet/Dry with Vortex Cleaning System](https://products.checkmycream.com/products/Panasonic-ER-GN30-K-Nose-Ear-n-Facial-Hair-Trimmer-WetDry-with-Vortex-Cleaning-System.html)
@@ -12,211 +12,211 @@ modifiedAt: Thu Jan 09 2020 19:08:32 GMT+0530 (India Standard Time),
 ### Positive Reviews
 
 <ol>
+      <li>Still one of my best purchases.  </li>
+      <li>My hubby says it&#x27;s the best one he&#x27;s had!</li>
+      <li>this is 1 of the Best ones,&lt;br /&gt;but</li>
+      <li>Best buy I&#x27;ve ever made for grooming.</li>
+      <li>Says it&#x27;s the best one he&#x27;s ever used.</li>
+      <li>It is the best trimmer I have every purchased.  </li>
+      <li>We&#x27;ve been without a nose hair in your hair trimmer and this one is the best we&#x27;ve ever had I like</li>
+      <li>GREAT purchase!</li>
+      <li>Woks perfectly.</li>
       <li>This is a perfect trimmer.</li>
+      <li>This is the best trimmer I have ever had.</li>
+      <li>Very Excellent Trimmer!</li>
+      <li>Great value and does the job!</li>
+      <li>Works as advertised...at great price-point!</li>
+      <li>Works great!</li>
+      <li>This trimmer does a great job!</li>
+      <li>Works great!</li>
+      <li>This is a well priced, excellent product</li>
       <li>Perfect.  </li>
+      <li>Works great!</li>
+      <li>Excellent product.  </li>
+      <li>Would buy again - great product!</li>
+      <li>The trimmer itself is almost perfect.</li>
+      <li>Excellent.</li>
+      <li>Does it&#x27;s work perfectly.</li>
+      <li>Very good!</li>
+      <li>This is the best trimmer ever put on the market.</li>
+      <li>I recommend this unit - the best I have had in years!    </li>
+      <li>I&#x27;m very happy with the product.  </li>
+      <li>This is the best one I have ever tried, and I have about 5!!</li>
+      <li>Excellent trimmer.  </li>
+      <li>Does an awesome job for maintaining hair from nose, eyebrows, and ears.</li>
+      <li>Best nose hair trimmer EVER!  </li>
+      <li>Very happy with this product both in performance and price!</li>
+      <li>It does an excellent job trimming, too.</li>
+      <li>Great trimmer!  </li>
+      <li>The cleaning features is especially nice.</li>
+      <li>This is the best nose and ear trimmer I have ever owned.</li>
+      <li>This one is wonderful.  </li>
+      <li>I oft sit on my patio with a delightful summer beer and handle my ordeal and this thing is just a delight.</li>
+      <li>it works perfectly.</li>
       <li>Best trimmer I&#x27;ve used.  </li>
-      <li>It works perfect.</li>
-      <li>Came ahead of scheduled delivery, works great!    </li>
-      <li>Excellent device.</li>
-      <li>/&gt;Build quality is excellent, as one expects from Panasonic.&lt;br /&gt;&lt;br</li>
-      <li>Excellent purchase.</li>
-      <li>Excellent product.</li>
-      <li>This is the best nose clippers I have used.</li>
-      <li>My husband said it&#x27;s great!</li>
-      <li>This is PERFECT for eyebrows and nose.</li>
-      <li>awesome.</li>
-      <li>Excellent product!</li>
-      <li>THE BEST I EVER TRIED!</li>
-      <li>/&gt;&lt;br /&gt;I am very happy with this trimmer and would suggest it to others.</li>
+      <li>excellent and painless</li>
+      <li>IT WORKS, BUT NOT THE BEST</li>
+      <li>Great design!</li>
+      <li>Awesome.</li>
+      <li>great price!</li>
+      <li>Best nose trimmer I&#x27;ve tried.</li>
+      <li>My husband was really impressed with it.</li>
       <li>Does the job perfectly.</li>
-      <li>lol!  </li>
-      <li>I&#x27;m very happy I purchased it.</li>
-      <li>Great stocking stuffer!</li>
-      <li>This trimmer works perfect.</li>
-      <li>One AA battery and this thing has been flawless.</li>
-      <li>Best nose trimmer I have owned to date!</li>
-      <li>So I ordered this one since it had excellent reviews.  </li>
-      <li>This is the best nose &amp; ear hair trimmer ever.</li>
-      <li>This nose hair trimmer works great for me!</li>
-      <li>Greatest product of my life.</li>
-      <li>GREATEST NOSE-HAIR TRIMMER I&#x27;VE USED.&lt;br /&gt;I</li>
-      <li>Works perfect!</li>
-      <li>Best one I have ever owned!</li>
-      <li>Item is as described very happy with it would buy again</li>
-      <li>purchased this product a couple months ago, and when it came I was impressed.  </li>
-      <li>Very happy.</li>
-      <li>Perfect trimmer for my husband.  </li>
-      <li>Perfect product!!</li>
-      <li>Keeps me trimmed perfectly</li>
-      <li>Excellent design and performance!</li>
-      <li>Excellent trimmer , affordable price.</li>
-      <li>Works great!  </li>
-      <li>Works great!</li>
-      <li>Works great!!  </li>
-      <li>worked out perfectly.  </li>
-      <li>Works excellent</li>
-      <li>I used to use the nose trimmer attachment on a Panasonic trimmer and grooming tool, but I noticed it didn&#x27;t always do the best job.</li>
-      <li>Best product like this that I have fiund</li>
-      <li>Excellent quality!</li>
-      <li>From the time I opened the package, this unit has impressed me.</li>
-      <li>The design is superb.</li>
-      <li>best thing i ever used&lt;br /&gt;&lt;br</li>
-      <li>Works well, use it to trim nose hair, and it does a wonderful job!</li>
-      <li>Excellent product!!!</li>
-      <li>Never had one before but works awesome.</li>
-      <li>Price and everything for its standards are great!</li>
-      <li>Works great!</li>
-      <li>The best trimmer you will buy!</li>
-      <li>It works for ear perfectly too.</li>
-      <li>&quot; i&#x27;m definitely impressed with its performance.</li>
-      <li>He&#x27;s so impressed with it he is using it instead of waiting to go the barber once a month...</li>
-      <li>And it&#x27;s best to have a close up mirror to asst.&lt;br /&gt;&lt;br</li>
-      <li>- this has got to be the best trimmer on the market!  </li>
-      <li>Excellent buy...</li>
-      <li>This is a great product!</li>
-      <li>It&#x27;s perfect.  </li>
-      <li>Wonderful!  </li>
-      <li>This does the best job on my pesky eyebrow and nose hairs</li>
-      <li>Works great!</li>
-      <li>Works great!  </li>
-      <li>Excellent if not the best nose hair trimmer.  </li>
-      <li>I&#x27;m very happy with the product.</li>
-      <li>Best one I have ever had.</li>
-      <li>Came as promised - perfect shape!</li>
-      <li>and I have been really impressed.  </li>
-      <li>/&gt;Simply product, great price, works as it should!</li>
-      <li>This thing works awesome!</li>
-      <li>I think this is the best trimmer I have ever used.</li>
-      <li>Great price too!</li>
-      <li>This is the best trimmer I have used since growing nose hair.</li>
-      <li>Works Great!  </li>
-      <li>, it&#x27;s awesome!</li>
-      <li>It is the perfect solution to hair that needs to be kept away from sight.</li>
-      <li>Prompt shipment &amp; excellent packaging.</li>
-      <li>Thank you Panasonic for a wonderful product.</li>
-      <li>Great trimmer!</li>
-      <li>I called panasonic - and best price</li>
-      <li>Wonderful</li>
-      <li>/&gt;Not the best product to trim your eyebrows as the blades are designed to trim nostril hair.</li>
-      <li>After a couple uses, I must say it is the best.  </li>
+      <li>We&#x27;re both impressed, hehe.</li>
+      <li>This works great!</li>
+      <li>It just seems that the hair I want to cut has to be in perfect position (or the cutter has to be) in order for it to work.</li>
+      <li>Perfect product.  </li>
       <li>Great product!</li>
-      <li>Excellent.  </li>
-      <li>Best nose trimmer that I have ever owned.</li>
-      <li>Works great!  </li>
-      <li>This nose hair trimmer is great, because it doesn&#x27;t hurt!</li>
-      <li>the best nose trimmer that I have tried.</li>
-      <li>Inexpensive and does the trick perfectly well!</li>
-      <li>I am happy!</li>
-      <li>Best one I&#x27;ve owned.</li>
-      <li>I am very impressed with this device.</li>
-      <li>This is the best nose hair trimmer I have Ever used.</li>
-      <li>This one is the best!</li>
-      <li>Awesome product and price</li>
+      <li>Panasonic makes the best one of these.  </li>
+      <li>Works great!</li>
+      <li>This one is AWESOME.  </li>
+      <li>, it&#x27;s been one of the best ear/nose trimmers he&#x27;s had.  </li>
+      <li>perfectly priced too</li>
+      <li>Best I&#x27;ve ever had!...</li>
+      <li>LOL!</li>
+      <li>Wonderful product.</li>
+      <li>To me it is a real good deal</li>
+      <li>It works perfect.</li>
+      <li>Trims perfectly without any pulling.</li>
+      <li>Works great!</li>
+      <li>Works well and now everyone is very happy.</li>
+      <li>The product documentation is excellent.  </li>
+      <li>This works the best of any I ever purchased for him</li>
+      <li>My husband says this is the best trimmer he has ever used.  </li>
+      <li>Best ear/nose hair trimmer out there.</li>
+      <li>It&#x27;s perfect for nose and ear hair and trimming some stray hairs here and there.</li>
+      <li>Excellent product.  </li>
+      <li>This is the best trimmer I&#x27;ve ever bought.</li>
+      <li>Came ahead of scheduled delivery, works great!    </li>
+      <li>This nose trimmer works perfectly without pulling hairs.</li>
+      <li>Great service!</li>
+      <li>This is the best trimmer I have owned.  </li>
+      <li>Excellent device.</li>
+      <li>awesome...</li>
+      <li>Great for ear trimming for men who are whiners!</li>
+      <li>simply awesome, no complaints!</li>
+      <li>but it doesn&#x27;t do a perfect job</li>
+      <li>That&#x27;s why I called it a perfect trade-off because it doesn&#x27;t hurt</li>
+      <li>This one is the best, I&#x27;m throwing the others away.</li>
+      <li>Perfect in every way.</li>
+      <li>the best one I&#x27;ve tried.</li>
+      <li>Perfect.</li>
+      <li>Best nose and ear hair clipper</li>
+      <li>This is the best product of it</li>
+      <li>Perfect for ears and nose, just why I bought it!</li>
+      <li>Trimmer doesn&#x27;t grab hairs - simply awesome.</li>
+      <li>This trimmer works great!  </li>
+      <li>Awesome bugger forest remover...</li>
+      <li>/&gt;It&#x27;s the best I&#x27;ve every tried.</li>
+      <li>Best Nose hair trimmer I&#x27;ve purchased.</li>
+      <li>This is without a doubt the best type of device for the job.  </li>
+      <li>He is very happy with this trimmer!</li>
+      <li>best trimmer i have had..</li>
 </ol>
 
 
 <h2>Negative Reviews</h2>
 <ol>
+<li> Still one of my best purchases.  </li>
+<li> My hubby says it&#x27;s the best one he&#x27;s had!</li>
+<li> this is 1 of the Best ones,&lt;br /&gt;but</li>
+<li> Best buy I&#x27;ve ever made for grooming.</li>
+<li> Says it&#x27;s the best one he&#x27;s ever used.</li>
+<li> It is the best trimmer I have every purchased.  </li>
+<li> We&#x27;ve been without a nose hair in your hair trimmer and this one is the best we&#x27;ve ever had I like</li>
+<li> GREAT purchase!</li>
+<li> Woks perfectly.</li>
 <li> This is a perfect trimmer.</li>
+<li> This is the best trimmer I have ever had.</li>
+<li> Very Excellent Trimmer!</li>
+<li> Great value and does the job!</li>
+<li> Works as advertised...at great price-point!</li>
+<li> Works great!</li>
+<li> This trimmer does a great job!</li>
+<li> Works great!</li>
+<li> This is a well priced, excellent product</li>
 <li> Perfect.  </li>
+<li> Works great!</li>
+<li> Excellent product.  </li>
+<li> Would buy again - great product!</li>
+<li> The trimmer itself is almost perfect.</li>
+<li> Excellent.</li>
+<li> Does it&#x27;s work perfectly.</li>
+<li> Very good!</li>
+<li> This is the best trimmer ever put on the market.</li>
+<li> I recommend this unit - the best I have had in years!    </li>
+<li> I&#x27;m very happy with the product.  </li>
+<li> This is the best one I have ever tried, and I have about 5!!</li>
+<li> Excellent trimmer.  </li>
+<li> Does an awesome job for maintaining hair from nose, eyebrows, and ears.</li>
+<li> Best nose hair trimmer EVER!  </li>
+<li> Very happy with this product both in performance and price!</li>
+<li> It does an excellent job trimming, too.</li>
+<li> Great trimmer!  </li>
+<li> The cleaning features is especially nice.</li>
+<li> This is the best nose and ear trimmer I have ever owned.</li>
+<li> This one is wonderful.  </li>
+<li> I oft sit on my patio with a delightful summer beer and handle my ordeal and this thing is just a delight.</li>
+<li> it works perfectly.</li>
 <li> Best trimmer I&#x27;ve used.  </li>
-<li> It works perfect.</li>
-<li> Came ahead of scheduled delivery, works great!    </li>
-<li> Excellent device.</li>
-<li> /&gt;Build quality is excellent, as one expects from Panasonic.&lt;br /&gt;&lt;br</li>
-<li> Excellent purchase.</li>
-<li> Excellent product.</li>
-<li> This is the best nose clippers I have used.</li>
-<li> My husband said it&#x27;s great!</li>
-<li> This is PERFECT for eyebrows and nose.</li>
-<li> awesome.</li>
-<li> Excellent product!</li>
-<li> THE BEST I EVER TRIED!</li>
-<li> /&gt;&lt;br /&gt;I am very happy with this trimmer and would suggest it to others.</li>
+<li> excellent and painless</li>
+<li> IT WORKS, BUT NOT THE BEST</li>
+<li> Great design!</li>
+<li> Awesome.</li>
+<li> great price!</li>
+<li> Best nose trimmer I&#x27;ve tried.</li>
+<li> My husband was really impressed with it.</li>
 <li> Does the job perfectly.</li>
-<li> lol!  </li>
-<li> I&#x27;m very happy I purchased it.</li>
-<li> Great stocking stuffer!</li>
-<li> This trimmer works perfect.</li>
-<li> One AA battery and this thing has been flawless.</li>
-<li> Best nose trimmer I have owned to date!</li>
-<li> So I ordered this one since it had excellent reviews.  </li>
-<li> This is the best nose &amp; ear hair trimmer ever.</li>
-<li> This nose hair trimmer works great for me!</li>
-<li> Greatest product of my life.</li>
-<li> GREATEST NOSE-HAIR TRIMMER I&#x27;VE USED.&lt;br /&gt;I</li>
-<li> Works perfect!</li>
-<li> Best one I have ever owned!</li>
-<li> Item is as described very happy with it would buy again</li>
-<li> purchased this product a couple months ago, and when it came I was impressed.  </li>
-<li> Very happy.</li>
-<li> Perfect trimmer for my husband.  </li>
-<li> Perfect product!!</li>
-<li> Keeps me trimmed perfectly</li>
-<li> Excellent design and performance!</li>
-<li> Excellent trimmer , affordable price.</li>
-<li> Works great!  </li>
-<li> Works great!</li>
-<li> Works great!!  </li>
-<li> worked out perfectly.  </li>
-<li> Works excellent</li>
-<li> I used to use the nose trimmer attachment on a Panasonic trimmer and grooming tool, but I noticed it didn&#x27;t always do the best job.</li>
-<li> Best product like this that I have fiund</li>
-<li> Excellent quality!</li>
-<li> From the time I opened the package, this unit has impressed me.</li>
-<li> The design is superb.</li>
-<li> best thing i ever used&lt;br /&gt;&lt;br</li>
-<li> Works well, use it to trim nose hair, and it does a wonderful job!</li>
-<li> Excellent product!!!</li>
-<li> Never had one before but works awesome.</li>
-<li> Price and everything for its standards are great!</li>
-<li> Works great!</li>
-<li> The best trimmer you will buy!</li>
-<li> It works for ear perfectly too.</li>
-<li> &quot; i&#x27;m definitely impressed with its performance.</li>
-<li> He&#x27;s so impressed with it he is using it instead of waiting to go the barber once a month...</li>
-<li> And it&#x27;s best to have a close up mirror to asst.&lt;br /&gt;&lt;br</li>
-<li> - this has got to be the best trimmer on the market!  </li>
-<li> Excellent buy...</li>
-<li> This is a great product!</li>
-<li> It&#x27;s perfect.  </li>
-<li> Wonderful!  </li>
-<li> This does the best job on my pesky eyebrow and nose hairs</li>
-<li> Works great!</li>
-<li> Works great!  </li>
-<li> Excellent if not the best nose hair trimmer.  </li>
-<li> I&#x27;m very happy with the product.</li>
-<li> Best one I have ever had.</li>
-<li> Came as promised - perfect shape!</li>
-<li> and I have been really impressed.  </li>
-<li> /&gt;Simply product, great price, works as it should!</li>
-<li> This thing works awesome!</li>
-<li> I think this is the best trimmer I have ever used.</li>
-<li> Great price too!</li>
-<li> This is the best trimmer I have used since growing nose hair.</li>
-<li> Works Great!  </li>
-<li> , it&#x27;s awesome!</li>
-<li> It is the perfect solution to hair that needs to be kept away from sight.</li>
-<li> Prompt shipment &amp; excellent packaging.</li>
-<li> Thank you Panasonic for a wonderful product.</li>
-<li> Great trimmer!</li>
-<li> I called panasonic - and best price</li>
-<li> Wonderful</li>
-<li> /&gt;Not the best product to trim your eyebrows as the blades are designed to trim nostril hair.</li>
-<li> After a couple uses, I must say it is the best.  </li>
+<li> We&#x27;re both impressed, hehe.</li>
+<li> This works great!</li>
+<li> It just seems that the hair I want to cut has to be in perfect position (or the cutter has to be) in order for it to work.</li>
+<li> Perfect product.  </li>
 <li> Great product!</li>
-<li> Excellent.  </li>
-<li> Best nose trimmer that I have ever owned.</li>
-<li> Works great!  </li>
-<li> This nose hair trimmer is great, because it doesn&#x27;t hurt!</li>
-<li> the best nose trimmer that I have tried.</li>
-<li> Inexpensive and does the trick perfectly well!</li>
-<li> I am happy!</li>
-<li> Best one I&#x27;ve owned.</li>
-<li> I am very impressed with this device.</li>
-<li> This is the best nose hair trimmer I have Ever used.</li>
-<li> This one is the best!</li>
-<li> Awesome product and price</li>
+<li> Panasonic makes the best one of these.  </li>
+<li> Works great!</li>
+<li> This one is AWESOME.  </li>
+<li> , it&#x27;s been one of the best ear/nose trimmers he&#x27;s had.  </li>
+<li> perfectly priced too</li>
+<li> Best I&#x27;ve ever had!...</li>
+<li> LOL!</li>
+<li> Wonderful product.</li>
+<li> To me it is a real good deal</li>
+<li> It works perfect.</li>
+<li> Trims perfectly without any pulling.</li>
+<li> Works great!</li>
+<li> Works well and now everyone is very happy.</li>
+<li> The product documentation is excellent.  </li>
+<li> This works the best of any I ever purchased for him</li>
+<li> My husband says this is the best trimmer he has ever used.  </li>
+<li> Best ear/nose hair trimmer out there.</li>
+<li> It&#x27;s perfect for nose and ear hair and trimming some stray hairs here and there.</li>
+<li> Excellent product.  </li>
+<li> This is the best trimmer I&#x27;ve ever bought.</li>
+<li> Came ahead of scheduled delivery, works great!    </li>
+<li> This nose trimmer works perfectly without pulling hairs.</li>
+<li> Great service!</li>
+<li> This is the best trimmer I have owned.  </li>
+<li> Excellent device.</li>
+<li> awesome...</li>
+<li> Great for ear trimming for men who are whiners!</li>
+<li> simply awesome, no complaints!</li>
+<li> but it doesn&#x27;t do a perfect job</li>
+<li> That&#x27;s why I called it a perfect trade-off because it doesn&#x27;t hurt</li>
+<li> This one is the best, I&#x27;m throwing the others away.</li>
+<li> Perfect in every way.</li>
+<li> the best one I&#x27;ve tried.</li>
+<li> Perfect.</li>
+<li> Best nose and ear hair clipper</li>
+<li> This is the best product of it</li>
+<li> Perfect for ears and nose, just why I bought it!</li>
+<li> Trimmer doesn&#x27;t grab hairs - simply awesome.</li>
+<li> This trimmer works great!  </li>
+<li> Awesome bugger forest remover...</li>
+<li> /&gt;It&#x27;s the best I&#x27;ve every tried.</li>
+<li> Best Nose hair trimmer I&#x27;ve purchased.</li>
+<li> This is without a doubt the best type of device for the job.  </li>
+<li> He is very happy with this trimmer!</li>
+<li> best trimmer i have had..</li>
 </ol>
 
 <h2>All Reviews</h2>
@@ -6413,6 +6413,7 @@ modifiedAt: Thu Jan 09 2020 19:08:32 GMT+0530 (India Standard Time),
     <li> Really pleased with this grooming device. I may be an old fart, but at least this device will help me be a well groomed old fart.</li>
     <li> This unit was purchased to replace an older  unit.  Liked design of old unit and found tis to be the only one with this dexign. Works better than replacement.</li>
 </ol>
+
 
 
 

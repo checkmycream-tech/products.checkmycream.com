@@ -1,0 +1,197 @@
+---
+title: Listerine PocketPaks Breath Strips, Arctic Berry, 3 24-Strip Packs,
+description: Listerine PocketPaks Breath Strips, Arctic Berry, 3 24-Strip Packs,
+author: Suvojit Manna,
+tags: Listerine PocketPaks Breath Strips, Arctic Berry, 3 24-Strip Packs,
+publishedAt: Fri Jan 10 2020 15:00:11 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:11 GMT+0530 (India Standard Time),
+---
+
+# [Listerine PocketPaks Breath Strips, Arctic Berry, 3 24-Strip Packs](https://products.checkmycream.com/products/Listerine-PocketPaks-Breath-Strips-Arctic-Berry-3-24-Strip-Packs.html)
+
+### Positive Reviews
+
+<ol>
+      <li>These things are perfect for keeping on the go just in case you need it.</li>
+      <li>A very good buy.</li>
+      <li>These pocketpaks are great.</li>
+      <li>and I find these strips are a great supplement to my caffeine intake while at work.</li>
+      <li>This taste great and do the job for taking care of the breath.</li>
+      <li>Breath will smell amazing after putting one piece in your mouth!</li>
+      <li>Have always loved the concept of Listerine strips.  </li>
+      <li>All good things in moderation, eh?</li>
+      <li>All though good product at a good price, I did find it cheaper at CVS</li>
+      <li>This was a good buy for a pack of 3.  </li>
+      <li>Use &#x27;em when they&#x27;re needed, but don&#x27;t just keep one in your mouth because they taste good.  </li>
+      <li>/&gt;Purchased on coupon, so the price was good (1/2 price).</li>
+      <li>Love it!</li>
+      <li>We love this flavor!</li>
+      <li>They&#x27;re effective for breath freshening because they&#x27;re antiseptic.  </li>
+      <li>I can&#x27;t find these flavors in my Costco store, so it was nice that I could order it on Amazon.&lt;br /&gt;&lt;br</li>
+      <li>I use this kind of strips, I bougth it in the drugstore but always are ok, no like those strip.</li>
+      <li>when on sale so just picked up more.</li>
+      <li>Wish I could find more</li>
+      <li>Interesting flavor.  </li>
+      <li>Love these</li>
+      <li>For the price, Altoids are a better bargain.</li>
+      <li>I love this taste.</li>
+      <li>It&#x27;s nice to have these on hand for a quick and easy breath pick-me-up.</li>
+      <li>They are strong but taste good and really freshen your breath.</li>
+      <li>Easy to carry, easy to use.</li>
+      <li>It&#x27;s starts as a berries that are pretty nice</li>
+      <li>I like the other flavors better, but my husband loved this one!</li>
+      <li>I love these as they melt quickly and coat your tongue where it&#x27;s needed to freshen your breath.  </li>
+      <li>The whole family liked.</li>
+      <li>They have a nice taste and really do freshen your breath.</li>
+      <li>It&#x27;s minty sweet, not too strong.</li>
+      <li>They wake me up and keep my conversation breath fresh after 12 hours on the job!</li>
+      <li>I would definitly stick with original flavor.</li>
+      <li>These berry flavored strips are extremely hard to find but are the best tasting in my mind.  </li>
+      <li>Chances of this happening are rare, but it does happen.&lt;br /&gt;&lt;br</li>
+      <li>The flavor of the Arctic Berry strips is great - it&#x27;s not as intense as some of the other ones, but it still gives my mouth a refresh.</li>
+      <li>This taste more like berry nyquil and fresh breath barely last.</li>
+      <li>it takes EXACTLY like Robitussin Cough Medicine.  </li>
+      <li>Also, when choosing a strip flavor, this is my first choice.</li>
+      <li>Very tasty!</li>
+      <li>The flavor is good and not as harsh as the originals.  </li>
+      <li>Like all these little breath strips, it kind of burns your tongue and mouth, but it does make your mouth feel fresher.</li>
+      <li>I have a whole group of strips fall out of the dispenser at once onto the floor.  </li>
+      <li>; should be used sensibly and in reasonable moderation.  </li>
+      <li>Shipping was fast and product was well packaged.</li>
+      <li>Fast and on time.  </li>
+      <li>Really like the flavor blast</li>
+      <li>/&gt;Overall, really like this flavor.</li>
+      <li>Atleast the original is stronger and longer lasting</li>
+      <li>My wife in particular does NOT want me to use these.&lt;br /&gt;&lt;br</li>
+      <li>Was a really neat idea for Listerine to make other flavors available.  </li>
+      <li>I know these aren&#x27;t really suppose to taste good, but this one is worse than the original green Listerine in my opinion.</li>
+      <li>if your going  out for the evening to a fancy restaurant with that special someone it helps to have a little something to freshen you breath so these listerine  pocket packs come in very hands.</li>
+      <li>Wow.  </li>
+      <li>Overuse can result in the killing off of so many natural bacteria in the mouth that their absence might allow occurrence of thrush - an overabundance of a fungus also natural to the mouth but kept in check by those beneficial bacteria you just killed off.  </li>
+      <li>The flavor is a little bit intense, but I guess that&#x27;s better than not strong enough.</li>
+      <li>I got them for dirty cheap and would absolutely buy them again for the price I paid.  </li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> These things are perfect for keeping on the go just in case you need it.</li>
+<li> A very good buy.</li>
+<li> These pocketpaks are great.</li>
+<li> and I find these strips are a great supplement to my caffeine intake while at work.</li>
+<li> This taste great and do the job for taking care of the breath.</li>
+<li> Breath will smell amazing after putting one piece in your mouth!</li>
+<li> Have always loved the concept of Listerine strips.  </li>
+<li> All good things in moderation, eh?</li>
+<li> All though good product at a good price, I did find it cheaper at CVS</li>
+<li> This was a good buy for a pack of 3.  </li>
+<li> Use &#x27;em when they&#x27;re needed, but don&#x27;t just keep one in your mouth because they taste good.  </li>
+<li> /&gt;Purchased on coupon, so the price was good (1/2 price).</li>
+<li> Love it!</li>
+<li> We love this flavor!</li>
+<li> They&#x27;re effective for breath freshening because they&#x27;re antiseptic.  </li>
+<li> I can&#x27;t find these flavors in my Costco store, so it was nice that I could order it on Amazon.&lt;br /&gt;&lt;br</li>
+<li> I use this kind of strips, I bougth it in the drugstore but always are ok, no like those strip.</li>
+<li> when on sale so just picked up more.</li>
+<li> Wish I could find more</li>
+<li> Interesting flavor.  </li>
+<li> Love these</li>
+<li> For the price, Altoids are a better bargain.</li>
+<li> I love this taste.</li>
+<li> It&#x27;s nice to have these on hand for a quick and easy breath pick-me-up.</li>
+<li> They are strong but taste good and really freshen your breath.</li>
+<li> Easy to carry, easy to use.</li>
+<li> It&#x27;s starts as a berries that are pretty nice</li>
+<li> I like the other flavors better, but my husband loved this one!</li>
+<li> I love these as they melt quickly and coat your tongue where it&#x27;s needed to freshen your breath.  </li>
+<li> The whole family liked.</li>
+<li> They have a nice taste and really do freshen your breath.</li>
+<li> It&#x27;s minty sweet, not too strong.</li>
+<li> They wake me up and keep my conversation breath fresh after 12 hours on the job!</li>
+<li> I would definitly stick with original flavor.</li>
+<li> These berry flavored strips are extremely hard to find but are the best tasting in my mind.  </li>
+<li> Chances of this happening are rare, but it does happen.&lt;br /&gt;&lt;br</li>
+<li> The flavor of the Arctic Berry strips is great - it&#x27;s not as intense as some of the other ones, but it still gives my mouth a refresh.</li>
+<li> This taste more like berry nyquil and fresh breath barely last.</li>
+<li> it takes EXACTLY like Robitussin Cough Medicine.  </li>
+<li> Also, when choosing a strip flavor, this is my first choice.</li>
+<li> Very tasty!</li>
+<li> The flavor is good and not as harsh as the originals.  </li>
+<li> Like all these little breath strips, it kind of burns your tongue and mouth, but it does make your mouth feel fresher.</li>
+<li> I have a whole group of strips fall out of the dispenser at once onto the floor.  </li>
+<li> ; should be used sensibly and in reasonable moderation.  </li>
+<li> Shipping was fast and product was well packaged.</li>
+<li> Fast and on time.  </li>
+<li> Really like the flavor blast</li>
+<li> /&gt;Overall, really like this flavor.</li>
+<li> Atleast the original is stronger and longer lasting</li>
+<li> My wife in particular does NOT want me to use these.&lt;br /&gt;&lt;br</li>
+<li> Was a really neat idea for Listerine to make other flavors available.  </li>
+<li> I know these aren&#x27;t really suppose to taste good, but this one is worse than the original green Listerine in my opinion.</li>
+<li> if your going  out for the evening to a fancy restaurant with that special someone it helps to have a little something to freshen you breath so these listerine  pocket packs come in very hands.</li>
+<li> Wow.  </li>
+<li> Overuse can result in the killing off of so many natural bacteria in the mouth that their absence might allow occurrence of thrush - an overabundance of a fungus also natural to the mouth but kept in check by those beneficial bacteria you just killed off.  </li>
+<li> The flavor is a little bit intense, but I guess that&#x27;s better than not strong enough.</li>
+<li> I got them for dirty cheap and would absolutely buy them again for the price I paid.  </li>
+<li> These strips remind me of the flavor, but don&#x27;t last as long.</li>
+<li> When I was a kid, we often had Vicks wild cherry cough drops (in the green box) - ate &#x27;em like candy.</li>
+<li> The only down is they don&#x27;t last that long at all.</li>
+<li> These little strips are very handle in stick in a pocket or small purse.</li>
+<li> I definitely like adding small things to my order that I continue to pick up.</li>
+<li> Ordered another - other flavors to try.</li>
+<li> /&gt;These little strips simply slide out of the dispenser, onto your tongue, and dissolve instantly to give you that &amp;#34;clean mouth&amp;#34; freshness.&lt;br /&gt;&lt;br /&gt;I have used the ordinary flavor in the past and decided to try Arctic Berry.  </li>
+<li> /&gt;Thus, these little &amp;#34;miracle strips&amp;#34</li>
+<li> Use them everyday.</li>
+<li> but they&#x27;re not cheap.  </li>
+<li> Even after one strip I feel like I&#x27;ve wasted a dollar.&lt;br /&gt;&lt;br</li>
+<li> They taste like cough drops in all the worst ways...not refreshing at all.</li>
+<li> Not really thrilled with the Arctic Berry favor though.  </li>
+<li> I&#x27;m sorry to tell you that it was so expensive to pay AU$18.00 for chipping for one packet of Listerine of Au$00.80 (less than one dollar)</li>
+<li> Thrush is painful, can cause nasty swelling of the tongue, and once unchecked can only be killed via ingesting a prescription of fungicide over the period of a week.&lt;br /&gt;&lt;br</li>
+<li> I tried these today since the store was out of the regular mint that I like, and I HATED them!</li>
+<li> My daughter and her friends are obsessed with these.  </li>
+<li> and I&#x27;d assume bad odors.  </li>
+<li> I&#x27;d like to continue to use this as I feel it does its job and gets rid of bad tastes in my mouth</li>
+<li> Purchased for co-worker who has bad breath.  </li>
+<li> These strips have a terrible taste!  </li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> I&#x27;m sorry to tell you that it was so expensive to pay AU$18.00 for chipping for one packet of Listerine of Au$00.80 (less than one dollar) what ever its flavor.so this is why I decided not to buy any Listerine, also not to use Amazon for any reason</li>
+    <li> if your going  out for the evening to a fancy restaurant with that special someone it helps to have a little something to freshen you breath so these listerine  pocket packs come in very hands.</li>
+    <li> I tried these today since the store was out of the regular mint that I like, and I HATED them! They taste like cough drops in all the worst ways...not refreshing at all.</li>
+    <li> It&#x27;s nice to have these on hand for a quick and easy breath pick-me-up. The berry flavor is the bomb.</li>
+    <li> Taste taste taste taste taste.  Effectiveness, effectiveness, effectiveness, effectiveness, effectiveness, effectiveness.  Did I say taste?  Every flavor&#x27;s a winner.&lt;br /&gt;&lt;br /&gt;BUT - CAUTION.  They&#x27;re effective for breath freshening because they&#x27;re antiseptic.  Overuse can result in the killing off of so many natural bacteria in the mouth that their absence might allow occurrence of thrush - an overabundance of a fungus also natural to the mouth but kept in check by those beneficial bacteria you just killed off.  Thrush is painful, can cause nasty swelling of the tongue, and once unchecked can only be killed via ingesting a prescription of fungicide over the period of a week.&lt;br /&gt;&lt;br /&gt;Thus, these little &amp;#34;miracle strips&amp;#34; should be used sensibly and in reasonable moderation.  Use &#x27;em when they&#x27;re needed, but don&#x27;t just keep one in your mouth because they taste good.  All good things in moderation, eh?</li>
+    <li> I use this kind of strips, I bougth it in the drugstore but always are ok, no like those strip.</li>
+    <li> My daughter and her friends are obsessed with these.  They are strong but taste good and really freshen your breath.</li>
+    <li> These berry flavored strips are extremely hard to find but are the best tasting in my mind.  Wish I could find more</li>
+    <li> Have always loved the concept of Listerine strips.  Imagine not having to lug around a bottle of mouthwash liquid when you get that &amp;#34;icky&amp;#34; feeling in your mouth.&lt;br /&gt;&lt;br /&gt;These little strips simply slide out of the dispenser, onto your tongue, and dissolve instantly to give you that &amp;#34;clean mouth&amp;#34; freshness.&lt;br /&gt;&lt;br /&gt;I have used the ordinary flavor in the past and decided to try Arctic Berry.  Wow.  Really like the flavor blast it initially gives you.  Was a really neat idea for Listerine to make other flavors available.  I can&#x27;t find these flavors in my Costco store, so it was nice that I could order it on Amazon.&lt;br /&gt;&lt;br /&gt;The only problem I ran into is that the one-at-a-time dispense method doesn&#x27;t always work.  I have a whole group of strips fall out of the dispenser at once onto the floor.  Chances of this happening are rare, but it does happen.&lt;br /&gt;&lt;br /&gt;Overall, really like this flavor.</li>
+    <li> When I was a kid, we often had Vicks wild cherry cough drops (in the green box) - ate &#x27;em like candy. These strips remind me of the flavor, but don&#x27;t last as long.</li>
+    <li> I love these as they melt quickly and coat your tongue where it&#x27;s needed to freshen your breath.  Not really thrilled with the Arctic Berry favor though.  For the price, Altoids are a better bargain.</li>
+    <li> Got these on a deal.  Even after one strip I feel like I&#x27;ve wasted a dollar.&lt;br /&gt;&lt;br /&gt;There is NOTHING that tastes like berries...it takes EXACTLY like Robitussin Cough Medicine.  I immediately spit it out one the taste came through.  I can not believe that the Q/A folks approved this flavor.</li>
+    <li> I love this taste. It&#x27;s minty sweet, not too strong. Pocket packs are so convenient to carry around. Use them everyday.</li>
+    <li> I would definitly stick with original flavor. This taste more like berry nyquil and fresh breath barely last. Atleast the original is stronger and longer lasting</li>
+    <li> Very tasty! The whole family liked. Refreshes and does not damage the teeth as chewing gum! A very good buy. Would recommend. Ordered another - other flavors to try.</li>
+    <li> Easy to carry, easy to use. I work the midnight shift and I find these strips are a great supplement to my caffeine intake while at work. They wake me up and keep my conversation breath fresh after 12 hours on the job!</li>
+    <li> These things are perfect for keeping on the go just in case you need it. The flavor is a little bit intense, but I guess that&#x27;s better than not strong enough.</li>
+    <li> These strips have a terrible taste!  They reminded me of cough medicine.  I tried two strips, and threw the rest away.</li>
+    <li> These little strips are very handle in stick in a pocket or small purse. This taste great and do the job for taking care of the breath. We love this flavor!</li>
+    <li> I like the other flavors better, but my husband loved this one!</li>
+    <li> No problem w/shipper.  Fast and on time.  I prefer the cinnamon - these taste like a medicinal cough syrup, IMO</li>
+    <li> The flavor of the Arctic Berry strips is great - it&#x27;s not as intense as some of the other ones, but it still gives my mouth a refresh.</li>
+    <li> These pocketpaks are great. They have a nice taste and really do freshen your breath. The only down is they don&#x27;t last that long at all. So you might have to pop in a couple throughout the day to freshen everytime you need to.</li>
+    <li> I know these aren&#x27;t really suppose to taste good, but this one is worse than the original green Listerine in my opinion.</li>
+    <li> Purchased for co-worker who has bad breath.  Works when he uses them.&lt;br /&gt;&lt;br /&gt;Purchased on coupon, so the price was good (1/2 price).</li>
+    <li> I&#x27;d like to continue to use this as I feel it does its job and gets rid of bad tastes in my mouth and I&#x27;d assume bad odors.  However. my entire family cannot stand it when I use this. They say that I smell like a medicine cabinet afterwards and the odor is overpowering.  My wife in particular does NOT want me to use these.&lt;br /&gt;&lt;br /&gt;I like what the strips are supposed to do and from my perspective work but if others want to run away from you what is the point?</li>
+    <li> Well, what can I say...it&#x27;s a listerine breath strip.  The flavor is good and not as harsh as the originals.  I got them for dirty cheap and would absolutely buy them again for the price I paid.  Also, when choosing a strip flavor, this is my first choice.</li>
+    <li> Love these but they&#x27;re not cheap.  Shipping was fast and product was well packaged. No complaints.</li>
+    <li> This was a good buy for a pack of 3.  I definitely like adding small things to my order that I continue to pick up. All though good product at a good price, I did find it cheaper at CVS when on sale so just picked up more.</li>
+    <li> Interesting flavor.  It&#x27;s starts as a berries that are pretty nice and then it blasts you with that Listerine taste that you know is killing ever germ within 3 feet of your mouth.  Like all these little breath strips, it kind of burns your tongue and mouth, but it does make your mouth feel fresher.</li>
+    <li> Love it! Breath will smell amazing after putting one piece in your mouth!</li>
+</ol>
+
+
+
+

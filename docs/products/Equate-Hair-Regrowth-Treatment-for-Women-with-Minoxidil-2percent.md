@@ -1,0 +1,77 @@
+---
+title: Equate - Hair Regrowth Treatment for Women with Minoxidil 2%,
+description: Equate - Hair Regrowth Treatment for Women with Minoxidil 2%,
+author: Suvojit Manna,
+tags: Equate - Hair Regrowth Treatment for Women with Minoxidil 2%,
+publishedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
+---
+
+# [Equate - Hair Regrowth Treatment for Women with Minoxidil 2%](https://products.checkmycream.com/products/Equate-Hair-Regrowth-Treatment-for-Women-with-Minoxidil-2percent.html)
+
+### Positive Reviews
+
+<ol>
+      <li>I am very happy!!</li>
+      <li>My wife is very happy with results</li>
+      <li>very very good will continue to use</li>
+      <li>Great product and competitve price</li>
+      <li>great product.</li>
+      <li>Good price.</li>
+      <li>It&#x27;s doing a good job.</li>
+      <li>Love it!</li>
+      <li>, you can reach your scalp better for women.</li>
+      <li>Good product and much cheaper than Rogaine.</li>
+      <li>back, but I&#x27;m not seeing more receding hair line.</li>
+      <li>It works, but you have to be consistent with your use.</li>
+      <li>It really works!</li>
+      <li>Have been using for several years and it works fine.  </li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> I am very happy!!</li>
+<li> My wife is very happy with results</li>
+<li> very very good will continue to use</li>
+<li> Great product and competitve price</li>
+<li> great product.</li>
+<li> Good price.</li>
+<li> It&#x27;s doing a good job.</li>
+<li> Love it!</li>
+<li> , you can reach your scalp better for women.</li>
+<li> Good product and much cheaper than Rogaine.</li>
+<li> back, but I&#x27;m not seeing more receding hair line.</li>
+<li> It works, but you have to be consistent with your use.</li>
+<li> It really works!</li>
+<li> Have been using for several years and it works fine.  </li>
+<li> Works as well if not better than name brand.  </li>
+<li> I wrote a bad review....</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> Have been using for several years and it works fine.  Does not restore the volume of hair that I had when younger, but works well to help fill in the thinning spots.</li>
+    <li> I wrote a bad review....But they took care of my problem....I am very happy!!</li>
+    <li> My wife has used this for years and swears by it.</li>
+    <li> Does wonders! Great product and competitve price</li>
+    <li> very very good will continue to use</li>
+    <li> Have purchased before. Have not gotten the same results.</li>
+    <li> It appears to have slowed or stopped my hair loss, as my stylist says that my hair is thicker than it was. I don&#x27;t have my &amp;#34;widows peak&amp;#34; back, but I&#x27;m not seeing more receding hair line.</li>
+    <li> My wife is very happy with results</li>
+    <li> The balding area is growing hair back and it&#x27;s getting fuller. Note that I&#x27;m only a month in with the product.</li>
+    <li> Good product and much cheaper than Rogaine. I&#x27;ve used this brand for years.</li>
+    <li> Good price. Product helped grow my hair back.</li>
+    <li> great product. works  just like the big brand name</li>
+    <li> It&#x27;s doing a good job.</li>
+    <li> Used it one time made my head burn. So I threw it away</li>
+    <li> Works as well if not better than name brand.  I like the liquid rather than foam, you can reach your scalp better for women.</li>
+    <li> Works like it suppose to.  Been using it for two years and my hair continually grows.</li>
+    <li> It works, but you have to be consistent with your use.</li>
+    <li> It really works! Love it!</li>
+</ol>
+
+
+
+

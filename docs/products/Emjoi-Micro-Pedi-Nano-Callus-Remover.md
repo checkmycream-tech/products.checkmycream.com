@@ -3,8 +3,8 @@ title: Emjoi Micro-Pedi Nano Callus Remover,
 description: Emjoi Micro-Pedi Nano Callus Remover,
 author: Suvojit Manna,
 tags: Emjoi Micro-Pedi Nano Callus Remover,
-publishedAt: Thu Jan 09 2020 19:08:34 GMT+0530 (India Standard Time),
-modifiedAt: Thu Jan 09 2020 19:08:34 GMT+0530 (India Standard Time),
+publishedAt: Fri Jan 10 2020 15:00:13 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:13 GMT+0530 (India Standard Time),
 ---
 
 # [Emjoi Micro-Pedi Nano Callus Remover](https://products.checkmycream.com/products/Emjoi-Micro-Pedi-Nano-Callus-Remover.html)
@@ -12,211 +12,211 @@ modifiedAt: Thu Jan 09 2020 19:08:34 GMT+0530 (India Standard Time),
 ### Positive Reviews
 
 <ol>
+      <li>it works great!!!</li>
+      <li>Incredible product!!!</li>
+      <li>This product is the best thing I have ever used to help with the removal of callus.&lt;br</li>
+      <li>Works awesome!</li>
+      <li>This is a great item!</li>
       <li>Did an unbelievably great job!</li>
+      <li>Works great!</li>
+      <li>Well it worked wonderful.</li>
       <li>Very happy with my purchase.  </li>
-      <li>I&#x27;m very impressed.</li>
-      <li>Best belt sander on the market!  </li>
-      <li>This product is the best ever!</li>
-      <li>Great product!  </li>
-      <li>Happy feet!</li>
-      <li>My home pedicure looks great !</li>
-      <li>It works great!</li>
-      <li>OMG this is amazing!!!  </li>
-      <li>Gets the job done with excellent results</li>
-      <li>&#x3D;D</li>
-      <li>Came on time and it works great!</li>
-      <li>It is wonderful and makes my life easier at work.</li>
-      <li>very happy with the product</li>
-      <li>and this has worked wonderfully on my feet.</li>
-      <li>If you get a unit that works, it works great!</li>
-      <li>WORKS GREAT!!!</li>
-      <li>She is very happy with it.</li>
-      <li>It does a wonderful job.  </li>
-      <li>Otherwise, it&#x27;s great!</li>
-      <li>I am giving an excellent rating because it came on time</li>
-      <li>This is one of the best purchases I have ever made.</li>
-      <li>This will make a wonderful and affordable gift for your friends.</li>
-      <li>Awesome.</li>
-      <li>Excellent product .... bought one for myself and one as a gift.</li>
-      <li>Wonderful!</li>
-      <li>Works perfectly.</li>
-      <li>Even he was impressed.</li>
-      <li>I cannot attest to its longevity yet, but I am quite impressed with the battery power.</li>
-      <li>Excellent!</li>
-      <li>Works great!!</li>
-      <li>Excellent buy</li>
-      <li>Best brand!  </li>
-      <li>I’m very happy with the product.</li>
-      <li>Great value!</li>
-      <li>This is an awesome product.  </li>
-      <li>This is the best footsie fixer I have tried.</li>
-      <li>My pedicurist is very happy.</li>
-      <li>This works great!  </li>
-      <li>Excellent</li>
-      <li>Excellent product.</li>
-      <li>Great item in between pedis!</li>
-      <li>This product is WONDERFUL.</li>
-      <li>Awesome time saver!!!</li>
-      <li>This thing is so awesome.</li>
       <li>Thank you Amazon, my feet are very happy!</li>
+      <li>Great product!  </li>
       <li>This has to be the best thing I bought for my feet in years.</li>
+      <li>Awesome.</li>
+      <li>They also have a membership to receive refills which I will join as I am so impressed with this company.  </li>
+      <li>This foot buffer is WONDERFUL!  </li>
+      <li>Best winter feet I have ever had !  </li>
+      <li>Thank you Emjoi for a wonderful product!</li>
+      <li>I&#x27;m very impressed.</li>
+      <li>Great product and service!</li>
+      <li>Awesome time saver!!!</li>
       <li>Excellent!</li>
       <li>This works perfectly.  </li>
       <li>LOVE THIS PRODUCT!!!!</li>
+      <li>This thing is awesome.  </li>
       <li>is one of the best investments ever for my foot health.  </li>
+      <li>Excellent product .... bought one for myself and one as a gift.</li>
       <li>This product is great!</li>
+      <li>This is the best callus remover.</li>
       <li>It keeps my feet looking great!</li>
+      <li>My wife says it&#x27;s the best gift I have ever given her!</li>
+      <li>Best belt sander on the market!  </li>
+      <li>It works great!</li>
       <li>I was immediately impressed.  </li>
       <li>The hubby is impressed, too.  </li>
+      <li>Best product I ever bought.</li>
       <li>What a great product!  </li>
       <li>Great purchase!</li>
+      <li>Does an excellent job of doing what it was intended to do.</li>
+      <li>This product is the best ever!</li>
+      <li>Love this!!!!</li>
+      <li>This product is WONDERFUL.</li>
+      <li>Great item in between pedis!</li>
+      <li>Very happy with my purchase.  </li>
+      <li>It really impressed with the difference it made.  </li>
+      <li>Works awesome  </li>
+      <li>This will make a wonderful and affordable gift for your friends.</li>
       <li>I have an epilator from 1998 that still works perfectly!</li>
+      <li>EXcellent product.</li>
+      <li>Love it!!!!!</li>
+      <li>It is the perfect size</li>
       <li>Works great!</li>
+      <li>This is one of the best purchases I have ever made.</li>
       <li>Great buy !</li>
       <li>Excellent product......  </li>
       <li>This thing works great!  </li>
       <li>It works great!  </li>
+      <li>Best price here on Amazon!&lt;br</li>
+      <li>Excellent product.</li>
+      <li>This thing is awesome.</li>
+      <li>Excellent.</li>
+      <li>It&#x27;s great!</li>
       <li>and it works great!</li>
       <li>and my feel look and feel wonderful</li>
       <li>This is the best thing ever.</li>
+      <li>Excellent</li>
+      <li>This works great!  </li>
+      <li>Best thing since &amp;#34;sliced bread&amp;#34;.</li>
+      <li>Very happy with product.  </li>
+      <li>I thought this was going to be an excellent product because of the reviews.</li>
+      <li>My pedicurist is very happy.</li>
+      <li>I&#x27;m very happy with my purchase.</li>
+      <li>I&#x27;ve tried it all and this is just incredible!!!</li>
+      <li>If you let the tool do the work, and don&#x27;t press it into your foot, you&#x27;ll have great results!</li>
       <li>This works great!</li>
+      <li>works great!!!</li>
       <li>and oh gosh.. this is the BEST!!!</li>
+      <li>WONDERFUL!</li>
       <li>One of the best things I have ever bought.  </li>
       <li>Excellent purchase; works wonderfully</li>
+      <li>Perfect hand held foot smoother</li>
+      <li>Wonderful!</li>
       <li>IT WORKS GREAT!  </li>
+      <li>excellent piece of electrical equipment.</li>
+      <li>excellent way to exfoliate your feet and remove callouses.</li>
       <li>this is one of the best items i have purchase</li>
       <li>It does a wonderful job.</li>
+      <li>great product, does the job!</li>
+      <li>Works perfectly.</li>
+      <li>anything to help avoid gnarly feet is a welcome addition to my home pedicure routine!</li>
       <li>am really impressed with the Emjoi.</li>
+      <li>Very happy with this.  </li>
       <li>It was delightful experience.</li>
+      <li>Great product!  </li>
+      <li>Even he was impressed.</li>
       <li>Its the perfect in between treatment tool for me.</li>
+      <li>Happy feet!</li>
       <li>WORKS GREAT!</li>
-      <li>Best Pedi tool I have  ever owned!</li>
-      <li>And after years of pedicures, and still having problems, I bought one, and it&#x27;s the best solution my manicurist has every seen!  </li>
-      <li>Great product!</li>
-      <li>This will make great stocking stuffers for my sisters this year!</li>
-      <li>Best micro pedi EVER!</li>
-      <li>Best.</li>
-      <li>I have used both shapes and still can&#x27;t decide which one I like best  </li>
-      <li>Great product!</li>
-      <li>It works wonderfully.  </li>
-      <li>and it truly does a great job!</li>
-      <li>A great buy!</li>
-      <li>Very happy with the product and my purchase.</li>
-      <li>Great product!</li>
-      <li>this thing works great!  </li>
-      <li>very happy with it.</li>
-      <li>Very happy with this product.</li>
-      <li>These are great!  </li>
-      <li>Best callus remover that I have ever used.</li>
-      <li>Great for in-between touch ups!</li>
-      <li>Works great!  </li>
-      <li>I am so very happy that I found it!</li>
-      <li>I must say that I was really impressed.</li>
+      <li>Works perfect!!</li>
+      <li>This is the best footsie fixer I have tried.</li>
+      <li>My feet feel like satin lol!</li>
 </ol>
 
 
 <h2>Negative Reviews</h2>
 <ol>
+<li> it works great!!!</li>
+<li> Incredible product!!!</li>
+<li> This product is the best thing I have ever used to help with the removal of callus.&lt;br</li>
+<li> Works awesome!</li>
+<li> This is a great item!</li>
 <li> Did an unbelievably great job!</li>
+<li> Works great!</li>
+<li> Well it worked wonderful.</li>
 <li> Very happy with my purchase.  </li>
-<li> I&#x27;m very impressed.</li>
-<li> Best belt sander on the market!  </li>
-<li> This product is the best ever!</li>
-<li> Great product!  </li>
-<li> Happy feet!</li>
-<li> My home pedicure looks great !</li>
-<li> It works great!</li>
-<li> OMG this is amazing!!!  </li>
-<li> Gets the job done with excellent results</li>
-<li> &#x3D;D</li>
-<li> Came on time and it works great!</li>
-<li> It is wonderful and makes my life easier at work.</li>
-<li> very happy with the product</li>
-<li> and this has worked wonderfully on my feet.</li>
-<li> If you get a unit that works, it works great!</li>
-<li> WORKS GREAT!!!</li>
-<li> She is very happy with it.</li>
-<li> It does a wonderful job.  </li>
-<li> Otherwise, it&#x27;s great!</li>
-<li> I am giving an excellent rating because it came on time</li>
-<li> This is one of the best purchases I have ever made.</li>
-<li> This will make a wonderful and affordable gift for your friends.</li>
-<li> Awesome.</li>
-<li> Excellent product .... bought one for myself and one as a gift.</li>
-<li> Wonderful!</li>
-<li> Works perfectly.</li>
-<li> Even he was impressed.</li>
-<li> I cannot attest to its longevity yet, but I am quite impressed with the battery power.</li>
-<li> Excellent!</li>
-<li> Works great!!</li>
-<li> Excellent buy</li>
-<li> Best brand!  </li>
-<li> I’m very happy with the product.</li>
-<li> Great value!</li>
-<li> This is an awesome product.  </li>
-<li> This is the best footsie fixer I have tried.</li>
-<li> My pedicurist is very happy.</li>
-<li> This works great!  </li>
-<li> Excellent</li>
-<li> Excellent product.</li>
-<li> Great item in between pedis!</li>
-<li> This product is WONDERFUL.</li>
-<li> Awesome time saver!!!</li>
-<li> This thing is so awesome.</li>
 <li> Thank you Amazon, my feet are very happy!</li>
+<li> Great product!  </li>
 <li> This has to be the best thing I bought for my feet in years.</li>
+<li> Awesome.</li>
+<li> They also have a membership to receive refills which I will join as I am so impressed with this company.  </li>
+<li> This foot buffer is WONDERFUL!  </li>
+<li> Best winter feet I have ever had !  </li>
+<li> Thank you Emjoi for a wonderful product!</li>
+<li> I&#x27;m very impressed.</li>
+<li> Great product and service!</li>
+<li> Awesome time saver!!!</li>
 <li> Excellent!</li>
 <li> This works perfectly.  </li>
 <li> LOVE THIS PRODUCT!!!!</li>
+<li> This thing is awesome.  </li>
 <li> is one of the best investments ever for my foot health.  </li>
+<li> Excellent product .... bought one for myself and one as a gift.</li>
 <li> This product is great!</li>
+<li> This is the best callus remover.</li>
 <li> It keeps my feet looking great!</li>
+<li> My wife says it&#x27;s the best gift I have ever given her!</li>
+<li> Best belt sander on the market!  </li>
+<li> It works great!</li>
 <li> I was immediately impressed.  </li>
 <li> The hubby is impressed, too.  </li>
+<li> Best product I ever bought.</li>
 <li> What a great product!  </li>
 <li> Great purchase!</li>
+<li> Does an excellent job of doing what it was intended to do.</li>
+<li> This product is the best ever!</li>
+<li> Love this!!!!</li>
+<li> This product is WONDERFUL.</li>
+<li> Great item in between pedis!</li>
+<li> Very happy with my purchase.  </li>
+<li> It really impressed with the difference it made.  </li>
+<li> Works awesome  </li>
+<li> This will make a wonderful and affordable gift for your friends.</li>
 <li> I have an epilator from 1998 that still works perfectly!</li>
+<li> EXcellent product.</li>
+<li> Love it!!!!!</li>
+<li> It is the perfect size</li>
 <li> Works great!</li>
+<li> This is one of the best purchases I have ever made.</li>
 <li> Great buy !</li>
 <li> Excellent product......  </li>
 <li> This thing works great!  </li>
 <li> It works great!  </li>
+<li> Best price here on Amazon!&lt;br</li>
+<li> Excellent product.</li>
+<li> This thing is awesome.</li>
+<li> Excellent.</li>
+<li> It&#x27;s great!</li>
 <li> and it works great!</li>
 <li> and my feel look and feel wonderful</li>
 <li> This is the best thing ever.</li>
+<li> Excellent</li>
+<li> This works great!  </li>
+<li> Best thing since &amp;#34;sliced bread&amp;#34;.</li>
+<li> Very happy with product.  </li>
+<li> I thought this was going to be an excellent product because of the reviews.</li>
+<li> My pedicurist is very happy.</li>
+<li> I&#x27;m very happy with my purchase.</li>
+<li> I&#x27;ve tried it all and this is just incredible!!!</li>
+<li> If you let the tool do the work, and don&#x27;t press it into your foot, you&#x27;ll have great results!</li>
 <li> This works great!</li>
+<li> works great!!!</li>
 <li> and oh gosh.. this is the BEST!!!</li>
+<li> WONDERFUL!</li>
 <li> One of the best things I have ever bought.  </li>
 <li> Excellent purchase; works wonderfully</li>
+<li> Perfect hand held foot smoother</li>
+<li> Wonderful!</li>
 <li> IT WORKS GREAT!  </li>
+<li> excellent piece of electrical equipment.</li>
+<li> excellent way to exfoliate your feet and remove callouses.</li>
 <li> this is one of the best items i have purchase</li>
 <li> It does a wonderful job.</li>
+<li> great product, does the job!</li>
+<li> Works perfectly.</li>
+<li> anything to help avoid gnarly feet is a welcome addition to my home pedicure routine!</li>
 <li> am really impressed with the Emjoi.</li>
+<li> Very happy with this.  </li>
 <li> It was delightful experience.</li>
+<li> Great product!  </li>
+<li> Even he was impressed.</li>
 <li> Its the perfect in between treatment tool for me.</li>
+<li> Happy feet!</li>
 <li> WORKS GREAT!</li>
-<li> Best Pedi tool I have  ever owned!</li>
-<li> And after years of pedicures, and still having problems, I bought one, and it&#x27;s the best solution my manicurist has every seen!  </li>
-<li> Great product!</li>
-<li> This will make great stocking stuffers for my sisters this year!</li>
-<li> Best micro pedi EVER!</li>
-<li> Best.</li>
-<li> I have used both shapes and still can&#x27;t decide which one I like best  </li>
-<li> Great product!</li>
-<li> It works wonderfully.  </li>
-<li> and it truly does a great job!</li>
-<li> A great buy!</li>
-<li> Very happy with the product and my purchase.</li>
-<li> Great product!</li>
-<li> this thing works great!  </li>
-<li> very happy with it.</li>
-<li> Very happy with this product.</li>
-<li> These are great!  </li>
-<li> Best callus remover that I have ever used.</li>
-<li> Great for in-between touch ups!</li>
-<li> Works great!  </li>
-<li> I am so very happy that I found it!</li>
-<li> I must say that I was really impressed.</li>
+<li> Works perfect!!</li>
+<li> This is the best footsie fixer I have tried.</li>
+<li> My feet feel like satin lol!</li>
 </ol>
 
 <h2>All Reviews</h2>
@@ -1872,6 +1872,7 @@ modifiedAt: Thu Jan 09 2020 19:08:34 GMT+0530 (India Standard Time),
     <li> I haven&#x27;t had a pedi since I got it! It has taken care of all of the roughness on my heels.</li>
     <li> I have deformed feet that require me to make appointments with a podiatrist for callous removal every three months.  I am now able to safely remove the callous at home, saving me a lot of time and money.  I am very, very pleased!</li>
 </ol>
+
 
 
 

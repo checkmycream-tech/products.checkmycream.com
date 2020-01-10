@@ -3,8 +3,8 @@ title: Gillette Fusion ProGlide Men&#x27;s Razor Styler 3-In-1 Body Groomer and 
 description: Gillette Fusion ProGlide Men&#x27;s Razor Styler 3-In-1 Body Groomer and Beard Trimmer, Mens Razors / Blades,
 author: Suvojit Manna,
 tags: Gillette Fusion ProGlide Men&#x27;s Razor Styler 3-In-1 Body Groomer and Beard Trimmer, Mens Razors / Blades,
-publishedAt: Thu Jan 09 2020 19:08:34 GMT+0530 (India Standard Time),
-modifiedAt: Thu Jan 09 2020 19:08:34 GMT+0530 (India Standard Time),
+publishedAt: Fri Jan 10 2020 15:00:14 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:14 GMT+0530 (India Standard Time),
 ---
 
 # [Gillette Fusion ProGlide Men&#x27;s Razor Styler 3-In-1 Body Groomer and Beard Trimmer, Mens Razors / Blades](https://products.checkmycream.com/products/Gillette-Fusion-ProGlide-Men&#x27;s-Razor-Styler-3-In-1-Body-Groomer-and-Beard-Trimmer-Mens-Razors-Blades.html)
@@ -12,211 +12,211 @@ modifiedAt: Thu Jan 09 2020 19:08:34 GMT+0530 (India Standard Time),
 ### Positive Reviews
 
 <ol>
-      <li>This product is wonderful for a man touched by nature.</li>
-      <li>This thing is awesome for being under $20.  </li>
-      <li>You don&#x27;t have to worry about where you&#x27;re going to pile all the attachments, when the unit hold all of them perfectly.</li>
-      <li>and I gotta say I&#x27;m really impressed with what it did to my skin</li>
-      <li>One head gives you the excellent Gillette Fusion Proglide cartridge razor, which dermatologists recommend as the best razor for your skin.</li>
-      <li>My mustache looks its best now.</li>
-      <li>With that out of the way I was very impressed with the product.&lt;br /&gt;&lt;br</li>
-      <li>AWESOME.  </li>
-      <li>the best part is you can use it in the shower.  </li>
-      <li>Gillette Fusion ProGlide Styler is AWESOME !</li>
-      <li>Very impressive product!</li>
-      <li>All in all I am very impressed with this product and will tell family and friends.</li>
-      <li>It works the best out of every shaver I have every used</li>
-      <li>My girlfriend appreciates that I keep my body trimmed, and this was the perfect tool!</li>
-      <li>This styler is excellent!</li>
-      <li>Works Great!</li>
-      <li>I received this as a promotion from the Gillette and the product works excellent.</li>
-      <li>I will continue to suggest that everyone purchase one of these awesome shavers.</li>
-      <li>I was really impressed with it.</li>
-      <li>This trimmer works great!</li>
-      <li>Over all this trimmer is great!</li>
-      <li>Another great product from Gillette!</li>
-      <li>Best product on the market for the money!</li>
-      <li>As a man I am always trying to look my best and use products that help me to achieve that goal.</li>
-      <li>The Gillette Fusion Pro-Glide Style Power Trimmer is awesome.</li>
-      <li>but it turned out to be a the best grooming tool ever !</li>
-      <li>shave was incredible!</li>
-      <li>and you get an incredibly close shave without any irritation!</li>
-      <li>This is the best of the best.</li>
-      <li>I opened it up and put it all together and was immediately impressed by the compact all-in-one design of the holder.  </li>
-      <li>It is perfect in size and fits on my bathroom counter.</li>
-      <li>This is the best grooming product I&#x27;ve ever used.</li>
-      <li>I was impressed with all aspects of this styler.</li>
-      <li>The best part is that it&#x27;s lightweight and cordless.</li>
-      <li>I was immediately impressed with the grip and shape of the Styler.</li>
-      <li>Great all-in-one device!  </li>
-      <li>The trimmer is perfect for lining up your hair in between haircuts.</li>
-      <li>Started using Gillette Fusion Proglide Styler as part of a trial campaign from Gillette and I must admit I&#x27;m impressed.</li>
-      <li>It&#x27;s great!</li>
-      <li>it is the perfect size for me to trim.</li>
-      <li>I get a perfect shape every time.</li>
-      <li>It is awesome for shaving.</li>
-      <li>It is wonderful.</li>
-      <li>It is the perfect trimmer with a shave attachment.</li>
-      <li>This is one of the best razors I have ever used.  </li>
-      <li>I always do my shaving and trimming in the shower so this was perfect for me, No slips, nicks, or cuts and</li>
-      <li>makes him nervous close to his face so this trimmer is perfect.  </li>
-      <li>The Blades are awesome</li>
-      <li>but I like this one the best.</li>
-      <li>The razor itself did an awesome job as well.</li>
-      <li>The Gillette Fusion Proglide Styler Power Trimmer is awesome!  </li>
-      <li>Great product and save me a ton of space on my bathroom couter to boot!</li>
-      <li>The best part is you can use it in the shower.</li>
-      <li>Also the battery life is awesome,  and if it dies just change the battery</li>
-      <li>The trimmer works great!</li>
-      <li>I think this has the best razors on the planet!  </li>
-      <li>Now I dont have to wait as the Power trimmer cleans me up great!  </li>
-      <li>This is one of the best all around trimmers I have used.</li>
-      <li>This trimmer is probably one of the best ones I have ever found.</li>
-      <li>I tried all 3 to see the difference and was impressed.</li>
-      <li>Perfect for keeping your sideburns maintained, trimming your beard and shaping your mustache.</li>
-      <li>Awesome</li>
-      <li>length guide was the one thing I was impressed with about the Gillette Fusion Proglide trimmer.  </li>
+      <li>If you use the Gillette proglide razor then you can figure out how awesome this trimmer is.</li>
+      <li>PERFECT.</li>
+      <li>Lets just say it&#x27;s so awesome</li>
+      <li>This groomer worked perfectly.  </li>
+      <li>The blades are excellent though.</li>
+      <li>Very impressed.</li>
+      <li>Without hesitation and reservation &#x27;The Best A Man Can Get&#x27;.</li>
+      <li>Perfect all-in-one tool for grooming.</li>
+      <li>This is so awesome.</li>
+      <li>Very happy.</li>
+      <li>Works great!</li>
+      <li>The 3 Exchangeable Combs are perfect for any length beard.&lt;br</li>
+      <li>I also trimmed using the built in trimmer with excellent</li>
+      <li>And yes, it will make an excellent gift or stocking stuffer.</li>
+      <li>the three combs they include are perfect.</li>
+      <li>all in one razor with and awesome rugged manly look and, ITS WATERPROOF!!!</li>
+      <li>Prime shipping was awesome.</li>
+      <li>I got this for about $7 with a coupon and for the price, it is excellent.  </li>
+      <li>The Gillette Fusion Proglide Styler is an excellent product for the money.</li>
       <li>I also used it to trim my eye brow hair and it worked wonderful.</li>
+      <li>Works perfectly.</li>
       <li>The head is a perfect width and maneuvers the face well.</li>
-      <li>From the moment I opened it, I was impressed.  </li>
-      <li>Excellent razor/trimmer!  </li>
-      <li>/&gt;Overall, I&#x27;m very happy with my purchase.</li>
-      <li>very impressed by the size and weight of this unit...</li>
-      <li>The best part is that its waterproof for the shower.</li>
-      <li>I am very happy with the Styler Power Trimmer</li>
-      <li>The best thing I like about this, besides it runs off ONE AA battery and is waterproof, is the storage case it has.</li>
-      <li>I have been very impressed with this product.  </li>
-      <li>I would recommend this to any one who needs a great shave!</li>
-      <li>I have to admit, it is awesome!</li>
-      <li>This is the best multi purpose trimmer I have ever used.</li>
-      <li>Besides the trim length, this is a superb razor!  </li>
-      <li>best part about this shaver/trimmer is, its waterproof, which makes shaving/trimming a snap in the shower and cleanup is a breeze.&lt;br /&gt;&lt;br</li>
-      <li>is the best that I have come across.  </li>
-      <li>Real good product</li>
-      <li>If i knew beforehand how awesome this razor was going to be, i wouldve even opted to buy it myself.</li>
-      <li>It works great!</li>
-      <li>This is a wonderful trimmer/razor.</li>
-      <li>I recommend that you give it a try if you are looking for a great razor!</li>
-      <li>This trimmer is great!</li>
-      <li>This is the best trimmer/groomer I have owned.</li>
+      <li>The Gillette Fusion Proglide Styer 3-In-1 is the best beard grooming tool I&#x27;ve ever used.  </li>
+      <li>This thing doesn&#x27;t pull at all and it trims beautifully!  </li>
       <li>It has excellent balance</li>
-      <li>Great product!</li>
-      <li>so you can get that perfect look.</li>
-      <li>I&#x27;m very happy with Gillette Fusion Proglide Styler Power Trimmer and would recommend it to friends and family, as well as any Amazon readers who happen to read this review.</li>
-      <li>The attachments included work perfectly.</li>
-      <li>The Gillette Fusion ProGlide Styler Power Trimmer is the perfect accessory for almost any man.</li>
-      <li>The trimmer works perfectly.  </li>
-      <li>I can maneuver it to a perfect goatee trim.</li>
-      <li>I just love it!!!!</li>
-      <li>It&#x27;s battery operated and compact and does a great job!!</li>
-      <li>wherever else you might need, having it all in one tool is the best way to go.</li>
-      <li>The Gillette Fusion ProGlide Style Power Trimmer is awesome.</li>
-      <li>For price, and convenience, this is a great product!</li>
-      <li>Gillette Fusion ProGlide Styler Power Trimmer is so awesome.</li>
+      <li>From the moment I opened it, I was impressed.  </li>
+      <li>length guide was the one thing I was impressed with about the Gillette Fusion Proglide trimmer.  </li>
+      <li>The blade is awesome doesn&#x27;t irritate.</li>
+      <li>One of the best things about this razor is the price.</li>
+      <li>I tried the trimmer with the size 1, excellent!  </li>
+      <li>This thing is AWESOME!</li>
+      <li>excellent at the quoted price.....</li>
+      <li>Perfect.</li>
+      <li>Trimmer especially good for beard and mustache.</li>
+      <li>Awesome</li>
+      <li>works grate, best product from Gillette</li>
+      <li>Perfect for keeping your sideburns maintained, trimming your beard and shaping your mustache.</li>
+      <li>and this is perfect for it.</li>
+      <li>This was perfect as I was there with my wife for our 10-year anniversary vacation.</li>
+      <li>This product is wonderful for a man touched by nature.</li>
+      <li>&quot; look all the time, and I have to say this product is great for that!</li>
+      <li>This is perfect as a groomer / trimmer.&lt;br /&gt;Cons</li>
+      <li>The battery life has been SUPERB for me.  </li>
+      <li>AWESOME product!</li>
+      <li>Excellent and practical</li>
+      <li>/&gt;The greatest part of this is the size and convenience.  </li>
+      <li>I tried all 3 to see the difference and was impressed.</li>
+      <li>This is literally one of the best products I&#x27;ve ever bought.</li>
+      <li>This is an awesome razor.  </li>
+      <li>Excellent razor/trimmer!  </li>
+      <li>This product is excellent!</li>
+      <li>/&gt;Overall I am happy with this product!</li>
+      <li>This product was perfect for him!&lt;br /&gt;&lt;br</li>
+      <li>This is the best razor and trimmer that I have ever used.</li>
+      <li>Excellent trimmer.  </li>
+      <li>Shaves face excellently in the shower.  </li>
+      <li>and I was extremely impressed.</li>
+      <li>This trimmer is a excellent choice for any guys &amp;#34;manscaping&amp;#34; needs.</li>
+      <li>This razor gives me the best shaving experience I have ever had.  </li>
+      <li>This thing is awesome for being under $20.  </li>
+      <li>I am a hairy person and this trimmer has been an excellent weed whacker so to speak.</li>
+      <li>You don&#x27;t have to worry about where you&#x27;re going to pile all the attachments, when the unit hold all of them perfectly.</li>
+      <li>and that did the job perfectly.  </li>
+      <li>The blade guard is awesome and gives you a close trim without getting your balls or shaft caught.</li>
+      <li>perfect 5 out of 5 from me!</li>
+      <li>This thing was awesome!</li>
+      <li>It worked perfect for 14 months.</li>
+      <li>And the best is that you dont need to charge, just replace batteries</li>
+      <li>EXCELLENT PRODUCT</li>
+      <li>Otherwise, best value price in the market!</li>
+      <li>this unit I already know it is the best yet!!</li>
+      <li>Great device for the money!  </li>
+      <li>Trimmer is real good.</li>
+      <li>Just AMAZING!!!</li>
+      <li>Excellent product.</li>
+      <li>/&gt;Overall, I&#x27;m very happy with my purchase.</li>
+      <li>the best product of Gillette for the men....</li>
+      <li>This is the best razor I have ever used.  </li>
+      <li>and I gotta say I&#x27;m really impressed with what it did to my skin</li>
+      <li>I found the attachment that works perfect for me</li>
+      <li>It&#x27;s perfect for traveling.</li>
+      <li>Turned out to be an excellent choice.&lt;br /&gt;Not</li>
+      <li>I have been looking for a quality trimmer/groomer for a while and this product was perfect for me.</li>
+      <li>this has to be one of the best razors</li>
+      <li>Works great!</li>
+      <li>He thought it was a great tool!</li>
+      <li>Awesome deal on this product it works like a cham</li>
+      <li>And for the price, it&#x27;s a perfect</li>
+      <li>Got this Fusion Proglide at great price and what a difference!</li>
+      <li>but this is my go-to blade for going out or needing that real good look.</li>
+      <li>I found it to be the best shaver I&#x27;ve ever used.</li>
+      <li>,actually best shave ever.</li>
+      <li>Best shave I ever had with a blade</li>
+      <li>It is the best trimmer I have used to date.</li>
+      <li>Very happy with it.</li>
+      <li>It has every attachment you can think of and they all work great!!!</li>
+      <li>This is the best i have ever used!</li>
+      <li>very impressed by the size and weight of this unit...</li>
+      <li>One head gives you the excellent Gillette Fusion Proglide cartridge razor, which dermatologists recommend as the best razor for your skin.</li>
+      <li>This performed flawlessly.</li>
 </ol>
 
 
 <h2>Negative Reviews</h2>
 <ol>
-<li> This product is wonderful for a man touched by nature.</li>
-<li> This thing is awesome for being under $20.  </li>
-<li> You don&#x27;t have to worry about where you&#x27;re going to pile all the attachments, when the unit hold all of them perfectly.</li>
-<li> and I gotta say I&#x27;m really impressed with what it did to my skin</li>
-<li> One head gives you the excellent Gillette Fusion Proglide cartridge razor, which dermatologists recommend as the best razor for your skin.</li>
-<li> My mustache looks its best now.</li>
-<li> With that out of the way I was very impressed with the product.&lt;br /&gt;&lt;br</li>
-<li> AWESOME.  </li>
-<li> the best part is you can use it in the shower.  </li>
-<li> Gillette Fusion ProGlide Styler is AWESOME !</li>
-<li> Very impressive product!</li>
-<li> All in all I am very impressed with this product and will tell family and friends.</li>
-<li> It works the best out of every shaver I have every used</li>
-<li> My girlfriend appreciates that I keep my body trimmed, and this was the perfect tool!</li>
-<li> This styler is excellent!</li>
-<li> Works Great!</li>
-<li> I received this as a promotion from the Gillette and the product works excellent.</li>
-<li> I will continue to suggest that everyone purchase one of these awesome shavers.</li>
-<li> I was really impressed with it.</li>
-<li> This trimmer works great!</li>
-<li> Over all this trimmer is great!</li>
-<li> Another great product from Gillette!</li>
-<li> Best product on the market for the money!</li>
-<li> As a man I am always trying to look my best and use products that help me to achieve that goal.</li>
-<li> The Gillette Fusion Pro-Glide Style Power Trimmer is awesome.</li>
-<li> but it turned out to be a the best grooming tool ever !</li>
-<li> shave was incredible!</li>
-<li> and you get an incredibly close shave without any irritation!</li>
-<li> This is the best of the best.</li>
-<li> I opened it up and put it all together and was immediately impressed by the compact all-in-one design of the holder.  </li>
-<li> It is perfect in size and fits on my bathroom counter.</li>
-<li> This is the best grooming product I&#x27;ve ever used.</li>
-<li> I was impressed with all aspects of this styler.</li>
-<li> The best part is that it&#x27;s lightweight and cordless.</li>
-<li> I was immediately impressed with the grip and shape of the Styler.</li>
-<li> Great all-in-one device!  </li>
-<li> The trimmer is perfect for lining up your hair in between haircuts.</li>
-<li> Started using Gillette Fusion Proglide Styler as part of a trial campaign from Gillette and I must admit I&#x27;m impressed.</li>
-<li> It&#x27;s great!</li>
-<li> it is the perfect size for me to trim.</li>
-<li> I get a perfect shape every time.</li>
-<li> It is awesome for shaving.</li>
-<li> It is wonderful.</li>
-<li> It is the perfect trimmer with a shave attachment.</li>
-<li> This is one of the best razors I have ever used.  </li>
-<li> I always do my shaving and trimming in the shower so this was perfect for me, No slips, nicks, or cuts and</li>
-<li> makes him nervous close to his face so this trimmer is perfect.  </li>
-<li> The Blades are awesome</li>
-<li> but I like this one the best.</li>
-<li> The razor itself did an awesome job as well.</li>
-<li> The Gillette Fusion Proglide Styler Power Trimmer is awesome!  </li>
-<li> Great product and save me a ton of space on my bathroom couter to boot!</li>
-<li> The best part is you can use it in the shower.</li>
-<li> Also the battery life is awesome,  and if it dies just change the battery</li>
-<li> The trimmer works great!</li>
-<li> I think this has the best razors on the planet!  </li>
-<li> Now I dont have to wait as the Power trimmer cleans me up great!  </li>
-<li> This is one of the best all around trimmers I have used.</li>
-<li> This trimmer is probably one of the best ones I have ever found.</li>
-<li> I tried all 3 to see the difference and was impressed.</li>
-<li> Perfect for keeping your sideburns maintained, trimming your beard and shaping your mustache.</li>
-<li> Awesome</li>
-<li> length guide was the one thing I was impressed with about the Gillette Fusion Proglide trimmer.  </li>
+<li> If you use the Gillette proglide razor then you can figure out how awesome this trimmer is.</li>
+<li> PERFECT.</li>
+<li> Lets just say it&#x27;s so awesome</li>
+<li> This groomer worked perfectly.  </li>
+<li> The blades are excellent though.</li>
+<li> Very impressed.</li>
+<li> Without hesitation and reservation &#x27;The Best A Man Can Get&#x27;.</li>
+<li> Perfect all-in-one tool for grooming.</li>
+<li> This is so awesome.</li>
+<li> Very happy.</li>
+<li> Works great!</li>
+<li> The 3 Exchangeable Combs are perfect for any length beard.&lt;br</li>
+<li> I also trimmed using the built in trimmer with excellent</li>
+<li> And yes, it will make an excellent gift or stocking stuffer.</li>
+<li> the three combs they include are perfect.</li>
+<li> all in one razor with and awesome rugged manly look and, ITS WATERPROOF!!!</li>
+<li> Prime shipping was awesome.</li>
+<li> I got this for about $7 with a coupon and for the price, it is excellent.  </li>
+<li> The Gillette Fusion Proglide Styler is an excellent product for the money.</li>
 <li> I also used it to trim my eye brow hair and it worked wonderful.</li>
+<li> Works perfectly.</li>
 <li> The head is a perfect width and maneuvers the face well.</li>
-<li> From the moment I opened it, I was impressed.  </li>
-<li> Excellent razor/trimmer!  </li>
-<li> /&gt;Overall, I&#x27;m very happy with my purchase.</li>
-<li> very impressed by the size and weight of this unit...</li>
-<li> The best part is that its waterproof for the shower.</li>
-<li> I am very happy with the Styler Power Trimmer</li>
-<li> The best thing I like about this, besides it runs off ONE AA battery and is waterproof, is the storage case it has.</li>
-<li> I have been very impressed with this product.  </li>
-<li> I would recommend this to any one who needs a great shave!</li>
-<li> I have to admit, it is awesome!</li>
-<li> This is the best multi purpose trimmer I have ever used.</li>
-<li> Besides the trim length, this is a superb razor!  </li>
-<li> best part about this shaver/trimmer is, its waterproof, which makes shaving/trimming a snap in the shower and cleanup is a breeze.&lt;br /&gt;&lt;br</li>
-<li> is the best that I have come across.  </li>
-<li> Real good product</li>
-<li> If i knew beforehand how awesome this razor was going to be, i wouldve even opted to buy it myself.</li>
-<li> It works great!</li>
-<li> This is a wonderful trimmer/razor.</li>
-<li> I recommend that you give it a try if you are looking for a great razor!</li>
-<li> This trimmer is great!</li>
-<li> This is the best trimmer/groomer I have owned.</li>
+<li> The Gillette Fusion Proglide Styer 3-In-1 is the best beard grooming tool I&#x27;ve ever used.  </li>
+<li> This thing doesn&#x27;t pull at all and it trims beautifully!  </li>
 <li> It has excellent balance</li>
-<li> Great product!</li>
-<li> so you can get that perfect look.</li>
-<li> I&#x27;m very happy with Gillette Fusion Proglide Styler Power Trimmer and would recommend it to friends and family, as well as any Amazon readers who happen to read this review.</li>
-<li> The attachments included work perfectly.</li>
-<li> The Gillette Fusion ProGlide Styler Power Trimmer is the perfect accessory for almost any man.</li>
-<li> The trimmer works perfectly.  </li>
-<li> I can maneuver it to a perfect goatee trim.</li>
-<li> I just love it!!!!</li>
-<li> It&#x27;s battery operated and compact and does a great job!!</li>
-<li> wherever else you might need, having it all in one tool is the best way to go.</li>
-<li> The Gillette Fusion ProGlide Style Power Trimmer is awesome.</li>
-<li> For price, and convenience, this is a great product!</li>
-<li> Gillette Fusion ProGlide Styler Power Trimmer is so awesome.</li>
+<li> From the moment I opened it, I was impressed.  </li>
+<li> length guide was the one thing I was impressed with about the Gillette Fusion Proglide trimmer.  </li>
+<li> The blade is awesome doesn&#x27;t irritate.</li>
+<li> One of the best things about this razor is the price.</li>
+<li> I tried the trimmer with the size 1, excellent!  </li>
+<li> This thing is AWESOME!</li>
+<li> excellent at the quoted price.....</li>
+<li> Perfect.</li>
+<li> Trimmer especially good for beard and mustache.</li>
+<li> Awesome</li>
+<li> works grate, best product from Gillette</li>
+<li> Perfect for keeping your sideburns maintained, trimming your beard and shaping your mustache.</li>
+<li> and this is perfect for it.</li>
+<li> This was perfect as I was there with my wife for our 10-year anniversary vacation.</li>
+<li> This product is wonderful for a man touched by nature.</li>
+<li> &quot; look all the time, and I have to say this product is great for that!</li>
+<li> This is perfect as a groomer / trimmer.&lt;br /&gt;Cons</li>
+<li> The battery life has been SUPERB for me.  </li>
+<li> AWESOME product!</li>
+<li> Excellent and practical</li>
+<li> /&gt;The greatest part of this is the size and convenience.  </li>
+<li> I tried all 3 to see the difference and was impressed.</li>
+<li> This is literally one of the best products I&#x27;ve ever bought.</li>
+<li> This is an awesome razor.  </li>
+<li> Excellent razor/trimmer!  </li>
+<li> This product is excellent!</li>
+<li> /&gt;Overall I am happy with this product!</li>
+<li> This product was perfect for him!&lt;br /&gt;&lt;br</li>
+<li> This is the best razor and trimmer that I have ever used.</li>
+<li> Excellent trimmer.  </li>
+<li> Shaves face excellently in the shower.  </li>
+<li> and I was extremely impressed.</li>
+<li> This trimmer is a excellent choice for any guys &amp;#34;manscaping&amp;#34; needs.</li>
+<li> This razor gives me the best shaving experience I have ever had.  </li>
+<li> This thing is awesome for being under $20.  </li>
+<li> I am a hairy person and this trimmer has been an excellent weed whacker so to speak.</li>
+<li> You don&#x27;t have to worry about where you&#x27;re going to pile all the attachments, when the unit hold all of them perfectly.</li>
+<li> and that did the job perfectly.  </li>
+<li> The blade guard is awesome and gives you a close trim without getting your balls or shaft caught.</li>
+<li> perfect 5 out of 5 from me!</li>
+<li> This thing was awesome!</li>
+<li> It worked perfect for 14 months.</li>
+<li> And the best is that you dont need to charge, just replace batteries</li>
+<li> EXCELLENT PRODUCT</li>
+<li> Otherwise, best value price in the market!</li>
+<li> this unit I already know it is the best yet!!</li>
+<li> Great device for the money!  </li>
+<li> Trimmer is real good.</li>
+<li> Just AMAZING!!!</li>
+<li> Excellent product.</li>
+<li> /&gt;Overall, I&#x27;m very happy with my purchase.</li>
+<li> the best product of Gillette for the men....</li>
+<li> This is the best razor I have ever used.  </li>
+<li> and I gotta say I&#x27;m really impressed with what it did to my skin</li>
+<li> I found the attachment that works perfect for me</li>
+<li> It&#x27;s perfect for traveling.</li>
+<li> Turned out to be an excellent choice.&lt;br /&gt;Not</li>
+<li> I have been looking for a quality trimmer/groomer for a while and this product was perfect for me.</li>
+<li> this has to be one of the best razors</li>
+<li> Works great!</li>
+<li> He thought it was a great tool!</li>
+<li> Awesome deal on this product it works like a cham</li>
+<li> And for the price, it&#x27;s a perfect</li>
+<li> Got this Fusion Proglide at great price and what a difference!</li>
+<li> but this is my go-to blade for going out or needing that real good look.</li>
+<li> I found it to be the best shaver I&#x27;ve ever used.</li>
+<li> ,actually best shave ever.</li>
+<li> Best shave I ever had with a blade</li>
+<li> It is the best trimmer I have used to date.</li>
+<li> Very happy with it.</li>
+<li> It has every attachment you can think of and they all work great!!!</li>
+<li> This is the best i have ever used!</li>
+<li> very impressed by the size and weight of this unit...</li>
+<li> One head gives you the excellent Gillette Fusion Proglide cartridge razor, which dermatologists recommend as the best razor for your skin.</li>
+<li> This performed flawlessly.</li>
 </ol>
 
 <h2>All Reviews</h2>
@@ -2776,6 +2776,7 @@ modifiedAt: Thu Jan 09 2020 19:08:34 GMT+0530 (India Standard Time),
     <li> I have had some type of facial hair for over twenty years - beards, goatees, and even a short stint with a mustache (yet, too long from what my family tells me).  In that time I have had multiple beard trimmers and groomers to keep me looking my best.  I was lucky enough to get a free trimmer from Gillette and I have to say that I was really surprised at how much I liked the Fusion ProGlide Styler Power Trimmer.&lt;br /&gt;&lt;br /&gt;There is a lot to like.  The handle feels solid.  It has a great nonslip grip and it is the size is perfect.  Not too big, but not to small so that it takes too long to trim the beard.  I have always had trouble trimming the area between my upper lip and my nose.  Most beard trimmers and guards were bulky and wouldnt trim the hairs below the nose.  This groomer worked perfectly.  It&#x27;s also really easy to clean.  There are no minuscule screws to worry about.  It flips open and snaps shut.  But the best part is that I can use it in the shower - no more hairs flying all over the bathroom counter and floor.&lt;br /&gt;&lt;br /&gt;I have been trying to think of something that I didn&#x27;t like or that I would change in the product with no luck.  For the price, I think it is a steal.  I would absolutely buy another one of these trimmers should this one stop working.</li>
     <li> I&#x27;d had my eye on this product for a while and was thrilled to be selected by Gillette to receive it for free and to review it. First, I&#x27;ve always been an electric razor guy. I have light hair and sparse facial hair so an electric razor has always been easiest for me. As I&#x27;ve gotten older it has been tougher to keep up with the stubble. I figured it was worth trying the Fusion Proglide to see if it worked any better. Plus, the styler for a little manscaping was a necessary tool for me.&lt;br /&gt;&lt;br /&gt;The razor has been great, I have been really impressed. Is it more work than electric, sure it is. But my face is smoother and the vibration has cut down on razor burn which has always been a big problem for me. The shave is so close that I can very easily go two days between shaves. If it&#x27;s really necessary, I will just use the electric on the in-between days. Overall, I&#x27;m glad I tried it and will continue to use the razor.&lt;br /&gt;&lt;br /&gt;The styler tool has also worked better than any alternatives. First, I can get at those hairs that grow on the outside of the ear. One buzz once and week and no more stragglers. Throw on the guards and I take care of those unwanted hairs in unmentionable places. It&#x27;s much easier, and must less nerve-wracking than scissors. And let&#x27;s just say the work was noticed and appreciated.&lt;br /&gt;&lt;br /&gt;Very happy with the product and would recommend highly.</li>
 </ol>
+
 
 
 

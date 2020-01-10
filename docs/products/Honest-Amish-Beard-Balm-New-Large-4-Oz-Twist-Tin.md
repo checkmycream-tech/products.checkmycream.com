@@ -1,0 +1,290 @@
+---
+title: Honest Amish Beard Balm - New Large 4 Oz Twist Tin,
+description: Honest Amish Beard Balm - New Large 4 Oz Twist Tin,
+author: Suvojit Manna,
+tags: Honest Amish Beard Balm - New Large 4 Oz Twist Tin,
+publishedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
+---
+
+# [Honest Amish Beard Balm - New Large 4 Oz Twist Tin](https://products.checkmycream.com/products/Honest-Amish-Beard-Balm-New-Large-4-Oz-Twist-Tin.html)
+
+### Positive Reviews
+
+<ol>
+      <li>All around awesome product.</li>
+      <li>Bedtime is not the best time unless you want to condition your pillowcase!&lt;br /&gt;&lt;br</li>
+      <li>It is best used after you shower, and lasts all day.</li>
+      <li>This stuff is great!</li>
+      <li>The fragrance is wonderful and my fiancé loves it.</li>
+      <li>Best product out there for conditioning the beard.</li>
+      <li>Great product and service!</li>
+      <li>THIS COMPANY IS THE BEST AND ALL THERE PRODUCTS ARE I BELIEVE THE BEST MONEY CAN BUY.</li>
+      <li>Great customer service!</li>
+      <li>Very good product.</li>
+      <li>but it was just like the 1st one and works great.</li>
+      <li>Great stuff, my beard loves it.</li>
+      <li>WOLFGANG GREAT JOB AND</li>
+      <li>Great product.</li>
+      <li>Great leave in conditioner.</li>
+      <li>Great for longer beards; I would say not to bother with this product if your beard is under 1&amp;#34; long.&lt;br /&gt;&lt;br</li>
+      <li>and it&#x27;s great for your skin as well.</li>
+      <li>Great stuff.</li>
+      <li>Great for trips, holds shape well.</li>
+      <li>Great value for the money.  </li>
+      <li>Works great.</li>
+      <li>The smell is great and it does wonders for my beard.</li>
+      <li>this works great.</li>
+      <li>Great product, great service.</li>
+      <li>Great</li>
+      <li>Helps w growth and smells great.</li>
+      <li>This stuff is great.  </li>
+      <li>Great for taming the &amp;#34;wild man&amp;#34; beard.</li>
+      <li>Keeping my beard honest!</li>
+      <li>Pleasant aroma.</li>
+      <li>I bought this before and loved it.</li>
+      <li>It smells good and gives my beard a well tendered look.</li>
+      <li>Good protection and adds vitality.  </li>
+      <li>Good product.</li>
+      <li>Good product.  </li>
+      <li>I am so happy to have found Honest Amish Beard Balm</li>
+      <li>Good stuff.</li>
+      <li>but, they all love it!</li>
+      <li>Easy to apply and smells great.  </li>
+      <li>It is easy to use, smells great and makes my beard manageable.</li>
+      <li>On my 4th tin now, product is amazing.</li>
+      <li>Honest Amish makes some amazing, all-natural items.</li>
+      <li>This product is amazing.</li>
+      <li>This balm is amazing...</li>
+      <li>Beard looks really nice</li>
+      <li>If you want all-natural body and beard care, try everything Honest Amish has to offer.</li>
+      <li>Gives my beard a nice sheen.</li>
+      <li>Nice product.</li>
+      <li>I wouldn&#x27;t put it in just before going out in nice wear.</li>
+      <li>I use it along with Honest Amish Beard Oil on my face as well.</li>
+      <li>He loves both the Honest Amish beard oil and balm.</li>
+      <li>Nice scent, but it hasn&#x27;t resolved my flaking or itching problems.</li>
+      <li>ALREADY WAITING ON ORDERS FROM HONEST AMISH.</li>
+      <li>well, it smells nice to my fiancé</li>
+      <li>Please send me an Honest Amish Beard kit for the price of sayyyy on the house.  </li>
+      <li>smell is very pleasant and it melts quickly from the heat of your fingers , so is easy to apply.&lt;br</li>
+      <li>Makes me beard soft and magnificent.</li>
+      <li>OUR GREAT GREAT GRANDPARENTS USED WAY BACK THEN .....</li>
+      <li>Of course the above is my own method; you must find what works best for you.&lt;br /&gt;&lt;br</li>
+      <li>I use this on most of the beard and the Hones Amish Beard Wax on my mustache.</li>
+      <li>I USED MANY PRODUCT THAT DID NOT STAND UP TO THERE NAME....</li>
+      <li>YOU WILL LOVE IT</li>
+      <li>Smells great and after prolonged use you really can feel a difference in the strength of your beard.</li>
+      <li>, the product gives a nice light what I would describe as a sheen when the sun hits  the gloriousness under my chin.</li>
+      <li>Love this stuff.</li>
+      <li>Not quite sure what I&#x27;ll do if they ever stop making these.</li>
+      <li>Meaning the straggling hairs I still have were straightened and tamed better.</li>
+      <li>I love the smell and containerization.  </li>
+      <li>It was ok.</li>
+      <li>Love the stuff that&#x27;s it....</li>
+      <li>I would love to try your oil.</li>
+      <li>If you&#x27;re growing a beard, you&#x27;re going to want a buy a tin of this magical balm.</li>
+      <li>Fantastic product!  </li>
+      <li>and I love the smell.</li>
+      <li>My son&#x27;s love this product and all four of them use it.  </li>
+      <li>I have received compliments on how healthy my beard looks since I started using this.</li>
+      <li>My beard thanks the good people at Honest Amish</li>
+      <li>/&gt;Apparently he bought me some Honest Amish beard wax which keeps me looking clean on business days.</li>
+      <li>This stuff smells good at first, then after a bit it smells like vomit.  </li>
+      <li>Pretty good investment for me.</li>
+      <li>Quick delivery, nicely packaged.</li>
+      <li>I have to say, I like the sent of this one better and his beard looks better with this balm than the one he originally tried.</li>
+      <li>This made the hair smooth, soft, shiny, and all flowing beautifully in one direction.</li>
+      <li>My beard feels soft and smells great</li>
+      <li>I am pretty sure he is hooked!</li>
+      <li>Easy to apply</li>
+      <li>you are: unique, self-caring and willing to go the extra mile to be your best!</li>
+      <li>/&gt;It does help smooth things together a bit, but certainly shouldn&#x27;t replace an Honest Amish wax in your arsenal.  </li>
+      <li>This larger sized container is great for longer times between purchases.</li>
+      <li>I&#x27;m so happy they made this bigger size.  </li>
+      <li>I wear a shirt and tie to work every day and the balm will stain light colored ties and dress shirts.</li>
+      <li>The beard balm has a nice smell, and works into the beard really well.  </li>
+      <li>Unique fragrance.</li>
+      <li>It doesn&#x27;t travel as well as the smaller one, but it&#x27;s nice to have more of it.</li>
+      <li>Good product I use it daily.</li>
+      <li>Even though I live in Miami Florida, it came in perfect condition and not melted as some other reviewers</li>
+      <li>Quick Shipping.</li>
+      <li>Basically, this is the same stuff (which is to say, awesome) in a larger container.  </li>
+      <li>I would highly recommend this product to anyone with more than stubble.</li>
+      <li>Once it full melts, though, it goes on easy and makes the beard really shine.</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> All around awesome product.</li>
+<li> Bedtime is not the best time unless you want to condition your pillowcase!&lt;br /&gt;&lt;br</li>
+<li> It is best used after you shower, and lasts all day.</li>
+<li> This stuff is great!</li>
+<li> The fragrance is wonderful and my fiancé loves it.</li>
+<li> Best product out there for conditioning the beard.</li>
+<li> Great product and service!</li>
+<li> THIS COMPANY IS THE BEST AND ALL THERE PRODUCTS ARE I BELIEVE THE BEST MONEY CAN BUY.</li>
+<li> Great customer service!</li>
+<li> Very good product.</li>
+<li> but it was just like the 1st one and works great.</li>
+<li> Great stuff, my beard loves it.</li>
+<li> WOLFGANG GREAT JOB AND</li>
+<li> Great product.</li>
+<li> Great leave in conditioner.</li>
+<li> Great for longer beards; I would say not to bother with this product if your beard is under 1&amp;#34; long.&lt;br /&gt;&lt;br</li>
+<li> and it&#x27;s great for your skin as well.</li>
+<li> Great stuff.</li>
+<li> Great for trips, holds shape well.</li>
+<li> Great value for the money.  </li>
+<li> Works great.</li>
+<li> The smell is great and it does wonders for my beard.</li>
+<li> this works great.</li>
+<li> Great product, great service.</li>
+<li> Great</li>
+<li> Helps w growth and smells great.</li>
+<li> This stuff is great.  </li>
+<li> Great for taming the &amp;#34;wild man&amp;#34; beard.</li>
+<li> Keeping my beard honest!</li>
+<li> Pleasant aroma.</li>
+<li> I bought this before and loved it.</li>
+<li> It smells good and gives my beard a well tendered look.</li>
+<li> Good protection and adds vitality.  </li>
+<li> Good product.</li>
+<li> Good product.  </li>
+<li> I am so happy to have found Honest Amish Beard Balm</li>
+<li> Good stuff.</li>
+<li> but, they all love it!</li>
+<li> Easy to apply and smells great.  </li>
+<li> It is easy to use, smells great and makes my beard manageable.</li>
+<li> On my 4th tin now, product is amazing.</li>
+<li> Honest Amish makes some amazing, all-natural items.</li>
+<li> This product is amazing.</li>
+<li> This balm is amazing...</li>
+<li> Beard looks really nice</li>
+<li> If you want all-natural body and beard care, try everything Honest Amish has to offer.</li>
+<li> Gives my beard a nice sheen.</li>
+<li> Nice product.</li>
+<li> I wouldn&#x27;t put it in just before going out in nice wear.</li>
+<li> I use it along with Honest Amish Beard Oil on my face as well.</li>
+<li> He loves both the Honest Amish beard oil and balm.</li>
+<li> Nice scent, but it hasn&#x27;t resolved my flaking or itching problems.</li>
+<li> ALREADY WAITING ON ORDERS FROM HONEST AMISH.</li>
+<li> well, it smells nice to my fiancé</li>
+<li> Please send me an Honest Amish Beard kit for the price of sayyyy on the house.  </li>
+<li> smell is very pleasant and it melts quickly from the heat of your fingers , so is easy to apply.&lt;br</li>
+<li> Makes me beard soft and magnificent.</li>
+<li> OUR GREAT GREAT GRANDPARENTS USED WAY BACK THEN .....</li>
+<li> Of course the above is my own method; you must find what works best for you.&lt;br /&gt;&lt;br</li>
+<li> I use this on most of the beard and the Hones Amish Beard Wax on my mustache.</li>
+<li> I USED MANY PRODUCT THAT DID NOT STAND UP TO THERE NAME....</li>
+<li> YOU WILL LOVE IT</li>
+<li> Smells great and after prolonged use you really can feel a difference in the strength of your beard.</li>
+<li> , the product gives a nice light what I would describe as a sheen when the sun hits  the gloriousness under my chin.</li>
+<li> Love this stuff.</li>
+<li> Not quite sure what I&#x27;ll do if they ever stop making these.</li>
+<li> Meaning the straggling hairs I still have were straightened and tamed better.</li>
+<li> I love the smell and containerization.  </li>
+<li> It was ok.</li>
+<li> Love the stuff that&#x27;s it....</li>
+<li> I would love to try your oil.</li>
+<li> If you&#x27;re growing a beard, you&#x27;re going to want a buy a tin of this magical balm.</li>
+<li> Fantastic product!  </li>
+<li> and I love the smell.</li>
+<li> My son&#x27;s love this product and all four of them use it.  </li>
+<li> I have received compliments on how healthy my beard looks since I started using this.</li>
+<li> My beard thanks the good people at Honest Amish</li>
+<li> /&gt;Apparently he bought me some Honest Amish beard wax which keeps me looking clean on business days.</li>
+<li> This stuff smells good at first, then after a bit it smells like vomit.  </li>
+<li> Pretty good investment for me.</li>
+<li> Quick delivery, nicely packaged.</li>
+<li> I have to say, I like the sent of this one better and his beard looks better with this balm than the one he originally tried.</li>
+<li> This made the hair smooth, soft, shiny, and all flowing beautifully in one direction.</li>
+<li> My beard feels soft and smells great</li>
+<li> I am pretty sure he is hooked!</li>
+<li> Easy to apply</li>
+<li> you are: unique, self-caring and willing to go the extra mile to be your best!</li>
+<li> /&gt;It does help smooth things together a bit, but certainly shouldn&#x27;t replace an Honest Amish wax in your arsenal.  </li>
+<li> This larger sized container is great for longer times between purchases.</li>
+<li> I&#x27;m so happy they made this bigger size.  </li>
+<li> I wear a shirt and tie to work every day and the balm will stain light colored ties and dress shirts.</li>
+<li> The beard balm has a nice smell, and works into the beard really well.  </li>
+<li> Unique fragrance.</li>
+<li> It doesn&#x27;t travel as well as the smaller one, but it&#x27;s nice to have more of it.</li>
+<li> Good product I use it daily.</li>
+<li> Even though I live in Miami Florida, it came in perfect condition and not melted as some other reviewers</li>
+<li> Quick Shipping.</li>
+<li> Basically, this is the same stuff (which is to say, awesome) in a larger container.  </li>
+<li> I would highly recommend this product to anyone with more than stubble.</li>
+<li> Once it full melts, though, it goes on easy and makes the beard really shine.</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> Quick Shipping. Nice product. Would use again.</li>
+    <li> Great stuff, my beard loves it. Helps w growth and smells great.</li>
+    <li> As advertised. Prompt delivery. Very concentrate (small dab will do ya).  Doesn&#x27;t take much to moisturize your beard. Good protection and adds vitality.  Unique fragrance. I like it.</li>
+    <li> This is my second container.</li>
+    <li> I cleverly disguised this beard balm as a Christmas present for my boyfriend and his unruly facial hair.  Every throne needs a cushion, and every cushion needs to be maintained.  This stuff turned a straw-filled burlap sack into a satin pillow, and I think I need to go take a seat now!</li>
+    <li> My husband swears by this stuff and it really does work! Conditions and prevents breakage for ultimate beard length.</li>
+    <li> Nice scent, but it hasn&#x27;t resolved my flaking or itching problems.</li>
+    <li> Very good product. If you don&#x27;t need to hardcore tame you beard this works great. I like the smell, however; my wife doesn&#x27;t like it. Just your preference. It is best used after you shower, and lasts all day.</li>
+    <li> Love the stuff that&#x27;s it....</li>
+    <li> Honest Amish makes some amazing, all-natural items. I&#x27;ve purchased several things from them and have never been disappointed. This larger sized container is great for longer times between purchases. Definitely add to your beard when the hair is damp. I usually apply mine after a shower. The fragrance is wonderful and my fiancé loves it. Be warned, the all natural oils take a little longer to absorb which means it can rub off onto clothing. I wouldn&#x27;t put it in just before going out in nice wear. Give it a couple of hours. If you want all-natural body and beard care, try everything Honest Amish has to offer.</li>
+    <li> I got this for my husband after he tried a similar product at an Art &amp; Wine festival recently. He hadn&#x27;t been using any beard grooming products until he tried that one so we came home and searched Amazon for a highly rated beard oil and balm. I have to say, I like the sent of this one better and his beard looks better with this balm than the one he originally tried. I am pretty sure he is hooked! He loves both the Honest Amish beard oil and balm. I forsee many future orders!</li>
+    <li> Product leaked all over, unacceptable.</li>
+    <li> Good stuff. Leaves my beard nice and soft, with the little scraggly runaway hairs under control.</li>
+    <li> A little too messy for me to apply.  But, it may just be pilot error on my part.</li>
+    <li> This stuff is great.  I&#x27;ve been using the smaller tin before now, and I&#x27;m almost done with it and ready to move on to this bigger tin.  The beard balm has a nice smell, and works into the beard really well.  You do need to spend a few seconds (15?) rubbing your palms together to &#x27;melt&#x27; the balm, otherwise it&#x27;ll look grainy.  Once it full melts, though, it goes on easy and makes the beard really shine.</li>
+    <li> Wolfgang is a gentleman. I bought this before and loved it. Bought the bigger 4 oz. tin this time and it wasn&#x27;t quite the same. It had a lot of micro beads in it and was hard to work through my beard. I contacted the seller. He sent me a new tin (I was a bit wary that maybe it would be similar to the last one) but it was just like the 1st one and works great. I must have just received a weird batch. Anyway to boot I suppose for my troubles, he completely refunded my money. That&#x27;s above and beyond. Great product, great service. Thank you...will buy again.</li>
+    <li> Fantastic product!  Great customer service!</li>
+    <li> Product was shipped and received fast.  This balm is the Bomb!  I plan on re-ordering (it wont be too soon with this super economical 4 Oz Tin.  Great value for the money.  Pleasant aroma.</li>
+    <li> Over the years I have tried to grow a beard with little success. Not because I could not grow a beard, but because I suffer from dry/itchy skin. After a week and half I would have to shave ASAP. I have tried a few different oils, but it wasn&#x27;t until I began using Honest Amish Beard Balm, that I was able to grow a beard and maintain it (4 Months, being the longest I went without shaving).&lt;br /&gt;&lt;br /&gt;Shipped:&lt;br /&gt;* Even though I live in Miami Florida, it came in perfect condition and not melted as some other reviewers posted.&lt;br /&gt;&lt;br /&gt;How I use it:&lt;br /&gt;* I use it right after I either wash my beard or shower.&lt;br /&gt;* Press my pointer finger slightly in the tin and just take enough that it covers it slightly and than I rub it into my palm and than rub it in both my hands and apply it to my beard. If I feel that it was not enough to cover my beard, and than go for a second dip.&lt;br /&gt;&lt;br /&gt;Pros&lt;br /&gt;* Shiny beard.&lt;br /&gt;* My beard actually gets a little bit softer.&lt;br /&gt;* No more dry or flaky skin underneath my beard.</li>
+    <li> Gives my beard a sheen like no other.  Plus my gal loves the smell!!  Haven&#x27;t had a bad beard day since I started using the balm.</li>
+    <li> Great product. Gives my beard a nice sheen. All the natural oils really do moisturize and there isn&#x27;t much of a greasy feeling like I have experienced with  other balms. Smells great and after prolonged use you really can feel a difference in the strength of your beard. Easy to apply and you really don&#x27;t need a lot to get the whole beard prepped for all the Chuck Norris like challenges my bearded bretheren may face in the day. All around awesome product.</li>
+    <li> I have used this product religiously and it does wonders for my beard.  It makes my beard soft to the touch and much more manageable than with only hair conditioner alone. I love the smell and containerization.  I do have one thing for potential buyers to consider: this product has a very low melting temp...  This means it does not travel well during hot summer weather. This would not be a huge problem but the contain will leak and it does make a mess.</li>
+    <li> I bought a tin of Honest Amish Beard Balm from a different vendor (bad choice) and now I&#x27;m placing an order through Amazon.com for the Original Formula in the 4 oz. size. Not only is the price right, the Beard Balm is a product you&#x27;ll want to use daily to get the maximum benefit.&lt;br /&gt;&lt;br /&gt;This is absolutely not &amp;#34;beard perfume&amp;#34; or meant for occasional use. Even if used conservatively, you&#x27;ll be surprised how fast it goes. (That&#x27;s not to say that you goop it on like Brylcream!)&lt;br /&gt;&lt;br /&gt;Here&#x27;s the secret to making best use of the Amish Beard Balm: press two fingers firmly into the tin and scoop out some product. Place the Balm in the plan of one hand and then vigorously rub your palms together until the Balm liquifies. This may require 15 - 30 seconds and will spread the softened Balm over your hands. Now rub the Balm gently into your bearding, from the top down. Do this several times, paying attention to the mustache, the lower, heavier hair, and around the sideburns. Don&#x27;t forget the small areas toward the back of the bearding. Really stroke it into the bulk of hair from lower cheeks to the throat. Work in top-to-bottom strokes, not circles or fingertips.&lt;br /&gt;&lt;br /&gt;Go with the grain of the hair, using one hand for each side of the face. I know this sounds like a &amp;#34;process,&amp;#34; but the whole operation takes a minute or less. Of course the above is my own method; you must find what works best for you.&lt;br /&gt;&lt;br /&gt;If I have a tiny bit of Beard Balm left on my hands, I&#x27;ll even swipe it across my eyebrows! Can&#x27;t hurt, just don&#x27;t rub it into your eyes.&lt;br /&gt;&lt;br /&gt;The long-term benefit of daily use cannot be forgotten! Just as you clean your teeth daily, so you should apply Amish Beard Balm daily. Bedtime is not the best time unless you want to condition your pillowcase!&lt;br /&gt;&lt;br /&gt;May your beard grow long and rich, and may it express the type of man you are: unique, self-caring and willing to go the extra mile to be your best!</li>
+    <li> This stuff is the best!&lt;br /&gt;I have tried both the &amp;#34;regular&amp;#34; beard balm and the &amp;#34;heavy duty&amp;#34; beard balm and like the regular far better because it softens my beard better. I&#x27;ve tried a lot of beard oils and leave in conditioners and Honest Amish Beard Balm is hands down the best!&lt;br /&gt;&lt;br /&gt;This goes a long way and a tin of this will last a long time.&lt;br /&gt;The smell is very pleasant and it melts quickly from the heat of your fingers , so is easy to apply.&lt;br /&gt;&lt;br /&gt;If my review was helpful to you , please take the time to check the &amp;#34;helpful&amp;#34; box below.&lt;br /&gt;Thank you !</li>
+    <li> Great stuff. The smell is great and it does wonders for my beard. Glad they&#x27;ve got it in the larger size now.</li>
+    <li> I already wrote a review for this product in the smaller size.  Basically, this is the same stuff (which is to say, awesome) in a larger container.  I&#x27;m so happy they made this bigger size.  It doesn&#x27;t travel as well as the smaller one, but it&#x27;s nice to have more of it.</li>
+    <li> This stuff is great! Use it daily with a boar&#x27;s hair bristle brush and your steel wool mane may start looking shiny and royal like mine.</li>
+    <li> I&#x27;m a fairly new beard. Most of my color is black. Some of my color is orange and considering my 3 kids...some will be gray soon. I&#x27;m estactic that my owner applies this Honest Amish beard balm on the daily. It keeps me and my surrounding skin feelin right and tight.&lt;br /&gt;Apparently he bought me some Honest Amish beard wax which keeps me looking clean on business days. His fianc&amp;eacute; has a pet beaver that enjoys how soft I am too. Please send me an Honest Amish Beard kit for the price of sayyyy on the house.  I would love to try your oil.</li>
+    <li> Great leave in conditioner. Leaves beard soft.</li>
+    <li> Works wonders. I am seeing growth daily. Pretty good investment for me.</li>
+    <li> Worked great on keeping  it from getting dried</li>
+    <li> Great for trips, holds shape well.</li>
+    <li> I love the smell, that understated, masculine aroma and it does wonders for the luster and shine of my otherwise hopeless beard. I would highly recommend this product to anyone with more than stubble.</li>
+    <li> Great product and service! Will be back for more.</li>
+    <li> Good product I use it daily.</li>
+    <li> On my 4th tin now, product is amazing. Not quite sure what I&#x27;ll do if they ever stop making these.</li>
+    <li> I USED MANY PRODUCT THAT DID NOT STAND UP TO THERE NAME....THESE PEOPLE HAVE BROUGHT LONG BEARD CARE TO A NEW LEVEL. I EVEN WENT AS FAR AS TO CONTACT WOLFGANG THE OWNER AND WE EMAIL EACH OTHER ON OCCASIONS. THIS COMPANY IS THE BEST AND ALL THERE PRODUCTS ARE I BELIEVE THE BEST MONEY CAN BUY. WE JUST GOT SOME SOAP FROM THEM AND MY WIFE SHARED THEM WITH HER LADY FRIENDS AND THEIR ALREADY WAITING ON ORDERS FROM HONEST AMISH. IT IS LIKE PRODUCT OUR GREAT GREAT GRANDPARENTS USED WAY BACK THEN .....PRODUCTS THAT WORKED AND STOOD FOR WHAT THEY SAID THEY WOULD DO. AND THE FRAGRANT SMELLS OF ALL THERE PRODUCT IT SO RELAXING....I AND A HARD CORE HARLEY DAVIDSON RIDER AND I USE ALL THERE MEN PRODUCTS AND BEARD CARE BALMS AND WAXES....I WILL SAY 100% APPROVED BY ME AND MY RIDING BUDDIES. WE ALL CARRY A CAN WITH US NOW.  WOLFGANG GREAT JOB AND ONLY GROW MY FRIEND NEVER STOP WHAT YOUR DOING OR MAKING AT YOUR SHOP. I AM YOUR NUMBER 1 FAN AND WILL BE A LIFE TIME USER.....I BELIEVE MY WORDS SAY IT ALL....BUY, BUY, BUY....YOU WILL LOVE IT AS MUCH AS ME.</li>
+    <li> Works great. Subtle smell. It does everything it is meant to do. Highly suggest this product.  I would however have given all stars if it were a little stronger. Meaning the straggling hairs I still have were straightened and tamed better.</li>
+    <li> If you&#x27;re growing a beard, you&#x27;re going to want a buy a tin of this magical balm. Makes me beard soft and magnificent. Take care of your manly manes gentlemen. I&#x27;ve already ordered 2 tins and will continue to order this stuff as long as I have strands of man growing from my face</li>
+    <li> This balm is amazing...it conditions very well and very little (just a dab on the tip of your index finger) is needed to get desired results. Rub it between your palms to liquify, and apply to the beard...oh, the awesomeness... The smell...a lot of reviews I&#x27;ve read state negatives about the scent...well, it smells nice to my fiancé and I love the smell. Keep in mind, it&#x27;s not a perfume for women...it&#x27;s a balm for men with beards. Best product out there for conditioning the beard.</li>
+    <li> My beard thanks the good people at Honest Amish, the product gives a nice light what I would describe as a sheen when the sun hits  the gloriousness under my chin. It also leaves my otherwise leathery skin supple, I even on occasion run it through what few hairs I have left on top of my bonce and well this maybe TMI but a little advice for any of you young eligble bachelor types - work a little of this magic into the hair down there before a big night out it&#x27;ll give you the edge you need lads, it&#x27;s a jungle out there! or down there.</li>
+    <li> If you have a beard you need this.</li>
+    <li> Before I started using Honest Amish Beard Balm, my beard was dry and brittle. The ends would break off and it looked ragged. Been using the balm for a year now and it&#x27;s never been healthier. If you&#x27;re going to have a beard more than a couple inches long, mine is around 8 now, you should use this stuff. I highly recommend it.</li>
+    <li> This stuff smells good at first, then after a bit it smells like vomit.  It&#x27;s difficult to take by the end of the day. No one else has made this comment, so maybe I got a bad batch.</li>
+    <li> This stuff keeps my beard conditioned and ruly. I&#x27;m very sensitive to scented anything and this stuff smells very natural and mild when you put it on and then the scent is gone in less than an hour and has never bothered me.  I&#x27;ve been using it for years now. I only wish they sold it in a bulk pack for a discount.</li>
+    <li> I put this on my beard everyday. It smells good and gives my beard a well tendered look. I have received compliments on how healthy my beard looks since I started using this.</li>
+    <li> Keeping my beard honest!</li>
+    <li> This product is amazing. The balm leaves your beard feeling fresh and takes the frizz out. I&#x27;m definitely going to purchase this again.</li>
+    <li> I&#x27;m normally not one to rave about a grooming product, but I couldn&#x27;t believe what a difference this balm made in my beard. It was almost like I&#x27;d gotten a facial hair transplant. This made the hair smooth, soft, shiny, and all flowing beautifully in one direction. Great for longer beards; I would say not to bother with this product if your beard is under 1&amp;#34; long.&lt;br /&gt;&lt;br /&gt;The scent is not overpowering. It&#x27;s similar to black licorice (or the liquor Jagermeister, if you&#x27;re familiar with it).&lt;br /&gt;&lt;br /&gt;The only reason I&#x27;m giving it 4 stars instead of 5 is that it gave me zits in my beard. If you don&#x27;t have acne-prone skin like me this may not be an issue for you.</li>
+    <li> My beard feels soft and smells great</li>
+    <li> My son&#x27;s love this product and all four of them use it.  I wouldn&#x27;t personally know, but, they all love it!</li>
+    <li> My girlfriend was a little skeptical at first but all of her friends noticed it when giving me hugs and held for longer than the she liked and would keep coming back for another smell. Now the girlfriend loves it. And if you&#x27;re single, right below a woman&#x27;s nose are their lips...and somewhere inside my beard are my lips, I mean inside your beard are your lips, so when they come in for a smell it&#x27;s quite easy for other things to happen.</li>
+    <li> I am so happy to have found Honest Amish Beard Balm so I can stop using things from the &amp;#34;cosmetic&amp;#34; counter or try to convert hair treatment items for use on my beard. I&#x27;ve a full beard for over half my life and this is the first time, the first product I&#x27;ve used that is truly and specifically for a man&#x27;s beard. It is easy to use, smells great and makes my beard manageable.</li>
+    <li> I use this daily whether I am sporting a beard or a moustache to keep my facial hair looking presentable.  Easy to apply and smells great.  No joke-- you only need a little bit, so the tin lasts a long time.  Great value.&lt;br /&gt;&lt;br /&gt;It does help smooth things together a bit, but certainly shouldn&#x27;t replace an Honest Amish wax in your arsenal.  I&#x27;ve often applied it to figure out which hairs are particularly disagreeable when I&#x27;m considering a trim.</li>
+    <li> Love this stuff. I just started using it on my beard and can already tell the difference. I use this on most of the beard and the Hones Amish Beard Wax on my mustache. Great for taming the &amp;#34;wild man&amp;#34; beard. 5/5</li>
+    <li> very thick and holds beard together</li>
+    <li> It was ok. I&#x27;ll keep using it</li>
+    <li> JUST BUY IT! Itching is 95% gone. Beard looks really nice and it&#x27;s great for your skin as well. I use it along with Honest Amish Beard Oil on my face as well. It has nearly eliminated the redness I alway had due to seborrheic dermatitis. (Not cured, but using it daily has virtually eliminated the redness and flaky skin.) I know they don&#x27;t sell it for this purpose but it has worked for me.</li>
+    <li> Good product.  Son loves it.</li>
+    <li> Good product. You need to be careful though. I wear a shirt and tie to work every day and the balm will stain light colored ties and dress shirts.</li>
+    <li> Quick delivery, nicely packaged. The recipient loves hoe soft this makes his beard.</li>
+</ol>
+
+
+
+

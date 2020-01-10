@@ -1,0 +1,275 @@
+---
+title: CND Shellac UV Color - Decadence .25 oz.,
+description: CND Shellac UV Color - Decadence .25 oz.,
+author: Suvojit Manna,
+tags: CND Shellac UV Color - Decadence .25 oz.,
+publishedAt: Fri Jan 10 2020 15:00:05 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:05 GMT+0530 (India Standard Time),
+---
+
+# [CND Shellac UV Color - Decadence .25 oz.](https://products.checkmycream.com/products/CND-Shellac-UV-Color-Decadence-.25-oz..html)
+
+### Positive Reviews
+
+<ol>
+      <li>J&#x27;ai acheté ce produit car c&#x27;est un excellent produit, la livraison dans les temps.</li>
+      <li>The color is awesome.</li>
+      <li>CND nail shellac is the best gel polish.</li>
+      <li>/&gt; Perfect for winter color</li>
+      <li>Very beautiful color.</li>
+      <li>Perfect for winter and fierce nigths.</li>
+      <li>this polish is simply awesome.</li>
+      <li>Saves me money from having to go into a salon to have beautiful nailpolish that lasts two weeks.</li>
+      <li>It&#x27;s very elegant!</li>
+      <li>Great stuff</li>
+      <li>2 coats give great coverage.  </li>
+      <li>Really great color....</li>
+      <li>The color is great in these polishes.</li>
+      <li>It is a great product.  </li>
+      <li>Great Product..</li>
+      <li>Happy with my purchase</li>
+      <li>Great color &amp; quality.</li>
+      <li>Great product, great service.</li>
+      <li>Love this color!!</li>
+      <li>I LOVE this color!!  </li>
+      <li>great great great, love the color</li>
+      <li>looks good on fair skin.</li>
+      <li>I blended this with strawberry smoothie - good combination.</li>
+      <li>Even though I haven&#x27;t tried this product yet, I did receive it in a good timely fashion and I love the color!  </li>
+      <li>I&#x27;m sure it will be great</li>
+      <li>I have purchased many colors!</li>
+      <li>I thought wildfire was my favorite until I got this in the mail!</li>
+      <li>This is my  favorite color !</li>
+      <li>Nice shine.</li>
+      <li>This is by far the best product when it come to gel nails.  </li>
+      <li>It&#x27;s rich, not too bright.</li>
+      <li>and the shine is amazing and the lasting power is great!  </li>
+      <li>it&#x27;s one of my favorite colors</li>
+      <li>Love CND nail polishes.  </li>
+      <li>love it - wearing it now.</li>
+      <li>CND SHELLAC is my favorite.</li>
+      <li>You can add more layers of the polish to make it darker</li>
+      <li>Love this colour.  </li>
+      <li>I use Gelish top coat.  </li>
+      <li>I may not be able to use it.</li>
+      <li>Great Shipping Thanks...</li>
+      <li>My favorite color.</li>
+      <li>I prefer this color over wildfire which has a tint of orange and more opaque.</li>
+      <li>- the bottle looks darker and more brown.</li>
+      <li>Looks much better with 2 coats than 1.</li>
+      <li>I was going to go with a safe nude shade but changed my mind and tried this color.  </li>
+      <li>I love the color.</li>
+      <li>Decadence is the perfect valentines day/holidays red nail polish.</li>
+      <li>I love cnd shellac polish.</li>
+      <li>This color is my favorite.</li>
+      <li>It went on smoothly, and I couldn&#x27;t be happier!</li>
+      <li>I love the shine of shellac nail polish.</li>
+      <li>wonderful jelly red color.  </li>
+      <li>The price is GREAT price and goes on smooth and pretty.</li>
+      <li>It differed from what I expected based on the bottle, but it&#x27;s still a beautiful color and compliments my somewhat fair skin.</li>
+      <li>More importantly, so does my husband.</li>
+      <li>IF you&#x27;re looking for a beautiful red color, this is it!</li>
+      <li>Great quality for some reason it last longer.</li>
+      <li>This color is my new favorite!</li>
+      <li>Well worth investing in a UV light - just don&#x27;t get the cheap one finger lights from the drug store.</li>
+      <li>Lasts a full two weeks.  </li>
+      <li>This is my absolute favorite color.</li>
+      <li>that&#x27;s true of all of the shellac polishes I&#x27;ve used.</li>
+      <li>not ugly, but noticable to nit-picking exam while waiting to meet up with friends.  </li>
+      <li>This polish arrived quickly.</li>
+      <li>Love it, this is my favorite, go to red.</li>
+      <li>The color goes on smoothly and dries quickly under uv light thanks</li>
+      <li>Much more opaque than I had thought it would be and MUCH more red than burgundy.</li>
+      <li>i highly reccomend this product and will be buying more colors.</li>
+      <li>Very pretty.</li>
+      <li>After two layers I ended up with a bright candy apple red, not the pretty color shown.</li>
+      <li>It is hands down the best deep warm red available in the gel types of nail polish.</li>
+      <li>you get your money&#x27;s worth.</li>
+      <li>Nice color, long wearing.</li>
+      <li>this is a rich color, high gloss.  </li>
+      <li>It is a great red, though, and not at all like a winter/Christmas red.  </li>
+      <li>This item is very much as described.</li>
+      <li>First experience with shellac.  </li>
+      <li>Really pretty color.</li>
+      <li>The second bottle is more of a burnt orange.  </li>
+      <li>For a bit more red for the holidays, I ordered this color.  </li>
+      <li>and it&#x27;s an exact match.</li>
+      <li>Love the color and how long it lasts.</li>
+      <li>Really nice dark red&lt;br</li>
+      <li>It last what it says and easy to use.</li>
+      <li>This is my new favorite winter red.  </li>
+      <li>I like Shellac bottom coat because it turns loose from the nail better and makes it easire to remove.</li>
+      <li>I really like the polish.</li>
+      <li>Fast shipping.</li>
+      <li>It is instead much lighter thank the color on the bottle.  </li>
+      <li>all the Shellac products come off much easier than the rest I have tried</li>
+      <li>I highly recommend this color!</li>
+      <li>It is nice enough and is wearing well, but it is a color I would describe as candy apple red.</li>
+      <li>It is so easy to use and lasts so long.</li>
+      <li>A great product, however the color is not exactly what I expected.  </li>
+      <li>high gloss hides the streaks 98% of time.  </li>
+      <li>I highly recommend them.</li>
+      <li>The first bottle I received was a gorgeous, deep dark red.  </li>
+      <li>The colour is still really nice its just a little brighter of a shade of red.</li>
+      <li>I usually wear fedora color, but I received many compliments when I wore the decadence color polish.</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> J&#x27;ai acheté ce produit car c&#x27;est un excellent produit, la livraison dans les temps.</li>
+<li> The color is awesome.</li>
+<li> CND nail shellac is the best gel polish.</li>
+<li> /&gt; Perfect for winter color</li>
+<li> Very beautiful color.</li>
+<li> Perfect for winter and fierce nigths.</li>
+<li> this polish is simply awesome.</li>
+<li> Saves me money from having to go into a salon to have beautiful nailpolish that lasts two weeks.</li>
+<li> It&#x27;s very elegant!</li>
+<li> Great stuff</li>
+<li> 2 coats give great coverage.  </li>
+<li> Really great color....</li>
+<li> The color is great in these polishes.</li>
+<li> It is a great product.  </li>
+<li> Great Product..</li>
+<li> Happy with my purchase</li>
+<li> Great color &amp; quality.</li>
+<li> Great product, great service.</li>
+<li> Love this color!!</li>
+<li> I LOVE this color!!  </li>
+<li> great great great, love the color</li>
+<li> looks good on fair skin.</li>
+<li> I blended this with strawberry smoothie - good combination.</li>
+<li> Even though I haven&#x27;t tried this product yet, I did receive it in a good timely fashion and I love the color!  </li>
+<li> I&#x27;m sure it will be great</li>
+<li> I have purchased many colors!</li>
+<li> I thought wildfire was my favorite until I got this in the mail!</li>
+<li> This is my  favorite color !</li>
+<li> Nice shine.</li>
+<li> This is by far the best product when it come to gel nails.  </li>
+<li> It&#x27;s rich, not too bright.</li>
+<li> and the shine is amazing and the lasting power is great!  </li>
+<li> it&#x27;s one of my favorite colors</li>
+<li> Love CND nail polishes.  </li>
+<li> love it - wearing it now.</li>
+<li> CND SHELLAC is my favorite.</li>
+<li> You can add more layers of the polish to make it darker</li>
+<li> Love this colour.  </li>
+<li> I use Gelish top coat.  </li>
+<li> I may not be able to use it.</li>
+<li> Great Shipping Thanks...</li>
+<li> My favorite color.</li>
+<li> I prefer this color over wildfire which has a tint of orange and more opaque.</li>
+<li> - the bottle looks darker and more brown.</li>
+<li> Looks much better with 2 coats than 1.</li>
+<li> I was going to go with a safe nude shade but changed my mind and tried this color.  </li>
+<li> I love the color.</li>
+<li> Decadence is the perfect valentines day/holidays red nail polish.</li>
+<li> I love cnd shellac polish.</li>
+<li> This color is my favorite.</li>
+<li> It went on smoothly, and I couldn&#x27;t be happier!</li>
+<li> I love the shine of shellac nail polish.</li>
+<li> wonderful jelly red color.  </li>
+<li> The price is GREAT price and goes on smooth and pretty.</li>
+<li> It differed from what I expected based on the bottle, but it&#x27;s still a beautiful color and compliments my somewhat fair skin.</li>
+<li> More importantly, so does my husband.</li>
+<li> IF you&#x27;re looking for a beautiful red color, this is it!</li>
+<li> Great quality for some reason it last longer.</li>
+<li> This color is my new favorite!</li>
+<li> Well worth investing in a UV light - just don&#x27;t get the cheap one finger lights from the drug store.</li>
+<li> Lasts a full two weeks.  </li>
+<li> This is my absolute favorite color.</li>
+<li> that&#x27;s true of all of the shellac polishes I&#x27;ve used.</li>
+<li> not ugly, but noticable to nit-picking exam while waiting to meet up with friends.  </li>
+<li> This polish arrived quickly.</li>
+<li> Love it, this is my favorite, go to red.</li>
+<li> The color goes on smoothly and dries quickly under uv light thanks</li>
+<li> Much more opaque than I had thought it would be and MUCH more red than burgundy.</li>
+<li> i highly reccomend this product and will be buying more colors.</li>
+<li> Very pretty.</li>
+<li> After two layers I ended up with a bright candy apple red, not the pretty color shown.</li>
+<li> It is hands down the best deep warm red available in the gel types of nail polish.</li>
+<li> you get your money&#x27;s worth.</li>
+<li> Nice color, long wearing.</li>
+<li> this is a rich color, high gloss.  </li>
+<li> It is a great red, though, and not at all like a winter/Christmas red.  </li>
+<li> This item is very much as described.</li>
+<li> First experience with shellac.  </li>
+<li> Really pretty color.</li>
+<li> The second bottle is more of a burnt orange.  </li>
+<li> For a bit more red for the holidays, I ordered this color.  </li>
+<li> and it&#x27;s an exact match.</li>
+<li> Love the color and how long it lasts.</li>
+<li> Really nice dark red&lt;br</li>
+<li> It last what it says and easy to use.</li>
+<li> This is my new favorite winter red.  </li>
+<li> I like Shellac bottom coat because it turns loose from the nail better and makes it easire to remove.</li>
+<li> I really like the polish.</li>
+<li> Fast shipping.</li>
+<li> It is instead much lighter thank the color on the bottle.  </li>
+<li> all the Shellac products come off much easier than the rest I have tried</li>
+<li> I highly recommend this color!</li>
+<li> It is nice enough and is wearing well, but it is a color I would describe as candy apple red.</li>
+<li> It is so easy to use and lasts so long.</li>
+<li> A great product, however the color is not exactly what I expected.  </li>
+<li> high gloss hides the streaks 98% of time.  </li>
+<li> I highly recommend them.</li>
+<li> The first bottle I received was a gorgeous, deep dark red.  </li>
+<li> The colour is still really nice its just a little brighter of a shade of red.</li>
+<li> I usually wear fedora color, but I received many compliments when I wore the decadence color polish.</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> I purchased this color thinking it would be a deep, dark red.  It is instead much lighter thank the color on the bottle.  It is nice enough and is wearing well, but it is a color I would describe as candy apple red.</li>
+    <li> Really great color....</li>
+    <li> Love the color and how long it lasts. Saves me money from having to go into a salon to have beautiful nailpolish that lasts two weeks.</li>
+    <li> The color is great in these polishes. However, I wish it would last a little longer considering the effort it takes to do nails. Nice shine. I would purchase it again.</li>
+    <li> This is my absolute favorite color. It is bloody red, vampires will drool over this. Hard to imagine how CND gets this color to be translucent, like jello candy, not opaque. Color does not match bottle - the bottle looks darker and more brown. I prefer this color over wildfire which has a tint of orange and more opaque. Cured 1 minute under LED lamp. Red is difficult color to apply in general but as long as you go with thin layer it will cure fine, otherwise it can run to the side/cuticle before you cure it.</li>
+    <li> Very beautiful color. Perfect for winter and fierce nigths. Also I use it for work. Great quality for some reason it last longer.</li>
+    <li> this polish is simply awesome. cant wait to receive my other color i ordered. i highly reccomend this product and will be buying more colors.</li>
+    <li> Love this colour.  The picture looks a little bit darker than what it actually is.  The colour is still really nice its just a little brighter of a shade of red.</li>
+    <li> The color is what I expected and it came in a timely fashion.</li>
+    <li> this stuff is the easiet to get off....soak for about 5 minutes and push off.  others can take 30 minutes to soak and you still can&#x27;t get it off.  and the shine is amazing and the lasting power is great!  it&#x27;s all i use.</li>
+    <li> Much more opaque than I had thought it would be and MUCH more red than burgundy. IF you&#x27;re looking for a beautiful red color, this is it!</li>
+    <li> wonderful jelly red color.  a staple for me in fall and winter</li>
+    <li> love it - wearing it now. My favorite color.</li>
+    <li> I LOVE this color!!  More importantly, so does my husband. I love the shine of shellac nail polish. It won&#x27;t chip off. Well worth investing in a UV light - just don&#x27;t get the cheap one finger lights from the drug store.</li>
+    <li> This is my  favorite color !</li>
+    <li> CND SHELLAC is my favorite. It is so easy to use and lasts so long. I have purchased many colors!</li>
+    <li> Great product, great service.</li>
+    <li> A great product, however the color is not exactly what I expected.  I blended this with strawberry smoothie - good combination.</li>
+    <li> I only wish i can return this item. The color  is not like what you see here.  Besides, its very thin .</li>
+    <li> This item is very much as described. Nice color, long wearing. No problems whatsoever. I would recommend this to anyone who gets gel nails. all the Shellac products come off much easier than the rest I have tried and therefore my nails do not start to break.</li>
+    <li> This is no where near as dark as it looks.  It is a great red, though, and not at all like a winter/Christmas red.  I got the Vinylux in the same color for my toes and it&#x27;s an exact match.</li>
+    <li> I love cnd shellac polish. This one is like a Burgundy w/a little sparkle to it. I really like the polish. It&#x27;s suppose to come off easier and faster, but all my gel polishes aren&#x27;t cnd, so it takes alittle longer tha they say it does. I&#x27;m working on getting base and top coats cnd, that&#x27;s probable the reason I had to leave on alittle longer. I&#x27;m working on that. The price is GREAT price and goes on smooth and pretty. This color is just like the color of the bottle. I have read other reviews and said they didn&#x27;t the color of the bottle. They say it&#x27;s lighter than the bottle and have to put on three coats. Mine has been on for about alittle our two weeks.so you get your money&#x27;s worth. Thak you amazon for carring it and a price we gals can afford.</li>
+    <li> Love this color!! Grade AAA. Fast shipping.</li>
+    <li> For a bit more red for the holidays, I ordered this color.  It is a great product.  I usually wear fedora color, but I received many compliments when I wore the decadence color polish.</li>
+    <li> This color is my new favorite! I thought wildfire was my favorite until I got this in the mail! It went on smoothly, and I couldn&#x27;t be happier! I highly recommend this color! It&#x27;s very elegant!</li>
+    <li> The bottle does not match the color inside. After two layers I ended up with a bright candy apple red, not the pretty color shown.</li>
+    <li> I have used this color twice. It is hands down the best deep warm red available in the gel types of nail polish. The other only red I&#x27;ve liked is a jessica sparkled nail polish. Decadence is the perfect valentines day/holidays red nail polish.</li>
+    <li> This polish arrived quickly. The color is awesome. The color goes on smoothly and dries quickly under uv light thanks</li>
+    <li> Love it, this is my favorite, go to red. It&#x27;s rich, not too bright. I&#x27;m on my 3rd bottle. Happy with my purchase</li>
+    <li> J&#x27;ai acheté ce produit car c&#x27;est un excellent produit, la livraison dans les temps. La boutique livre au Canada. Produit très bien emballé. Je recommande ce vendeur. Merci</li>
+    <li> great great great, love the color</li>
+    <li> I rally like this color it&#x27;s one of my favorite colors and I will put a glitter overlay on it to look festive.</li>
+    <li> This was my second order of this product in this shade.  The first bottle I received was a gorgeous, deep dark red.  The second bottle is more of a burnt orange.  I may not be able to use it.</li>
+    <li> Great color &amp; quality.</li>
+    <li> Love CND nail polishes.  I highly recommend them.</li>
+    <li> Even though I haven&#x27;t tried this product yet, I did receive it in a good timely fashion and I love the color!  It looks to be about what I was looking for. I&#x27;m sure it will be great and I look forward to using it soon!</li>
+    <li> Hello there I recommend this product. It last what it says and easy to use. This color is my favorite.</li>
+    <li> Really nice dark red&lt;br /&gt; Perfect for winter color You can add more layers of the polish to make it darker</li>
+    <li> This review is for Shellac Decadence gel color.  This is a dark, flat red.  Very dark.  Very little pink undertones and NO orange tint.  This is my new favorite winter red.  2 coats give great coverage.  3 thin are even better.  FYI...I use Gelish top coat.  It&#x27;s harder and shinier.  Yes you can use the two brands together.  I like Shellac bottom coat because it turns loose from the nail better and makes it easire to remove.</li>
+    <li> this is a rich color, high gloss.  goes on/dries a little streaky.  not ugly, but noticable to nit-picking exam while waiting to meet up with friends.  high gloss hides the streaks 98% of time.  compliments on the color.  looks good on fair skin.</li>
+    <li> Great Product.. Great Shipping Thanks...</li>
+    <li> I must disagree with other reviews, I&#x27;ve found this color (with 2 coats) looks deep red in color with a slight sparkle. Very pretty. Looks much better with 2 coats than 1.</li>
+    <li> Really pretty color. I&#x27;m giving it 4/5 stars only because it&#x27;s a little difficult to use (the polish can move a little until you cure it) but that&#x27;s true of all of the shellac polishes I&#x27;ve used.</li>
+    <li> CND nail shellac is the best gel polish. It lasts forever without chipping. I love the color. Try it! You won&#x27;t go wrong with this one.</li>
+    <li> This is by far the best product when it come to gel nails.  Lasts a full two weeks.  Great stuff</li>
+    <li> First experience with shellac.  I was going to go with a safe nude shade but changed my mind and tried this color.  It differed from what I expected based on the bottle, but it&#x27;s still a beautiful color and compliments my somewhat fair skin.</li>
+</ol>
+
+
+
+

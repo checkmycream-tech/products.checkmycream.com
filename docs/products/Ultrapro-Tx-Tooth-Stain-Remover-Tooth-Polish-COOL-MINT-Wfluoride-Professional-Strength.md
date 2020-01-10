@@ -1,0 +1,80 @@
+---
+title: Ultrapro Tx Tooth Stain Remover Tooth Polish COOL MINT W/fluoride - Professional Strength,
+description: Ultrapro Tx Tooth Stain Remover Tooth Polish COOL MINT W/fluoride - Professional Strength,
+author: Suvojit Manna,
+tags: Ultrapro Tx Tooth Stain Remover Tooth Polish COOL MINT W/fluoride - Professional Strength,
+publishedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
+---
+
+# [Ultrapro Tx Tooth Stain Remover Tooth Polish COOL MINT W/fluoride - Professional Strength](https://products.checkmycream.com/products/Ultrapro-Tx-Tooth-Stain-Remover-Tooth-Polish-COOL-MINT-Wfluoride-Professional-Strength.html)
+
+### Positive Reviews
+
+<ol>
+      <li>Works awesome at removing stains.</li>
+      <li>I am very pleased!!</li>
+      <li>I love this product!!!!</li>
+      <li>I would buy from again, perfect size for travel.</li>
+      <li>works beautifully.</li>
+      <li>this works just like the product in the dentists office teeth feel great after using it with my spinbrush</li>
+      <li>This worked great to polish off a stain.  </li>
+      <li>This is just like the hygenist uses, and with my sonic toothbrush seems to polish my tooth nicely.</li>
+      <li>LOVE LOVE LOVE!</li>
+      <li>If I was sure it wouldn&#x27;t wear away</li>
+      <li>I used this in combination with an oral-b powered toothbrush, and it would probably work fine with a sonicare.</li>
+      <li>Removed surface stains really well.</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> Works awesome at removing stains.</li>
+<li> I am very pleased!!</li>
+<li> I love this product!!!!</li>
+<li> I would buy from again, perfect size for travel.</li>
+<li> works beautifully.</li>
+<li> this works just like the product in the dentists office teeth feel great after using it with my spinbrush</li>
+<li> This worked great to polish off a stain.  </li>
+<li> This is just like the hygenist uses, and with my sonic toothbrush seems to polish my tooth nicely.</li>
+<li> LOVE LOVE LOVE!</li>
+<li> If I was sure it wouldn&#x27;t wear away</li>
+<li> I used this in combination with an oral-b powered toothbrush, and it would probably work fine with a sonicare.</li>
+<li> Removed surface stains really well.</li>
+<li> These are very old and dried out.</li>
+<li> I give it 4 stars because it does what it says but it&#x27;s not good on sensitive teeth such as mine.</li>
+<li> It was old and hard and I could not use it.</li>
+<li> I have only used it a few times as I don&#x27;t want to wear away enamel (which was mentioned in other reviews) and I already see stains going away.  </li>
+<li> I have a few teeth which get stained even though I don&#x27;t drink black coffee or tea.  </li>
+<li> It was all dried up when I received it.</li>
+<li> Very small pkgs.</li>
+<li> Dried Out completely useless</li>
+<li> Was too dry and impossible to get out of small cups, bad taste.</li>
+<li> Useless.</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> Was too dry and impossible to get out of small cups, bad taste. Not for me.</li>
+    <li> Now I can polish my teeth just like the Dentist!!! LOVE LOVE LOVE!</li>
+    <li> Dried Out completely useless</li>
+    <li> on time and as described.  This is just like the hygenist uses, and with my sonic toothbrush seems to polish my tooth nicely.</li>
+    <li> It was all dried up when I received it. Useless.</li>
+    <li> I have only used it a few times as I don&#x27;t want to wear away enamel (which was mentioned in other reviews) and I already see stains going away.  If I was sure it wouldn&#x27;t wear away enamel I would rate it 5 stars</li>
+    <li> It was old and hard and I could not use it.</li>
+    <li> this works just like the product in the dentists office teeth feel great after using it with my spinbrush</li>
+    <li> Removed surface stains really well.</li>
+    <li> Tooth polish that you can use at home, just like the polish your dentist uses. Very small pkgs. Works well.</li>
+    <li> These are very old and dried out. I will not purchase again.</li>
+    <li> Works as Promised.  I would buy from again, perfect size for travel.</li>
+    <li> I love this product!!!! I am very pleased!!</li>
+    <li> it is not the product that you find at your dentist..not even close</li>
+    <li> Works awesome at removing stains. I give it 4 stars because it does what it says but it&#x27;s not good on sensitive teeth such as mine. Had to stop using it cause it made them hurt.</li>
+    <li> works beautifully. I mix the material that comes with it, plus &amp;#34;super smile&amp;#34; paste...my teeth are shiny and pearly white.</li>
+    <li> I have a few teeth which get stained even though I don&#x27;t drink black coffee or tea.  This worked great to polish off a stain.  I used this in combination with an oral-b powered toothbrush, and it would probably work fine with a sonicare.</li>
+</ol>
+
+
+
+

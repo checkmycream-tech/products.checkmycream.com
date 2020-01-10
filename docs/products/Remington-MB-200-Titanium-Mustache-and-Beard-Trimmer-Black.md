@@ -3,8 +3,8 @@ title: Remington MB-200 Titanium Mustache and Beard Trimmer, Black,
 description: Remington MB-200 Titanium Mustache and Beard Trimmer, Black,
 author: Suvojit Manna,
 tags: Remington MB-200 Titanium Mustache and Beard Trimmer, Black,
-publishedAt: Thu Jan 09 2020 19:08:20 GMT+0530 (India Standard Time),
-modifiedAt: Thu Jan 09 2020 19:08:20 GMT+0530 (India Standard Time),
+publishedAt: Fri Jan 10 2020 14:59:03 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 14:59:03 GMT+0530 (India Standard Time),
 ---
 
 # [Remington MB-200 Titanium Mustache and Beard Trimmer, Black](https://products.checkmycream.com/products/Remington-MB-200-Titanium-Mustache-and-Beard-Trimmer-Black.html)
@@ -12,211 +12,211 @@ modifiedAt: Thu Jan 09 2020 19:08:20 GMT+0530 (India Standard Time),
 ### Positive Reviews
 
 <ol>
-      <li>is beyond me -- and it was perfect.  </li>
-      <li>I&#x27;ve had it now for 6 months and works perfectly.</li>
-      <li>Its an awesome value and perfect for that stubble look.</li>
-      <li>The adjustable head seemed perfect.  </li>
-      <li>Once I got it and used it I have to say its the best trimmer I had ever used.  </li>
-      <li>Awesome!!!</li>
-      <li>Works great!</li>
-      <li>design is wonderful</li>
-      <li>Well, this thing does the job splendidly!</li>
-      <li>i am very happy that i decided to buy this item instead of the Wahl beard trimmer.</li>
-      <li>I am very happy with the MB-200</li>
-      <li>Perfect traveling trimmer.  </li>
-      <li>This thing is still the best trimmer I have ever purchased.  </li>
-      <li>My husband has had a beard for 32 years and says this is the best trimmer he has ever used.  </li>
-      <li>I am very happy with it.</li>
-      <li>It&#x27;s the best I&#x27;ve had.</li>
-      <li>This is the best beard trimmer on the market for the money.</li>
-      <li>The Remington MB-200 worked flawlessly.  </li>
-      <li>I bought this for my husband - he thinks it is the greatest thing since sliced bread.  </li>
-      <li>One of the greatest trimmer I have used.</li>
-      <li>It is excellent for beard since it has adjustable spacing.. from 1 - 9.</li>
-      <li>Good product for an affordable price!!</li>
-      <li>For the best performance, you have to charge it fully before unplugging it and using it.  </li>
-      <li>This is the best shaver/trimmer I have had yet.</li>
-      <li>What a great deal!</li>
-      <li>If you want an excellent trimmer, buy this one.</li>
-      <li>The product arrived promptly in perfect condition.  </li>
-      <li>This is a very great Quality product.</li>
-      <li>, I&#x27;m really impressed.</li>
-      <li>Very impressed!</li>
-      <li>This trimmer is perfect for all areas of hair.</li>
-      <li>and it&#x27;s perfect.  </li>
-      <li>Excellent trimmer.</li>
-      <li>This trimmer worked perfectly for my beard, except after six weeks it stopped charging.</li>
-      <li>I am very happy with this purchase.</li>
-      <li>I purchased this shaver one year ago and it has worked perfectly until the plastic comb broke that guides the razor.  </li>
-      <li>This trimmer is awesome.  </li>
-      <li>Great beard and mustache trimmer!</li>
-      <li>Best trimmer out there</li>
-      <li>The price, quality of product, the look, and performance are all excellent.</li>
-      <li>Both of the units I bought have performed flawlessly.</li>
-      <li>Excellent value.</li>
-      <li>Excellent product.</li>
-      <li>and it has performed flawlessly.  </li>
-      <li>Great job, Remington !!</li>
-      <li>you get the best trimmer for the amount you spend.</li>
-      <li>click wheel for adjusting the length of trim is just brilliant!</li>
-      <li>This trimmer is awesome!</li>
-      <li>I feel is probably the best feature though, is the charging cord.  </li>
-      <li>Works perfectly.</li>
-      <li>This has been the best beard trimmer he has used.</li>
-      <li>and it has performed flawlessly.</li>
-      <li>I was also very happy with the comb and location of the trimming blades toward the \\&quot;front\\&quot; of the comb.  </li>
-      <li>I cannot say its the best i have used</li>
+      <li>This works great!  </li>
+      <li>excellent product.</li>
       <li>Very wonderful.</li>
+      <li>I cannot say its the best i have used</li>
+      <li>This is definetly on of the best trimmers I&#x27;ve had.</li>
+      <li>He is very happy with it though.</li>
+      <li>Best Price , Best Value.</li>
+      <li>Excellent product..</li>
+      <li>one is the best I give it an A rateing</li>
+      <li>I was also very happy with the comb and location of the trimming blades toward the \\&quot;front\\&quot; of the comb.  </li>
+      <li>and I was very happy.  </li>
+      <li>One of the best purchases i have ever made.&lt;br /&gt;&lt;br /&gt;Update</li>
+      <li>That would be just what this model needs to perfect it.</li>
+      <li>and it has performed flawlessly.</li>
+      <li>Perfect and even trim each time</li>
       <li>And that makes me very happy.</li>
+      <li>Very good !</li>
+      <li>, it is perfect for me.</li>
+      <li>I guess not every unit can be perfect.</li>
+      <li>trimmed beard, mustache and hair great!</li>
+      <li>I ended up buying the Phillips QT4000 and have been very happy with that one.</li>
+      <li>this is the best one out for the price.</li>
+      <li>]explains the issues perfectly (if the link is removed, just search for \\&quot;Remington</li>
+      <li>This has been the best beard trimmer he has used.</li>
+      <li>Works perfectly.</li>
+      <li>They were awesome until Philips took them over and made them crappy.  </li>
+      <li>I feel is probably the best feature though, is the charging cord.  </li>
+      <li>I got me one happy camper again!!!</li>
+      <li>Oh and a nicely trimmed gotee  to admire!!!</li>
+      <li>This trimmer is awesome!</li>
+      <li>click wheel for adjusting the length of trim is just brilliant!</li>
+      <li>All in all im very happy with my purchase</li>
+      <li>built in length adjustment is awesome.  </li>
+      <li>This is the BEST!!!  </li>
+      <li>THE DESIGN IS EXCELLENT</li>
+      <li>you get the best trimmer for the amount you spend.</li>
+      <li>The best for the money I&#x27;ve found.  </li>
+      <li>If you are looking for simplicity of design, ease of use, and quality of craftsmanship, then this is the best choice.</li>
       <li>Best trimmer that I ever purchased to my husband.</li>
       <li>It has worked flawlessly for me.</li>
-      <li>I especially love the adjustability of the guard.</li>
-      <li>Very happy with the Remington trimmer.</li>
-      <li>This product is perfect and was on sale for $14.77.  </li>
-      <li>This Remington integrates an excellent depth control device, selectable with a thumb-rotated wheel, and the guard can be removed for a closer trim.</li>
-      <li>Excellent price you will be impressed.</li>
-      <li>and I have been very impressed with it for the price I paid.</li>
-      <li>This is the perfect trimmer, something that I always wished and never could find.</li>
-      <li>The adjustments are perfect and I use 3 as my setting for lenght of beard.</li>
-      <li>A great product!</li>
-      <li>This trimmer meets my needs perfectly.</li>
-      <li>Perfect.</li>
-      <li>Otherwise excellent.</li>
-      <li>very great product...</li>
-      <li>I have used 4 or 5 trimmers over the years and this is the best.  </li>
-      <li>This is a wonderful trimmer.  </li>
-      <li>Excellent product!</li>
-      <li>Best Price , Best Value.</li>
-      <li>All in all im very happy with my purchase</li>
-      <li>Price at $14.77 is excellent.  </li>
-      <li>The battery life is AWESOME!</li>
-      <li>This trimmer works great!  </li>
-      <li>Switched to the Remington MB-200 and was amazed at how wonderful this trimmer performs....</li>
-      <li>This is the best sub $50 trimmer you will find.</li>
       <li>Excellent product.</li>
-      <li>This trimmer&#x27;s battery life is awesome.</li>
-      <li>this is awesome.  </li>
-      <li>Basically, it&#x27;s awesome.</li>
-      <li>This thing is excellent.</li>
-      <li>The Remington MB-200 is as excellent a trimmer as reviewers state.</li>
-      <li>I WASN&#x27;T REALLY IMPRESSED WITH THIS MUSTACHE &amp; BEARD TRIMMER.  </li>
-      <li>and I have to admit I look marvelous!</li>
-      <li>Shipping excellent.</li>
-      <li>Does a very good job!</li>
-      <li>this is the best one out for the price.</li>
-      <li>excellent quality!</li>
-      <li>Perfect and even trim each time</li>
-      <li>, it is perfect for me.</li>
-      <li>If you are looking for simplicity of design, ease of use, and quality of craftsmanship, then this is the best choice.</li>
+      <li>I am very happy with your product...</li>
+      <li>Great job, Remington !!</li>
+      <li>Every week I can trim My beard and this product was great!!!</li>
+      <li>and it has performed flawlessly.  </li>
+      <li>For the price this is the best trimmer I have ever had.  </li>
       <li>speedy delivery, very good product!</li>
+      <li>Excellent product.</li>
+      <li>Shipping excellent.</li>
+      <li>Excellent value.</li>
+      <li>Very happy with this purchase.</li>
+      <li>Best beard trimmer I&#x27;ve ever had.</li>
+      <li>* Excellent price!&lt;br /&gt;&lt;br</li>
+      <li>This trimmer is awesome, when it works.  </li>
+      <li>Both of the units I bought have performed flawlessly.</li>
+      <li>the Remington MB-200 because of it&#x27;s excellent reviews and price of $15.&lt;br /&gt;&lt;br</li>
+      <li>this is the best beard trimmer i have had, granted</li>
+      <li>I especially love the adjustability of the guard.</li>
+      <li>The price, quality of product, the look, and performance are all excellent.</li>
+      <li>Best trimmer out there</li>
+      <li>Great beard and mustache trimmer!</li>
+      <li>This trimmer is awesome.  </li>
+      <li>Not buying another shaver from Remington, although the trimmer was excellent.</li>
+      <li>I&#x27;m very happy with the purchase.&lt;br</li>
+      <li>I purchased this shaver one year ago and it has worked perfectly until the plastic comb broke that guides the razor.  </li>
+      <li>excellent price charge holds well no problems to date recommend</li>
+      <li>Price at $14.77 is excellent.  </li>
+      <li>I am very happy with this purchase.</li>
+      <li>Very happy with the Remington trimmer.</li>
       <li>Excellent purchasing experience!</li>
+      <li>This trimmer worked perfectly for my beard, except after six weeks it stopped charging.</li>
+      <li>It gives a perfect trim in 5-10 minutes.</li>
+      <li>I am so impressed by your customer service!</li>
+      <li>The battery life is AWESOME!</li>
+      <li>Excellent trimmer.</li>
+      <li>have never found the perfect trimmer.  </li>
+      <li>and it&#x27;s perfect.  </li>
+      <li>This trimmer is perfect for all areas of hair.</li>
+      <li>Very impressed!</li>
+      <li>This was perfect for me</li>
+      <li>This trimmer works great!  </li>
+      <li>, I&#x27;m really impressed.</li>
+      <li>This is a very great Quality product.</li>
+      <li>The product arrived promptly in perfect condition.  </li>
+      <li>This trimmer is a great price (even if it didn&#x27;t have the Amazon discount!)</li>
+      <li>And battery life is excellent.  </li>
+      <li>Not the best thing you ever saw, but</li>
       <li>The trimmer itself is wonderful.</li>
-      <li>so this works perfect to keep the beard neatly trimmed.</li>
+      <li>Excellent product!</li>
+      <li>This product is perfect and was on sale for $14.77.  </li>
+      <li>This trimmer is wonderful!  </li>
+      <li>Cut,trimmed mine done in about 2 minutes,no doubt the best one I have ever owned,and for 25</li>
+      <li>shaver IS AWESOME.</li>
+      <li>/&gt;Beard trimmers have to be the best invention of the 20th/21st century.  </li>
+      <li>I have a Phillips that sits for a month and works flawlessly, this will die in days.</li>
+      <li>I am very happy with the purchase.</li>
+      <li>If you want an excellent trimmer, buy this one.</li>
+      <li>and it works great.... until the battery stops holding a charge!!  </li>
+      <li>What a great deal!</li>
+      <li>This is the best shaver/trimmer I have had yet.</li>
 </ol>
 
 
 <h2>Negative Reviews</h2>
 <ol>
-<li> is beyond me -- and it was perfect.  </li>
-<li> I&#x27;ve had it now for 6 months and works perfectly.</li>
-<li> Its an awesome value and perfect for that stubble look.</li>
-<li> The adjustable head seemed perfect.  </li>
-<li> Once I got it and used it I have to say its the best trimmer I had ever used.  </li>
-<li> Awesome!!!</li>
-<li> Works great!</li>
-<li> design is wonderful</li>
-<li> Well, this thing does the job splendidly!</li>
-<li> i am very happy that i decided to buy this item instead of the Wahl beard trimmer.</li>
-<li> I am very happy with the MB-200</li>
-<li> Perfect traveling trimmer.  </li>
-<li> This thing is still the best trimmer I have ever purchased.  </li>
-<li> My husband has had a beard for 32 years and says this is the best trimmer he has ever used.  </li>
-<li> I am very happy with it.</li>
-<li> It&#x27;s the best I&#x27;ve had.</li>
-<li> This is the best beard trimmer on the market for the money.</li>
-<li> The Remington MB-200 worked flawlessly.  </li>
-<li> I bought this for my husband - he thinks it is the greatest thing since sliced bread.  </li>
-<li> One of the greatest trimmer I have used.</li>
-<li> It is excellent for beard since it has adjustable spacing.. from 1 - 9.</li>
-<li> Good product for an affordable price!!</li>
-<li> For the best performance, you have to charge it fully before unplugging it and using it.  </li>
-<li> This is the best shaver/trimmer I have had yet.</li>
-<li> What a great deal!</li>
-<li> If you want an excellent trimmer, buy this one.</li>
-<li> The product arrived promptly in perfect condition.  </li>
-<li> This is a very great Quality product.</li>
-<li> , I&#x27;m really impressed.</li>
-<li> Very impressed!</li>
-<li> This trimmer is perfect for all areas of hair.</li>
-<li> and it&#x27;s perfect.  </li>
-<li> Excellent trimmer.</li>
-<li> This trimmer worked perfectly for my beard, except after six weeks it stopped charging.</li>
-<li> I am very happy with this purchase.</li>
-<li> I purchased this shaver one year ago and it has worked perfectly until the plastic comb broke that guides the razor.  </li>
-<li> This trimmer is awesome.  </li>
-<li> Great beard and mustache trimmer!</li>
-<li> Best trimmer out there</li>
-<li> The price, quality of product, the look, and performance are all excellent.</li>
-<li> Both of the units I bought have performed flawlessly.</li>
-<li> Excellent value.</li>
-<li> Excellent product.</li>
-<li> and it has performed flawlessly.  </li>
-<li> Great job, Remington !!</li>
-<li> you get the best trimmer for the amount you spend.</li>
-<li> click wheel for adjusting the length of trim is just brilliant!</li>
-<li> This trimmer is awesome!</li>
-<li> I feel is probably the best feature though, is the charging cord.  </li>
-<li> Works perfectly.</li>
-<li> This has been the best beard trimmer he has used.</li>
-<li> and it has performed flawlessly.</li>
-<li> I was also very happy with the comb and location of the trimming blades toward the \\&quot;front\\&quot; of the comb.  </li>
-<li> I cannot say its the best i have used</li>
+<li> This works great!  </li>
+<li> excellent product.</li>
 <li> Very wonderful.</li>
+<li> I cannot say its the best i have used</li>
+<li> This is definetly on of the best trimmers I&#x27;ve had.</li>
+<li> He is very happy with it though.</li>
+<li> Best Price , Best Value.</li>
+<li> Excellent product..</li>
+<li> one is the best I give it an A rateing</li>
+<li> I was also very happy with the comb and location of the trimming blades toward the \\&quot;front\\&quot; of the comb.  </li>
+<li> and I was very happy.  </li>
+<li> One of the best purchases i have ever made.&lt;br /&gt;&lt;br /&gt;Update</li>
+<li> That would be just what this model needs to perfect it.</li>
+<li> and it has performed flawlessly.</li>
+<li> Perfect and even trim each time</li>
 <li> And that makes me very happy.</li>
+<li> Very good !</li>
+<li> , it is perfect for me.</li>
+<li> I guess not every unit can be perfect.</li>
+<li> trimmed beard, mustache and hair great!</li>
+<li> I ended up buying the Phillips QT4000 and have been very happy with that one.</li>
+<li> this is the best one out for the price.</li>
+<li> ]explains the issues perfectly (if the link is removed, just search for \\&quot;Remington</li>
+<li> This has been the best beard trimmer he has used.</li>
+<li> Works perfectly.</li>
+<li> They were awesome until Philips took them over and made them crappy.  </li>
+<li> I feel is probably the best feature though, is the charging cord.  </li>
+<li> I got me one happy camper again!!!</li>
+<li> Oh and a nicely trimmed gotee  to admire!!!</li>
+<li> This trimmer is awesome!</li>
+<li> click wheel for adjusting the length of trim is just brilliant!</li>
+<li> All in all im very happy with my purchase</li>
+<li> built in length adjustment is awesome.  </li>
+<li> This is the BEST!!!  </li>
+<li> THE DESIGN IS EXCELLENT</li>
+<li> you get the best trimmer for the amount you spend.</li>
+<li> The best for the money I&#x27;ve found.  </li>
+<li> If you are looking for simplicity of design, ease of use, and quality of craftsmanship, then this is the best choice.</li>
 <li> Best trimmer that I ever purchased to my husband.</li>
 <li> It has worked flawlessly for me.</li>
-<li> I especially love the adjustability of the guard.</li>
-<li> Very happy with the Remington trimmer.</li>
-<li> This product is perfect and was on sale for $14.77.  </li>
-<li> This Remington integrates an excellent depth control device, selectable with a thumb-rotated wheel, and the guard can be removed for a closer trim.</li>
-<li> Excellent price you will be impressed.</li>
-<li> and I have been very impressed with it for the price I paid.</li>
-<li> This is the perfect trimmer, something that I always wished and never could find.</li>
-<li> The adjustments are perfect and I use 3 as my setting for lenght of beard.</li>
-<li> A great product!</li>
-<li> This trimmer meets my needs perfectly.</li>
-<li> Perfect.</li>
-<li> Otherwise excellent.</li>
-<li> very great product...</li>
-<li> I have used 4 or 5 trimmers over the years and this is the best.  </li>
-<li> This is a wonderful trimmer.  </li>
-<li> Excellent product!</li>
-<li> Best Price , Best Value.</li>
-<li> All in all im very happy with my purchase</li>
-<li> Price at $14.77 is excellent.  </li>
-<li> The battery life is AWESOME!</li>
-<li> This trimmer works great!  </li>
-<li> Switched to the Remington MB-200 and was amazed at how wonderful this trimmer performs....</li>
-<li> This is the best sub $50 trimmer you will find.</li>
 <li> Excellent product.</li>
-<li> This trimmer&#x27;s battery life is awesome.</li>
-<li> this is awesome.  </li>
-<li> Basically, it&#x27;s awesome.</li>
-<li> This thing is excellent.</li>
-<li> The Remington MB-200 is as excellent a trimmer as reviewers state.</li>
-<li> I WASN&#x27;T REALLY IMPRESSED WITH THIS MUSTACHE &amp; BEARD TRIMMER.  </li>
-<li> and I have to admit I look marvelous!</li>
-<li> Shipping excellent.</li>
-<li> Does a very good job!</li>
-<li> this is the best one out for the price.</li>
-<li> excellent quality!</li>
-<li> Perfect and even trim each time</li>
-<li> , it is perfect for me.</li>
-<li> If you are looking for simplicity of design, ease of use, and quality of craftsmanship, then this is the best choice.</li>
+<li> I am very happy with your product...</li>
+<li> Great job, Remington !!</li>
+<li> Every week I can trim My beard and this product was great!!!</li>
+<li> and it has performed flawlessly.  </li>
+<li> For the price this is the best trimmer I have ever had.  </li>
 <li> speedy delivery, very good product!</li>
+<li> Excellent product.</li>
+<li> Shipping excellent.</li>
+<li> Excellent value.</li>
+<li> Very happy with this purchase.</li>
+<li> Best beard trimmer I&#x27;ve ever had.</li>
+<li> * Excellent price!&lt;br /&gt;&lt;br</li>
+<li> This trimmer is awesome, when it works.  </li>
+<li> Both of the units I bought have performed flawlessly.</li>
+<li> the Remington MB-200 because of it&#x27;s excellent reviews and price of $15.&lt;br /&gt;&lt;br</li>
+<li> this is the best beard trimmer i have had, granted</li>
+<li> I especially love the adjustability of the guard.</li>
+<li> The price, quality of product, the look, and performance are all excellent.</li>
+<li> Best trimmer out there</li>
+<li> Great beard and mustache trimmer!</li>
+<li> This trimmer is awesome.  </li>
+<li> Not buying another shaver from Remington, although the trimmer was excellent.</li>
+<li> I&#x27;m very happy with the purchase.&lt;br</li>
+<li> I purchased this shaver one year ago and it has worked perfectly until the plastic comb broke that guides the razor.  </li>
+<li> excellent price charge holds well no problems to date recommend</li>
+<li> Price at $14.77 is excellent.  </li>
+<li> I am very happy with this purchase.</li>
+<li> Very happy with the Remington trimmer.</li>
 <li> Excellent purchasing experience!</li>
+<li> This trimmer worked perfectly for my beard, except after six weeks it stopped charging.</li>
+<li> It gives a perfect trim in 5-10 minutes.</li>
+<li> I am so impressed by your customer service!</li>
+<li> The battery life is AWESOME!</li>
+<li> Excellent trimmer.</li>
+<li> have never found the perfect trimmer.  </li>
+<li> and it&#x27;s perfect.  </li>
+<li> This trimmer is perfect for all areas of hair.</li>
+<li> Very impressed!</li>
+<li> This was perfect for me</li>
+<li> This trimmer works great!  </li>
+<li> , I&#x27;m really impressed.</li>
+<li> This is a very great Quality product.</li>
+<li> The product arrived promptly in perfect condition.  </li>
+<li> This trimmer is a great price (even if it didn&#x27;t have the Amazon discount!)</li>
+<li> And battery life is excellent.  </li>
+<li> Not the best thing you ever saw, but</li>
 <li> The trimmer itself is wonderful.</li>
-<li> so this works perfect to keep the beard neatly trimmed.</li>
+<li> Excellent product!</li>
+<li> This product is perfect and was on sale for $14.77.  </li>
+<li> This trimmer is wonderful!  </li>
+<li> Cut,trimmed mine done in about 2 minutes,no doubt the best one I have ever owned,and for 25</li>
+<li> shaver IS AWESOME.</li>
+<li> /&gt;Beard trimmers have to be the best invention of the 20th/21st century.  </li>
+<li> I have a Phillips that sits for a month and works flawlessly, this will die in days.</li>
+<li> I am very happy with the purchase.</li>
+<li> If you want an excellent trimmer, buy this one.</li>
+<li> and it works great.... until the battery stops holding a charge!!  </li>
+<li> What a great deal!</li>
+<li> This is the best shaver/trimmer I have had yet.</li>
 </ol>
 
 <h2>All Reviews</h2>
@@ -1823,6 +1823,7 @@ modifiedAt: Thu Jan 09 2020 19:08:20 GMT+0530 (India Standard Time),
     <li> I use this to shave almost everything on my body. I am not a fan of body hair, and this product does the trick perfectly. This is my second purchase of this same product in six years.</li>
     <li> I wish it were a bit easier to trim nose and ear hairs (older guy, you see) but otherwise just right</li>
 </ol>
+
 
 
 

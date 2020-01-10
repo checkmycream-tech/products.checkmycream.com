@@ -1,0 +1,109 @@
+---
+title: WAWO 5pcs Acrylic Nail Art UV Gel Carving Pen Brush Liquid Powder DIY No. 12.10.8.6.4,
+description: WAWO 5pcs Acrylic Nail Art UV Gel Carving Pen Brush Liquid Powder DIY No. 12.10.8.6.4,
+author: Suvojit Manna,
+tags: WAWO 5pcs Acrylic Nail Art UV Gel Carving Pen Brush Liquid Powder DIY No. 12.10.8.6.4,
+publishedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
+modifiedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
+---
+
+# [WAWO 5pcs Acrylic Nail Art UV Gel Carving Pen Brush Liquid Powder DIY No. 12.10.8.6.4](https://products.checkmycream.com/products/WAWO-5pcs-Acrylic-Nail-Art-UV-Gel-Carving-Pen-Brush-Liquid-Powder-DIY-No.-12.10.8.6.4.html)
+
+### Positive Reviews
+
+<ol>
+      <li>Great product!  </li>
+      <li>but they are best to use with uv gel for nail art</li>
+      <li>Happy with my buy....</li>
+      <li>Very nice.</li>
+      <li>Love these brushes they are great</li>
+      <li>Really nice for the price as well</li>
+      <li>They&#x27;re pretty good, works great</li>
+      <li>I love them a lot</li>
+      <li>love the brushes</li>
+      <li>they r ok</li>
+      <li>so the bristles can absorb liquid better</li>
+      <li>Cheap they are already falling apart</li>
+      <li>so excited....</li>
+      <li>Love these brushes shipping was actually fast!</li>
+      <li>i loved the 2 smaller brushes for 3-d flowers and designs.</li>
+      <li>you have too tweak then for your own personal use</li>
+      <li>Exactly what was described.</li>
+      <li>I only was able to use them once</li>
+      <li>but as for acrylic nails you have too set them in hot water</li>
+      <li>Fast shipping!</li>
+      <li>and i am very unsatisfied</li>
+      <li>they came very early(fantastic)</li>
+      <li>Fast shipment.</li>
+      <li>will buy again very soon</li>
+      <li>but for the price its okay. will find other uses for them.</li>
+      <li>so now i have to get new ones but not these</li>
+</ol>
+
+
+<h2>Negative Reviews</h2>
+<ol>
+<li> Great product!  </li>
+<li> but they are best to use with uv gel for nail art</li>
+<li> Happy with my buy....</li>
+<li> Very nice.</li>
+<li> Love these brushes they are great</li>
+<li> Really nice for the price as well</li>
+<li> They&#x27;re pretty good, works great</li>
+<li> I love them a lot</li>
+<li> love the brushes</li>
+<li> they r ok</li>
+<li> so the bristles can absorb liquid better</li>
+<li> Cheap they are already falling apart</li>
+<li> so excited....</li>
+<li> Love these brushes shipping was actually fast!</li>
+<li> i loved the 2 smaller brushes for 3-d flowers and designs.</li>
+<li> you have too tweak then for your own personal use</li>
+<li> Exactly what was described.</li>
+<li> I only was able to use them once</li>
+<li> but as for acrylic nails you have too set them in hot water</li>
+<li> Fast shipping!</li>
+<li> and i am very unsatisfied</li>
+<li> they came very early(fantastic)</li>
+<li> Fast shipment.</li>
+<li> will buy again very soon</li>
+<li> but for the price its okay. will find other uses for them.</li>
+<li> so now i have to get new ones but not these</li>
+<li> No they were smaller then I expected</li>
+<li> As soon as you put the gel in the brush the brush completely turns hard.</li>
+<li> Never buy other people.</li>
+<li> Terrible brushes, kinda cute though!</li>
+<li> Im not excited about these brushes at all.</li>
+<li> Dont buy  a waste of my money</li>
+<li> Very stiff too,like a stick</li>
+<li> Lousy brushes</li>
+</ol>
+
+<h2>All Reviews</h2>
+
+<ol>
+    <li> Cheap they are already falling apart</li>
+    <li> Happy with my buy....so excited....</li>
+    <li> Very nice. Exactly what was described.</li>
+    <li> Love these brushes they are great but they are best to use with uv gel for nail art but as for acrylic nails you have too set them in hot water so the bristles can absorb liquid better you have too tweak then for your own personal use I love them a lot</li>
+    <li> No they were smaller then I expected</li>
+    <li> The brushes don&#x27;t hold their shape. but for the price its okay. will find other uses for them.</li>
+    <li> I only was able to use them once and then all the hair was falling apart</li>
+    <li> Broke in a month. The brush fell apart from the stick</li>
+    <li> they came very early(fantastic) i loved the 2 smaller brushes for 3-d flowers and designs. will buy again very soon</li>
+    <li> Would. Never buy other people. Dont buy  a waste of my money</li>
+    <li> They&#x27;re pretty good, works great</li>
+    <li> Love these brushes shipping was actually fast! Really nice for the price as well</li>
+    <li> Im not excited about these brushes at all. It doesnt work well with my acrylic when doin 3d nail art. Very stiff too,like a stick</li>
+    <li> nunca pude disfrutarlos</li>
+    <li> they r ok but after a while the hair started to fall out so now i have to get new ones but not these</li>
+    <li> Fast shipment. .i love the brushes</li>
+    <li> Lousy brushes it&#x27;s just like going to the dollar store. As soon as you put the gel in the brush the brush completely turns hard. Cheapest brushes ever.</li>
+    <li> These came and were horruble and unusable and i am very unsatisfied</li>
+    <li> Terrible brushes, kinda cute though! Would not ever think about buying them again! They got flimsy with gel and acrylic stuck to them!</li>
+    <li> Great product!  Fast shipping!</li>
+</ol>
+
+
+
+
