@@ -1,12 +1,3 @@
----
-title: Australian Emu Oil by Dr. Adorable Triple Refined Organic 100% Pure 8 Oz,
-description: Australian Emu Oil by Dr. Adorable Triple Refined Organic 100% Pure 8 Oz,
-author: Suvojit Manna,
-tags: Australian Emu Oil by Dr. Adorable Triple Refined Organic 100% Pure 8 Oz,
-publishedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
----
-
 # [Australian Emu Oil by Dr. Adorable Triple Refined Organic 100% Pure 8 Oz](https://products.checkmycream.com/products/Australian-Emu-Oil-by-Dr.-Adorable-Triple-Refined-Organic-100percent-Pure-8-Oz.html)
 
 ### Positive Reviews

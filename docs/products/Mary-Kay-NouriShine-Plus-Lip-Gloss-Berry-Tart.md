@@ -1,12 +1,3 @@
----
-title: Mary Kay NouriShine Plus Lip Gloss Berry Tart,
-description: Mary Kay NouriShine Plus Lip Gloss Berry Tart,
-author: Suvojit Manna,
-tags: Mary Kay NouriShine Plus Lip Gloss Berry Tart,
-publishedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
----
-
 # [Mary Kay NouriShine Plus Lip Gloss Berry Tart](https://products.checkmycream.com/products/Mary-Kay-NouriShine-Plus-Lip-Gloss-Berry-Tart.html)
 
 ### Positive Reviews

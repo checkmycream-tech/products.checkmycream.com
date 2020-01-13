@@ -1,12 +1,3 @@
----
-title: Me My Elos Replacement Cartridge 6,000 Light Pulses (Fits Me devices with black logo circle),
-description: Me My Elos Replacement Cartridge 6,000 Light Pulses (Fits Me devices with black logo circle),
-author: Suvojit Manna,
-tags: Me My Elos Replacement Cartridge 6,000 Light Pulses (Fits Me devices with black logo circle),
-publishedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
----
-
 # [Me My Elos Replacement Cartridge 6,000 Light Pulses (Fits Me devices with black logo circle)](https://products.checkmycream.com/products/Me-My-Elos-Replacement-Cartridge-6000-Light-Pulses-(Fits-Me-devices-with-black-logo-circle).html)
 
 ### Positive Reviews

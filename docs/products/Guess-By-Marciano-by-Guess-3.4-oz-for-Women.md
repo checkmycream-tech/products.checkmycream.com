@@ -1,12 +1,3 @@
----
-title: Guess By Marciano by Guess 3.4 oz for Women,
-description: Guess By Marciano by Guess 3.4 oz for Women,
-author: Suvojit Manna,
-tags: Guess By Marciano by Guess 3.4 oz for Women,
-publishedAt: Fri Jan 10 2020 14:59:52 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:52 GMT+0530 (India Standard Time),
----
-
 # [Guess By Marciano by Guess 3.4 oz for Women](https://products.checkmycream.com/products/Guess-By-Marciano-by-Guess-3.4-oz-for-Women.html)
 
 ### Positive Reviews

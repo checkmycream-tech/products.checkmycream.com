@@ -1,12 +1,3 @@
----
-title: Surewells Short Bob High Quality Synthetic Black Straight Hair Wigs for Women,
-description: Surewells Short Bob High Quality Synthetic Black Straight Hair Wigs for Women,
-author: Suvojit Manna,
-tags: Surewells Short Bob High Quality Synthetic Black Straight Hair Wigs for Women,
-publishedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
----
-
 # [Surewells Short Bob High Quality Synthetic Black Straight Hair Wigs for Women](https://products.checkmycream.com/products/Surewells-Short-Bob-High-Quality-Synthetic-Black-Straight-Hair-Wigs-for-Women.html)
 
 ### Positive Reviews

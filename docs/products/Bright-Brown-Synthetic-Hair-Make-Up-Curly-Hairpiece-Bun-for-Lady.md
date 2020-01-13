@@ -1,12 +1,3 @@
----
-title: Bright Brown Synthetic Hair Make Up Curly Hairpiece Bun for Lady,
-description: Bright Brown Synthetic Hair Make Up Curly Hairpiece Bun for Lady,
-author: Suvojit Manna,
-tags: Bright Brown Synthetic Hair Make Up Curly Hairpiece Bun for Lady,
-publishedAt: Fri Jan 10 2020 15:00:32 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:32 GMT+0530 (India Standard Time),
----
-
 # [Bright Brown Synthetic Hair Make Up Curly Hairpiece Bun for Lady](https://products.checkmycream.com/products/Bright-Brown-Synthetic-Hair-Make-Up-Curly-Hairpiece-Bun-for-Lady.html)
 
 ### Positive Reviews

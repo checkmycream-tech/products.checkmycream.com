@@ -1,12 +1,3 @@
----
-title: Suppion 1PC Flower Wallet Stand Flip Leather Case Cover For Samsung Galaxy S3 III i9300 (A),
-description: Suppion 1PC Flower Wallet Stand Flip Leather Case Cover For Samsung Galaxy S3 III i9300 (A),
-author: Suvojit Manna,
-tags: Suppion 1PC Flower Wallet Stand Flip Leather Case Cover For Samsung Galaxy S3 III i9300 (A),
-publishedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
----
-
 # [Suppion 1PC Flower Wallet Stand Flip Leather Case Cover For Samsung Galaxy S3 III i9300 (A)](https://products.checkmycream.com/products/Suppion-1PC-Flower-Wallet-Stand-Flip-Leather-Case-Cover-For-Samsung-Galaxy-S3-III-i9300-(A).html)
 
 ### Positive Reviews

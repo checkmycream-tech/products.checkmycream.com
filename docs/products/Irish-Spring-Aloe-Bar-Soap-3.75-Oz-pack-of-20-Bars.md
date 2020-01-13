@@ -1,12 +1,3 @@
----
-title: Irish Spring Aloe Bar Soap 3.75 Oz-pack of 20 Bars,
-description: Irish Spring Aloe Bar Soap 3.75 Oz-pack of 20 Bars,
-author: Suvojit Manna,
-tags: Irish Spring Aloe Bar Soap 3.75 Oz-pack of 20 Bars,
-publishedAt: Fri Jan 10 2020 15:00:04 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:04 GMT+0530 (India Standard Time),
----
-
 # [Irish Spring Aloe Bar Soap 3.75 Oz-pack of 20 Bars](https://products.checkmycream.com/products/Irish-Spring-Aloe-Bar-Soap-3.75-Oz-pack-of-20-Bars.html)
 
 ### Positive Reviews

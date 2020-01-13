@@ -1,12 +1,3 @@
----
-title: Schwarzkopf OSIS Elastic (select option/size),
-description: Schwarzkopf OSIS Elastic (select option/size),
-author: Suvojit Manna,
-tags: Schwarzkopf OSIS Elastic (select option/size),
-publishedAt: Fri Jan 10 2020 14:59:12 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:12 GMT+0530 (India Standard Time),
----
-
 # [Schwarzkopf OSIS Elastic (select option/size)](https://products.checkmycream.com/products/Schwarzkopf-OSIS-Elastic-(select-optionsize).html)
 
 ### Positive Reviews

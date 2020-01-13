@@ -1,12 +1,3 @@
----
-title: CariFree CTx3 Fluoride Rinse, Dentist Recommended, Anti-Cavity (Mint),
-description: CariFree CTx3 Fluoride Rinse, Dentist Recommended, Anti-Cavity (Mint),
-author: Suvojit Manna,
-tags: CariFree CTx3 Fluoride Rinse, Dentist Recommended, Anti-Cavity (Mint),
-publishedAt: Fri Jan 10 2020 15:01:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:05 GMT+0530 (India Standard Time),
----
-
 # [CariFree CTx3 Fluoride Rinse, Dentist Recommended, Anti-Cavity (Mint)](https://products.checkmycream.com/products/CariFree-CTx3-Fluoride-Rinse-Dentist-Recommended-Anti-Cavity-(Mint).html)
 
 ### Positive Reviews

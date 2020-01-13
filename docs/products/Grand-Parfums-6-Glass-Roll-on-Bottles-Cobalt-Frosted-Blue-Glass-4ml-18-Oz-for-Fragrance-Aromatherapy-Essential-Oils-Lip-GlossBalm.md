@@ -1,12 +1,3 @@
----
-title: Grand Parfums 6 Glass Roll on Bottles, Cobalt Frosted Blue Glass 4ml, 1/8 Oz for Fragrance, Aromatherapy, Essential Oils, Lip Gloss/Balm,
-description: Grand Parfums 6 Glass Roll on Bottles, Cobalt Frosted Blue Glass 4ml, 1/8 Oz for Fragrance, Aromatherapy, Essential Oils, Lip Gloss/Balm,
-author: Suvojit Manna,
-tags: Grand Parfums 6 Glass Roll on Bottles, Cobalt Frosted Blue Glass 4ml, 1/8 Oz for Fragrance, Aromatherapy, Essential Oils, Lip Gloss/Balm,
-publishedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
----
-
 # [Grand Parfums 6 Glass Roll on Bottles, Cobalt Frosted Blue Glass 4ml, 1/8 Oz for Fragrance, Aromatherapy, Essential Oils, Lip Gloss/Balm](https://products.checkmycream.com/products/Grand-Parfums-6-Glass-Roll-on-Bottles-Cobalt-Frosted-Blue-Glass-4ml-18-Oz-for-Fragrance-Aromatherapy-Essential-Oils-Lip-GlossBalm.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Jimmy Choo Stars Eau de Parfum Spray for Women, 3.3 Fluid Ounce,
-description: Jimmy Choo Stars Eau de Parfum Spray for Women, 3.3 Fluid Ounce,
-author: Suvojit Manna,
-tags: Jimmy Choo Stars Eau de Parfum Spray for Women, 3.3 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
----
-
 # [Jimmy Choo Stars Eau de Parfum Spray for Women, 3.3 Fluid Ounce](https://products.checkmycream.com/products/Jimmy-Choo-Stars-Eau-de-Parfum-Spray-for-Women-3.3-Fluid-Ounce.html)
 
 ### Positive Reviews

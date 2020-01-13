@@ -1,12 +1,3 @@
----
-title: Mary Kay Liquid Eyeliner ~ Black,
-description: Mary Kay Liquid Eyeliner ~ Black,
-author: Suvojit Manna,
-tags: Mary Kay Liquid Eyeliner ~ Black,
-publishedAt: Fri Jan 10 2020 14:59:49 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:49 GMT+0530 (India Standard Time),
----
-
 # [Mary Kay Liquid Eyeliner ~ Black](https://products.checkmycream.com/products/Mary-Kay-Liquid-Eyeliner-~-Black.html)
 
 ### Positive Reviews

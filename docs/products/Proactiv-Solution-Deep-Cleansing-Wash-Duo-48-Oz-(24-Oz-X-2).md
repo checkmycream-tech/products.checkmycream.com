@@ -1,12 +1,3 @@
----
-title: Proactiv Solution Deep Cleansing Wash Duo - 48 Oz (24 Oz X 2),
-description: Proactiv Solution Deep Cleansing Wash Duo - 48 Oz (24 Oz X 2),
-author: Suvojit Manna,
-tags: Proactiv Solution Deep Cleansing Wash Duo - 48 Oz (24 Oz X 2),
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [Proactiv Solution Deep Cleansing Wash Duo - 48 Oz (24 Oz X 2)](https://products.checkmycream.com/products/Proactiv-Solution-Deep-Cleansing-Wash-Duo-48-Oz-(24-Oz-X-2).html)
 
 ### Positive Reviews

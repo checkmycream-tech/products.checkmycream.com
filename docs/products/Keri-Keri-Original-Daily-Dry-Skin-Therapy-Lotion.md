@@ -1,12 +1,3 @@
----
-title: Keri Keri Original Daily Dry Skin Therapy Lotion,
-description: Keri Keri Original Daily Dry Skin Therapy Lotion,
-author: Suvojit Manna,
-tags: Keri Keri Original Daily Dry Skin Therapy Lotion,
-publishedAt: Fri Jan 10 2020 14:59:22 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:22 GMT+0530 (India Standard Time),
----
-
 # [Keri Keri Original Daily Dry Skin Therapy Lotion](https://products.checkmycream.com/products/Keri-Keri-Original-Daily-Dry-Skin-Therapy-Lotion.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Fake Bake Airbrush Tanning Solution (darker), 32-Ounce,
-description: Fake Bake Airbrush Tanning Solution (darker), 32-Ounce,
-author: Suvojit Manna,
-tags: Fake Bake Airbrush Tanning Solution (darker), 32-Ounce,
-publishedAt: Fri Jan 10 2020 15:00:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:03 GMT+0530 (India Standard Time),
----
-
 # [Fake Bake Airbrush Tanning Solution (darker), 32-Ounce](https://products.checkmycream.com/products/Fake-Bake-Airbrush-Tanning-Solution-(darker)-32-Ounce.html)
 
 ### Positive Reviews

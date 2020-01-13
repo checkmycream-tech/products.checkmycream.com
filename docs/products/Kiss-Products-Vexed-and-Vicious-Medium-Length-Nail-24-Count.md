@@ -1,12 +1,3 @@
----
-title: Kiss Products Vexed &amp; Vicious Medium Length Nail, 24 Count,
-description: Kiss Products Vexed &amp; Vicious Medium Length Nail, 24 Count,
-author: Suvojit Manna,
-tags: Kiss Products Vexed &amp; Vicious Medium Length Nail, 24 Count,
-publishedAt: Fri Jan 10 2020 15:00:37 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:37 GMT+0530 (India Standard Time),
----
-
 # [Kiss Products Vexed &amp; Vicious Medium Length Nail, 24 Count](https://products.checkmycream.com/products/Kiss-Products-Vexed-and-Vicious-Medium-Length-Nail-24-Count.html)
 
 ### Positive Reviews

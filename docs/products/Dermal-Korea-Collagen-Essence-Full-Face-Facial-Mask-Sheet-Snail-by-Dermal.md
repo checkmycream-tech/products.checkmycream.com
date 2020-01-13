@@ -1,12 +1,3 @@
----
-title: Dermal Korea Collagen Essence Full Face Facial Mask Sheet - Snail by Dermal,
-description: Dermal Korea Collagen Essence Full Face Facial Mask Sheet - Snail by Dermal,
-author: Suvojit Manna,
-tags: Dermal Korea Collagen Essence Full Face Facial Mask Sheet - Snail by Dermal,
-publishedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
----
-
 # [Dermal Korea Collagen Essence Full Face Facial Mask Sheet - Snail by Dermal](https://products.checkmycream.com/products/Dermal-Korea-Collagen-Essence-Full-Face-Facial-Mask-Sheet-Snail-by-Dermal.html)
 
 ### Positive Reviews

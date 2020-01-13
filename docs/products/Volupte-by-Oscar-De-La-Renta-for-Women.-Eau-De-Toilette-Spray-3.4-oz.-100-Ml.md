@@ -1,12 +1,3 @@
----
-title: Volupte by Oscar De La Renta for Women. Eau De Toilette Spray 3.4 oz. / 100 Ml,
-description: Volupte by Oscar De La Renta for Women. Eau De Toilette Spray 3.4 oz. / 100 Ml,
-author: Suvojit Manna,
-tags: Volupte by Oscar De La Renta for Women. Eau De Toilette Spray 3.4 oz. / 100 Ml,
-publishedAt: Fri Jan 10 2020 14:58:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:58:57 GMT+0530 (India Standard Time),
----
-
 # [Volupte by Oscar De La Renta for Women. Eau De Toilette Spray 3.4 oz. / 100 Ml](https://products.checkmycream.com/products/Volupte-by-Oscar-De-La-Renta-for-Women.-Eau-De-Toilette-Spray-3.4-oz.-100-Ml.html)
 
 ### Positive Reviews

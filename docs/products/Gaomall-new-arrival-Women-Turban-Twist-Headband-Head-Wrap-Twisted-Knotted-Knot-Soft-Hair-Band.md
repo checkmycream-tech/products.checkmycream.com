@@ -1,12 +1,3 @@
----
-title: Gaomall new arrival Women Turban Twist Headband Head Wrap Twisted Knotted Knot Soft Hair Band,
-description: Gaomall new arrival Women Turban Twist Headband Head Wrap Twisted Knotted Knot Soft Hair Band,
-author: Suvojit Manna,
-tags: Gaomall new arrival Women Turban Twist Headband Head Wrap Twisted Knotted Knot Soft Hair Band,
-publishedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
----
-
 # [Gaomall new arrival Women Turban Twist Headband Head Wrap Twisted Knotted Knot Soft Hair Band](https://products.checkmycream.com/products/Gaomall-new-arrival-Women-Turban-Twist-Headband-Head-Wrap-Twisted-Knotted-Knot-Soft-Hair-Band.html)
 
 ### Positive Reviews

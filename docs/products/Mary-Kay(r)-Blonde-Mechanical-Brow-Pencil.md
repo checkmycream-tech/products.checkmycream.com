@@ -1,12 +1,3 @@
----
-title: Mary Kay® Blonde Mechanical Brow Pencil,
-description: Mary Kay® Blonde Mechanical Brow Pencil,
-author: Suvojit Manna,
-tags: Mary Kay® Blonde Mechanical Brow Pencil,
-publishedAt: Fri Jan 10 2020 15:00:17 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:17 GMT+0530 (India Standard Time),
----
-
 # [Mary Kay® Blonde Mechanical Brow Pencil](https://products.checkmycream.com/products/Mary-Kay(r)-Blonde-Mechanical-Brow-Pencil.html)
 
 ### Positive Reviews

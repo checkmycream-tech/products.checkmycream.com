@@ -1,12 +1,3 @@
----
-title: CND Shellac,Tango Passion,
-description: CND Shellac,Tango Passion,
-author: Suvojit Manna,
-tags: CND Shellac,Tango Passion,
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [CND Shellac,Tango Passion](https://products.checkmycream.com/products/CND-ShellacTango-Passion.html)
 
 ### Positive Reviews

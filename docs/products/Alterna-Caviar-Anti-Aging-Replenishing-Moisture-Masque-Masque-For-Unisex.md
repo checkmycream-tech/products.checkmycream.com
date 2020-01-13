@@ -1,12 +1,3 @@
----
-title: Alterna Caviar Anti-Aging Replenishing Moisture Masque Masque For Unisex,
-description: Alterna Caviar Anti-Aging Replenishing Moisture Masque Masque For Unisex,
-author: Suvojit Manna,
-tags: Alterna Caviar Anti-Aging Replenishing Moisture Masque Masque For Unisex,
-publishedAt: Fri Jan 10 2020 15:00:31 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:31 GMT+0530 (India Standard Time),
----
-
 # [Alterna Caviar Anti-Aging Replenishing Moisture Masque Masque For Unisex](https://products.checkmycream.com/products/Alterna-Caviar-Anti-Aging-Replenishing-Moisture-Masque-Masque-For-Unisex.html)
 
 ### Positive Reviews

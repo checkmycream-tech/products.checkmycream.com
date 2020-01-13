@@ -1,12 +1,3 @@
----
-title: Oster Model 10 Heavy Duty Clipper with Blade 000,
-description: Oster Model 10 Heavy Duty Clipper with Blade 000,
-author: Suvojit Manna,
-tags: Oster Model 10 Heavy Duty Clipper with Blade 000,
-publishedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
----
-
 # [Oster Model 10 Heavy Duty Clipper with Blade 000](https://products.checkmycream.com/products/Oster-Model-10-Heavy-Duty-Clipper-with-Blade-000.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: CLEAN &amp; CLEAR Daily Skincare Essentials 3 ea,
-description: CLEAN &amp; CLEAR Daily Skincare Essentials 3 ea,
-author: Suvojit Manna,
-tags: CLEAN &amp; CLEAR Daily Skincare Essentials 3 ea,
-publishedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
----
-
 # [CLEAN &amp; CLEAR Daily Skincare Essentials 3 ea](https://products.checkmycream.com/products/CLEAN-and-CLEAR-Daily-Skincare-Essentials-3-ea.html)
 
 ### Positive Reviews

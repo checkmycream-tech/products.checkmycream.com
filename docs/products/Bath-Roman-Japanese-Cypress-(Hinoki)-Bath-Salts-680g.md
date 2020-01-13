@@ -1,12 +1,3 @@
----
-title: Bath Roman Japanese Cypress (Hinoki) Bath Salts - 680g,
-description: Bath Roman Japanese Cypress (Hinoki) Bath Salts - 680g,
-author: Suvojit Manna,
-tags: Bath Roman Japanese Cypress (Hinoki) Bath Salts - 680g,
-publishedAt: Fri Jan 10 2020 14:59:07 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:07 GMT+0530 (India Standard Time),
----
-
 # [Bath Roman Japanese Cypress (Hinoki) Bath Salts - 680g](https://products.checkmycream.com/products/Bath-Roman-Japanese-Cypress-(Hinoki)-Bath-Salts-680g.html)
 
 ### Positive Reviews

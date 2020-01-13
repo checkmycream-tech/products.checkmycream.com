@@ -1,12 +1,3 @@
----
-title: 12 Pack Lava 10085 Heavy Duty Bar Soap with Pumice - 5.75-oz (10185),
-description: 12 Pack Lava 10085 Heavy Duty Bar Soap with Pumice - 5.75-oz (10185),
-author: Suvojit Manna,
-tags: 12 Pack Lava 10085 Heavy Duty Bar Soap with Pumice - 5.75-oz (10185),
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [12 Pack Lava 10085 Heavy Duty Bar Soap with Pumice - 5.75-oz (10185)](https://products.checkmycream.com/products/12-Pack-Lava-10085-Heavy-Duty-Bar-Soap-with-Pumice-5.75-oz-(10185).html)
 
 ### Positive Reviews

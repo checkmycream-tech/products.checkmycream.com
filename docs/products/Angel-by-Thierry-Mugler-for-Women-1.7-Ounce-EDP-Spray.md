@@ -1,12 +1,3 @@
----
-title: Angel by Thierry Mugler for Women - 1.7 Ounce EDP Spray,
-description: Angel by Thierry Mugler for Women - 1.7 Ounce EDP Spray,
-author: Suvojit Manna,
-tags: Angel by Thierry Mugler for Women - 1.7 Ounce EDP Spray,
-publishedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
----
-
 # [Angel by Thierry Mugler for Women - 1.7 Ounce EDP Spray](https://products.checkmycream.com/products/Angel-by-Thierry-Mugler-for-Women-1.7-Ounce-EDP-Spray.html)
 
 ### Positive Reviews

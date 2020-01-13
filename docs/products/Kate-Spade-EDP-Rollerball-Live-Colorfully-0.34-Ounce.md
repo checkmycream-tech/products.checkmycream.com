@@ -1,12 +1,3 @@
----
-title: Kate Spade EDP Rollerball, Live Colorfully, 0.34 Ounce,
-description: Kate Spade EDP Rollerball, Live Colorfully, 0.34 Ounce,
-author: Suvojit Manna,
-tags: Kate Spade EDP Rollerball, Live Colorfully, 0.34 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
----
-
 # [Kate Spade EDP Rollerball, Live Colorfully, 0.34 Ounce](https://products.checkmycream.com/products/Kate-Spade-EDP-Rollerball-Live-Colorfully-0.34-Ounce.html)
 
 ### Positive Reviews

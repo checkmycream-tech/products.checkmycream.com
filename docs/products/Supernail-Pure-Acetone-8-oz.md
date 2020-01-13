@@ -1,12 +1,3 @@
----
-title: Supernail Pure Acetone - 8 oz,
-description: Supernail Pure Acetone - 8 oz,
-author: Suvojit Manna,
-tags: Supernail Pure Acetone - 8 oz,
-publishedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
----
-
 # [Supernail Pure Acetone - 8 oz](https://products.checkmycream.com/products/Supernail-Pure-Acetone-8-oz.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: M4U Womens Brown Medium Straight Synthetic Sweet Medium Wig For Woman,
-description: M4U Womens Brown Medium Straight Synthetic Sweet Medium Wig For Woman,
-author: Suvojit Manna,
-tags: M4U Womens Brown Medium Straight Synthetic Sweet Medium Wig For Woman,
-publishedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
----
-
 # [M4U Womens Brown Medium Straight Synthetic Sweet Medium Wig For Woman](https://products.checkmycream.com/products/M4U-Womens-Brown-Medium-Straight-Synthetic-Sweet-Medium-Wig-For-Woman.html)
 
 ### Positive Reviews

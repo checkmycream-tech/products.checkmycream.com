@@ -1,12 +1,3 @@
----
-title: Oscar by Oscar de la Renta for Women Bath And Shower Gels,
-description: Oscar by Oscar de la Renta for Women Bath And Shower Gels,
-author: Suvojit Manna,
-tags: Oscar by Oscar de la Renta for Women Bath And Shower Gels,
-publishedAt: Fri Jan 10 2020 14:59:13 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:13 GMT+0530 (India Standard Time),
----
-
 # [Oscar by Oscar de la Renta for Women Bath And Shower Gels](https://products.checkmycream.com/products/Oscar-by-Oscar-de-la-Renta-for-Women-Bath-And-Shower-Gels.html)
 
 ### Positive Reviews

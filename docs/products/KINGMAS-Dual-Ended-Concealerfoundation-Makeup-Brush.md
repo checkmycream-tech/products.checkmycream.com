@@ -1,12 +1,3 @@
----
-title: KINGMAS Dual Ended Concealer/foundation Makeup Brush,
-description: KINGMAS Dual Ended Concealer/foundation Makeup Brush,
-author: Suvojit Manna,
-tags: KINGMAS Dual Ended Concealer/foundation Makeup Brush,
-publishedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
----
-
 # [KINGMAS Dual Ended Concealer/foundation Makeup Brush](https://products.checkmycream.com/products/KINGMAS-Dual-Ended-Concealerfoundation-Makeup-Brush.html)
 
 ### Positive Reviews

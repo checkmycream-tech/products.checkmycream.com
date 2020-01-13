@@ -1,12 +1,3 @@
----
-title: Tous Gold Perfume by Tous for women Personal Fragrances,
-description: Tous Gold Perfume by Tous for women Personal Fragrances,
-author: Suvojit Manna,
-tags: Tous Gold Perfume by Tous for women Personal Fragrances,
-publishedAt: Fri Jan 10 2020 14:59:16 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:16 GMT+0530 (India Standard Time),
----
-
 # [Tous Gold Perfume by Tous for women Personal Fragrances](https://products.checkmycream.com/products/Tous-Gold-Perfume-by-Tous-for-women-Personal-Fragrances.html)
 
 ### Positive Reviews

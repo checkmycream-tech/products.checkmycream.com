@@ -1,12 +1,3 @@
----
-title: Oster Professional 76918-016 Replacement Clipper Blade, Size 0000,
-description: Oster Professional 76918-016 Replacement Clipper Blade, Size 0000,
-author: Suvojit Manna,
-tags: Oster Professional 76918-016 Replacement Clipper Blade, Size 0000,
-publishedAt: Fri Jan 10 2020 14:59:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:00 GMT+0530 (India Standard Time),
----
-
 # [Oster Professional 76918-016 Replacement Clipper Blade, Size 0000](https://products.checkmycream.com/products/Oster-Professional-76918-016-Replacement-Clipper-Blade-Size-0000.html)
 
 ### Positive Reviews

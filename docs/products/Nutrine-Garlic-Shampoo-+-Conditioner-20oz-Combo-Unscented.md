@@ -1,12 +1,3 @@
----
-title: Nutrine Garlic Shampoo + Conditioner 20oz Combo Unscented,
-description: Nutrine Garlic Shampoo + Conditioner 20oz Combo Unscented,
-author: Suvojit Manna,
-tags: Nutrine Garlic Shampoo + Conditioner 20oz Combo Unscented,
-publishedAt: Fri Jan 10 2020 15:00:11 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:11 GMT+0530 (India Standard Time),
----
-
 # [Nutrine Garlic Shampoo + Conditioner 20oz Combo Unscented](https://products.checkmycream.com/products/Nutrine-Garlic-Shampoo-+-Conditioner-20oz-Combo-Unscented.html)
 
 ### Positive Reviews

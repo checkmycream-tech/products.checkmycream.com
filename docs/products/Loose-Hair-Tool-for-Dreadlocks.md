@@ -1,12 +1,3 @@
----
-title: Loose Hair Tool for Dreadlocks,
-description: Loose Hair Tool for Dreadlocks,
-author: Suvojit Manna,
-tags: Loose Hair Tool for Dreadlocks,
-publishedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
----
-
 # [Loose Hair Tool for Dreadlocks](https://products.checkmycream.com/products/Loose-Hair-Tool-for-Dreadlocks.html)
 
 ### Positive Reviews

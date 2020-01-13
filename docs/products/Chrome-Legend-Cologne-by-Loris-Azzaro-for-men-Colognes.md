@@ -1,12 +1,3 @@
----
-title: Chrome Legend Cologne by Loris Azzaro for men Colognes,
-description: Chrome Legend Cologne by Loris Azzaro for men Colognes,
-author: Suvojit Manna,
-tags: Chrome Legend Cologne by Loris Azzaro for men Colognes,
-publishedAt: Fri Jan 10 2020 14:59:29 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:29 GMT+0530 (India Standard Time),
----
-
 # [Chrome Legend Cologne by Loris Azzaro for men Colognes](https://products.checkmycream.com/products/Chrome-Legend-Cologne-by-Loris-Azzaro-for-men-Colognes.html)
 
 ### Positive Reviews

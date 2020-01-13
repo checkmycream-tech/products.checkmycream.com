@@ -1,12 +1,3 @@
----
-title: CELLUCOR C4 60 SERVINGS STRAWBERRY MARGARITA (342g),
-description: CELLUCOR C4 60 SERVINGS STRAWBERRY MARGARITA (342g),
-author: Suvojit Manna,
-tags: CELLUCOR C4 60 SERVINGS STRAWBERRY MARGARITA (342g),
-publishedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
----
-
 # [CELLUCOR C4 60 SERVINGS STRAWBERRY MARGARITA (342g)](https://products.checkmycream.com/products/CELLUCOR-C4-60-SERVINGS-STRAWBERRY-MARGARITA-(342g).html)
 
 ### Positive Reviews

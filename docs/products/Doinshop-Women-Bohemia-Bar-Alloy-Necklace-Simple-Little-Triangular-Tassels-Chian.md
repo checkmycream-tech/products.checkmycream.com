@@ -1,12 +1,3 @@
----
-title: Doinshop Women Bohemia Bar Alloy Necklace Simple Little Triangular Tassels Chian,
-description: Doinshop Women Bohemia Bar Alloy Necklace Simple Little Triangular Tassels Chian,
-author: Suvojit Manna,
-tags: Doinshop Women Bohemia Bar Alloy Necklace Simple Little Triangular Tassels Chian,
-publishedAt: Fri Jan 10 2020 15:01:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:08 GMT+0530 (India Standard Time),
----
-
 # [Doinshop Women Bohemia Bar Alloy Necklace Simple Little Triangular Tassels Chian](https://products.checkmycream.com/products/Doinshop-Women-Bohemia-Bar-Alloy-Necklace-Simple-Little-Triangular-Tassels-Chian.html)
 
 ### Positive Reviews

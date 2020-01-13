@@ -1,12 +1,3 @@
----
-title: Marc Jacobs Daisy Eau so Fresh 0.24 Oz / 6ml EDT Rollerball,
-description: Marc Jacobs Daisy Eau so Fresh 0.24 Oz / 6ml EDT Rollerball,
-author: Suvojit Manna,
-tags: Marc Jacobs Daisy Eau so Fresh 0.24 Oz / 6ml EDT Rollerball,
-publishedAt: Fri Jan 10 2020 15:00:09 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:09 GMT+0530 (India Standard Time),
----
-
 # [Marc Jacobs Daisy Eau so Fresh 0.24 Oz / 6ml EDT Rollerball](https://products.checkmycream.com/products/Marc-Jacobs-Daisy-Eau-so-Fresh-0.24-Oz-6ml-EDT-Rollerball.html)
 
 ### Positive Reviews

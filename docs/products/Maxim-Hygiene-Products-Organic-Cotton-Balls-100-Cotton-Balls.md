@@ -1,12 +1,3 @@
----
-title: Maxim Hygiene Products Organic Cotton Balls -- 100 Cotton Balls,
-description: Maxim Hygiene Products Organic Cotton Balls -- 100 Cotton Balls,
-author: Suvojit Manna,
-tags: Maxim Hygiene Products Organic Cotton Balls -- 100 Cotton Balls,
-publishedAt: Fri Jan 10 2020 14:59:34 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:34 GMT+0530 (India Standard Time),
----
-
 # [Maxim Hygiene Products Organic Cotton Balls -- 100 Cotton Balls](https://products.checkmycream.com/products/Maxim-Hygiene-Products-Organic-Cotton-Balls-100-Cotton-Balls.html)
 
 ### Positive Reviews

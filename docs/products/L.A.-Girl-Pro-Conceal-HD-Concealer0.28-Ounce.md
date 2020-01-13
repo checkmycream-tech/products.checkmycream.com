@@ -1,12 +1,3 @@
----
-title: L.A. Girl Pro Conceal HD Concealer,0.28 Ounce,
-description: L.A. Girl Pro Conceal HD Concealer,0.28 Ounce,
-author: Suvojit Manna,
-tags: L.A. Girl Pro Conceal HD Concealer,0.28 Ounce,
-publishedAt: Fri Jan 10 2020 15:01:04 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:04 GMT+0530 (India Standard Time),
----
-
 # [L.A. Girl Pro Conceal HD Concealer,0.28 Ounce](https://products.checkmycream.com/products/L.A.-Girl-Pro-Conceal-HD-Concealer0.28-Ounce.html)
 
 ### Positive Reviews

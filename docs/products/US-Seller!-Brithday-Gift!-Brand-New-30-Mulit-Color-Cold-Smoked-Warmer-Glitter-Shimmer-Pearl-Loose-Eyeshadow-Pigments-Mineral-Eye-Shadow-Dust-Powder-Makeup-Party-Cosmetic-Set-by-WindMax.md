@@ -1,12 +1,3 @@
----
-title: US Seller! Brithday Gift! Brand New 30 Mulit Color Cold Smoked Warmer Glitter Shimmer Pearl Loose Eyeshadow Pigments Mineral Eye Shadow Dust Powder Makeup Party Cosmetic Set by WindMax,
-description: US Seller! Brithday Gift! Brand New 30 Mulit Color Cold Smoked Warmer Glitter Shimmer Pearl Loose Eyeshadow Pigments Mineral Eye Shadow Dust Powder Makeup Party Cosmetic Set by WindMax,
-author: Suvojit Manna,
-tags: US Seller! Brithday Gift! Brand New 30 Mulit Color Cold Smoked Warmer Glitter Shimmer Pearl Loose Eyeshadow Pigments Mineral Eye Shadow Dust Powder Makeup Party Cosmetic Set by WindMax,
-publishedAt: Fri Jan 10 2020 15:01:04 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:04 GMT+0530 (India Standard Time),
----
-
 # [US Seller! Brithday Gift! Brand New 30 Mulit Color Cold Smoked Warmer Glitter Shimmer Pearl Loose Eyeshadow Pigments Mineral Eye Shadow Dust Powder Makeup Party Cosmetic Set by WindMax](https://products.checkmycream.com/products/US-Seller!-Brithday-Gift!-Brand-New-30-Mulit-Color-Cold-Smoked-Warmer-Glitter-Shimmer-Pearl-Loose-Eyeshadow-Pigments-Mineral-Eye-Shadow-Dust-Powder-Makeup-Party-Cosmetic-Set-by-WindMax.html)
 
 ### Positive Reviews

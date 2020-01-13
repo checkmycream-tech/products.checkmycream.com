@@ -1,12 +1,3 @@
----
-title: Dudley&#x27;s Cream Pressing Oil Unisex, 7 Ounce,
-description: Dudley&#x27;s Cream Pressing Oil Unisex, 7 Ounce,
-author: Suvojit Manna,
-tags: Dudley&#x27;s Cream Pressing Oil Unisex, 7 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:08 GMT+0530 (India Standard Time),
----
-
 # [Dudley&#x27;s Cream Pressing Oil Unisex, 7 Ounce](https://products.checkmycream.com/products/Dudley&#x27;s-Cream-Pressing-Oil-Unisex-7-Ounce.html)
 
 ### Positive Reviews

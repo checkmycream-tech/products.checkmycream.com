@@ -1,12 +1,3 @@
----
-title: Rite Aid Salve, 1 oz,
-description: Rite Aid Salve, 1 oz,
-author: Suvojit Manna,
-tags: Rite Aid Salve, 1 oz,
-publishedAt: Fri Jan 10 2020 14:59:44 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:44 GMT+0530 (India Standard Time),
----
-
 # [Rite Aid Salve, 1 oz](https://products.checkmycream.com/products/Rite-Aid-Salve-1-oz.html)
 
 ### Positive Reviews

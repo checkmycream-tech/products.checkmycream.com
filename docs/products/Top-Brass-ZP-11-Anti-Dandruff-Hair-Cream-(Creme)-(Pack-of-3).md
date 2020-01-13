@@ -1,12 +1,3 @@
----
-title: Top Brass ZP-11 Anti Dandruff Hair Cream (Creme) (Pack of 3),
-description: Top Brass ZP-11 Anti Dandruff Hair Cream (Creme) (Pack of 3),
-author: Suvojit Manna,
-tags: Top Brass ZP-11 Anti Dandruff Hair Cream (Creme) (Pack of 3),
-publishedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
----
-
 # [Top Brass ZP-11 Anti Dandruff Hair Cream (Creme) (Pack of 3)](https://products.checkmycream.com/products/Top-Brass-ZP-11-Anti-Dandruff-Hair-Cream-(Creme)-(Pack-of-3).html)
 
 ### Positive Reviews

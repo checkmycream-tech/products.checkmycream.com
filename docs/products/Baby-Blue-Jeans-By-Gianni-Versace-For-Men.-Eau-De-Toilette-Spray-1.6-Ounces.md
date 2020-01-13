@@ -1,12 +1,3 @@
----
-title: Baby Blue Jeans By Gianni Versace For Men. Eau De Toilette Spray 1.6 Ounces,
-description: Baby Blue Jeans By Gianni Versace For Men. Eau De Toilette Spray 1.6 Ounces,
-author: Suvojit Manna,
-tags: Baby Blue Jeans By Gianni Versace For Men. Eau De Toilette Spray 1.6 Ounces,
-publishedAt: Fri Jan 10 2020 14:59:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:05 GMT+0530 (India Standard Time),
----
-
 # [Baby Blue Jeans By Gianni Versace For Men. Eau De Toilette Spray 1.6 Ounces](https://products.checkmycream.com/products/Baby-Blue-Jeans-By-Gianni-Versace-For-Men.-Eau-De-Toilette-Spray-1.6-Ounces.html)
 
 ### Positive Reviews

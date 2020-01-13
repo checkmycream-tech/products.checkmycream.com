@@ -1,12 +1,3 @@
----
-title: Ultra Womens Facial Trimmer &amp; Eyebrow Styling Kit #4294,
-description: Ultra Womens Facial Trimmer &amp; Eyebrow Styling Kit #4294,
-author: Suvojit Manna,
-tags: Ultra Womens Facial Trimmer &amp; Eyebrow Styling Kit #4294,
-publishedAt: Fri Jan 10 2020 15:00:06 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:06 GMT+0530 (India Standard Time),
----
-
 # [Ultra Womens Facial Trimmer &amp; Eyebrow Styling Kit #4294](https://products.checkmycream.com/products/Ultra-Womens-Facial-Trimmer-and-Eyebrow-Styling-Kit-4294.html)
 
 ### Positive Reviews

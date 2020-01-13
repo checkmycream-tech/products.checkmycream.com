@@ -1,12 +1,3 @@
----
-title: American Crew Fragrance by American Crew For Men. Classic Fragrance Spray 3.4-Ounces,
-description: American Crew Fragrance by American Crew For Men. Classic Fragrance Spray 3.4-Ounces,
-author: Suvojit Manna,
-tags: American Crew Fragrance by American Crew For Men. Classic Fragrance Spray 3.4-Ounces,
-publishedAt: Fri Jan 10 2020 14:59:29 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:29 GMT+0530 (India Standard Time),
----
-
 # [American Crew Fragrance by American Crew For Men. Classic Fragrance Spray 3.4-Ounces](https://products.checkmycream.com/products/American-Crew-Fragrance-by-American-Crew-For-Men.-Classic-Fragrance-Spray-3.4-Ounces.html)
 
 ### Positive Reviews

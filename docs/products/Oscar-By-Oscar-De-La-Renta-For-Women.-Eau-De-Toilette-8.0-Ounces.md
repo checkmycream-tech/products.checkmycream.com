@@ -1,12 +1,3 @@
----
-title: Oscar By Oscar De La Renta For Women. Eau De Toilette  8.0 Ounces,
-description: Oscar By Oscar De La Renta For Women. Eau De Toilette  8.0 Ounces,
-author: Suvojit Manna,
-tags: Oscar By Oscar De La Renta For Women. Eau De Toilette  8.0 Ounces,
-publishedAt: Fri Jan 10 2020 14:59:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:05 GMT+0530 (India Standard Time),
----
-
 # [Oscar By Oscar De La Renta For Women. Eau De Toilette  8.0 Ounces](https://products.checkmycream.com/products/Oscar-By-Oscar-De-La-Renta-For-Women.-Eau-De-Toilette-8.0-Ounces.html)
 
 ### Positive Reviews

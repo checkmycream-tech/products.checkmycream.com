@@ -1,12 +1,3 @@
----
-title: Aromatherapy Glass Roll on Bottles, Blue Cobalt Glass (Not Painted) with Metal Steel Roller Ball. Black Caps, and Round Write- On Labels - Set of 6 Bottles and 9 Labels,
-description: Aromatherapy Glass Roll on Bottles, Blue Cobalt Glass (Not Painted) with Metal Steel Roller Ball. Black Caps, and Round Write- On Labels - Set of 6 Bottles and 9 Labels,
-author: Suvojit Manna,
-tags: Aromatherapy Glass Roll on Bottles, Blue Cobalt Glass (Not Painted) with Metal Steel Roller Ball. Black Caps, and Round Write- On Labels - Set of 6 Bottles and 9 Labels,
-publishedAt: Fri Jan 10 2020 15:01:04 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:04 GMT+0530 (India Standard Time),
----
-
 # [Aromatherapy Glass Roll on Bottles, Blue Cobalt Glass (Not Painted) with Metal Steel Roller Ball. Black Caps, and Round Write- On Labels - Set of 6 Bottles and 9 Labels](https://products.checkmycream.com/products/Aromatherapy-Glass-Roll-on-Bottles-Blue-Cobalt-Glass-(Not-Painted)-with-Metal-Steel-Roller-Ball.-Black-Caps-and-Round-Write-On-Labels-Set-of-6-Bottles-and-9-Labels.html)
 
 ### Positive Reviews

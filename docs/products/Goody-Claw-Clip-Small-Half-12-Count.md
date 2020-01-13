@@ -1,12 +1,3 @@
----
-title: Goody Claw Clip, Small, Half, 12 Count,
-description: Goody Claw Clip, Small, Half, 12 Count,
-author: Suvojit Manna,
-tags: Goody Claw Clip, Small, Half, 12 Count,
-publishedAt: Fri Jan 10 2020 14:59:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:56 GMT+0530 (India Standard Time),
----
-
 # [Goody Claw Clip, Small, Half, 12 Count](https://products.checkmycream.com/products/Goody-Claw-Clip-Small-Half-12-Count.html)
 
 ### Positive Reviews

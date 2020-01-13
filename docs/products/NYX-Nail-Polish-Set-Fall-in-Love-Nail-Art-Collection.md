@@ -1,12 +1,3 @@
----
-title: NYX Nail Polish Set - Fall in Love Nail Art Collection,
-description: NYX Nail Polish Set - Fall in Love Nail Art Collection,
-author: Suvojit Manna,
-tags: NYX Nail Polish Set - Fall in Love Nail Art Collection,
-publishedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
----
-
 # [NYX Nail Polish Set - Fall in Love Nail Art Collection](https://products.checkmycream.com/products/NYX-Nail-Polish-Set-Fall-in-Love-Nail-Art-Collection.html)
 
 ### Positive Reviews

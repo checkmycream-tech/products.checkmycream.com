@@ -1,12 +1,3 @@
----
-title: Elizabeth Taylor White Diamonds Women 4 Piece Set…,
-description: Elizabeth Taylor White Diamonds Women 4 Piece Set…,
-author: Suvojit Manna,
-tags: Elizabeth Taylor White Diamonds Women 4 Piece Set…,
-publishedAt: Fri Jan 10 2020 14:59:29 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:29 GMT+0530 (India Standard Time),
----
-
 # [Elizabeth Taylor White Diamonds Women 4 Piece Set…](https://products.checkmycream.com/products/Elizabeth-Taylor-White-Diamonds-Women-4-Piece-Set....html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Godefroy Color Tint Kit, Natural Black,
-description: Godefroy Color Tint Kit, Natural Black,
-author: Suvojit Manna,
-tags: Godefroy Color Tint Kit, Natural Black,
-publishedAt: Fri Jan 10 2020 14:59:04 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:04 GMT+0530 (India Standard Time),
----
-
 # [Godefroy Color Tint Kit, Natural Black](https://products.checkmycream.com/products/Godefroy-Color-Tint-Kit-Natural-Black.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Revlon Beauty Tools Brow Styling Gel,
-description: Revlon Beauty Tools Brow Styling Gel,
-author: Suvojit Manna,
-tags: Revlon Beauty Tools Brow Styling Gel,
-publishedAt: Fri Jan 10 2020 14:59:34 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:34 GMT+0530 (India Standard Time),
----
-
 # [Revlon Beauty Tools Brow Styling Gel](https://products.checkmycream.com/products/Revlon-Beauty-Tools-Brow-Styling-Gel.html)
 
 ### Positive Reviews

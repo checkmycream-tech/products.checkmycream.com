@@ -1,12 +1,3 @@
----
-title: Eyelash Extensions Flat Head Mannequin + 10 Pairs of False Eyelashes,
-description: Eyelash Extensions Flat Head Mannequin + 10 Pairs of False Eyelashes,
-author: Suvojit Manna,
-tags: Eyelash Extensions Flat Head Mannequin + 10 Pairs of False Eyelashes,
-publishedAt: Fri Jan 10 2020 15:00:10 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:10 GMT+0530 (India Standard Time),
----
-
 # [Eyelash Extensions Flat Head Mannequin + 10 Pairs of False Eyelashes](https://products.checkmycream.com/products/Eyelash-Extensions-Flat-Head-Mannequin-+-10-Pairs-of-False-Eyelashes.html)
 
 ### Positive Reviews

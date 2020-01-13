@@ -1,12 +1,3 @@
----
-title: OGX Shampoo, Smooth Hydration Argan Oil &amp; Shea Butter, 13 oz,
-description: OGX Shampoo, Smooth Hydration Argan Oil &amp; Shea Butter, 13 oz,
-author: Suvojit Manna,
-tags: OGX Shampoo, Smooth Hydration Argan Oil &amp; Shea Butter, 13 oz,
-publishedAt: Fri Jan 10 2020 15:00:36 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:36 GMT+0530 (India Standard Time),
----
-
 # [OGX Shampoo, Smooth Hydration Argan Oil &amp; Shea Butter, 13 oz](https://products.checkmycream.com/products/OGX-Shampoo-Smooth-Hydration-Argan-Oil-and-Shea-Butter-13-oz.html)
 
 ### Positive Reviews

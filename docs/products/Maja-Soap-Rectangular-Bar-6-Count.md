@@ -1,12 +1,3 @@
----
-title: Maja Soap Rectangular Bar, 6 Count,
-description: Maja Soap Rectangular Bar, 6 Count,
-author: Suvojit Manna,
-tags: Maja Soap Rectangular Bar, 6 Count,
-publishedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
----
-
 # [Maja Soap Rectangular Bar, 6 Count](https://products.checkmycream.com/products/Maja-Soap-Rectangular-Bar-6-Count.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: USB 3.0 Cable/Cord For WD Western Digital My Passport Essential WDCA042RNN Super Speed 5Gbps A / Micro B Device, 10FT (3M) GOLD PLATED Connector,
-description: USB 3.0 Cable/Cord For WD Western Digital My Passport Essential WDCA042RNN Super Speed 5Gbps A / Micro B Device, 10FT (3M) GOLD PLATED Connector,
-author: Suvojit Manna,
-tags: USB 3.0 Cable/Cord For WD Western Digital My Passport Essential WDCA042RNN Super Speed 5Gbps A / Micro B Device, 10FT (3M) GOLD PLATED Connector,
-publishedAt: Fri Jan 10 2020 15:01:09 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:09 GMT+0530 (India Standard Time),
----
-
 # [USB 3.0 Cable/Cord For WD Western Digital My Passport Essential WDCA042RNN Super Speed 5Gbps A / Micro B Device, 10FT (3M) GOLD PLATED Connector](https://products.checkmycream.com/products/USB-3.0-CableCord-For-WD-Western-Digital-My-Passport-Essential-WDCA042RNN-Super-Speed-5Gbps-A-Micro-B-Device-10FT-(3M)-GOLD-PLATED-Connector.html)
 
 ### Positive Reviews

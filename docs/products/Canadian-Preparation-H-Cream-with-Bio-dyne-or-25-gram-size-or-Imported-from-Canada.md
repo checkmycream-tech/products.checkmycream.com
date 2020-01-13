@@ -1,12 +1,3 @@
----
-title: Canadian Preparation H Cream with Bio-dyne | 25 gram size | Imported from Canada,
-description: Canadian Preparation H Cream with Bio-dyne | 25 gram size | Imported from Canada,
-author: Suvojit Manna,
-tags: Canadian Preparation H Cream with Bio-dyne | 25 gram size | Imported from Canada,
-publishedAt: Fri Jan 10 2020 15:00:45 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:45 GMT+0530 (India Standard Time),
----
-
 # [Canadian Preparation H Cream with Bio-dyne | 25 gram size | Imported from Canada](https://products.checkmycream.com/products/Canadian-Preparation-H-Cream-with-Bio-dyne-or-25-gram-size-or-Imported-from-Canada.html)
 
 ### Positive Reviews

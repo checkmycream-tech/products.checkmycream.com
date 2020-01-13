@@ -1,12 +1,3 @@
----
-title: Fcuk 3 By French Connection Edt Spray/FN206625/3.4 oz/men/,
-description: Fcuk 3 By French Connection Edt Spray/FN206625/3.4 oz/men/,
-author: Suvojit Manna,
-tags: Fcuk 3 By French Connection Edt Spray/FN206625/3.4 oz/men/,
-publishedAt: Fri Jan 10 2020 15:00:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:00 GMT+0530 (India Standard Time),
----
-
 # [Fcuk 3 By French Connection Edt Spray/FN206625/3.4 oz/men/](https://products.checkmycream.com/products/Fcuk-3-By-French-Connection-Edt-SprayFN2066253.4-ozmen.html)
 
 ### Positive Reviews

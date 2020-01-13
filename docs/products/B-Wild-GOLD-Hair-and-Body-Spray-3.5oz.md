@@ -1,12 +1,3 @@
----
-title: B-Wild GOLD Hair and Body Spray 3.5oz,
-description: B-Wild GOLD Hair and Body Spray 3.5oz,
-author: Suvojit Manna,
-tags: B-Wild GOLD Hair and Body Spray 3.5oz,
-publishedAt: Fri Jan 10 2020 14:59:13 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:13 GMT+0530 (India Standard Time),
----
-
 # [B-Wild GOLD Hair and Body Spray 3.5oz](https://products.checkmycream.com/products/B-Wild-GOLD-Hair-and-Body-Spray-3.5oz.html)
 
 ### Positive Reviews

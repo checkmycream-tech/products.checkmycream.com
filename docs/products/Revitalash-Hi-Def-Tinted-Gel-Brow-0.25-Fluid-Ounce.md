@@ -1,12 +1,3 @@
----
-title: Revitalash Hi-Def Tinted Gel, Brow, 0.25 Fluid Ounce,
-description: Revitalash Hi-Def Tinted Gel, Brow, 0.25 Fluid Ounce,
-author: Suvojit Manna,
-tags: Revitalash Hi-Def Tinted Gel, Brow, 0.25 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
----
-
 # [Revitalash Hi-Def Tinted Gel, Brow, 0.25 Fluid Ounce](https://products.checkmycream.com/products/Revitalash-Hi-Def-Tinted-Gel-Brow-0.25-Fluid-Ounce.html)
 
 ### Positive Reviews

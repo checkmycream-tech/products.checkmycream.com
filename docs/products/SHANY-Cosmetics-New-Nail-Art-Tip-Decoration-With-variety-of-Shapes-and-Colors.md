@@ -1,12 +1,3 @@
----
-title: SHANY Cosmetics New Nail Art Tip Decoration With variety of Shapes &amp; Colors,
-description: SHANY Cosmetics New Nail Art Tip Decoration With variety of Shapes &amp; Colors,
-author: Suvojit Manna,
-tags: SHANY Cosmetics New Nail Art Tip Decoration With variety of Shapes &amp; Colors,
-publishedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
----
-
 # [SHANY Cosmetics New Nail Art Tip Decoration With variety of Shapes &amp; Colors](https://products.checkmycream.com/products/SHANY-Cosmetics-New-Nail-Art-Tip-Decoration-With-variety-of-Shapes-and-Colors.html)
 
 ### Positive Reviews

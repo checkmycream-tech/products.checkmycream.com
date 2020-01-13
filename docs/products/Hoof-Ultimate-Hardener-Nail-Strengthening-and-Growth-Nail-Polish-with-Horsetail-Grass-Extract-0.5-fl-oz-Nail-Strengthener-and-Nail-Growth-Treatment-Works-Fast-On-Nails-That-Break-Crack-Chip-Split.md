@@ -1,12 +1,3 @@
----
-title: Hoof Ultimate Hardener Nail Strengthening &amp; Growth Nail Polish with Horsetail Grass Extract 0.5 fl oz - Nail Strengthener &amp; Nail Growth Treatment Works Fast On Nails That Break, Crack, Chip, Split,
-description: Hoof Ultimate Hardener Nail Strengthening &amp; Growth Nail Polish with Horsetail Grass Extract 0.5 fl oz - Nail Strengthener &amp; Nail Growth Treatment Works Fast On Nails That Break, Crack, Chip, Split,
-author: Suvojit Manna,
-tags: Hoof Ultimate Hardener Nail Strengthening &amp; Growth Nail Polish with Horsetail Grass Extract 0.5 fl oz - Nail Strengthener &amp; Nail Growth Treatment Works Fast On Nails That Break, Crack, Chip, Split,
-publishedAt: Fri Jan 10 2020 15:00:10 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:10 GMT+0530 (India Standard Time),
----
-
 # [Hoof Ultimate Hardener Nail Strengthening &amp; Growth Nail Polish with Horsetail Grass Extract 0.5 fl oz - Nail Strengthener &amp; Nail Growth Treatment Works Fast On Nails That Break, Crack, Chip, Split](https://products.checkmycream.com/products/Hoof-Ultimate-Hardener-Nail-Strengthening-and-Growth-Nail-Polish-with-Horsetail-Grass-Extract-0.5-fl-oz-Nail-Strengthener-and-Nail-Growth-Treatment-Works-Fast-On-Nails-That-Break-Crack-Chip-Split.html)
 
 ### Positive Reviews

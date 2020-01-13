@@ -1,12 +1,3 @@
----
-title: Faberge Brut Cologne Splash for Men Gift Box,25.6 Ounce,
-description: Faberge Brut Cologne Splash for Men Gift Box,25.6 Ounce,
-author: Suvojit Manna,
-tags: Faberge Brut Cologne Splash for Men Gift Box,25.6 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:09 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:09 GMT+0530 (India Standard Time),
----
-
 # [Faberge Brut Cologne Splash for Men Gift Box,25.6 Ounce](https://products.checkmycream.com/products/Faberge-Brut-Cologne-Splash-for-Men-Gift-Box25.6-Ounce.html)
 
 ### Positive Reviews

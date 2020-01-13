@@ -1,12 +1,3 @@
----
-title: Piggy Paint Non-toxic Nail Polish Gift Set (2 Polishes/1 Remover) Polish Colors May Vary From Picture Based On Availability,
-description: Piggy Paint Non-toxic Nail Polish Gift Set (2 Polishes/1 Remover) Polish Colors May Vary From Picture Based On Availability,
-author: Suvojit Manna,
-tags: Piggy Paint Non-toxic Nail Polish Gift Set (2 Polishes/1 Remover) Polish Colors May Vary From Picture Based On Availability,
-publishedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
----
-
 # [Piggy Paint Non-toxic Nail Polish Gift Set (2 Polishes/1 Remover) Polish Colors May Vary From Picture Based On Availability](https://products.checkmycream.com/products/Piggy-Paint-Non-toxic-Nail-Polish-Gift-Set-(2-Polishes1-Remover)-Polish-Colors-May-Vary-From-Picture-Based-On-Availability.html)
 
 ### Positive Reviews

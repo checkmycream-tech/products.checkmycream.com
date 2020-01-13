@@ -1,12 +1,3 @@
----
-title: LCL Beauty High Capacity Hot Towel Cabinet/UV Sterilizer,
-description: LCL Beauty High Capacity Hot Towel Cabinet/UV Sterilizer,
-author: Suvojit Manna,
-tags: LCL Beauty High Capacity Hot Towel Cabinet/UV Sterilizer,
-publishedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
----
-
 # [LCL Beauty High Capacity Hot Towel Cabinet/UV Sterilizer](https://products.checkmycream.com/products/LCL-Beauty-High-Capacity-Hot-Towel-CabinetUV-Sterilizer.html)
 
 ### Positive Reviews

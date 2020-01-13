@@ -1,12 +1,3 @@
----
-title: Revlon ColorBurst Lipstick, 0.13 Fluid-Ounce,
-description: Revlon ColorBurst Lipstick, 0.13 Fluid-Ounce,
-author: Suvojit Manna,
-tags: Revlon ColorBurst Lipstick, 0.13 Fluid-Ounce,
-publishedAt: Fri Jan 10 2020 14:59:47 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:47 GMT+0530 (India Standard Time),
----
-
 # [Revlon ColorBurst Lipstick, 0.13 Fluid-Ounce](https://products.checkmycream.com/products/Revlon-ColorBurst-Lipstick-0.13-Fluid-Ounce.html)
 
 ### Positive Reviews

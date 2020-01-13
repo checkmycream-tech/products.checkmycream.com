@@ -1,12 +1,3 @@
----
-title: Icibgoods Professional Steel Ear Nose Navel Body Piercing Gun with 98pcs Studs Machine Kit Set Ladies&#x27; Make up Tool,
-description: Icibgoods Professional Steel Ear Nose Navel Body Piercing Gun with 98pcs Studs Machine Kit Set Ladies&#x27; Make up Tool,
-author: Suvojit Manna,
-tags: Icibgoods Professional Steel Ear Nose Navel Body Piercing Gun with 98pcs Studs Machine Kit Set Ladies&#x27; Make up Tool,
-publishedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
----
-
 # [Icibgoods Professional Steel Ear Nose Navel Body Piercing Gun with 98pcs Studs Machine Kit Set Ladies&#x27; Make up Tool](https://products.checkmycream.com/products/Icibgoods-Professional-Steel-Ear-Nose-Navel-Body-Piercing-Gun-with-98pcs-Studs-Machine-Kit-Set-Ladies&#x27;-Make-up-Tool.html)
 
 ### Positive Reviews

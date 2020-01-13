@@ -1,12 +1,3 @@
----
-title: Infusion D&#x27;Homme Cologne by Prada for men Colognes,
-description: Infusion D&#x27;Homme Cologne by Prada for men Colognes,
-author: Suvojit Manna,
-tags: Infusion D&#x27;Homme Cologne by Prada for men Colognes,
-publishedAt: Fri Jan 10 2020 14:59:33 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:33 GMT+0530 (India Standard Time),
----
-
 # [Infusion D&#x27;Homme Cologne by Prada for men Colognes](https://products.checkmycream.com/products/Infusion-D&#x27;Homme-Cologne-by-Prada-for-men-Colognes.html)
 
 ### Positive Reviews

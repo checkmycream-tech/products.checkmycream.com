@@ -1,12 +1,3 @@
----
-title: HuaYang Magic Pink Hair Tie Twist Braid Tool Holder Clip Hair Styling Tool,
-description: HuaYang Magic Pink Hair Tie Twist Braid Tool Holder Clip Hair Styling Tool,
-author: Suvojit Manna,
-tags: HuaYang Magic Pink Hair Tie Twist Braid Tool Holder Clip Hair Styling Tool,
-publishedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
----
-
 # [HuaYang Magic Pink Hair Tie Twist Braid Tool Holder Clip Hair Styling Tool](https://products.checkmycream.com/products/HuaYang-Magic-Pink-Hair-Tie-Twist-Braid-Tool-Holder-Clip-Hair-Styling-Tool.html)
 
 ### Positive Reviews

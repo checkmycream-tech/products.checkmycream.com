@@ -1,12 +1,3 @@
----
-title: Back to Basics firm hold gel 8.5 fl oz 250 ml,
-description: Back to Basics firm hold gel 8.5 fl oz 250 ml,
-author: Suvojit Manna,
-tags: Back to Basics firm hold gel 8.5 fl oz 250 ml,
-publishedAt: Fri Jan 10 2020 14:59:51 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:51 GMT+0530 (India Standard Time),
----
-
 # [Back to Basics firm hold gel 8.5 fl oz 250 ml](https://products.checkmycream.com/products/Back-to-Basics-firm-hold-gel-8.5-fl-oz-250-ml.html)
 
 ### Positive Reviews

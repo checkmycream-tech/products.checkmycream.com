@@ -1,12 +1,3 @@
----
-title: Revlon ColorStay Eyeliner Pencil, Brown [203], 0.01 Oz. (Pack of 2),
-description: Revlon ColorStay Eyeliner Pencil, Brown [203], 0.01 Oz. (Pack of 2),
-author: Suvojit Manna,
-tags: Revlon ColorStay Eyeliner Pencil, Brown [203], 0.01 Oz. (Pack of 2),
-publishedAt: Fri Jan 10 2020 14:59:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:08 GMT+0530 (India Standard Time),
----
-
 # [Revlon ColorStay Eyeliner Pencil, Brown [203], 0.01 Oz. (Pack of 2)](https://products.checkmycream.com/products/Revlon-ColorStay-Eyeliner-Pencil-Brown-203-0.01-Oz.-(Pack-of-2).html)
 
 ### Positive Reviews

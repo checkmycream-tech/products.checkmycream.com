@@ -1,12 +1,3 @@
----
-title: Victoria&#x27;s Secret Gorgeous Fragrance Mist 75ml / 2.5fl oz Travel Size,
-description: Victoria&#x27;s Secret Gorgeous Fragrance Mist 75ml / 2.5fl oz Travel Size,
-author: Suvojit Manna,
-tags: Victoria&#x27;s Secret Gorgeous Fragrance Mist 75ml / 2.5fl oz Travel Size,
-publishedAt: Fri Jan 10 2020 15:00:14 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:14 GMT+0530 (India Standard Time),
----
-
 # [Victoria&#x27;s Secret Gorgeous Fragrance Mist 75ml / 2.5fl oz Travel Size](https://products.checkmycream.com/products/Victoria&#x27;s-Secret-Gorgeous-Fragrance-Mist-75ml-2.5fl-oz-Travel-Size.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Dana Canoe Deodorant Stick for Men, 3 Ounce,
-description: Dana Canoe Deodorant Stick for Men, 3 Ounce,
-author: Suvojit Manna,
-tags: Dana Canoe Deodorant Stick for Men, 3 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:21 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:21 GMT+0530 (India Standard Time),
----
-
 # [Dana Canoe Deodorant Stick for Men, 3 Ounce](https://products.checkmycream.com/products/Dana-Canoe-Deodorant-Stick-for-Men-3-Ounce.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Ralph Lauren Polo Red Eau de Toilette Spray,
-description: Ralph Lauren Polo Red Eau de Toilette Spray,
-author: Suvojit Manna,
-tags: Ralph Lauren Polo Red Eau de Toilette Spray,
-publishedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
----
-
 # [Ralph Lauren Polo Red Eau de Toilette Spray](https://products.checkmycream.com/products/Ralph-Lauren-Polo-Red-Eau-de-Toilette-Spray.html)
 
 ### Positive Reviews

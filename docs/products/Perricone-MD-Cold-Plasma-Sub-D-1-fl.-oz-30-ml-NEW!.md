@@ -1,12 +1,3 @@
----
-title: Perricone MD Cold Plasma Sub-D 1 fl. oz / 30 ml, NEW!,
-description: Perricone MD Cold Plasma Sub-D 1 fl. oz / 30 ml, NEW!,
-author: Suvojit Manna,
-tags: Perricone MD Cold Plasma Sub-D 1 fl. oz / 30 ml, NEW!,
-publishedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
----
-
 # [Perricone MD Cold Plasma Sub-D 1 fl. oz / 30 ml, NEW!](https://products.checkmycream.com/products/Perricone-MD-Cold-Plasma-Sub-D-1-fl.-oz-30-ml-NEW!.html)
 
 ### Positive Reviews

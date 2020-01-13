@@ -1,12 +1,3 @@
----
-title: Dr. Singhas Mustard Bath Bath Mustard,
-description: Dr. Singhas Mustard Bath Bath Mustard,
-author: Suvojit Manna,
-tags: Dr. Singhas Mustard Bath Bath Mustard,
-publishedAt: Fri Jan 10 2020 14:59:27 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:27 GMT+0530 (India Standard Time),
----
-
 # [Dr. Singhas Mustard Bath Bath Mustard](https://products.checkmycream.com/products/Dr.-Singhas-Mustard-Bath-Bath-Mustard.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Lou Lou By Cacharel For Women,
-description: Lou Lou By Cacharel For Women,
-author: Suvojit Manna,
-tags: Lou Lou By Cacharel For Women,
-publishedAt: Fri Jan 10 2020 14:59:15 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:15 GMT+0530 (India Standard Time),
----
-
 # [Lou Lou By Cacharel For Women](https://products.checkmycream.com/products/Lou-Lou-By-Cacharel-For-Women.html)
 
 ### Positive Reviews

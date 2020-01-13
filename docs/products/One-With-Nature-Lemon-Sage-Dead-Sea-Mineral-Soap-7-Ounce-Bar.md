@@ -1,12 +1,3 @@
----
-title: One With Nature Lemon Sage Dead Sea Mineral Soap, 7 Ounce Bar,
-description: One With Nature Lemon Sage Dead Sea Mineral Soap, 7 Ounce Bar,
-author: Suvojit Manna,
-tags: One With Nature Lemon Sage Dead Sea Mineral Soap, 7 Ounce Bar,
-publishedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
----
-
 # [One With Nature Lemon Sage Dead Sea Mineral Soap, 7 Ounce Bar](https://products.checkmycream.com/products/One-With-Nature-Lemon-Sage-Dead-Sea-Mineral-Soap-7-Ounce-Bar.html)
 
 ### Positive Reviews

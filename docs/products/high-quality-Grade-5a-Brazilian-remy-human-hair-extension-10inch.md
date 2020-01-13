@@ -1,12 +1,3 @@
----
-title: high quality Grade 5a Brazilian remy human hair extension 10inch,
-description: high quality Grade 5a Brazilian remy human hair extension 10inch,
-author: Suvojit Manna,
-tags: high quality Grade 5a Brazilian remy human hair extension 10inch,
-publishedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
----
-
 # [high quality Grade 5a Brazilian remy human hair extension 10inch](https://products.checkmycream.com/products/high-quality-Grade-5a-Brazilian-remy-human-hair-extension-10inch.html)
 
 ### Positive Reviews

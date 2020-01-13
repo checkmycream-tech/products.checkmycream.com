@@ -1,12 +1,3 @@
----
-title: KAYSO INC Original Lover&#x27;s White Collection - Couple&#x27;s Masquerade Mask Set,
-description: KAYSO INC Original Lover&#x27;s White Collection - Couple&#x27;s Masquerade Mask Set,
-author: Suvojit Manna,
-tags: KAYSO INC Original Lover&#x27;s White Collection - Couple&#x27;s Masquerade Mask Set,
-publishedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
----
-
 # [KAYSO INC Original Lover&#x27;s White Collection - Couple&#x27;s Masquerade Mask Set](https://products.checkmycream.com/products/KAYSO-INC-Original-Lover&#x27;s-White-Collection-Couple&#x27;s-Masquerade-Mask-Set.html)
 
 ### Positive Reviews

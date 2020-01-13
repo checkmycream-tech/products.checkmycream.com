@@ -1,12 +1,3 @@
----
-title: Diane Pumice Stone - Various Quantity,
-description: Diane Pumice Stone - Various Quantity,
-author: Suvojit Manna,
-tags: Diane Pumice Stone - Various Quantity,
-publishedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
----
-
 # [Diane Pumice Stone - Various Quantity](https://products.checkmycream.com/products/Diane-Pumice-Stone-Various-Quantity.html)
 
 ### Positive Reviews

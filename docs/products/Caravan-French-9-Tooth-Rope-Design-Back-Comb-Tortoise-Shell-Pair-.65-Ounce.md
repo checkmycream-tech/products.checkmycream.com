@@ -1,12 +1,3 @@
----
-title: Caravan French 9 Tooth Rope Design Back Comb Tortoise Shell Pair, .65 Ounce,
-description: Caravan French 9 Tooth Rope Design Back Comb Tortoise Shell Pair, .65 Ounce,
-author: Suvojit Manna,
-tags: Caravan French 9 Tooth Rope Design Back Comb Tortoise Shell Pair, .65 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
----
-
 # [Caravan French 9 Tooth Rope Design Back Comb Tortoise Shell Pair, .65 Ounce](https://products.checkmycream.com/products/Caravan-French-9-Tooth-Rope-Design-Back-Comb-Tortoise-Shell-Pair-.65-Ounce.html)
 
 ### Positive Reviews

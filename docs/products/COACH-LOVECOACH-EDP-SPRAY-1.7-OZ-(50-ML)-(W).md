@@ -1,12 +1,3 @@
----
-title: COACH LOVE/COACH EDP SPRAY 1.7 OZ (50 ML) (W),
-description: COACH LOVE/COACH EDP SPRAY 1.7 OZ (50 ML) (W),
-author: Suvojit Manna,
-tags: COACH LOVE/COACH EDP SPRAY 1.7 OZ (50 ML) (W),
-publishedAt: Fri Jan 10 2020 15:00:38 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:38 GMT+0530 (India Standard Time),
----
-
 # [COACH LOVE/COACH EDP SPRAY 1.7 OZ (50 ML) (W)](https://products.checkmycream.com/products/COACH-LOVECOACH-EDP-SPRAY-1.7-OZ-(50-ML)-(W).html)
 
 ### Positive Reviews

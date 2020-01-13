@@ -1,12 +1,3 @@
----
-title: abHair&amp;trade; Human Remy Hair Weft Weave 3 Bundles Virgin Brazilian Natural Black/Off Black 1b 14 Inch 3 Pieces Same Length 180g Fashionable Curly for Fantastic Cheap Real Hair Extension Style,
-description: abHair&amp;trade; Human Remy Hair Weft Weave 3 Bundles Virgin Brazilian Natural Black/Off Black 1b 14 Inch 3 Pieces Same Length 180g Fashionable Curly for Fantastic Cheap Real Hair Extension Style,
-author: Suvojit Manna,
-tags: abHair&amp;trade; Human Remy Hair Weft Weave 3 Bundles Virgin Brazilian Natural Black/Off Black 1b 14 Inch 3 Pieces Same Length 180g Fashionable Curly for Fantastic Cheap Real Hair Extension Style,
-publishedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
----
-
 # [abHair&amp;trade; Human Remy Hair Weft Weave 3 Bundles Virgin Brazilian Natural Black/Off Black 1b 14 Inch 3 Pieces Same Length 180g Fashionable Curly for Fantastic Cheap Real Hair Extension Style](https://products.checkmycream.com/products/abHairandtrade-Human-Remy-Hair-Weft-Weave-3-Bundles-Virgin-Brazilian-Natural-BlackOff-Black-1b-14-Inch-3-Pieces-Same-Length-180g-Fashionable-Curly-for-Fantastic-Cheap-Real-Hair-Extension-Style.html)
 
 ### Positive Reviews

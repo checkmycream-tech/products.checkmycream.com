@@ -1,12 +1,3 @@
----
-title: Keratin Complex Stealth IV Straightening Iron,
-description: Keratin Complex Stealth IV Straightening Iron,
-author: Suvojit Manna,
-tags: Keratin Complex Stealth IV Straightening Iron,
-publishedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
----
-
 # [Keratin Complex Stealth IV Straightening Iron](https://products.checkmycream.com/products/Keratin-Complex-Stealth-IV-Straightening-Iron.html)
 
 ### Positive Reviews

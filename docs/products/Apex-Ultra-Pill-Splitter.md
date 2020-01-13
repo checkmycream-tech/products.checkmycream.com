@@ -1,12 +1,3 @@
----
-title: Apex Ultra Pill Splitter,
-description: Apex Ultra Pill Splitter,
-author: Suvojit Manna,
-tags: Apex Ultra Pill Splitter,
-publishedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
----
-
 # [Apex Ultra Pill Splitter](https://products.checkmycream.com/products/Apex-Ultra-Pill-Splitter.html)
 
 ### Positive Reviews

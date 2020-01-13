@@ -1,12 +1,3 @@
----
-title: L&#x27;Oreal Paris Hair Expertise OleoTherapy All Perfecting Oil Essence,
-description: L&#x27;Oreal Paris Hair Expertise OleoTherapy All Perfecting Oil Essence,
-author: Suvojit Manna,
-tags: L&#x27;Oreal Paris Hair Expertise OleoTherapy All Perfecting Oil Essence,
-publishedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
----
-
 # [L&#x27;Oreal Paris Hair Expertise OleoTherapy All Perfecting Oil Essence](https://products.checkmycream.com/products/L&#x27;Oreal-Paris-Hair-Expertise-OleoTherapy-All-Perfecting-Oil-Essence.html)
 
 ### Positive Reviews

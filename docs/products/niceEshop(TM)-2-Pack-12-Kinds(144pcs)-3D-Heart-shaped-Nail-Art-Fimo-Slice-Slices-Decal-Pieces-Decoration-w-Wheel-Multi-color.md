@@ -1,12 +1,3 @@
----
-title: niceEshop(TM) 2 Pack - 12 Kinds(144pcs) 3D Heart-shaped Nail Art Fimo Slice Slices Decal Pieces Decoration w/ Wheel-Multi color,
-description: niceEshop(TM) 2 Pack - 12 Kinds(144pcs) 3D Heart-shaped Nail Art Fimo Slice Slices Decal Pieces Decoration w/ Wheel-Multi color,
-author: Suvojit Manna,
-tags: niceEshop(TM) 2 Pack - 12 Kinds(144pcs) 3D Heart-shaped Nail Art Fimo Slice Slices Decal Pieces Decoration w/ Wheel-Multi color,
-publishedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
----
-
 # [niceEshop(TM) 2 Pack - 12 Kinds(144pcs) 3D Heart-shaped Nail Art Fimo Slice Slices Decal Pieces Decoration w/ Wheel-Multi color](https://products.checkmycream.com/products/niceEshop(TM)-2-Pack-12-Kinds(144pcs)-3D-Heart-shaped-Nail-Art-Fimo-Slice-Slices-Decal-Pieces-Decoration-w-Wheel-Multi-color.html)
 
 ### Positive Reviews

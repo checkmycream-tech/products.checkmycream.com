@@ -1,12 +1,3 @@
----
-title: Maybelline New York Superstay 10 hour Stain Gloss, Pleasing Plum, 0.35 Fluid Ounce,
-description: Maybelline New York Superstay 10 hour Stain Gloss, Pleasing Plum, 0.35 Fluid Ounce,
-author: Suvojit Manna,
-tags: Maybelline New York Superstay 10 hour Stain Gloss, Pleasing Plum, 0.35 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 15:00:16 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:16 GMT+0530 (India Standard Time),
----
-
 # [Maybelline New York Superstay 10 hour Stain Gloss, Pleasing Plum, 0.35 Fluid Ounce](https://products.checkmycream.com/products/Maybelline-New-York-Superstay-10-hour-Stain-Gloss-Pleasing-Plum-0.35-Fluid-Ounce.html)
 
 ### Positive Reviews

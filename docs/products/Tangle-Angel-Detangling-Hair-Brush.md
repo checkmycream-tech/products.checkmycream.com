@@ -1,12 +1,3 @@
----
-title: Tangle Angel Detangling Hair Brush,
-description: Tangle Angel Detangling Hair Brush,
-author: Suvojit Manna,
-tags: Tangle Angel Detangling Hair Brush,
-publishedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
----
-
 # [Tangle Angel Detangling Hair Brush](https://products.checkmycream.com/products/Tangle-Angel-Detangling-Hair-Brush.html)
 
 ### Positive Reviews

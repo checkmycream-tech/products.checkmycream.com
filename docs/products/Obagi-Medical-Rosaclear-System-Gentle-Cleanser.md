@@ -1,12 +1,3 @@
----
-title: Obagi Medical Rosaclear System Gentle Cleanser,
-description: Obagi Medical Rosaclear System Gentle Cleanser,
-author: Suvojit Manna,
-tags: Obagi Medical Rosaclear System Gentle Cleanser,
-publishedAt: Fri Jan 10 2020 15:00:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:08 GMT+0530 (India Standard Time),
----
-
 # [Obagi Medical Rosaclear System Gentle Cleanser](https://products.checkmycream.com/products/Obagi-Medical-Rosaclear-System-Gentle-Cleanser.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: 25 in 1 Professional Nail Art UV Gel Kit 36W UV Lamp Timer Dryer Brush Buffer Tool Cuticle Pusher Sand Block Files Side Clipper Top Coat Nail Tips Glue Set #50,
-description: 25 in 1 Professional Nail Art UV Gel Kit 36W UV Lamp Timer Dryer Brush Buffer Tool Cuticle Pusher Sand Block Files Side Clipper Top Coat Nail Tips Glue Set #50,
-author: Suvojit Manna,
-tags: 25 in 1 Professional Nail Art UV Gel Kit 36W UV Lamp Timer Dryer Brush Buffer Tool Cuticle Pusher Sand Block Files Side Clipper Top Coat Nail Tips Glue Set #50,
-publishedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
----
-
 # [25 in 1 Professional Nail Art UV Gel Kit 36W UV Lamp Timer Dryer Brush Buffer Tool Cuticle Pusher Sand Block Files Side Clipper Top Coat Nail Tips Glue Set #50](https://products.checkmycream.com/products/25-in-1-Professional-Nail-Art-UV-Gel-Kit-36W-UV-Lamp-Timer-Dryer-Brush-Buffer-Tool-Cuticle-Pusher-Sand-Block-Files-Side-Clipper-Top-Coat-Nail-Tips-Glue-Set-50.html)
 
 ### Positive Reviews

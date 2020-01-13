@@ -1,12 +1,3 @@
----
-title: Fresh EssenceEau De Toillete Spray, 3.4 Ounce,
-description: Fresh EssenceEau De Toillete Spray, 3.4 Ounce,
-author: Suvojit Manna,
-tags: Fresh EssenceEau De Toillete Spray, 3.4 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:12 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:12 GMT+0530 (India Standard Time),
----
-
 # [Fresh EssenceEau De Toillete Spray, 3.4 Ounce](https://products.checkmycream.com/products/Fresh-EssenceEau-De-Toillete-Spray-3.4-Ounce.html)
 
 ### Positive Reviews

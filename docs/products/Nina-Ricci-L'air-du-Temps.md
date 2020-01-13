@@ -1,12 +1,3 @@
----
-title: Nina Ricci L&#x27;air du Temps,
-description: Nina Ricci L&#x27;air du Temps,
-author: Suvojit Manna,
-tags: Nina Ricci L&#x27;air du Temps,
-publishedAt: Fri Jan 10 2020 15:00:20 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:20 GMT+0530 (India Standard Time),
----
-
 # [Nina Ricci L&#x27;air du Temps](https://products.checkmycream.com/products/Nina-Ricci-L&#x27;air-du-Temps.html)
 
 ### Positive Reviews

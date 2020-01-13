@@ -1,12 +1,3 @@
----
-title: Matrix Solite 20 Volume Developer - 16 oz,
-description: Matrix Solite 20 Volume Developer - 16 oz,
-author: Suvojit Manna,
-tags: Matrix Solite 20 Volume Developer - 16 oz,
-publishedAt: Fri Jan 10 2020 15:00:36 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:36 GMT+0530 (India Standard Time),
----
-
 # [Matrix Solite 20 Volume Developer - 16 oz](https://products.checkmycream.com/products/Matrix-Solite-20-Volume-Developer-16-oz.html)
 
 ### Positive Reviews

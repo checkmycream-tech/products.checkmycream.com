@@ -1,12 +1,3 @@
----
-title: China Glaze, First and Last, 0.5 Fluid Ounce, 0.5 Fluid Ounce,
-description: China Glaze, First and Last, 0.5 Fluid Ounce, 0.5 Fluid Ounce,
-author: Suvojit Manna,
-tags: China Glaze, First and Last, 0.5 Fluid Ounce, 0.5 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 14:59:25 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:25 GMT+0530 (India Standard Time),
----
-
 # [China Glaze, First and Last, 0.5 Fluid Ounce, 0.5 Fluid Ounce](https://products.checkmycream.com/products/China-Glaze-First-and-Last-0.5-Fluid-Ounce-0.5-Fluid-Ounce.html)
 
 ### Positive Reviews

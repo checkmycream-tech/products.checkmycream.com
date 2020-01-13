@@ -1,12 +1,3 @@
----
-title: Gucci Premiere for Women Gift Set (Eau de Parfum Spray 2.5 Ounce, Body, Eau de Parfum Spray 0.25 Ounce),
-description: Gucci Premiere for Women Gift Set (Eau de Parfum Spray 2.5 Ounce, Body, Eau de Parfum Spray 0.25 Ounce),
-author: Suvojit Manna,
-tags: Gucci Premiere for Women Gift Set (Eau de Parfum Spray 2.5 Ounce, Body, Eau de Parfum Spray 0.25 Ounce),
-publishedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
----
-
 # [Gucci Premiere for Women Gift Set (Eau de Parfum Spray 2.5 Ounce, Body, Eau de Parfum Spray 0.25 Ounce)](https://products.checkmycream.com/products/Gucci-Premiere-for-Women-Gift-Set-(Eau-de-Parfum-Spray-2.5-Ounce-Body-Eau-de-Parfum-Spray-0.25-Ounce).html)
 
 ### Positive Reviews

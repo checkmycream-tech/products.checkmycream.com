@@ -1,12 +1,3 @@
----
-title: Peppa Pig Hair Clips Bows Hairpin Girls Children Headwear (5 Matching Pairs),
-description: Peppa Pig Hair Clips Bows Hairpin Girls Children Headwear (5 Matching Pairs),
-author: Suvojit Manna,
-tags: Peppa Pig Hair Clips Bows Hairpin Girls Children Headwear (5 Matching Pairs),
-publishedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
----
-
 # [Peppa Pig Hair Clips Bows Hairpin Girls Children Headwear (5 Matching Pairs)](https://products.checkmycream.com/products/Peppa-Pig-Hair-Clips-Bows-Hairpin-Girls-Children-Headwear-(5-Matching-Pairs).html)
 
 ### Positive Reviews

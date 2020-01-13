@@ -1,12 +1,3 @@
----
-title: Top Plaza Pro 7x Makeup Eyeshadow Blush Brushes Cosmetic Set Kit With Roll Up Buckle Case Bag,
-description: Top Plaza Pro 7x Makeup Eyeshadow Blush Brushes Cosmetic Set Kit With Roll Up Buckle Case Bag,
-author: Suvojit Manna,
-tags: Top Plaza Pro 7x Makeup Eyeshadow Blush Brushes Cosmetic Set Kit With Roll Up Buckle Case Bag,
-publishedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
----
-
 # [Top Plaza Pro 7x Makeup Eyeshadow Blush Brushes Cosmetic Set Kit With Roll Up Buckle Case Bag](https://products.checkmycream.com/products/Top-Plaza-Pro-7x-Makeup-Eyeshadow-Blush-Brushes-Cosmetic-Set-Kit-With-Roll-Up-Buckle-Case-Bag.html)
 
 ### Positive Reviews

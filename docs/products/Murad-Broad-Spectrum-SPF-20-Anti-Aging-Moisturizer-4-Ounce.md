@@ -1,12 +1,3 @@
----
-title: Murad Broad Spectrum SPF 20 Anti-Aging Moisturizer, 4 Ounce,
-description: Murad Broad Spectrum SPF 20 Anti-Aging Moisturizer, 4 Ounce,
-author: Suvojit Manna,
-tags: Murad Broad Spectrum SPF 20 Anti-Aging Moisturizer, 4 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:08 GMT+0530 (India Standard Time),
----
-
 # [Murad Broad Spectrum SPF 20 Anti-Aging Moisturizer, 4 Ounce](https://products.checkmycream.com/products/Murad-Broad-Spectrum-SPF-20-Anti-Aging-Moisturizer-4-Ounce.html)
 
 ### Positive Reviews

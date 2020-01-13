@@ -1,12 +1,3 @@
----
-title: License Holder,
-description: License Holder,
-author: Suvojit Manna,
-tags: License Holder,
-publishedAt: Fri Jan 10 2020 14:59:14 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:14 GMT+0530 (India Standard Time),
----
-
 # [License Holder](https://products.checkmycream.com/products/License-Holder.html)
 
 ### Positive Reviews

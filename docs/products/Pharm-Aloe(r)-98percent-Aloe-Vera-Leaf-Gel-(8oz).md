@@ -1,12 +1,3 @@
----
-title: Pharm-Aloe® 98% Aloe Vera Leaf Gel (8oz),
-description: Pharm-Aloe® 98% Aloe Vera Leaf Gel (8oz),
-author: Suvojit Manna,
-tags: Pharm-Aloe® 98% Aloe Vera Leaf Gel (8oz),
-publishedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
----
-
 # [Pharm-Aloe® 98% Aloe Vera Leaf Gel (8oz)](https://products.checkmycream.com/products/Pharm-Aloe(r)-98percent-Aloe-Vera-Leaf-Gel-(8oz).html)
 
 ### Positive Reviews

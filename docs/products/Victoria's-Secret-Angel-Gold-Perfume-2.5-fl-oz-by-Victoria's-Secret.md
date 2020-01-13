@@ -1,12 +1,3 @@
----
-title: Victoria&#x27;s Secret Angel Gold Perfume 2.5 fl oz by Victoria&#x27;s Secret,
-description: Victoria&#x27;s Secret Angel Gold Perfume 2.5 fl oz by Victoria&#x27;s Secret,
-author: Suvojit Manna,
-tags: Victoria&#x27;s Secret Angel Gold Perfume 2.5 fl oz by Victoria&#x27;s Secret,
-publishedAt: Fri Jan 10 2020 15:00:36 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:36 GMT+0530 (India Standard Time),
----
-
 # [Victoria&#x27;s Secret Angel Gold Perfume 2.5 fl oz by Victoria&#x27;s Secret](https://products.checkmycream.com/products/Victoria&#x27;s-Secret-Angel-Gold-Perfume-2.5-fl-oz-by-Victoria&#x27;s-Secret.html)
 
 ### Positive Reviews

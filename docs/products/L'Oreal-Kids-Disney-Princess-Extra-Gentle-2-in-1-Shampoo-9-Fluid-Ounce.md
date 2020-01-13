@@ -1,12 +1,3 @@
----
-title: L&#x27;Oreal Kids Disney Princess Extra Gentle 2-in-1 Shampoo, 9 Fluid Ounce,
-description: L&#x27;Oreal Kids Disney Princess Extra Gentle 2-in-1 Shampoo, 9 Fluid Ounce,
-author: Suvojit Manna,
-tags: L&#x27;Oreal Kids Disney Princess Extra Gentle 2-in-1 Shampoo, 9 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [L&#x27;Oreal Kids Disney Princess Extra Gentle 2-in-1 Shampoo, 9 Fluid Ounce](https://products.checkmycream.com/products/L&#x27;Oreal-Kids-Disney-Princess-Extra-Gentle-2-in-1-Shampoo-9-Fluid-Ounce.html)
 
 ### Positive Reviews

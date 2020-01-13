@@ -1,12 +1,3 @@
----
-title: One Direction Our Moment Gift Set Women&#x27;s Gift Set Spray - ODOMGS432871310,
-description: One Direction Our Moment Gift Set Women&#x27;s Gift Set Spray - ODOMGS432871310,
-author: Suvojit Manna,
-tags: One Direction Our Moment Gift Set Women&#x27;s Gift Set Spray - ODOMGS432871310,
-publishedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
----
-
 # [One Direction Our Moment Gift Set Women&#x27;s Gift Set Spray - ODOMGS432871310](https://products.checkmycream.com/products/One-Direction-Our-Moment-Gift-Set-Women&#x27;s-Gift-Set-Spray-ODOMGS432871310.html)
 
 ### Positive Reviews

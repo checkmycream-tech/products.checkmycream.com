@@ -1,12 +1,3 @@
----
-title: Healing Garden zzzTheraphy Body Lotion, Sleep Well - 1.85 fl oz,
-description: Healing Garden zzzTheraphy Body Lotion, Sleep Well - 1.85 fl oz,
-author: Suvojit Manna,
-tags: Healing Garden zzzTheraphy Body Lotion, Sleep Well - 1.85 fl oz,
-publishedAt: Fri Jan 10 2020 14:58:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:58:58 GMT+0530 (India Standard Time),
----
-
 # [Healing Garden zzzTheraphy Body Lotion, Sleep Well - 1.85 fl oz](https://products.checkmycream.com/products/Healing-Garden-zzzTheraphy-Body-Lotion-Sleep-Well-1.85-fl-oz.html)
 
 ### Positive Reviews

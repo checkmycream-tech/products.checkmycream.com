@@ -1,12 +1,3 @@
----
-title: EVERMARKET 2 Sets (4 tubes) Lashes Mascara English Version (Gel &amp; Fiber) Set - Brush on False Eyelashes,
-description: EVERMARKET 2 Sets (4 tubes) Lashes Mascara English Version (Gel &amp; Fiber) Set - Brush on False Eyelashes,
-author: Suvojit Manna,
-tags: EVERMARKET 2 Sets (4 tubes) Lashes Mascara English Version (Gel &amp; Fiber) Set - Brush on False Eyelashes,
-publishedAt: Fri Jan 10 2020 15:01:04 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:04 GMT+0530 (India Standard Time),
----
-
 # [EVERMARKET 2 Sets (4 tubes) Lashes Mascara English Version (Gel &amp; Fiber) Set - Brush on False Eyelashes](https://products.checkmycream.com/products/EVERMARKET-2-Sets-(4-tubes)-Lashes-Mascara-English-Version-(Gel-and-Fiber)-Set-Brush-on-False-Eyelashes.html)
 
 ### Positive Reviews

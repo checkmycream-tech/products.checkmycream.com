@@ -1,12 +1,3 @@
----
-title: Doctored Locks Weave Needle for Hair Extensions, Weaves and Braids,
-description: Doctored Locks Weave Needle for Hair Extensions, Weaves and Braids,
-author: Suvojit Manna,
-tags: Doctored Locks Weave Needle for Hair Extensions, Weaves and Braids,
-publishedAt: Fri Jan 10 2020 14:59:37 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:37 GMT+0530 (India Standard Time),
----
-
 # [Doctored Locks Weave Needle for Hair Extensions, Weaves and Braids](https://products.checkmycream.com/products/Doctored-Locks-Weave-Needle-for-Hair-Extensions-Weaves-and-Braids.html)
 
 ### Positive Reviews

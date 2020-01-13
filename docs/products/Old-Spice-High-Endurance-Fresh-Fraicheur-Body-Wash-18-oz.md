@@ -1,12 +1,3 @@
----
-title: Old Spice High Endurance Fresh Fraicheur Body Wash 18 oz,
-description: Old Spice High Endurance Fresh Fraicheur Body Wash 18 oz,
-author: Suvojit Manna,
-tags: Old Spice High Endurance Fresh Fraicheur Body Wash 18 oz,
-publishedAt: Fri Jan 10 2020 14:59:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:08 GMT+0530 (India Standard Time),
----
-
 # [Old Spice High Endurance Fresh Fraicheur Body Wash 18 oz](https://products.checkmycream.com/products/Old-Spice-High-Endurance-Fresh-Fraicheur-Body-Wash-18-oz.html)
 
 ### Positive Reviews

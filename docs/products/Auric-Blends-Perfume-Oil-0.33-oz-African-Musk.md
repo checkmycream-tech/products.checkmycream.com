@@ -1,12 +1,3 @@
----
-title: Auric Blends Perfume Oil, 0.33 oz - African Musk,
-description: Auric Blends Perfume Oil, 0.33 oz - African Musk,
-author: Suvojit Manna,
-tags: Auric Blends Perfume Oil, 0.33 oz - African Musk,
-publishedAt: Fri Jan 10 2020 14:58:59 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:58:59 GMT+0530 (India Standard Time),
----
-
 # [Auric Blends Perfume Oil, 0.33 oz - African Musk](https://products.checkmycream.com/products/Auric-Blends-Perfume-Oil-0.33-oz-African-Musk.html)
 
 ### Positive Reviews

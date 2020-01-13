@@ -1,12 +1,3 @@
----
-title: (3 Pack) e.l.f. Studio Mascara Primer - EF81421,
-description: (3 Pack) e.l.f. Studio Mascara Primer - EF81421,
-author: Suvojit Manna,
-tags: (3 Pack) e.l.f. Studio Mascara Primer - EF81421,
-publishedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
----
-
 # [(3 Pack) e.l.f. Studio Mascara Primer - EF81421](https://products.checkmycream.com/products/(3-Pack)-e.l.f.-Studio-Mascara-Primer-EF81421.html)
 
 ### Positive Reviews

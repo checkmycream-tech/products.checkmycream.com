@@ -1,12 +1,3 @@
----
-title: Redken Sheer Straight, Lightweight Straightening Gel, Fine Hair, 3.4-ounce,
-description: Redken Sheer Straight, Lightweight Straightening Gel, Fine Hair, 3.4-ounce,
-author: Suvojit Manna,
-tags: Redken Sheer Straight, Lightweight Straightening Gel, Fine Hair, 3.4-ounce,
-publishedAt: Fri Jan 10 2020 14:59:38 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:38 GMT+0530 (India Standard Time),
----
-
 # [Redken Sheer Straight, Lightweight Straightening Gel, Fine Hair, 3.4-ounce](https://products.checkmycream.com/products/Redken-Sheer-Straight-Lightweight-Straightening-Gel-Fine-Hair-3.4-ounce.html)
 
 ### Positive Reviews

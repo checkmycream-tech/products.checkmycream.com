@@ -1,12 +1,3 @@
----
-title: Organix - Intense Moisturizing Treatment Renewing Moroccan Argan Oil,
-description: Organix - Intense Moisturizing Treatment Renewing Moroccan Argan Oil,
-author: Suvojit Manna,
-tags: Organix - Intense Moisturizing Treatment Renewing Moroccan Argan Oil,
-publishedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
----
-
 # [Organix - Intense Moisturizing Treatment Renewing Moroccan Argan Oil](https://products.checkmycream.com/products/Organix-Intense-Moisturizing-Treatment-Renewing-Moroccan-Argan-Oil.html)
 
 ### Positive Reviews

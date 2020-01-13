@@ -1,12 +1,3 @@
----
-title: Basil 100% Pure, Best Therapeutic Grade Essential Oil,
-description: Basil 100% Pure, Best Therapeutic Grade Essential Oil,
-author: Suvojit Manna,
-tags: Basil 100% Pure, Best Therapeutic Grade Essential Oil,
-publishedAt: Fri Jan 10 2020 15:01:04 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:04 GMT+0530 (India Standard Time),
----
-
 # [Basil 100% Pure, Best Therapeutic Grade Essential Oil](https://products.checkmycream.com/products/Basil-100percent-Pure-Best-Therapeutic-Grade-Essential-Oil.html)
 
 ### Positive Reviews

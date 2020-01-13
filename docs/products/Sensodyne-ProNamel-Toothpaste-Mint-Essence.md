@@ -1,12 +1,3 @@
----
-title: Sensodyne ProNamel Toothpaste, Mint Essence,
-description: Sensodyne ProNamel Toothpaste, Mint Essence,
-author: Suvojit Manna,
-tags: Sensodyne ProNamel Toothpaste, Mint Essence,
-publishedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
----
-
 # [Sensodyne ProNamel Toothpaste, Mint Essence](https://products.checkmycream.com/products/Sensodyne-ProNamel-Toothpaste-Mint-Essence.html)
 
 ### Positive Reviews

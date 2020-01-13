@@ -1,12 +1,3 @@
----
-title: Catalina Boho Summer Flower Garden Garland Wedding Forehead Hair Head Band,
-description: Catalina Boho Summer Flower Garden Garland Wedding Forehead Hair Head Band,
-author: Suvojit Manna,
-tags: Catalina Boho Summer Flower Garden Garland Wedding Forehead Hair Head Band,
-publishedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
----
-
 # [Catalina Boho Summer Flower Garden Garland Wedding Forehead Hair Head Band](https://products.checkmycream.com/products/Catalina-Boho-Summer-Flower-Garden-Garland-Wedding-Forehead-Hair-Head-Band.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Drakkar Noir by Guy Laroche for men 6.7 oz Eau De Toilette EDT Spray,
-description: Drakkar Noir by Guy Laroche for men 6.7 oz Eau De Toilette EDT Spray,
-author: Suvojit Manna,
-tags: Drakkar Noir by Guy Laroche for men 6.7 oz Eau De Toilette EDT Spray,
-publishedAt: Fri Jan 10 2020 15:00:06 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:06 GMT+0530 (India Standard Time),
----
-
 # [Drakkar Noir by Guy Laroche for men 6.7 oz Eau De Toilette EDT Spray](https://products.checkmycream.com/products/Drakkar-Noir-by-Guy-Laroche-for-men-6.7-oz-Eau-De-Toilette-EDT-Spray.html)
 
 ### Positive Reviews

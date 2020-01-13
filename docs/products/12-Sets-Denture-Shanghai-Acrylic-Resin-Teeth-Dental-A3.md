@@ -1,12 +1,3 @@
----
-title: 12 Sets Denture Shanghai Acrylic Resin Teeth Dental A3,
-description: 12 Sets Denture Shanghai Acrylic Resin Teeth Dental A3,
-author: Suvojit Manna,
-tags: 12 Sets Denture Shanghai Acrylic Resin Teeth Dental A3,
-publishedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
----
-
 # [12 Sets Denture Shanghai Acrylic Resin Teeth Dental A3](https://products.checkmycream.com/products/12-Sets-Denture-Shanghai-Acrylic-Resin-Teeth-Dental-A3.html)
 
 ### Positive Reviews

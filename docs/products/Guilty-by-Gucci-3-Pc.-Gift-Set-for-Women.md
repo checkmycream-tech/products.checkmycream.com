@@ -1,12 +1,3 @@
----
-title: Guilty by Gucci 3 Pc. Gift Set for Women,
-description: Guilty by Gucci 3 Pc. Gift Set for Women,
-author: Suvojit Manna,
-tags: Guilty by Gucci 3 Pc. Gift Set for Women,
-publishedAt: Fri Jan 10 2020 14:59:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:58 GMT+0530 (India Standard Time),
----
-
 # [Guilty by Gucci 3 Pc. Gift Set for Women](https://products.checkmycream.com/products/Guilty-by-Gucci-3-Pc.-Gift-Set-for-Women.html)
 
 ### Positive Reviews

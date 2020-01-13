@@ -1,12 +1,3 @@
----
-title: Paco Rabanne Lady Million Women&#x27;s EDT Eau De Toilette Spray - PRLM9911506,
-description: Paco Rabanne Lady Million Women&#x27;s EDT Eau De Toilette Spray - PRLM9911506,
-author: Suvojit Manna,
-tags: Paco Rabanne Lady Million Women&#x27;s EDT Eau De Toilette Spray - PRLM9911506,
-publishedAt: Fri Jan 10 2020 15:00:30 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:30 GMT+0530 (India Standard Time),
----
-
 # [Paco Rabanne Lady Million Women&#x27;s EDT Eau De Toilette Spray - PRLM9911506](https://products.checkmycream.com/products/Paco-Rabanne-Lady-Million-Women&#x27;s-EDT-Eau-De-Toilette-Spray-PRLM9911506.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Convatec DuoDERM CGF Extra Thin Dressing 4&quot;x4&quot;,
-description: Convatec DuoDERM CGF Extra Thin Dressing 4&quot;x4&quot;,
-author: Suvojit Manna,
-tags: Convatec DuoDERM CGF Extra Thin Dressing 4&quot;x4&quot;,
-publishedAt: Fri Jan 10 2020 14:59:33 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:33 GMT+0530 (India Standard Time),
----
-
 # [Convatec DuoDERM CGF Extra Thin Dressing 4&quot;x4&quot;](https://products.checkmycream.com/products/Convatec-DuoDERM-CGF-Extra-Thin-Dressing-4&quot;x4&quot;.html)
 
 ### Positive Reviews

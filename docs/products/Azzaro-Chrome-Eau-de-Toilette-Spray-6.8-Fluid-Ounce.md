@@ -1,12 +1,3 @@
----
-title: Azzaro Chrome Eau de Toilette Spray, 6.8 Fluid Ounce,
-description: Azzaro Chrome Eau de Toilette Spray, 6.8 Fluid Ounce,
-author: Suvojit Manna,
-tags: Azzaro Chrome Eau de Toilette Spray, 6.8 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
----
-
 # [Azzaro Chrome Eau de Toilette Spray, 6.8 Fluid Ounce](https://products.checkmycream.com/products/Azzaro-Chrome-Eau-de-Toilette-Spray-6.8-Fluid-Ounce.html)
 
 ### Positive Reviews

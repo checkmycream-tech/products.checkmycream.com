@@ -1,12 +1,3 @@
----
-title: Marrakesh X Original Leave-in Treatment &amp; Detangler With Hemp &amp; Argan Oils 4 oz,
-description: Marrakesh X Original Leave-in Treatment &amp; Detangler With Hemp &amp; Argan Oils 4 oz,
-author: Suvojit Manna,
-tags: Marrakesh X Original Leave-in Treatment &amp; Detangler With Hemp &amp; Argan Oils 4 oz,
-publishedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
----
-
 # [Marrakesh X Original Leave-in Treatment &amp; Detangler With Hemp &amp; Argan Oils 4 oz](https://products.checkmycream.com/products/Marrakesh-X-Original-Leave-in-Treatment-and-Detangler-With-Hemp-and-Argan-Oils-4-oz.html)
 
 ### Positive Reviews

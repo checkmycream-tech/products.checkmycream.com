@@ -1,12 +1,3 @@
----
-title: Thann Aromatic Wood Aromatherapy Shampoo &amp; Conditioner Set,
-description: Thann Aromatic Wood Aromatherapy Shampoo &amp; Conditioner Set,
-author: Suvojit Manna,
-tags: Thann Aromatic Wood Aromatherapy Shampoo &amp; Conditioner Set,
-publishedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
----
-
 # [Thann Aromatic Wood Aromatherapy Shampoo &amp; Conditioner Set](https://products.checkmycream.com/products/Thann-Aromatic-Wood-Aromatherapy-Shampoo-and-Conditioner-Set.html)
 
 ### Positive Reviews

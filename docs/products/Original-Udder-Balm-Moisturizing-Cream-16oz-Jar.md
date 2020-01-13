@@ -1,12 +1,3 @@
----
-title: Original Udder Balm Moisturizing Cream 16oz Jar,
-description: Original Udder Balm Moisturizing Cream 16oz Jar,
-author: Suvojit Manna,
-tags: Original Udder Balm Moisturizing Cream 16oz Jar,
-publishedAt: Fri Jan 10 2020 14:59:29 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:29 GMT+0530 (India Standard Time),
----
-
 # [Original Udder Balm Moisturizing Cream 16oz Jar](https://products.checkmycream.com/products/Original-Udder-Balm-Moisturizing-Cream-16oz-Jar.html)
 
 ### Positive Reviews

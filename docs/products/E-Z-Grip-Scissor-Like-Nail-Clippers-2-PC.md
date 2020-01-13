@@ -1,12 +1,3 @@
----
-title: E Z Grip Scissor Like Nail Clippers - 2 PC,
-description: E Z Grip Scissor Like Nail Clippers - 2 PC,
-author: Suvojit Manna,
-tags: E Z Grip Scissor Like Nail Clippers - 2 PC,
-publishedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
----
-
 # [E Z Grip Scissor Like Nail Clippers - 2 PC](https://products.checkmycream.com/products/E-Z-Grip-Scissor-Like-Nail-Clippers-2-PC.html)
 
 ### Positive Reviews

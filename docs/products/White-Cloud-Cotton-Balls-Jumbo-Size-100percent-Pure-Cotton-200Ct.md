@@ -1,12 +1,3 @@
----
-title: White Cloud Cotton Balls, Jumbo Size, 100% Pure Cotton, 200Ct,
-description: White Cloud Cotton Balls, Jumbo Size, 100% Pure Cotton, 200Ct,
-author: Suvojit Manna,
-tags: White Cloud Cotton Balls, Jumbo Size, 100% Pure Cotton, 200Ct,
-publishedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
----
-
 # [White Cloud Cotton Balls, Jumbo Size, 100% Pure Cotton, 200Ct](https://products.checkmycream.com/products/White-Cloud-Cotton-Balls-Jumbo-Size-100percent-Pure-Cotton-200Ct.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Fin Comb Kit, 8 to 20 Fins per In.,
-description: Fin Comb Kit, 8 to 20 Fins per In.,
-author: Suvojit Manna,
-tags: Fin Comb Kit, 8 to 20 Fins per In.,
-publishedAt: Fri Jan 10 2020 15:00:16 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:16 GMT+0530 (India Standard Time),
----
-
 # [Fin Comb Kit, 8 to 20 Fins per In.](https://products.checkmycream.com/products/Fin-Comb-Kit-8-to-20-Fins-per-In..html)
 
 ### Positive Reviews

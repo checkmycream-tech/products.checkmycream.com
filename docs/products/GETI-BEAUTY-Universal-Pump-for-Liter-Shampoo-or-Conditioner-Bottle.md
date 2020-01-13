@@ -1,12 +1,3 @@
----
-title: GETI BEAUTY Universal Pump for Liter Shampoo or Conditioner Bottle,
-description: GETI BEAUTY Universal Pump for Liter Shampoo or Conditioner Bottle,
-author: Suvojit Manna,
-tags: GETI BEAUTY Universal Pump for Liter Shampoo or Conditioner Bottle,
-publishedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
----
-
 # [GETI BEAUTY Universal Pump for Liter Shampoo or Conditioner Bottle](https://products.checkmycream.com/products/GETI-BEAUTY-Universal-Pump-for-Liter-Shampoo-or-Conditioner-Bottle.html)
 
 ### Positive Reviews

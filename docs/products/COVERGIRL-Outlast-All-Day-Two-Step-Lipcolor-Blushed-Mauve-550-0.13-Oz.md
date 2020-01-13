@@ -1,12 +1,3 @@
----
-title: COVERGIRL Outlast All Day Two-Step Lipcolor Blushed Mauve 550, 0.13 Oz,
-description: COVERGIRL Outlast All Day Two-Step Lipcolor Blushed Mauve 550, 0.13 Oz,
-author: Suvojit Manna,
-tags: COVERGIRL Outlast All Day Two-Step Lipcolor Blushed Mauve 550, 0.13 Oz,
-publishedAt: Fri Jan 10 2020 14:59:32 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:32 GMT+0530 (India Standard Time),
----
-
 # [COVERGIRL Outlast All Day Two-Step Lipcolor Blushed Mauve 550, 0.13 Oz](https://products.checkmycream.com/products/COVERGIRL-Outlast-All-Day-Two-Step-Lipcolor-Blushed-Mauve-550-0.13-Oz.html)
 
 ### Positive Reviews

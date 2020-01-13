@@ -1,12 +1,3 @@
----
-title: HUSH anesthetic - Tattoo Numbing Spray (NEW FORMULA) (120 grams) 4oz. - More Powerful than Numbing Cream,
-description: HUSH anesthetic - Tattoo Numbing Spray (NEW FORMULA) (120 grams) 4oz. - More Powerful than Numbing Cream,
-author: Suvojit Manna,
-tags: HUSH anesthetic - Tattoo Numbing Spray (NEW FORMULA) (120 grams) 4oz. - More Powerful than Numbing Cream,
-publishedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
----
-
 # [HUSH anesthetic - Tattoo Numbing Spray (NEW FORMULA) (120 grams) 4oz. - More Powerful than Numbing Cream](https://products.checkmycream.com/products/HUSH-anesthetic-Tattoo-Numbing-Spray-(NEW-FORMULA)-(120-grams)-4oz.-More-Powerful-than-Numbing-Cream.html)
 
 ### Positive Reviews

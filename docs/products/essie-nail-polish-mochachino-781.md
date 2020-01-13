@@ -1,12 +1,3 @@
----
-title: essie nail polish mochachino 781,
-description: essie nail polish mochachino 781,
-author: Suvojit Manna,
-tags: essie nail polish mochachino 781,
-publishedAt: Fri Jan 10 2020 15:00:13 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:13 GMT+0530 (India Standard Time),
----
-
 # [essie nail polish mochachino 781](https://products.checkmycream.com/products/essie-nail-polish-mochachino-781.html)
 
 ### Positive Reviews

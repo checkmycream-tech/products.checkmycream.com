@@ -1,12 +1,3 @@
----
-title: 212 VIP Perfume by Carolina Herrera for women Personal Fragrances,
-description: 212 VIP Perfume by Carolina Herrera for women Personal Fragrances,
-author: Suvojit Manna,
-tags: 212 VIP Perfume by Carolina Herrera for women Personal Fragrances,
-publishedAt: Fri Jan 10 2020 15:00:04 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:04 GMT+0530 (India Standard Time),
----
-
 # [212 VIP Perfume by Carolina Herrera for women Personal Fragrances](https://products.checkmycream.com/products/212-VIP-Perfume-by-Carolina-Herrera-for-women-Personal-Fragrances.html)
 
 ### Positive Reviews

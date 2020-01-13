@@ -1,12 +1,3 @@
----
-title: 42 Pcs Small Hair Snap Clip for Toddler Girl Size 30 Mm (Assorted 18 Colors),
-description: 42 Pcs Small Hair Snap Clip for Toddler Girl Size 30 Mm (Assorted 18 Colors),
-author: Suvojit Manna,
-tags: 42 Pcs Small Hair Snap Clip for Toddler Girl Size 30 Mm (Assorted 18 Colors),
-publishedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
----
-
 # [42 Pcs Small Hair Snap Clip for Toddler Girl Size 30 Mm (Assorted 18 Colors)](https://products.checkmycream.com/products/42-Pcs-Small-Hair-Snap-Clip-for-Toddler-Girl-Size-30-Mm-(Assorted-18-Colors).html)
 
 ### Positive Reviews

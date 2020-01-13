@@ -1,12 +1,3 @@
----
-title: Alfaparf Milano Lisse Design Keratin Therapy Smoothing Treatment Kit,
-description: Alfaparf Milano Lisse Design Keratin Therapy Smoothing Treatment Kit,
-author: Suvojit Manna,
-tags: Alfaparf Milano Lisse Design Keratin Therapy Smoothing Treatment Kit,
-publishedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
----
-
 # [Alfaparf Milano Lisse Design Keratin Therapy Smoothing Treatment Kit](https://products.checkmycream.com/products/Alfaparf-Milano-Lisse-Design-Keratin-Therapy-Smoothing-Treatment-Kit.html)
 
 ### Positive Reviews

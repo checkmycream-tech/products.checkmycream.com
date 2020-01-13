@@ -1,12 +1,3 @@
----
-title: Baylis &amp; Harding Cleansing Hand Wash,
-description: Baylis &amp; Harding Cleansing Hand Wash,
-author: Suvojit Manna,
-tags: Baylis &amp; Harding Cleansing Hand Wash,
-publishedAt: Fri Jan 10 2020 14:59:31 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:31 GMT+0530 (India Standard Time),
----
-
 # [Baylis &amp; Harding Cleansing Hand Wash](https://products.checkmycream.com/products/Baylis-and-Harding-Cleansing-Hand-Wash.html)
 
 ### Positive Reviews

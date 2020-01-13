@@ -1,12 +1,3 @@
----
-title: Maybelline New York Lots of Lashes Washable Mascara, 0.43 Fluid Ounce,
-description: Maybelline New York Lots of Lashes Washable Mascara, 0.43 Fluid Ounce,
-author: Suvojit Manna,
-tags: Maybelline New York Lots of Lashes Washable Mascara, 0.43 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 15:00:06 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:06 GMT+0530 (India Standard Time),
----
-
 # [Maybelline New York Lots of Lashes Washable Mascara, 0.43 Fluid Ounce](https://products.checkmycream.com/products/Maybelline-New-York-Lots-of-Lashes-Washable-Mascara-0.43-Fluid-Ounce.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: DL Professional DL-C130 Terry Cloth Booties, 1 Pair,
-description: DL Professional DL-C130 Terry Cloth Booties, 1 Pair,
-author: Suvojit Manna,
-tags: DL Professional DL-C130 Terry Cloth Booties, 1 Pair,
-publishedAt: Fri Jan 10 2020 14:59:26 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:26 GMT+0530 (India Standard Time),
----
-
 # [DL Professional DL-C130 Terry Cloth Booties, 1 Pair](https://products.checkmycream.com/products/DL-Professional-DL-C130-Terry-Cloth-Booties-1-Pair.html)
 
 ### Positive Reviews

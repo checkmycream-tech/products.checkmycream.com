@@ -1,12 +1,3 @@
----
-title: Mavala Switzerland Cuticle Cream Cuticle Care Products,
-description: Mavala Switzerland Cuticle Cream Cuticle Care Products,
-author: Suvojit Manna,
-tags: Mavala Switzerland Cuticle Cream Cuticle Care Products,
-publishedAt: Fri Jan 10 2020 14:59:10 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:10 GMT+0530 (India Standard Time),
----
-
 # [Mavala Switzerland Cuticle Cream Cuticle Care Products](https://products.checkmycream.com/products/Mavala-Switzerland-Cuticle-Cream-Cuticle-Care-Products.html)
 
 ### Positive Reviews

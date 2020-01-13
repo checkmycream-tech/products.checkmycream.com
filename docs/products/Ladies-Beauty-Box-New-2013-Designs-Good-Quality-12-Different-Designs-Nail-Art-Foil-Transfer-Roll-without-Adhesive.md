@@ -1,12 +1,3 @@
----
-title: Ladies Beauty Box New 2013 Designs Good Quality 12 Different Designs Nail Art Foil Transfer Roll without Adhesive,
-description: Ladies Beauty Box New 2013 Designs Good Quality 12 Different Designs Nail Art Foil Transfer Roll without Adhesive,
-author: Suvojit Manna,
-tags: Ladies Beauty Box New 2013 Designs Good Quality 12 Different Designs Nail Art Foil Transfer Roll without Adhesive,
-publishedAt: Fri Jan 10 2020 15:00:45 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:45 GMT+0530 (India Standard Time),
----
-
 # [Ladies Beauty Box New 2013 Designs Good Quality 12 Different Designs Nail Art Foil Transfer Roll without Adhesive](https://products.checkmycream.com/products/Ladies-Beauty-Box-New-2013-Designs-Good-Quality-12-Different-Designs-Nail-Art-Foil-Transfer-Roll-without-Adhesive.html)
 
 ### Positive Reviews

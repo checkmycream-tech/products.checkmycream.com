@@ -1,12 +1,3 @@
----
-title: Foot Cleaning Brush,
-description: Foot Cleaning Brush,
-author: Suvojit Manna,
-tags: Foot Cleaning Brush,
-publishedAt: Fri Jan 10 2020 14:59:36 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:36 GMT+0530 (India Standard Time),
----
-
 # [Foot Cleaning Brush](https://products.checkmycream.com/products/Foot-Cleaning-Brush.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Sheer Cover Studio – Advanced Nourishing Moisturizer SPF 15 – Oil-Free – 30 Day Supply/2 Ounces,
-description: Sheer Cover Studio – Advanced Nourishing Moisturizer SPF 15 – Oil-Free – 30 Day Supply/2 Ounces,
-author: Suvojit Manna,
-tags: Sheer Cover Studio – Advanced Nourishing Moisturizer SPF 15 – Oil-Free – 30 Day Supply/2 Ounces,
-publishedAt: Fri Jan 10 2020 15:00:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:05 GMT+0530 (India Standard Time),
----
-
 # [Sheer Cover Studio – Advanced Nourishing Moisturizer SPF 15 – Oil-Free – 30 Day Supply/2 Ounces](https://products.checkmycream.com/products/Sheer-Cover-Studio-Advanced-Nourishing-Moisturizer-SPF-15-Oil-Free-30-Day-Supply2-Ounces.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Cricket: Technique #390 Thermal Brush 2&quot;,
-description: Cricket: Technique #390 Thermal Brush 2&quot;,
-author: Suvojit Manna,
-tags: Cricket: Technique #390 Thermal Brush 2&quot;,
-publishedAt: Fri Jan 10 2020 14:59:13 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:13 GMT+0530 (India Standard Time),
----
-
 # [Cricket: Technique #390 Thermal Brush 2&quot;](https://products.checkmycream.com/products/Cricket:-Technique-390-Thermal-Brush-2&quot;.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Oil Ring For Light Bulbs (ORIN),
-description: Oil Ring For Light Bulbs (ORIN),
-author: Suvojit Manna,
-tags: Oil Ring For Light Bulbs (ORIN),
-publishedAt: Fri Jan 10 2020 14:59:16 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:16 GMT+0530 (India Standard Time),
----
-
 # [Oil Ring For Light Bulbs (ORIN)](https://products.checkmycream.com/products/Oil-Ring-For-Light-Bulbs-(ORIN).html)
 
 ### Positive Reviews

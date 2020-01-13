@@ -1,12 +1,3 @@
----
-title: Rouge Royal Perfume by Princesse Marina de Bourbon for women Personal Fragrances,
-description: Rouge Royal Perfume by Princesse Marina de Bourbon for women Personal Fragrances,
-author: Suvojit Manna,
-tags: Rouge Royal Perfume by Princesse Marina de Bourbon for women Personal Fragrances,
-publishedAt: Fri Jan 10 2020 14:59:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:08 GMT+0530 (India Standard Time),
----
-
 # [Rouge Royal Perfume by Princesse Marina de Bourbon for women Personal Fragrances](https://products.checkmycream.com/products/Rouge-Royal-Perfume-by-Princesse-Marina-de-Bourbon-for-women-Personal-Fragrances.html)
 
 ### Positive Reviews

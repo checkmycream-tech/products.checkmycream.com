@@ -1,12 +1,3 @@
----
-title: Kleancolor Nail Polish Lacquer -New Girl in Town Red Lot 6pc Full Size Set,
-description: Kleancolor Nail Polish Lacquer -New Girl in Town Red Lot 6pc Full Size Set,
-author: Suvojit Manna,
-tags: Kleancolor Nail Polish Lacquer -New Girl in Town Red Lot 6pc Full Size Set,
-publishedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
----
-
 # [Kleancolor Nail Polish Lacquer -New Girl in Town Red Lot 6pc Full Size Set](https://products.checkmycream.com/products/Kleancolor-Nail-Polish-Lacquer-New-Girl-in-Town-Red-Lot-6pc-Full-Size-Set.html)
 
 ### Positive Reviews

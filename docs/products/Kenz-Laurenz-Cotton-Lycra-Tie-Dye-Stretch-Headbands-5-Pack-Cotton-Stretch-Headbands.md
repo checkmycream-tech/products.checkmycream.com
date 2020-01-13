@@ -1,12 +1,3 @@
----
-title: Kenz Laurenz Cotton Lycra Tie Dye Stretch Headbands 5 Pack - Cotton Stretch Headbands,
-description: Kenz Laurenz Cotton Lycra Tie Dye Stretch Headbands 5 Pack - Cotton Stretch Headbands,
-author: Suvojit Manna,
-tags: Kenz Laurenz Cotton Lycra Tie Dye Stretch Headbands 5 Pack - Cotton Stretch Headbands,
-publishedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
----
-
 # [Kenz Laurenz Cotton Lycra Tie Dye Stretch Headbands 5 Pack - Cotton Stretch Headbands](https://products.checkmycream.com/products/Kenz-Laurenz-Cotton-Lycra-Tie-Dye-Stretch-Headbands-5-Pack-Cotton-Stretch-Headbands.html)
 
 ### Positive Reviews

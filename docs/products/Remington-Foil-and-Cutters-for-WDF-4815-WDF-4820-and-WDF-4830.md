@@ -1,12 +1,3 @@
----
-title: Remington Foil and Cutters for WDF 4815, WDF 4820 &amp; WDF 4830,
-description: Remington Foil and Cutters for WDF 4815, WDF 4820 &amp; WDF 4830,
-author: Suvojit Manna,
-tags: Remington Foil and Cutters for WDF 4815, WDF 4820 &amp; WDF 4830,
-publishedAt: Fri Jan 10 2020 15:00:36 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:36 GMT+0530 (India Standard Time),
----
-
 # [Remington Foil and Cutters for WDF 4815, WDF 4820 &amp; WDF 4830](https://products.checkmycream.com/products/Remington-Foil-and-Cutters-for-WDF-4815-WDF-4820-and-WDF-4830.html)
 
 ### Positive Reviews

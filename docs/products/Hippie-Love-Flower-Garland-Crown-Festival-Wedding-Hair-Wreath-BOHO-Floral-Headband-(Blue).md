@@ -1,12 +1,3 @@
----
-title: Hippie Love Flower Garland Crown Festival Wedding Hair Wreath BOHO Floral Headband (Blue),
-description: Hippie Love Flower Garland Crown Festival Wedding Hair Wreath BOHO Floral Headband (Blue),
-author: Suvojit Manna,
-tags: Hippie Love Flower Garland Crown Festival Wedding Hair Wreath BOHO Floral Headband (Blue),
-publishedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
----
-
 # [Hippie Love Flower Garland Crown Festival Wedding Hair Wreath BOHO Floral Headband (Blue)](https://products.checkmycream.com/products/Hippie-Love-Flower-Garland-Crown-Festival-Wedding-Hair-Wreath-BOHO-Floral-Headband-(Blue).html)
 
 ### Positive Reviews

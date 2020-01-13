@@ -1,12 +1,3 @@
----
-title: TIGI - S Factor True Lasting Colour Duo 25.36 Oz [Health and Beauty],
-description: TIGI - S Factor True Lasting Colour Duo 25.36 Oz [Health and Beauty],
-author: Suvojit Manna,
-tags: TIGI - S Factor True Lasting Colour Duo 25.36 Oz [Health and Beauty],
-publishedAt: Fri Jan 10 2020 15:00:38 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:38 GMT+0530 (India Standard Time),
----
-
 # [TIGI - S Factor True Lasting Colour Duo 25.36 Oz [Health and Beauty]](https://products.checkmycream.com/products/TIGI-S-Factor-True-Lasting-Colour-Duo-25.36-Oz-Health-and-Beauty.html)
 
 ### Positive Reviews

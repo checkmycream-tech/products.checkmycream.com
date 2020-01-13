@@ -1,12 +1,3 @@
----
-title: 16 BRUSH ROLLERS &amp; PINS Small Mini Hair Curlers Bristles 2&quot; x 1/2&quot; Kids Pageants (2 packs),
-description: 16 BRUSH ROLLERS &amp; PINS Small Mini Hair Curlers Bristles 2&quot; x 1/2&quot; Kids Pageants (2 packs),
-author: Suvojit Manna,
-tags: 16 BRUSH ROLLERS &amp; PINS Small Mini Hair Curlers Bristles 2&quot; x 1/2&quot; Kids Pageants (2 packs),
-publishedAt: Fri Jan 10 2020 15:00:31 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:31 GMT+0530 (India Standard Time),
----
-
 # [16 BRUSH ROLLERS &amp; PINS Small Mini Hair Curlers Bristles 2&quot; x 1/2&quot; Kids Pageants (2 packs)](https://products.checkmycream.com/products/16-BRUSH-ROLLERS-and-PINS-Small-Mini-Hair-Curlers-Bristles-2&quot;-x-12&quot;-Kids-Pageants-(2-packs).html)
 
 ### Positive Reviews

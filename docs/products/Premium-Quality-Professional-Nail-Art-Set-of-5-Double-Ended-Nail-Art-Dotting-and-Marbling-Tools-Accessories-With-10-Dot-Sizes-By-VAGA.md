@@ -1,12 +1,3 @@
----
-title: Premium Quality Professional Nail Art Set of 5 Double Ended Nail Art Dotting and Marbling Tools / Accessories With 10 Dot Sizes By VAGA,
-description: Premium Quality Professional Nail Art Set of 5 Double Ended Nail Art Dotting and Marbling Tools / Accessories With 10 Dot Sizes By VAGA,
-author: Suvojit Manna,
-tags: Premium Quality Professional Nail Art Set of 5 Double Ended Nail Art Dotting and Marbling Tools / Accessories With 10 Dot Sizes By VAGA,
-publishedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
----
-
 # [Premium Quality Professional Nail Art Set of 5 Double Ended Nail Art Dotting and Marbling Tools / Accessories With 10 Dot Sizes By VAGA](https://products.checkmycream.com/products/Premium-Quality-Professional-Nail-Art-Set-of-5-Double-Ended-Nail-Art-Dotting-and-Marbling-Tools-Accessories-With-10-Dot-Sizes-By-VAGA.html)
 
 ### Positive Reviews

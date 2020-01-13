@@ -1,12 +1,3 @@
----
-title: Vera Wang Be Jeweled Eau De Parfum Spray 1.7 Fl Oz,
-description: Vera Wang Be Jeweled Eau De Parfum Spray 1.7 Fl Oz,
-author: Suvojit Manna,
-tags: Vera Wang Be Jeweled Eau De Parfum Spray 1.7 Fl Oz,
-publishedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
----
-
 # [Vera Wang Be Jeweled Eau De Parfum Spray 1.7 Fl Oz](https://products.checkmycream.com/products/Vera-Wang-Be-Jeweled-Eau-De-Parfum-Spray-1.7-Fl-Oz.html)
 
 ### Positive Reviews

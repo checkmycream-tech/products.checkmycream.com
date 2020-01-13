@@ -1,12 +1,3 @@
----
-title: Andis Master Clipper Replacement Hair Clipper Blade, Silver, Model ML/SM (01556),
-description: Andis Master Clipper Replacement Hair Clipper Blade, Silver, Model ML/SM (01556),
-author: Suvojit Manna,
-tags: Andis Master Clipper Replacement Hair Clipper Blade, Silver, Model ML/SM (01556),
-publishedAt: Fri Jan 10 2020 14:59:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:02 GMT+0530 (India Standard Time),
----
-
 # [Andis Master Clipper Replacement Hair Clipper Blade, Silver, Model ML/SM (01556)](https://products.checkmycream.com/products/Andis-Master-Clipper-Replacement-Hair-Clipper-Blade-Silver-Model-MLSM-(01556).html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: J.R. Watkins Skin Care Kit,
-description: J.R. Watkins Skin Care Kit,
-author: Suvojit Manna,
-tags: J.R. Watkins Skin Care Kit,
-publishedAt: Fri Jan 10 2020 14:59:47 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:47 GMT+0530 (India Standard Time),
----
-
 # [J.R. Watkins Skin Care Kit](https://products.checkmycream.com/products/J.R.-Watkins-Skin-Care-Kit.html)
 
 ### Positive Reviews

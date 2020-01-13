@@ -1,12 +1,3 @@
----
-title: It Cosmetics Celebration Foundation in Medium (Medium Beige) .30 Ounce Compact,
-description: It Cosmetics Celebration Foundation in Medium (Medium Beige) .30 Ounce Compact,
-author: Suvojit Manna,
-tags: It Cosmetics Celebration Foundation in Medium (Medium Beige) .30 Ounce Compact,
-publishedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
----
-
 # [It Cosmetics Celebration Foundation in Medium (Medium Beige) .30 Ounce Compact](https://products.checkmycream.com/products/It-Cosmetics-Celebration-Foundation-in-Medium-(Medium-Beige)-.30-Ounce-Compact.html)
 
 ### Positive Reviews

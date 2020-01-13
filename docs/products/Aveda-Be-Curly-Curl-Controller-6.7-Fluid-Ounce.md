@@ -1,12 +1,3 @@
----
-title: Aveda Be Curly Curl Controller, 6.7 Fluid Ounce,
-description: Aveda Be Curly Curl Controller, 6.7 Fluid Ounce,
-author: Suvojit Manna,
-tags: Aveda Be Curly Curl Controller, 6.7 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 15:00:38 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:38 GMT+0530 (India Standard Time),
----
-
 # [Aveda Be Curly Curl Controller, 6.7 Fluid Ounce](https://products.checkmycream.com/products/Aveda-Be-Curly-Curl-Controller-6.7-Fluid-Ounce.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Tea Tree (Melaleuca Alternifolia) Essential 5ml Oil by Young Living Essential Oils,
-description: Tea Tree (Melaleuca Alternifolia) Essential 5ml Oil by Young Living Essential Oils,
-author: Suvojit Manna,
-tags: Tea Tree (Melaleuca Alternifolia) Essential 5ml Oil by Young Living Essential Oils,
-publishedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
----
-
 # [Tea Tree (Melaleuca Alternifolia) Essential 5ml Oil by Young Living Essential Oils](https://products.checkmycream.com/products/Tea-Tree-(Melaleuca-Alternifolia)-Essential-5ml-Oil-by-Young-Living-Essential-Oils.html)
 
 ### Positive Reviews

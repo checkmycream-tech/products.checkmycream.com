@@ -1,12 +1,3 @@
----
-title: American Bantex 14 Foot Oxygen Tubing,
-description: American Bantex 14 Foot Oxygen Tubing,
-author: Suvojit Manna,
-tags: American Bantex 14 Foot Oxygen Tubing,
-publishedAt: Fri Jan 10 2020 15:00:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:05 GMT+0530 (India Standard Time),
----
-
 # [American Bantex 14 Foot Oxygen Tubing](https://products.checkmycream.com/products/American-Bantex-14-Foot-Oxygen-Tubing.html)
 
 ### Positive Reviews

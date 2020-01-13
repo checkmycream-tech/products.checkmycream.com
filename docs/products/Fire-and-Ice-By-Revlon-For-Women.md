@@ -1,12 +1,3 @@
----
-title: Fire &amp; Ice By Revlon For Women,
-description: Fire &amp; Ice By Revlon For Women,
-author: Suvojit Manna,
-tags: Fire &amp; Ice By Revlon For Women,
-publishedAt: Fri Jan 10 2020 14:59:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:00 GMT+0530 (India Standard Time),
----
-
 # [Fire &amp; Ice By Revlon For Women](https://products.checkmycream.com/products/Fire-and-Ice-By-Revlon-For-Women.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Revlon ColorStay Eye Shadow, 12 Hour, with SoftFlex, Neutral Khakis 315,
-description: Revlon ColorStay Eye Shadow, 12 Hour, with SoftFlex, Neutral Khakis 315,
-author: Suvojit Manna,
-tags: Revlon ColorStay Eye Shadow, 12 Hour, with SoftFlex, Neutral Khakis 315,
-publishedAt: Fri Jan 10 2020 14:59:31 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:31 GMT+0530 (India Standard Time),
----
-
 # [Revlon ColorStay Eye Shadow, 12 Hour, with SoftFlex, Neutral Khakis 315](https://products.checkmycream.com/products/Revlon-ColorStay-Eye-Shadow-12-Hour-with-SoftFlex-Neutral-Khakis-315.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: US ORGANIC GROUP Bulgarian rose body oil 5 Ounce, 0.02 Pound,
-description: US ORGANIC GROUP Bulgarian rose body oil 5 Ounce, 0.02 Pound,
-author: Suvojit Manna,
-tags: US ORGANIC GROUP Bulgarian rose body oil 5 Ounce, 0.02 Pound,
-publishedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
----
-
 # [US ORGANIC GROUP Bulgarian rose body oil 5 Ounce, 0.02 Pound](https://products.checkmycream.com/products/US-ORGANIC-GROUP-Bulgarian-rose-body-oil-5-Ounce-0.02-Pound.html)
 
 ### Positive Reviews

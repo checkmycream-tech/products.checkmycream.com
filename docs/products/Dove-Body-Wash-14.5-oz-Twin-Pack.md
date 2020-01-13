@@ -1,12 +1,3 @@
----
-title: Dove Body Wash, 14.5 oz, Twin Pack,
-description: Dove Body Wash, 14.5 oz, Twin Pack,
-author: Suvojit Manna,
-tags: Dove Body Wash, 14.5 oz, Twin Pack,
-publishedAt: Fri Jan 10 2020 15:00:04 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:04 GMT+0530 (India Standard Time),
----
-
 # [Dove Body Wash, 14.5 oz, Twin Pack](https://products.checkmycream.com/products/Dove-Body-Wash-14.5-oz-Twin-Pack.html)
 
 ### Positive Reviews

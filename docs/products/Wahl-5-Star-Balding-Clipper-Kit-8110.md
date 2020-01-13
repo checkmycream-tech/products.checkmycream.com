@@ -1,12 +1,3 @@
----
-title: Wahl 5 Star Balding Clipper Kit # 8110,
-description: Wahl 5 Star Balding Clipper Kit # 8110,
-author: Suvojit Manna,
-tags: Wahl 5 Star Balding Clipper Kit # 8110,
-publishedAt: Fri Jan 10 2020 14:59:39 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:39 GMT+0530 (India Standard Time),
----
-
 # [Wahl 5 Star Balding Clipper Kit # 8110](https://products.checkmycream.com/products/Wahl-5-Star-Balding-Clipper-Kit-8110.html)
 
 ### Positive Reviews

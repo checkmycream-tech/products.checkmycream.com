@@ -1,12 +1,3 @@
----
-title: YES! COLOGNE FOR MEN EA,
-description: YES! COLOGNE FOR MEN EA,
-author: Suvojit Manna,
-tags: YES! COLOGNE FOR MEN EA,
-publishedAt: Fri Jan 10 2020 14:59:10 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:10 GMT+0530 (India Standard Time),
----
-
 # [YES! COLOGNE FOR MEN EA](https://products.checkmycream.com/products/YES!-COLOGNE-FOR-MEN-EA.html)
 
 ### Positive Reviews

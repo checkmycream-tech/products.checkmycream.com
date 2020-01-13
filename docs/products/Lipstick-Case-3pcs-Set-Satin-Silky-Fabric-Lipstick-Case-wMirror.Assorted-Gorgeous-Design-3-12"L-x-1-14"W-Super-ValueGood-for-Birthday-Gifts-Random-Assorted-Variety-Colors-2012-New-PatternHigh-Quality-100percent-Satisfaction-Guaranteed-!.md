@@ -1,12 +1,3 @@
----
-title: Lipstick Case 3pcs Set Satin Silky Fabric Lipstick Case w/Mirror.Assorted Gorgeous Design ,3 1/2&quot;L x 1 1/4&quot;W Super Value,Good for Birthday Gifts--Random Assorted Variety Colors-2012 New Pattern,High Quality ,100% Satisfaction Guaranteed !,
-description: Lipstick Case 3pcs Set Satin Silky Fabric Lipstick Case w/Mirror.Assorted Gorgeous Design ,3 1/2&quot;L x 1 1/4&quot;W Super Value,Good for Birthday Gifts--Random Assorted Variety Colors-2012 New Pattern,High Quality ,100% Satisfaction Guaranteed !,
-author: Suvojit Manna,
-tags: Lipstick Case 3pcs Set Satin Silky Fabric Lipstick Case w/Mirror.Assorted Gorgeous Design ,3 1/2&quot;L x 1 1/4&quot;W Super Value,Good for Birthday Gifts--Random Assorted Variety Colors-2012 New Pattern,High Quality ,100% Satisfaction Guaranteed !,
-publishedAt: Fri Jan 10 2020 14:59:44 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:44 GMT+0530 (India Standard Time),
----
-
 # [Lipstick Case 3pcs Set Satin Silky Fabric Lipstick Case w/Mirror.Assorted Gorgeous Design ,3 1/2&quot;L x 1 1/4&quot;W Super Value,Good for Birthday Gifts--Random Assorted Variety Colors-2012 New Pattern,High Quality ,100% Satisfaction Guaranteed !](https://products.checkmycream.com/products/Lipstick-Case-3pcs-Set-Satin-Silky-Fabric-Lipstick-Case-wMirror.Assorted-Gorgeous-Design-3-12&quot;L-x-1-14&quot;W-Super-ValueGood-for-Birthday-Gifts-Random-Assorted-Variety-Colors-2012-New-PatternHigh-Quality-100percent-Satisfaction-Guaranteed-!.html)
 
 ### Positive Reviews

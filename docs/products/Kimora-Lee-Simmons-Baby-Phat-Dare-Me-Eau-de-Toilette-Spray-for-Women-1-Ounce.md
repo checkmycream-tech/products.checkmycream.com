@@ -1,12 +1,3 @@
----
-title: Kimora Lee Simmons Baby Phat Dare Me Eau de Toilette Spray for Women, 1 Ounce,
-description: Kimora Lee Simmons Baby Phat Dare Me Eau de Toilette Spray for Women, 1 Ounce,
-author: Suvojit Manna,
-tags: Kimora Lee Simmons Baby Phat Dare Me Eau de Toilette Spray for Women, 1 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:46 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:46 GMT+0530 (India Standard Time),
----
-
 # [Kimora Lee Simmons Baby Phat Dare Me Eau de Toilette Spray for Women, 1 Ounce](https://products.checkmycream.com/products/Kimora-Lee-Simmons-Baby-Phat-Dare-Me-Eau-de-Toilette-Spray-for-Women-1-Ounce.html)
 
 ### Positive Reviews

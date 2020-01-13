@@ -1,12 +1,3 @@
----
-title: OPI Nail Lacquer Classics Collection NLA11 Senorita Rose-alita,
-description: OPI Nail Lacquer Classics Collection NLA11 Senorita Rose-alita,
-author: Suvojit Manna,
-tags: OPI Nail Lacquer Classics Collection NLA11 Senorita Rose-alita,
-publishedAt: Fri Jan 10 2020 14:59:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:08 GMT+0530 (India Standard Time),
----
-
 # [OPI Nail Lacquer Classics Collection NLA11 Senorita Rose-alita](https://products.checkmycream.com/products/OPI-Nail-Lacquer-Classics-Collection-NLA11-Senorita-Rose-alita.html)
 
 ### Positive Reviews

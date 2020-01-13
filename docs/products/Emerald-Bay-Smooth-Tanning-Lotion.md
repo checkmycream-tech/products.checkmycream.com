@@ -1,12 +1,3 @@
----
-title: Emerald Bay Smooth Tanning Lotion,
-description: Emerald Bay Smooth Tanning Lotion,
-author: Suvojit Manna,
-tags: Emerald Bay Smooth Tanning Lotion,
-publishedAt: Fri Jan 10 2020 14:59:21 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:21 GMT+0530 (India Standard Time),
----
-
 # [Emerald Bay Smooth Tanning Lotion](https://products.checkmycream.com/products/Emerald-Bay-Smooth-Tanning-Lotion.html)
 
 ### Positive Reviews

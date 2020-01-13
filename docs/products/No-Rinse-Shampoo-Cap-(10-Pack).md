@@ -1,12 +1,3 @@
----
-title: No Rinse Shampoo Cap (10-Pack),
-description: No Rinse Shampoo Cap (10-Pack),
-author: Suvojit Manna,
-tags: No Rinse Shampoo Cap (10-Pack),
-publishedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
----
-
 # [No Rinse Shampoo Cap (10-Pack)](https://products.checkmycream.com/products/No-Rinse-Shampoo-Cap-(10-Pack).html)
 
 ### Positive Reviews

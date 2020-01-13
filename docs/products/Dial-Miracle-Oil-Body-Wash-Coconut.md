@@ -1,12 +1,3 @@
----
-title: Dial Miracle Oil Body Wash, Coconut,
-description: Dial Miracle Oil Body Wash, Coconut,
-author: Suvojit Manna,
-tags: Dial Miracle Oil Body Wash, Coconut,
-publishedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
----
-
 # [Dial Miracle Oil Body Wash, Coconut](https://products.checkmycream.com/products/Dial-Miracle-Oil-Body-Wash-Coconut.html)
 
 ### Positive Reviews

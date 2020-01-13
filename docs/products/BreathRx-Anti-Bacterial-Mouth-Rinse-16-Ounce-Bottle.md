@@ -1,12 +1,3 @@
----
-title: BreathRx Anti-Bacterial Mouth Rinse, 16 Ounce Bottle,
-description: BreathRx Anti-Bacterial Mouth Rinse, 16 Ounce Bottle,
-author: Suvojit Manna,
-tags: BreathRx Anti-Bacterial Mouth Rinse, 16 Ounce Bottle,
-publishedAt: Fri Jan 10 2020 14:59:28 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:28 GMT+0530 (India Standard Time),
----
-
 # [BreathRx Anti-Bacterial Mouth Rinse, 16 Ounce Bottle](https://products.checkmycream.com/products/BreathRx-Anti-Bacterial-Mouth-Rinse-16-Ounce-Bottle.html)
 
 ### Positive Reviews

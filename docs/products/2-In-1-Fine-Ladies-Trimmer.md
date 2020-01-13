@@ -1,12 +1,3 @@
----
-title: 2-In-1 Fine-Ladies Trimmer,
-description: 2-In-1 Fine-Ladies Trimmer,
-author: Suvojit Manna,
-tags: 2-In-1 Fine-Ladies Trimmer,
-publishedAt: Fri Jan 10 2020 14:59:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:03 GMT+0530 (India Standard Time),
----
-
 # [2-In-1 Fine-Ladies Trimmer](https://products.checkmycream.com/products/2-In-1-Fine-Ladies-Trimmer.html)
 
 ### Positive Reviews

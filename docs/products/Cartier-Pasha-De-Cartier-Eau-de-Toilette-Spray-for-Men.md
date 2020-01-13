@@ -1,12 +1,3 @@
----
-title: Cartier Pasha De Cartier Eau de Toilette Spray for Men,
-description: Cartier Pasha De Cartier Eau de Toilette Spray for Men,
-author: Suvojit Manna,
-tags: Cartier Pasha De Cartier Eau de Toilette Spray for Men,
-publishedAt: Fri Jan 10 2020 14:59:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:03 GMT+0530 (India Standard Time),
----
-
 # [Cartier Pasha De Cartier Eau de Toilette Spray for Men](https://products.checkmycream.com/products/Cartier-Pasha-De-Cartier-Eau-de-Toilette-Spray-for-Men.html)
 
 ### Positive Reviews

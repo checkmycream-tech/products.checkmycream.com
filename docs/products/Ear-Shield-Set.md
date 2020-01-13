@@ -1,12 +1,3 @@
----
-title: Ear Shield Set,
-description: Ear Shield Set,
-author: Suvojit Manna,
-tags: Ear Shield Set,
-publishedAt: Fri Jan 10 2020 14:59:26 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:26 GMT+0530 (India Standard Time),
----
-
 # [Ear Shield Set](https://products.checkmycream.com/products/Ear-Shield-Set.html)
 
 ### Positive Reviews

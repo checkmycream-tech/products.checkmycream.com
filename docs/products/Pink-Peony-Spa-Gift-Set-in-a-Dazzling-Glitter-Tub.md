@@ -1,12 +1,3 @@
----
-title: Pink Peony Spa Gift Set in a Dazzling Glitter Tub,
-description: Pink Peony Spa Gift Set in a Dazzling Glitter Tub,
-author: Suvojit Manna,
-tags: Pink Peony Spa Gift Set in a Dazzling Glitter Tub,
-publishedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
----
-
 # [Pink Peony Spa Gift Set in a Dazzling Glitter Tub](https://products.checkmycream.com/products/Pink-Peony-Spa-Gift-Set-in-a-Dazzling-Glitter-Tub.html)
 
 ### Positive Reviews

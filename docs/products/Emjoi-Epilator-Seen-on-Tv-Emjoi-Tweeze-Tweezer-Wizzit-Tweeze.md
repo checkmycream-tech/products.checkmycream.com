@@ -1,12 +1,3 @@
----
-title: Emjoi Epilator, Seen on Tv, Emjoi Tweeze Tweezer, Wizzit Tweeze,,
-description: Emjoi Epilator, Seen on Tv, Emjoi Tweeze Tweezer, Wizzit Tweeze,,
-author: Suvojit Manna,
-tags: Emjoi Epilator, Seen on Tv, Emjoi Tweeze Tweezer, Wizzit Tweeze,,
-publishedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
----
-
 # [Emjoi Epilator, Seen on Tv, Emjoi Tweeze Tweezer, Wizzit Tweeze,](https://products.checkmycream.com/products/Emjoi-Epilator-Seen-on-Tv-Emjoi-Tweeze-Tweezer-Wizzit-Tweeze.html)
 
 ### Positive Reviews

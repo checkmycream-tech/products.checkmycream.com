@@ -1,12 +1,3 @@
----
-title: RuiChy Fashion Salon Anti-static Hair Styling Comb Brush,
-description: RuiChy Fashion Salon Anti-static Hair Styling Comb Brush,
-author: Suvojit Manna,
-tags: RuiChy Fashion Salon Anti-static Hair Styling Comb Brush,
-publishedAt: Fri Jan 10 2020 14:59:51 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:51 GMT+0530 (India Standard Time),
----
-
 # [RuiChy Fashion Salon Anti-static Hair Styling Comb Brush](https://products.checkmycream.com/products/RuiChy-Fashion-Salon-Anti-static-Hair-Styling-Comb-Brush.html)
 
 ### Positive Reviews

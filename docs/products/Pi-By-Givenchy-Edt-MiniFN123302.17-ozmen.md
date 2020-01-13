@@ -1,12 +1,3 @@
----
-title: Pi By Givenchy Edt Mini/FN123302/.17 oz/men/,
-description: Pi By Givenchy Edt Mini/FN123302/.17 oz/men/,
-author: Suvojit Manna,
-tags: Pi By Givenchy Edt Mini/FN123302/.17 oz/men/,
-publishedAt: Fri Jan 10 2020 14:59:04 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:04 GMT+0530 (India Standard Time),
----
-
 # [Pi By Givenchy Edt Mini/FN123302/.17 oz/men/](https://products.checkmycream.com/products/Pi-By-Givenchy-Edt-MiniFN123302.17-ozmen.html)
 
 ### Positive Reviews

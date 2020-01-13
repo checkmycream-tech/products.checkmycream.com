@@ -1,12 +1,3 @@
----
-title: Almay Oil-Free Eye Makeup Remover Pads,
-description: Almay Oil-Free Eye Makeup Remover Pads,
-author: Suvojit Manna,
-tags: Almay Oil-Free Eye Makeup Remover Pads,
-publishedAt: Fri Jan 10 2020 15:00:45 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:45 GMT+0530 (India Standard Time),
----
-
 # [Almay Oil-Free Eye Makeup Remover Pads](https://products.checkmycream.com/products/Almay-Oil-Free-Eye-Makeup-Remover-Pads.html)
 
 ### Positive Reviews

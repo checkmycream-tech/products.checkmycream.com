@@ -1,12 +1,3 @@
----
-title: Gill Fusion Man Cart-8 Size 8ct,
-description: Gill Fusion Man Cart-8 Size 8ct,
-author: Suvojit Manna,
-tags: Gill Fusion Man Cart-8 Size 8ct,
-publishedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
----
-
 # [Gill Fusion Man Cart-8 Size 8ct](https://products.checkmycream.com/products/Gill-Fusion-Man-Cart-8-Size-8ct.html)
 
 ### Positive Reviews

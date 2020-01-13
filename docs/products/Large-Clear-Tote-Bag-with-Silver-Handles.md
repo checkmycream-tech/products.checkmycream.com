@@ -1,12 +1,3 @@
----
-title: Large Clear Tote Bag with Silver Handles,
-description: Large Clear Tote Bag with Silver Handles,
-author: Suvojit Manna,
-tags: Large Clear Tote Bag with Silver Handles,
-publishedAt: Fri Jan 10 2020 15:00:14 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:14 GMT+0530 (India Standard Time),
----
-
 # [Large Clear Tote Bag with Silver Handles](https://products.checkmycream.com/products/Large-Clear-Tote-Bag-with-Silver-Handles.html)
 
 ### Positive Reviews

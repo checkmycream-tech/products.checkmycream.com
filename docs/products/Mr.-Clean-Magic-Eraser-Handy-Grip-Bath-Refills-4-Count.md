@@ -1,12 +1,3 @@
----
-title: Mr. Clean Magic Eraser Handy-Grip Bath Refills, 4 Count,
-description: Mr. Clean Magic Eraser Handy-Grip Bath Refills, 4 Count,
-author: Suvojit Manna,
-tags: Mr. Clean Magic Eraser Handy-Grip Bath Refills, 4 Count,
-publishedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
----
-
 # [Mr. Clean Magic Eraser Handy-Grip Bath Refills, 4 Count](https://products.checkmycream.com/products/Mr.-Clean-Magic-Eraser-Handy-Grip-Bath-Refills-4-Count.html)
 
 ### Positive Reviews

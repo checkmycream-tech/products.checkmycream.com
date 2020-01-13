@@ -1,12 +1,3 @@
----
-title: Mederma Advanced Scar Gel (50 g),
-description: Mederma Advanced Scar Gel (50 g),
-author: Suvojit Manna,
-tags: Mederma Advanced Scar Gel (50 g),
-publishedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
----
-
 # [Mederma Advanced Scar Gel (50 g)](https://products.checkmycream.com/products/Mederma-Advanced-Scar-Gel-(50-g).html)
 
 ### Positive Reviews

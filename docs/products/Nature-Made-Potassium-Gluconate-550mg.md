@@ -1,12 +1,3 @@
----
-title: Nature Made Potassium Gluconate 550mg,
-description: Nature Made Potassium Gluconate 550mg,
-author: Suvojit Manna,
-tags: Nature Made Potassium Gluconate 550mg,
-publishedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
----
-
 # [Nature Made Potassium Gluconate 550mg](https://products.checkmycream.com/products/Nature-Made-Potassium-Gluconate-550mg.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Nailart NAIL TATTOO STICKER - ladybug / ladybird - red / black,
-description: Nailart NAIL TATTOO STICKER - ladybug / ladybird - red / black,
-author: Suvojit Manna,
-tags: Nailart NAIL TATTOO STICKER - ladybug / ladybird - red / black,
-publishedAt: Fri Jan 10 2020 15:00:13 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:13 GMT+0530 (India Standard Time),
----
-
 # [Nailart NAIL TATTOO STICKER - ladybug / ladybird - red / black](https://products.checkmycream.com/products/Nailart-NAIL-TATTOO-STICKER-ladybug-ladybird-red-black.html)
 
 ### Positive Reviews

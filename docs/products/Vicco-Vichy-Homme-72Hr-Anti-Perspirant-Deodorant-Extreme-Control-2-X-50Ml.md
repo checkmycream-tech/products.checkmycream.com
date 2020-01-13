@@ -1,12 +1,3 @@
----
-title: Vicco Vichy Homme 72Hr Anti-Perspirant Deodorant Extrême Control 2 X 50Ml,
-description: Vicco Vichy Homme 72Hr Anti-Perspirant Deodorant Extrême Control 2 X 50Ml,
-author: Suvojit Manna,
-tags: Vicco Vichy Homme 72Hr Anti-Perspirant Deodorant Extrême Control 2 X 50Ml,
-publishedAt: Fri Jan 10 2020 15:00:07 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:07 GMT+0530 (India Standard Time),
----
-
 # [Vicco Vichy Homme 72Hr Anti-Perspirant Deodorant Extrême Control 2 X 50Ml](https://products.checkmycream.com/products/Vicco-Vichy-Homme-72Hr-Anti-Perspirant-Deodorant-Extreme-Control-2-X-50Ml.html)
 
 ### Positive Reviews

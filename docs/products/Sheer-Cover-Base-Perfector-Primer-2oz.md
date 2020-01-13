@@ -1,12 +1,3 @@
----
-title: Sheer Cover Base Perfector Primer - 2oz,
-description: Sheer Cover Base Perfector Primer - 2oz,
-author: Suvojit Manna,
-tags: Sheer Cover Base Perfector Primer - 2oz,
-publishedAt: Fri Jan 10 2020 15:00:29 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:29 GMT+0530 (India Standard Time),
----
-
 # [Sheer Cover Base Perfector Primer - 2oz](https://products.checkmycream.com/products/Sheer-Cover-Base-Perfector-Primer-2oz.html)
 
 ### Positive Reviews

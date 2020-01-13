@@ -1,12 +1,3 @@
----
-title: The Naked Bee Moisturizing Hand &amp; Body Lotion,
-description: The Naked Bee Moisturizing Hand &amp; Body Lotion,
-author: Suvojit Manna,
-tags: The Naked Bee Moisturizing Hand &amp; Body Lotion,
-publishedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
----
-
 # [The Naked Bee Moisturizing Hand &amp; Body Lotion](https://products.checkmycream.com/products/The-Naked-Bee-Moisturizing-Hand-and-Body-Lotion.html)
 
 ### Positive Reviews

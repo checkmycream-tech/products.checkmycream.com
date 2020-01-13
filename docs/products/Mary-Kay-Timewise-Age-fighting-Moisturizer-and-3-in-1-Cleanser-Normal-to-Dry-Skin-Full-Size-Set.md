@@ -1,12 +1,3 @@
----
-title: Mary Kay Timewise Age-fighting Moisturizer &amp; 3 in 1 Cleanser Normal to Dry Skin Full Size Set,
-description: Mary Kay Timewise Age-fighting Moisturizer &amp; 3 in 1 Cleanser Normal to Dry Skin Full Size Set,
-author: Suvojit Manna,
-tags: Mary Kay Timewise Age-fighting Moisturizer &amp; 3 in 1 Cleanser Normal to Dry Skin Full Size Set,
-publishedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
----
-
 # [Mary Kay Timewise Age-fighting Moisturizer &amp; 3 in 1 Cleanser Normal to Dry Skin Full Size Set](https://products.checkmycream.com/products/Mary-Kay-Timewise-Age-fighting-Moisturizer-and-3-in-1-Cleanser-Normal-to-Dry-Skin-Full-Size-Set.html)
 
 ### Positive Reviews

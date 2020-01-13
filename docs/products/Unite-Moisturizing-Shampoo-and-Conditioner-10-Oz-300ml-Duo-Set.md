@@ -1,12 +1,3 @@
----
-title: Unite Moisturizing Shampoo &amp; Conditioner 10 Oz 300ml Duo Set,
-description: Unite Moisturizing Shampoo &amp; Conditioner 10 Oz 300ml Duo Set,
-author: Suvojit Manna,
-tags: Unite Moisturizing Shampoo &amp; Conditioner 10 Oz 300ml Duo Set,
-publishedAt: Fri Jan 10 2020 15:00:38 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:38 GMT+0530 (India Standard Time),
----
-
 # [Unite Moisturizing Shampoo &amp; Conditioner 10 Oz 300ml Duo Set](https://products.checkmycream.com/products/Unite-Moisturizing-Shampoo-and-Conditioner-10-Oz-300ml-Duo-Set.html)
 
 ### Positive Reviews

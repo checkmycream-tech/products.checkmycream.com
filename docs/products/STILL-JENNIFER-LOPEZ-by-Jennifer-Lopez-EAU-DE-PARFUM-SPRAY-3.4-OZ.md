@@ -1,12 +1,3 @@
----
-title: STILL JENNIFER LOPEZ by Jennifer Lopez EAU DE PARFUM SPRAY 3.4 OZ,
-description: STILL JENNIFER LOPEZ by Jennifer Lopez EAU DE PARFUM SPRAY 3.4 OZ,
-author: Suvojit Manna,
-tags: STILL JENNIFER LOPEZ by Jennifer Lopez EAU DE PARFUM SPRAY 3.4 OZ,
-publishedAt: Fri Jan 10 2020 14:59:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:00 GMT+0530 (India Standard Time),
----
-
 # [STILL JENNIFER LOPEZ by Jennifer Lopez EAU DE PARFUM SPRAY 3.4 OZ](https://products.checkmycream.com/products/STILL-JENNIFER-LOPEZ-by-Jennifer-Lopez-EAU-DE-PARFUM-SPRAY-3.4-OZ.html)
 
 ### Positive Reviews

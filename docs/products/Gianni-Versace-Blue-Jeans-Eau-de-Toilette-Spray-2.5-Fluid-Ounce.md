@@ -1,12 +1,3 @@
----
-title: Gianni Versace Blue Jeans Eau de Toilette Spray, 2.5 Fluid Ounce,
-description: Gianni Versace Blue Jeans Eau de Toilette Spray, 2.5 Fluid Ounce,
-author: Suvojit Manna,
-tags: Gianni Versace Blue Jeans Eau de Toilette Spray, 2.5 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 14:59:26 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:26 GMT+0530 (India Standard Time),
----
-
 # [Gianni Versace Blue Jeans Eau de Toilette Spray, 2.5 Fluid Ounce](https://products.checkmycream.com/products/Gianni-Versace-Blue-Jeans-Eau-de-Toilette-Spray-2.5-Fluid-Ounce.html)
 
 ### Positive Reviews

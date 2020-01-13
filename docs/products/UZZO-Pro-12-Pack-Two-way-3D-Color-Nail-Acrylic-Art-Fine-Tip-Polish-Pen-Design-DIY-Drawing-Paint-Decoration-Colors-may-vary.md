@@ -1,12 +1,3 @@
----
-title: UZZO Pro 12 Pack Two-way 3D Color Nail Acrylic Art Fine Tip Polish Pen Design DIY Drawing Paint Decoration Colors may vary,
-description: UZZO Pro 12 Pack Two-way 3D Color Nail Acrylic Art Fine Tip Polish Pen Design DIY Drawing Paint Decoration Colors may vary,
-author: Suvojit Manna,
-tags: UZZO Pro 12 Pack Two-way 3D Color Nail Acrylic Art Fine Tip Polish Pen Design DIY Drawing Paint Decoration Colors may vary,
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [UZZO Pro 12 Pack Two-way 3D Color Nail Acrylic Art Fine Tip Polish Pen Design DIY Drawing Paint Decoration Colors may vary](https://products.checkmycream.com/products/UZZO-Pro-12-Pack-Two-way-3D-Color-Nail-Acrylic-Art-Fine-Tip-Polish-Pen-Design-DIY-Drawing-Paint-Decoration-Colors-may-vary.html)
 
 ### Positive Reviews

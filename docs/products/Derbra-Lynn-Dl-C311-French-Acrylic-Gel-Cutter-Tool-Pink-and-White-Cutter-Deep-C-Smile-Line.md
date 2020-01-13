@@ -1,12 +1,3 @@
----
-title: Derbra Lynn Dl-C311 French Acrylic Gel Cutter Tool Pink &amp; White Cutter Deep C Smile Line,
-description: Derbra Lynn Dl-C311 French Acrylic Gel Cutter Tool Pink &amp; White Cutter Deep C Smile Line,
-author: Suvojit Manna,
-tags: Derbra Lynn Dl-C311 French Acrylic Gel Cutter Tool Pink &amp; White Cutter Deep C Smile Line,
-publishedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
----
-
 # [Derbra Lynn Dl-C311 French Acrylic Gel Cutter Tool Pink &amp; White Cutter Deep C Smile Line](https://products.checkmycream.com/products/Derbra-Lynn-Dl-C311-French-Acrylic-Gel-Cutter-Tool-Pink-and-White-Cutter-Deep-C-Smile-Line.html)
 
 ### Positive Reviews

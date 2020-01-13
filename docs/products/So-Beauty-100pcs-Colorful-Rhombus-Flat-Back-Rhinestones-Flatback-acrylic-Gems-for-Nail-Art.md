@@ -1,12 +1,3 @@
----
-title: So Beauty 100pcs Colorful Rhombus Flat Back Rhinestones Flatback acrylic Gems for Nail Art,
-description: So Beauty 100pcs Colorful Rhombus Flat Back Rhinestones Flatback acrylic Gems for Nail Art,
-author: Suvojit Manna,
-tags: So Beauty 100pcs Colorful Rhombus Flat Back Rhinestones Flatback acrylic Gems for Nail Art,
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [So Beauty 100pcs Colorful Rhombus Flat Back Rhinestones Flatback acrylic Gems for Nail Art](https://products.checkmycream.com/products/So-Beauty-100pcs-Colorful-Rhombus-Flat-Back-Rhinestones-Flatback-acrylic-Gems-for-Nail-Art.html)
 
 ### Positive Reviews

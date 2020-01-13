@@ -1,12 +1,3 @@
----
-title: Sebastian Light Weightless Shine Shampoo, 33.8-ounce,
-description: Sebastian Light Weightless Shine Shampoo, 33.8-ounce,
-author: Suvojit Manna,
-tags: Sebastian Light Weightless Shine Shampoo, 33.8-ounce,
-publishedAt: Fri Jan 10 2020 14:59:27 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:27 GMT+0530 (India Standard Time),
----
-
 # [Sebastian Light Weightless Shine Shampoo, 33.8-ounce](https://products.checkmycream.com/products/Sebastian-Light-Weightless-Shine-Shampoo-33.8-ounce.html)
 
 ### Positive Reviews

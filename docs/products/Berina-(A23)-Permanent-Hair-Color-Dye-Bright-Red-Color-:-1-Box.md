@@ -1,12 +1,3 @@
----
-title: Berina (A23) Permanent Hair Color Dye Bright Red Color : 1 Box,
-description: Berina (A23) Permanent Hair Color Dye Bright Red Color : 1 Box,
-author: Suvojit Manna,
-tags: Berina (A23) Permanent Hair Color Dye Bright Red Color : 1 Box,
-publishedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
----
-
 # [Berina (A23) Permanent Hair Color Dye Bright Red Color : 1 Box](https://products.checkmycream.com/products/Berina-(A23)-Permanent-Hair-Color-Dye-Bright-Red-Color-:-1-Box.html)
 
 ### Positive Reviews

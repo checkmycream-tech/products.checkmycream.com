@@ -1,12 +1,3 @@
----
-title: Vitabath Moisturizing Bath Gelee, Original Spring Green - 10.5 oz,
-description: Vitabath Moisturizing Bath Gelee, Original Spring Green - 10.5 oz,
-author: Suvojit Manna,
-tags: Vitabath Moisturizing Bath Gelee, Original Spring Green - 10.5 oz,
-publishedAt: Fri Jan 10 2020 14:58:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:58:58 GMT+0530 (India Standard Time),
----
-
 # [Vitabath Moisturizing Bath Gelee, Original Spring Green - 10.5 oz](https://products.checkmycream.com/products/Vitabath-Moisturizing-Bath-Gelee-Original-Spring-Green-10.5-oz.html)
 
 ### Positive Reviews

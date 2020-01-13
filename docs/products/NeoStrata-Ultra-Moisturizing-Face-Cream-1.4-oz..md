@@ -1,12 +1,3 @@
----
-title: NeoStrata Ultra Moisturizing Face Cream 1.4 oz.,
-description: NeoStrata Ultra Moisturizing Face Cream 1.4 oz.,
-author: Suvojit Manna,
-tags: NeoStrata Ultra Moisturizing Face Cream 1.4 oz.,
-publishedAt: Fri Jan 10 2020 14:59:13 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:13 GMT+0530 (India Standard Time),
----
-
 # [NeoStrata Ultra Moisturizing Face Cream 1.4 oz.](https://products.checkmycream.com/products/NeoStrata-Ultra-Moisturizing-Face-Cream-1.4-oz..html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Calvin Klien Be for Women and Men Eau De Toilette Spray, 6.7 Ounce,
-description: Calvin Klien Be for Women and Men Eau De Toilette Spray, 6.7 Ounce,
-author: Suvojit Manna,
-tags: Calvin Klien Be for Women and Men Eau De Toilette Spray, 6.7 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:58 GMT+0530 (India Standard Time),
----
-
 # [Calvin Klien Be for Women and Men Eau De Toilette Spray, 6.7 Ounce](https://products.checkmycream.com/products/Calvin-Klien-Be-for-Women-and-Men-Eau-De-Toilette-Spray-6.7-Ounce.html)
 
 ### Positive Reviews

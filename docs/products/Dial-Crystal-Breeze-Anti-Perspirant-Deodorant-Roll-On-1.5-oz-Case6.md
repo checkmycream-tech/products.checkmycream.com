@@ -1,12 +1,3 @@
----
-title: Dial Crystal Breeze Anti-Perspirant Deodorant Roll-On - 1.5 oz - Case/6,
-description: Dial Crystal Breeze Anti-Perspirant Deodorant Roll-On - 1.5 oz - Case/6,
-author: Suvojit Manna,
-tags: Dial Crystal Breeze Anti-Perspirant Deodorant Roll-On - 1.5 oz - Case/6,
-publishedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
----
-
 # [Dial Crystal Breeze Anti-Perspirant Deodorant Roll-On - 1.5 oz - Case/6](https://products.checkmycream.com/products/Dial-Crystal-Breeze-Anti-Perspirant-Deodorant-Roll-On-1.5-oz-Case6.html)
 
 ### Positive Reviews

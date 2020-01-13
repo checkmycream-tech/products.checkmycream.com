@@ -1,12 +1,3 @@
----
-title: Victoria&#x27;s Secret Give Me Love 7 Pc Mini Perfume Set w/ Bombshell, Heavenly + More,
-description: Victoria&#x27;s Secret Give Me Love 7 Pc Mini Perfume Set w/ Bombshell, Heavenly + More,
-author: Suvojit Manna,
-tags: Victoria&#x27;s Secret Give Me Love 7 Pc Mini Perfume Set w/ Bombshell, Heavenly + More,
-publishedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
----
-
 # [Victoria&#x27;s Secret Give Me Love 7 Pc Mini Perfume Set w/ Bombshell, Heavenly + More](https://products.checkmycream.com/products/Victoria&#x27;s-Secret-Give-Me-Love-7-Pc-Mini-Perfume-Set-w-Bombshell-Heavenly-+-More.html)
 
 ### Positive Reviews

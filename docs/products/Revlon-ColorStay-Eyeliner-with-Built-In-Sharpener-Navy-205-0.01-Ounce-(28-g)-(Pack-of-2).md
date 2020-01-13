@@ -1,12 +1,3 @@
----
-title: Revlon ColorStay Eyeliner with Built-In Sharpener, Navy 205, 0.01 Ounce (28 g) (Pack of 2),
-description: Revlon ColorStay Eyeliner with Built-In Sharpener, Navy 205, 0.01 Ounce (28 g) (Pack of 2),
-author: Suvojit Manna,
-tags: Revlon ColorStay Eyeliner with Built-In Sharpener, Navy 205, 0.01 Ounce (28 g) (Pack of 2),
-publishedAt: Fri Jan 10 2020 14:59:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:08 GMT+0530 (India Standard Time),
----
-
 # [Revlon ColorStay Eyeliner with Built-In Sharpener, Navy 205, 0.01 Ounce (28 g) (Pack of 2)](https://products.checkmycream.com/products/Revlon-ColorStay-Eyeliner-with-Built-In-Sharpener-Navy-205-0.01-Ounce-(28-g)-(Pack-of-2).html)
 
 ### Positive Reviews

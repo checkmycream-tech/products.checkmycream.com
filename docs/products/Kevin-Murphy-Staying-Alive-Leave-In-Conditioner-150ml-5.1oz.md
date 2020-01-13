@@ -1,12 +1,3 @@
----
-title: Kevin Murphy - Staying Alive Leave-In Conditioner - 150ml / 5.1oz,
-description: Kevin Murphy - Staying Alive Leave-In Conditioner - 150ml / 5.1oz,
-author: Suvojit Manna,
-tags: Kevin Murphy - Staying Alive Leave-In Conditioner - 150ml / 5.1oz,
-publishedAt: Fri Jan 10 2020 14:59:17 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:17 GMT+0530 (India Standard Time),
----
-
 # [Kevin Murphy - Staying Alive Leave-In Conditioner - 150ml / 5.1oz](https://products.checkmycream.com/products/Kevin-Murphy-Staying-Alive-Leave-In-Conditioner-150ml-5.1oz.html)
 
 ### Positive Reviews

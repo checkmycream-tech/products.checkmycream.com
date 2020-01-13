@@ -1,12 +1,3 @@
----
-title: Turbie Twist Cotton Super Absorbent Hair Towels (4 Pack) Purple Heart / Solid,
-description: Turbie Twist Cotton Super Absorbent Hair Towels (4 Pack) Purple Heart / Solid,
-author: Suvojit Manna,
-tags: Turbie Twist Cotton Super Absorbent Hair Towels (4 Pack) Purple Heart / Solid,
-publishedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
----
-
 # [Turbie Twist Cotton Super Absorbent Hair Towels (4 Pack) Purple Heart / Solid](https://products.checkmycream.com/products/Turbie-Twist-Cotton-Super-Absorbent-Hair-Towels-(4-Pack)-Purple-Heart-Solid.html)
 
 ### Positive Reviews

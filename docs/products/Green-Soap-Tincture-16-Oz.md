@@ -1,12 +1,3 @@
----
-title: Green Soap Tincture - 16 Oz,
-description: Green Soap Tincture - 16 Oz,
-author: Suvojit Manna,
-tags: Green Soap Tincture - 16 Oz,
-publishedAt: Fri Jan 10 2020 14:59:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:08 GMT+0530 (India Standard Time),
----
-
 # [Green Soap Tincture - 16 Oz](https://products.checkmycream.com/products/Green-Soap-Tincture-16-Oz.html)
 
 ### Positive Reviews

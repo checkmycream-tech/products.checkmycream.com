@@ -1,12 +1,3 @@
----
-title: Colgate Wisp Plus Whitening, Portable Mini-Brush Toothbrush, Coolmint 16 each,
-description: Colgate Wisp Plus Whitening, Portable Mini-Brush Toothbrush, Coolmint 16 each,
-author: Suvojit Manna,
-tags: Colgate Wisp Plus Whitening, Portable Mini-Brush Toothbrush, Coolmint 16 each,
-publishedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
----
-
 # [Colgate Wisp Plus Whitening, Portable Mini-Brush Toothbrush, Coolmint 16 each](https://products.checkmycream.com/products/Colgate-Wisp-Plus-Whitening-Portable-Mini-Brush-Toothbrush-Coolmint-16-each.html)
 
 ### Positive Reviews

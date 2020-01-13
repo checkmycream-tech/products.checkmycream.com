@@ -1,12 +1,3 @@
----
-title: CAETLE® 100 Hair Removal Depilatory Wax Strip Nonwoven Epilator Paper Waxing Salon Spa,
-description: CAETLE® 100 Hair Removal Depilatory Wax Strip Nonwoven Epilator Paper Waxing Salon Spa,
-author: Suvojit Manna,
-tags: CAETLE® 100 Hair Removal Depilatory Wax Strip Nonwoven Epilator Paper Waxing Salon Spa,
-publishedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
----
-
 # [CAETLE® 100 Hair Removal Depilatory Wax Strip Nonwoven Epilator Paper Waxing Salon Spa](https://products.checkmycream.com/products/CAETLE(r)-100-Hair-Removal-Depilatory-Wax-Strip-Nonwoven-Epilator-Paper-Waxing-Salon-Spa.html)
 
 ### Positive Reviews

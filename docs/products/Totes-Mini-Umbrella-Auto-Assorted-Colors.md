@@ -1,12 +1,3 @@
----
-title: Totes Mini Umbrella Auto Assorted Colors,
-description: Totes Mini Umbrella Auto Assorted Colors,
-author: Suvojit Manna,
-tags: Totes Mini Umbrella Auto Assorted Colors,
-publishedAt: Fri Jan 10 2020 14:59:09 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:09 GMT+0530 (India Standard Time),
----
-
 # [Totes Mini Umbrella Auto Assorted Colors](https://products.checkmycream.com/products/Totes-Mini-Umbrella-Auto-Assorted-Colors.html)
 
 ### Positive Reviews

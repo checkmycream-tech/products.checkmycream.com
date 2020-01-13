@@ -1,12 +1,3 @@
----
-title: Estee Lauder - Revitalizing Supreme Global Anti-aging Creme Travel Size - 15 Ml/0.5 Oz,
-description: Estee Lauder - Revitalizing Supreme Global Anti-aging Creme Travel Size - 15 Ml/0.5 Oz,
-author: Suvojit Manna,
-tags: Estee Lauder - Revitalizing Supreme Global Anti-aging Creme Travel Size - 15 Ml/0.5 Oz,
-publishedAt: Fri Jan 10 2020 14:58:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:58:57 GMT+0530 (India Standard Time),
----
-
 # [Estee Lauder - Revitalizing Supreme Global Anti-aging Creme Travel Size - 15 Ml/0.5 Oz](https://products.checkmycream.com/products/Estee-Lauder-Revitalizing-Supreme-Global-Anti-aging-Creme-Travel-Size-15-Ml0.5-Oz.html)
 
 ### Positive Reviews

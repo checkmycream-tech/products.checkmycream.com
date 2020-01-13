@@ -1,12 +1,3 @@
----
-title: Chloe Roses Eau de Toilette Spray For Women, 2.5 Ounce,
-description: Chloe Roses Eau de Toilette Spray For Women, 2.5 Ounce,
-author: Suvojit Manna,
-tags: Chloe Roses Eau de Toilette Spray For Women, 2.5 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
----
-
 # [Chloe Roses Eau de Toilette Spray For Women, 2.5 Ounce](https://products.checkmycream.com/products/Chloe-Roses-Eau-de-Toilette-Spray-For-Women-2.5-Ounce.html)
 
 ### Positive Reviews

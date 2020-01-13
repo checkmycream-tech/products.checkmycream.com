@@ -1,12 +1,3 @@
----
-title: STETSON FOR MEN - COLOGNE SPLASH Size: 1.75 OZ,
-description: STETSON FOR MEN - COLOGNE SPLASH Size: 1.75 OZ,
-author: Suvojit Manna,
-tags: STETSON FOR MEN - COLOGNE SPLASH Size: 1.75 OZ,
-publishedAt: Fri Jan 10 2020 15:00:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:00 GMT+0530 (India Standard Time),
----
-
 # [STETSON FOR MEN - COLOGNE SPLASH Size: 1.75 OZ](https://products.checkmycream.com/products/STETSON-FOR-MEN-COLOGNE-SPLASH-Size:-1.75-OZ.html)
 
 ### Positive Reviews

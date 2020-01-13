@@ -1,12 +1,3 @@
----
-title: Mary Kay Brow Definer Pencil ~ Blonde,
-description: Mary Kay Brow Definer Pencil ~ Blonde,
-author: Suvojit Manna,
-tags: Mary Kay Brow Definer Pencil ~ Blonde,
-publishedAt: Fri Jan 10 2020 15:00:11 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:11 GMT+0530 (India Standard Time),
----
-
 # [Mary Kay Brow Definer Pencil ~ Blonde](https://products.checkmycream.com/products/Mary-Kay-Brow-Definer-Pencil-~-Blonde.html)
 
 ### Positive Reviews

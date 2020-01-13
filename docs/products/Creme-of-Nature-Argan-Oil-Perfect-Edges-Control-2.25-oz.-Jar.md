@@ -1,12 +1,3 @@
----
-title: Creme of Nature Argan Oil Perfect Edges Control 2.25 oz. Jar,
-description: Creme of Nature Argan Oil Perfect Edges Control 2.25 oz. Jar,
-author: Suvojit Manna,
-tags: Creme of Nature Argan Oil Perfect Edges Control 2.25 oz. Jar,
-publishedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
----
-
 # [Creme of Nature Argan Oil Perfect Edges Control 2.25 oz. Jar](https://products.checkmycream.com/products/Creme-of-Nature-Argan-Oil-Perfect-Edges-Control-2.25-oz.-Jar.html)
 
 ### Positive Reviews

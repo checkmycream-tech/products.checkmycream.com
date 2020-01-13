@@ -1,12 +1,3 @@
----
-title: Barielle Advanced Formula Porcelain Skin Whitening Cream Facial Care Products,
-description: Barielle Advanced Formula Porcelain Skin Whitening Cream Facial Care Products,
-author: Suvojit Manna,
-tags: Barielle Advanced Formula Porcelain Skin Whitening Cream Facial Care Products,
-publishedAt: Fri Jan 10 2020 14:59:14 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:14 GMT+0530 (India Standard Time),
----
-
 # [Barielle Advanced Formula Porcelain Skin Whitening Cream Facial Care Products](https://products.checkmycream.com/products/Barielle-Advanced-Formula-Porcelain-Skin-Whitening-Cream-Facial-Care-Products.html)
 
 ### Positive Reviews

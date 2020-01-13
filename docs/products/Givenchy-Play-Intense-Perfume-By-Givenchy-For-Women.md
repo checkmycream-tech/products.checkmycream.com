@@ -1,12 +1,3 @@
----
-title: Givenchy Play Intense Perfume By Givenchy For Women,
-description: Givenchy Play Intense Perfume By Givenchy For Women,
-author: Suvojit Manna,
-tags: Givenchy Play Intense Perfume By Givenchy For Women,
-publishedAt: Fri Jan 10 2020 14:59:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:56 GMT+0530 (India Standard Time),
----
-
 # [Givenchy Play Intense Perfume By Givenchy For Women](https://products.checkmycream.com/products/Givenchy-Play-Intense-Perfume-By-Givenchy-For-Women.html)
 
 ### Positive Reviews

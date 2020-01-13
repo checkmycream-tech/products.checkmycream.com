@@ -1,12 +1,3 @@
----
-title: Dr. Lewinn Instant Dermal Wrinkle Filler 0.4oz By Kinerase,
-description: Dr. Lewinn Instant Dermal Wrinkle Filler 0.4oz By Kinerase,
-author: Suvojit Manna,
-tags: Dr. Lewinn Instant Dermal Wrinkle Filler 0.4oz By Kinerase,
-publishedAt: Fri Jan 10 2020 15:00:18 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:18 GMT+0530 (India Standard Time),
----
-
 # [Dr. Lewinn Instant Dermal Wrinkle Filler 0.4oz By Kinerase](https://products.checkmycream.com/products/Dr.-Lewinn-Instant-Dermal-Wrinkle-Filler-0.4oz-By-Kinerase.html)
 
 ### Positive Reviews

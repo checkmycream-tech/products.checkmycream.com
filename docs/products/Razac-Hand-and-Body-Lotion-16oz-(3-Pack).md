@@ -1,12 +1,3 @@
----
-title: Razac Hand &amp; Body Lotion 16oz (3 Pack),
-description: Razac Hand &amp; Body Lotion 16oz (3 Pack),
-author: Suvojit Manna,
-tags: Razac Hand &amp; Body Lotion 16oz (3 Pack),
-publishedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
----
-
 # [Razac Hand &amp; Body Lotion 16oz (3 Pack)](https://products.checkmycream.com/products/Razac-Hand-and-Body-Lotion-16oz-(3-Pack).html)
 
 ### Positive Reviews

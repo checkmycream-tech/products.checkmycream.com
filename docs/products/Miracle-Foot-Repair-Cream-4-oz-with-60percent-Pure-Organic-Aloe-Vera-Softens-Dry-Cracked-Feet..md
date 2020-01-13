@@ -1,12 +1,3 @@
----
-title: Miracle Foot Repair Cream 4 oz with 60% Pure Organic Aloe Vera Softens Dry Cracked Feet.,
-description: Miracle Foot Repair Cream 4 oz with 60% Pure Organic Aloe Vera Softens Dry Cracked Feet.,
-author: Suvojit Manna,
-tags: Miracle Foot Repair Cream 4 oz with 60% Pure Organic Aloe Vera Softens Dry Cracked Feet.,
-publishedAt: Fri Jan 10 2020 15:00:13 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:13 GMT+0530 (India Standard Time),
----
-
 # [Miracle Foot Repair Cream 4 oz with 60% Pure Organic Aloe Vera Softens Dry Cracked Feet.](https://products.checkmycream.com/products/Miracle-Foot-Repair-Cream-4-oz-with-60percent-Pure-Organic-Aloe-Vera-Softens-Dry-Cracked-Feet..html)
 
 ### Positive Reviews

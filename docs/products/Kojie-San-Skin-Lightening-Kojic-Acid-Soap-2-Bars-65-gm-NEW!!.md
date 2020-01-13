@@ -1,12 +1,3 @@
----
-title: Kojie San Skin Lightening Kojic Acid Soap 2 Bars - 65 gm - NEW!!,
-description: Kojie San Skin Lightening Kojic Acid Soap 2 Bars - 65 gm - NEW!!,
-author: Suvojit Manna,
-tags: Kojie San Skin Lightening Kojic Acid Soap 2 Bars - 65 gm - NEW!!,
-publishedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
----
-
 # [Kojie San Skin Lightening Kojic Acid Soap 2 Bars - 65 gm - NEW!!](https://products.checkmycream.com/products/Kojie-San-Skin-Lightening-Kojic-Acid-Soap-2-Bars-65-gm-NEW!!.html)
 
 ### Positive Reviews

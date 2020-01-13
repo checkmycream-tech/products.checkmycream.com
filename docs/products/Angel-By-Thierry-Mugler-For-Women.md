@@ -1,12 +1,3 @@
----
-title: Angel By Thierry Mugler For Women,
-description: Angel By Thierry Mugler For Women,
-author: Suvojit Manna,
-tags: Angel By Thierry Mugler For Women,
-publishedAt: Fri Jan 10 2020 14:59:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:05 GMT+0530 (India Standard Time),
----
-
 # [Angel By Thierry Mugler For Women](https://products.checkmycream.com/products/Angel-By-Thierry-Mugler-For-Women.html)
 
 ### Positive Reviews

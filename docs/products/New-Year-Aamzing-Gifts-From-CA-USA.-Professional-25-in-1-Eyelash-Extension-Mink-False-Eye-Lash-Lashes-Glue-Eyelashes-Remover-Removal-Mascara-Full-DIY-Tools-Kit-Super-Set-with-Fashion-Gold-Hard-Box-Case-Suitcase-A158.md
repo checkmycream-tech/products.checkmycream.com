@@ -1,12 +1,3 @@
----
-title: New Year Aamzing Gifts From CA, USA. Professional 25 in 1 Eyelash Extension Mink False Eye Lash Lashes Glue Eyelashes Remover Removal Mascara Full DIY Tools Kit Super Set with Fashion Gold Hard Box Case Suitcase A158,
-description: New Year Aamzing Gifts From CA, USA. Professional 25 in 1 Eyelash Extension Mink False Eye Lash Lashes Glue Eyelashes Remover Removal Mascara Full DIY Tools Kit Super Set with Fashion Gold Hard Box Case Suitcase A158,
-author: Suvojit Manna,
-tags: New Year Aamzing Gifts From CA, USA. Professional 25 in 1 Eyelash Extension Mink False Eye Lash Lashes Glue Eyelashes Remover Removal Mascara Full DIY Tools Kit Super Set with Fashion Gold Hard Box Case Suitcase A158,
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [New Year Aamzing Gifts From CA, USA. Professional 25 in 1 Eyelash Extension Mink False Eye Lash Lashes Glue Eyelashes Remover Removal Mascara Full DIY Tools Kit Super Set with Fashion Gold Hard Box Case Suitcase A158](https://products.checkmycream.com/products/New-Year-Aamzing-Gifts-From-CA-USA.-Professional-25-in-1-Eyelash-Extension-Mink-False-Eye-Lash-Lashes-Glue-Eyelashes-Remover-Removal-Mascara-Full-DIY-Tools-Kit-Super-Set-with-Fashion-Gold-Hard-Box-Case-Suitcase-A158.html)
 
 ### Positive Reviews

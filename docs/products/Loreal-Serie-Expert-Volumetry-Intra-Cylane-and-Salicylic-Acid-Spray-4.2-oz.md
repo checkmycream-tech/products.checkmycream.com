@@ -1,12 +1,3 @@
----
-title: Loreal Serie Expert Volumetry Intra Cylane and Salicylic Acid Spray 4.2 oz,
-description: Loreal Serie Expert Volumetry Intra Cylane and Salicylic Acid Spray 4.2 oz,
-author: Suvojit Manna,
-tags: Loreal Serie Expert Volumetry Intra Cylane and Salicylic Acid Spray 4.2 oz,
-publishedAt: Fri Jan 10 2020 15:00:45 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:45 GMT+0530 (India Standard Time),
----
-
 # [Loreal Serie Expert Volumetry Intra Cylane and Salicylic Acid Spray 4.2 oz](https://products.checkmycream.com/products/Loreal-Serie-Expert-Volumetry-Intra-Cylane-and-Salicylic-Acid-Spray-4.2-oz.html)
 
 ### Positive Reviews

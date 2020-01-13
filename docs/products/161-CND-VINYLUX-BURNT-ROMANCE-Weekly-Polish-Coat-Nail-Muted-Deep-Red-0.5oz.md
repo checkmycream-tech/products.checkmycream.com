@@ -1,12 +1,3 @@
----
-title: 161 CND - VINYLUX BURNT ROMANCE Weekly Polish Coat Nail Muted Deep Red 0.5oz,
-description: 161 CND - VINYLUX BURNT ROMANCE Weekly Polish Coat Nail Muted Deep Red 0.5oz,
-author: Suvojit Manna,
-tags: 161 CND - VINYLUX BURNT ROMANCE Weekly Polish Coat Nail Muted Deep Red 0.5oz,
-publishedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
----
-
 # [161 CND - VINYLUX BURNT ROMANCE Weekly Polish Coat Nail Muted Deep Red 0.5oz](https://products.checkmycream.com/products/161-CND-VINYLUX-BURNT-ROMANCE-Weekly-Polish-Coat-Nail-Muted-Deep-Red-0.5oz.html)
 
 ### Positive Reviews

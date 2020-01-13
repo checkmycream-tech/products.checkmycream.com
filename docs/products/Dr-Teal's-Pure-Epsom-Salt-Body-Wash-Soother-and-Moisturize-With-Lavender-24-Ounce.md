@@ -1,12 +1,3 @@
----
-title: Dr Teal&#x27;s Pure Epsom Salt Body Wash Soother &amp; Moisturize With Lavender 24 Ounce,
-description: Dr Teal&#x27;s Pure Epsom Salt Body Wash Soother &amp; Moisturize With Lavender 24 Ounce,
-author: Suvojit Manna,
-tags: Dr Teal&#x27;s Pure Epsom Salt Body Wash Soother &amp; Moisturize With Lavender 24 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
----
-
 # [Dr Teal&#x27;s Pure Epsom Salt Body Wash Soother &amp; Moisturize With Lavender 24 Ounce](https://products.checkmycream.com/products/Dr-Teal&#x27;s-Pure-Epsom-Salt-Body-Wash-Soother-and-Moisturize-With-Lavender-24-Ounce.html)
 
 ### Positive Reviews

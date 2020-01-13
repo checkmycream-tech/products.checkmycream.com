@@ -1,12 +1,3 @@
----
-title: Charming Silver Colored Earring / Ear Cuff / Clip In Snake / Spiral Shape By VAGA,
-description: Charming Silver Colored Earring / Ear Cuff / Clip In Snake / Spiral Shape By VAGA,
-author: Suvojit Manna,
-tags: Charming Silver Colored Earring / Ear Cuff / Clip In Snake / Spiral Shape By VAGA,
-publishedAt: Fri Jan 10 2020 15:01:06 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:06 GMT+0530 (India Standard Time),
----
-
 # [Charming Silver Colored Earring / Ear Cuff / Clip In Snake / Spiral Shape By VAGA](https://products.checkmycream.com/products/Charming-Silver-Colored-Earring-Ear-Cuff-Clip-In-Snake-Spiral-Shape-By-VAGA.html)
 
 ### Positive Reviews

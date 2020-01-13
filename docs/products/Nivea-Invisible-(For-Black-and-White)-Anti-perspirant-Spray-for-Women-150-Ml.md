@@ -1,12 +1,3 @@
----
-title: Nivea Invisible (For Black &amp; White) Anti-perspirant Spray for Women, 150 Ml,
-description: Nivea Invisible (For Black &amp; White) Anti-perspirant Spray for Women, 150 Ml,
-author: Suvojit Manna,
-tags: Nivea Invisible (For Black &amp; White) Anti-perspirant Spray for Women, 150 Ml,
-publishedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
----
-
 # [Nivea Invisible (For Black &amp; White) Anti-perspirant Spray for Women, 150 Ml](https://products.checkmycream.com/products/Nivea-Invisible-(For-Black-and-White)-Anti-perspirant-Spray-for-Women-150-Ml.html)
 
 ### Positive Reviews

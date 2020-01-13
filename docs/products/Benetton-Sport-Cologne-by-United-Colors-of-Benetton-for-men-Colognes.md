@@ -1,12 +1,3 @@
----
-title: Benetton Sport Cologne by United Colors of Benetton for men Colognes,
-description: Benetton Sport Cologne by United Colors of Benetton for men Colognes,
-author: Suvojit Manna,
-tags: Benetton Sport Cologne by United Colors of Benetton for men Colognes,
-publishedAt: Fri Jan 10 2020 14:59:06 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:06 GMT+0530 (India Standard Time),
----
-
 # [Benetton Sport Cologne by United Colors of Benetton for men Colognes](https://products.checkmycream.com/products/Benetton-Sport-Cologne-by-United-Colors-of-Benetton-for-men-Colognes.html)
 
 ### Positive Reviews

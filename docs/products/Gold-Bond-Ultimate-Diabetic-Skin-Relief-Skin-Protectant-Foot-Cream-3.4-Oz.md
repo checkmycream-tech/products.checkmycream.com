@@ -1,12 +1,3 @@
----
-title: Gold Bond Ultimate Diabetic Skin Relief Skin Protectant Foot Cream 3.4 Oz,
-description: Gold Bond Ultimate Diabetic Skin Relief Skin Protectant Foot Cream 3.4 Oz,
-author: Suvojit Manna,
-tags: Gold Bond Ultimate Diabetic Skin Relief Skin Protectant Foot Cream 3.4 Oz,
-publishedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
----
-
 # [Gold Bond Ultimate Diabetic Skin Relief Skin Protectant Foot Cream 3.4 Oz](https://products.checkmycream.com/products/Gold-Bond-Ultimate-Diabetic-Skin-Relief-Skin-Protectant-Foot-Cream-3.4-Oz.html)
 
 ### Positive Reviews

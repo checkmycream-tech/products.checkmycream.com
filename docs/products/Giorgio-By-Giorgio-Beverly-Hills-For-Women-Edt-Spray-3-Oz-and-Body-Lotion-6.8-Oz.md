@@ -1,12 +1,3 @@
----
-title: Giorgio By Giorgio Beverly Hills For Women Edt Spray 3 Oz &amp; Body Lotion 6.8 Oz,
-description: Giorgio By Giorgio Beverly Hills For Women Edt Spray 3 Oz &amp; Body Lotion 6.8 Oz,
-author: Suvojit Manna,
-tags: Giorgio By Giorgio Beverly Hills For Women Edt Spray 3 Oz &amp; Body Lotion 6.8 Oz,
-publishedAt: Fri Jan 10 2020 14:59:43 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:43 GMT+0530 (India Standard Time),
----
-
 # [Giorgio By Giorgio Beverly Hills For Women Edt Spray 3 Oz &amp; Body Lotion 6.8 Oz](https://products.checkmycream.com/products/Giorgio-By-Giorgio-Beverly-Hills-For-Women-Edt-Spray-3-Oz-and-Body-Lotion-6.8-Oz.html)
 
 ### Positive Reviews

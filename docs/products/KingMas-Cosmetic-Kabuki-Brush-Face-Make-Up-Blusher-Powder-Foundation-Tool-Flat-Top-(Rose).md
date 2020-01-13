@@ -1,12 +1,3 @@
----
-title: KingMas Cosmetic Kabuki Brush Face Make Up Blusher Powder Foundation Tool Flat Top (Rose),
-description: KingMas Cosmetic Kabuki Brush Face Make Up Blusher Powder Foundation Tool Flat Top (Rose),
-author: Suvojit Manna,
-tags: KingMas Cosmetic Kabuki Brush Face Make Up Blusher Powder Foundation Tool Flat Top (Rose),
-publishedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
----
-
 # [KingMas Cosmetic Kabuki Brush Face Make Up Blusher Powder Foundation Tool Flat Top (Rose)](https://products.checkmycream.com/products/KingMas-Cosmetic-Kabuki-Brush-Face-Make-Up-Blusher-Powder-Foundation-Tool-Flat-Top-(Rose).html)
 
 ### Positive Reviews

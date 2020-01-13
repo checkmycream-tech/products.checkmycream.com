@@ -1,12 +1,3 @@
----
-title: Schick Intuition Shaving Razor Refill Cartridge, 3 count, (4 Pack),
-description: Schick Intuition Shaving Razor Refill Cartridge, 3 count, (4 Pack),
-author: Suvojit Manna,
-tags: Schick Intuition Shaving Razor Refill Cartridge, 3 count, (4 Pack),
-publishedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
----
-
 # [Schick Intuition Shaving Razor Refill Cartridge, 3 count, (4 Pack)](https://products.checkmycream.com/products/Schick-Intuition-Shaving-Razor-Refill-Cartridge-3-count-(4-Pack).html)
 
 ### Positive Reviews

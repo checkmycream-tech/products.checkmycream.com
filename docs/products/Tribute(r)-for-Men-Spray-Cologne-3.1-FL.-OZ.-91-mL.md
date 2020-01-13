@@ -1,12 +1,3 @@
----
-title: Tribute® for Men Spray Cologne 3.1 FL. OZ. / 91 mL,
-description: Tribute® for Men Spray Cologne 3.1 FL. OZ. / 91 mL,
-author: Suvojit Manna,
-tags: Tribute® for Men Spray Cologne 3.1 FL. OZ. / 91 mL,
-publishedAt: Fri Jan 10 2020 14:59:11 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:11 GMT+0530 (India Standard Time),
----
-
 # [Tribute® for Men Spray Cologne 3.1 FL. OZ. / 91 mL](https://products.checkmycream.com/products/Tribute(r)-for-Men-Spray-Cologne-3.1-FL.-OZ.-91-mL.html)
 
 ### Positive Reviews

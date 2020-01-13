@@ -1,12 +1,3 @@
----
-title: Set of 4 – High Quality Mesh Shower Sponges / Exfoliation Body Puffs / Bath Scrubbers, Assorted Colors,
-description: Set of 4 – High Quality Mesh Shower Sponges / Exfoliation Body Puffs / Bath Scrubbers, Assorted Colors,
-author: Suvojit Manna,
-tags: Set of 4 – High Quality Mesh Shower Sponges / Exfoliation Body Puffs / Bath Scrubbers, Assorted Colors,
-publishedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
----
-
 # [Set of 4 – High Quality Mesh Shower Sponges / Exfoliation Body Puffs / Bath Scrubbers, Assorted Colors](https://products.checkmycream.com/products/Set-of-4-High-Quality-Mesh-Shower-Sponges-Exfoliation-Body-Puffs-Bath-Scrubbers-Assorted-Colors.html)
 
 ### Positive Reviews

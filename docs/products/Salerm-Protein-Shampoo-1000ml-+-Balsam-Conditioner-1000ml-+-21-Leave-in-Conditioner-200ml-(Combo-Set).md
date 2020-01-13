@@ -1,12 +1,3 @@
----
-title: Salerm Protein Shampoo 1000ml + Balsam Conditioner 1000ml + 21 Leave in Conditioner 200ml (Combo Set),
-description: Salerm Protein Shampoo 1000ml + Balsam Conditioner 1000ml + 21 Leave in Conditioner 200ml (Combo Set),
-author: Suvojit Manna,
-tags: Salerm Protein Shampoo 1000ml + Balsam Conditioner 1000ml + 21 Leave in Conditioner 200ml (Combo Set),
-publishedAt: Fri Jan 10 2020 15:00:20 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:20 GMT+0530 (India Standard Time),
----
-
 # [Salerm Protein Shampoo 1000ml + Balsam Conditioner 1000ml + 21 Leave in Conditioner 200ml (Combo Set)](https://products.checkmycream.com/products/Salerm-Protein-Shampoo-1000ml-+-Balsam-Conditioner-1000ml-+-21-Leave-in-Conditioner-200ml-(Combo-Set).html)
 
 ### Positive Reviews

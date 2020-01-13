@@ -1,12 +1,3 @@
----
-title: HuaYang Lady Girl Forehead Crystal Leaf Style Tassels Headband Link Chain Cuff Headpiece,
-description: HuaYang Lady Girl Forehead Crystal Leaf Style Tassels Headband Link Chain Cuff Headpiece,
-author: Suvojit Manna,
-tags: HuaYang Lady Girl Forehead Crystal Leaf Style Tassels Headband Link Chain Cuff Headpiece,
-publishedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
----
-
 # [HuaYang Lady Girl Forehead Crystal Leaf Style Tassels Headband Link Chain Cuff Headpiece](https://products.checkmycream.com/products/HuaYang-Lady-Girl-Forehead-Crystal-Leaf-Style-Tassels-Headband-Link-Chain-Cuff-Headpiece.html)
 
 ### Positive Reviews

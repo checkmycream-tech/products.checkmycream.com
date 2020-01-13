@@ -1,12 +1,3 @@
----
-title: Lancome Bi-Facil Double-Action Eye Makeup Remover 3.4oz (Set of 2 x 1.7oz) gwp,
-description: Lancome Bi-Facil Double-Action Eye Makeup Remover 3.4oz (Set of 2 x 1.7oz) gwp,
-author: Suvojit Manna,
-tags: Lancome Bi-Facil Double-Action Eye Makeup Remover 3.4oz (Set of 2 x 1.7oz) gwp,
-publishedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
----
-
 # [Lancome Bi-Facil Double-Action Eye Makeup Remover 3.4oz (Set of 2 x 1.7oz) gwp](https://products.checkmycream.com/products/Lancome-Bi-Facil-Double-Action-Eye-Makeup-Remover-3.4oz-(Set-of-2-x-1.7oz)-gwp.html)
 
 ### Positive Reviews

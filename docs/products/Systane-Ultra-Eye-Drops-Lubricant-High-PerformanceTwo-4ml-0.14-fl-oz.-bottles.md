@@ -1,12 +1,3 @@
----
-title: Systane Ultra Eye Drops Lubricant High Performance,Two 4ml 0.14 fl oz. bottles,
-description: Systane Ultra Eye Drops Lubricant High Performance,Two 4ml 0.14 fl oz. bottles,
-author: Suvojit Manna,
-tags: Systane Ultra Eye Drops Lubricant High Performance,Two 4ml 0.14 fl oz. bottles,
-publishedAt: Fri Jan 10 2020 14:59:45 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:45 GMT+0530 (India Standard Time),
----
-
 # [Systane Ultra Eye Drops Lubricant High Performance,Two 4ml 0.14 fl oz. bottles](https://products.checkmycream.com/products/Systane-Ultra-Eye-Drops-Lubricant-High-PerformanceTwo-4ml-0.14-fl-oz.-bottles.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Model in a Bottle Long Lasting Eyebrow Sealer - 0.5 Oz,
-description: Model in a Bottle Long Lasting Eyebrow Sealer - 0.5 Oz,
-author: Suvojit Manna,
-tags: Model in a Bottle Long Lasting Eyebrow Sealer - 0.5 Oz,
-publishedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
----
-
 # [Model in a Bottle Long Lasting Eyebrow Sealer - 0.5 Oz](https://products.checkmycream.com/products/Model-in-a-Bottle-Long-Lasting-Eyebrow-Sealer-0.5-Oz.html)
 
 ### Positive Reviews

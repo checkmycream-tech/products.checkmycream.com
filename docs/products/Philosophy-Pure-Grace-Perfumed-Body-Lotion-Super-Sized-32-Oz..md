@@ -1,12 +1,3 @@
----
-title: Philosophy Pure Grace Perfumed Body Lotion Super Sized 32 Oz.,
-description: Philosophy Pure Grace Perfumed Body Lotion Super Sized 32 Oz.,
-author: Suvojit Manna,
-tags: Philosophy Pure Grace Perfumed Body Lotion Super Sized 32 Oz.,
-publishedAt: Fri Jan 10 2020 15:00:09 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:09 GMT+0530 (India Standard Time),
----
-
 # [Philosophy Pure Grace Perfumed Body Lotion Super Sized 32 Oz.](https://products.checkmycream.com/products/Philosophy-Pure-Grace-Perfumed-Body-Lotion-Super-Sized-32-Oz..html)
 
 ### Positive Reviews

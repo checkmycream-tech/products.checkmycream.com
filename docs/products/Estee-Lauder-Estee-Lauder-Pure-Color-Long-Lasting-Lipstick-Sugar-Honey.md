@@ -1,12 +1,3 @@
----
-title: Estee Lauder Estee Lauder Pure Color Long Lasting Lipstick - Sugar Honey,
-description: Estee Lauder Estee Lauder Pure Color Long Lasting Lipstick - Sugar Honey,
-author: Suvojit Manna,
-tags: Estee Lauder Estee Lauder Pure Color Long Lasting Lipstick - Sugar Honey,
-publishedAt: Fri Jan 10 2020 14:59:13 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:13 GMT+0530 (India Standard Time),
----
-
 # [Estee Lauder Estee Lauder Pure Color Long Lasting Lipstick - Sugar Honey](https://products.checkmycream.com/products/Estee-Lauder-Estee-Lauder-Pure-Color-Long-Lasting-Lipstick-Sugar-Honey.html)
 
 ### Positive Reviews

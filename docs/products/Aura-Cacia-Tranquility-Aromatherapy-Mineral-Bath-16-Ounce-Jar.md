@@ -1,12 +1,3 @@
----
-title: Aura Cacia Tranquility, Aromatherapy Mineral Bath, 16 Ounce Jar,
-description: Aura Cacia Tranquility, Aromatherapy Mineral Bath, 16 Ounce Jar,
-author: Suvojit Manna,
-tags: Aura Cacia Tranquility, Aromatherapy Mineral Bath, 16 Ounce Jar,
-publishedAt: Fri Jan 10 2020 14:59:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:00 GMT+0530 (India Standard Time),
----
-
 # [Aura Cacia Tranquility, Aromatherapy Mineral Bath, 16 Ounce Jar](https://products.checkmycream.com/products/Aura-Cacia-Tranquility-Aromatherapy-Mineral-Bath-16-Ounce-Jar.html)
 
 ### Positive Reviews

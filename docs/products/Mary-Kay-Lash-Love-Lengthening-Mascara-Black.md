@@ -1,12 +1,3 @@
----
-title: Mary Kay Lash Love Lengthening Mascara - Black,
-description: Mary Kay Lash Love Lengthening Mascara - Black,
-author: Suvojit Manna,
-tags: Mary Kay Lash Love Lengthening Mascara - Black,
-publishedAt: Fri Jan 10 2020 14:59:46 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:46 GMT+0530 (India Standard Time),
----
-
 # [Mary Kay Lash Love Lengthening Mascara - Black](https://products.checkmycream.com/products/Mary-Kay-Lash-Love-Lengthening-Mascara-Black.html)
 
 ### Positive Reviews

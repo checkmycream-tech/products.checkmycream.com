@@ -1,12 +1,3 @@
----
-title: Cremo Astonishingly Superior Shave Cream,
-description: Cremo Astonishingly Superior Shave Cream,
-author: Suvojit Manna,
-tags: Cremo Astonishingly Superior Shave Cream,
-publishedAt: Fri Jan 10 2020 15:00:11 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:11 GMT+0530 (India Standard Time),
----
-
 # [Cremo Astonishingly Superior Shave Cream](https://products.checkmycream.com/products/Cremo-Astonishingly-Superior-Shave-Cream.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Naked #3 Palette 100% Authentic,
-description: Naked #3 Palette 100% Authentic,
-author: Suvojit Manna,
-tags: Naked #3 Palette 100% Authentic,
-publishedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
----
-
 # [Naked #3 Palette 100% Authentic](https://products.checkmycream.com/products/Naked-3-Palette-100percent-Authentic.html)
 
 ### Positive Reviews

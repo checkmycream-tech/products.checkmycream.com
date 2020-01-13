@@ -1,12 +1,3 @@
----
-title: Lubriderm Advanced Therapy Lotion for Extra-Dry Skin,
-description: Lubriderm Advanced Therapy Lotion for Extra-Dry Skin,
-author: Suvojit Manna,
-tags: Lubriderm Advanced Therapy Lotion for Extra-Dry Skin,
-publishedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
----
-
 # [Lubriderm Advanced Therapy Lotion for Extra-Dry Skin](https://products.checkmycream.com/products/Lubriderm-Advanced-Therapy-Lotion-for-Extra-Dry-Skin.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: BH Cosmetics Special Occasion Palette,
-description: BH Cosmetics Special Occasion Palette,
-author: Suvojit Manna,
-tags: BH Cosmetics Special Occasion Palette,
-publishedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
----
-
 # [BH Cosmetics Special Occasion Palette](https://products.checkmycream.com/products/BH-Cosmetics-Special-Occasion-Palette.html)
 
 ### Positive Reviews

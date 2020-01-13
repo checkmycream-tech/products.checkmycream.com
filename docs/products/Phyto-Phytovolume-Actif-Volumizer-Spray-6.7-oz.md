@@ -1,12 +1,3 @@
----
-title: Phyto Phytovolume Actif Volumizer Spray 6.7 oz,
-description: Phyto Phytovolume Actif Volumizer Spray 6.7 oz,
-author: Suvojit Manna,
-tags: Phyto Phytovolume Actif Volumizer Spray 6.7 oz,
-publishedAt: Fri Jan 10 2020 14:59:25 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:25 GMT+0530 (India Standard Time),
----
-
 # [Phyto Phytovolume Actif Volumizer Spray 6.7 oz](https://products.checkmycream.com/products/Phyto-Phytovolume-Actif-Volumizer-Spray-6.7-oz.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Oral-B Complete 5 Way Clean Medium Toothbrush 2 Count (Colors May Vary),
-description: Oral-B Complete 5 Way Clean Medium Toothbrush 2 Count (Colors May Vary),
-author: Suvojit Manna,
-tags: Oral-B Complete 5 Way Clean Medium Toothbrush 2 Count (Colors May Vary),
-publishedAt: Fri Jan 10 2020 15:00:30 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:30 GMT+0530 (India Standard Time),
----
-
 # [Oral-B Complete 5 Way Clean Medium Toothbrush 2 Count (Colors May Vary)](https://products.checkmycream.com/products/Oral-B-Complete-5-Way-Clean-Medium-Toothbrush-2-Count-(Colors-May-Vary).html)
 
 ### Positive Reviews

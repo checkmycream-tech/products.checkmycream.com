@@ -1,12 +1,3 @@
----
-title: Cetaphil Gentle Skin Cleansing Cloths,
-description: Cetaphil Gentle Skin Cleansing Cloths,
-author: Suvojit Manna,
-tags: Cetaphil Gentle Skin Cleansing Cloths,
-publishedAt: Fri Jan 10 2020 15:00:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:03 GMT+0530 (India Standard Time),
----
-
 # [Cetaphil Gentle Skin Cleansing Cloths](https://products.checkmycream.com/products/Cetaphil-Gentle-Skin-Cleansing-Cloths.html)
 
 ### Positive Reviews

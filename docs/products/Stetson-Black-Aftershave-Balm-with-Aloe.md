@@ -1,12 +1,3 @@
----
-title: Stetson Black  Aftershave Balm with Aloe,
-description: Stetson Black  Aftershave Balm with Aloe,
-author: Suvojit Manna,
-tags: Stetson Black  Aftershave Balm with Aloe,
-publishedAt: Fri Jan 10 2020 14:59:28 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:28 GMT+0530 (India Standard Time),
----
-
 # [Stetson Black  Aftershave Balm with Aloe](https://products.checkmycream.com/products/Stetson-Black-Aftershave-Balm-with-Aloe.html)
 
 ### Positive Reviews

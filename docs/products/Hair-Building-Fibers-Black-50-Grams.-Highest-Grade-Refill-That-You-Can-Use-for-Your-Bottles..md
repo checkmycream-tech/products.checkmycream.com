@@ -1,12 +1,3 @@
----
-title: Hair Building Fibers Black 50 Grams. Highest Grade Refill That You Can Use for Your Bottles.,
-description: Hair Building Fibers Black 50 Grams. Highest Grade Refill That You Can Use for Your Bottles.,
-author: Suvojit Manna,
-tags: Hair Building Fibers Black 50 Grams. Highest Grade Refill That You Can Use for Your Bottles.,
-publishedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
----
-
 # [Hair Building Fibers Black 50 Grams. Highest Grade Refill That You Can Use for Your Bottles.](https://products.checkmycream.com/products/Hair-Building-Fibers-Black-50-Grams.-Highest-Grade-Refill-That-You-Can-Use-for-Your-Bottles..html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Liquid Underware Silky Powder by Lather &amp; Fizz,
-description: Liquid Underware Silky Powder by Lather &amp; Fizz,
-author: Suvojit Manna,
-tags: Liquid Underware Silky Powder by Lather &amp; Fizz,
-publishedAt: Fri Jan 10 2020 14:59:52 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:52 GMT+0530 (India Standard Time),
----
-
 # [Liquid Underware Silky Powder by Lather &amp; Fizz](https://products.checkmycream.com/products/Liquid-Underware-Silky-Powder-by-Lather-and-Fizz.html)
 
 ### Positive Reviews

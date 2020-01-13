@@ -1,12 +1,3 @@
----
-title: Gigi Sure Clean Surface Cleaner, 8 Ounce,
-description: Gigi Sure Clean Surface Cleaner, 8 Ounce,
-author: Suvojit Manna,
-tags: Gigi Sure Clean Surface Cleaner, 8 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:25 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:25 GMT+0530 (India Standard Time),
----
-
 # [Gigi Sure Clean Surface Cleaner, 8 Ounce](https://products.checkmycream.com/products/Gigi-Sure-Clean-Surface-Cleaner-8-Ounce.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Listerine Pocketmist Cool Mint, 2-Count (Pack of 6),
-description: Listerine Pocketmist Cool Mint, 2-Count (Pack of 6),
-author: Suvojit Manna,
-tags: Listerine Pocketmist Cool Mint, 2-Count (Pack of 6),
-publishedAt: Fri Jan 10 2020 14:59:17 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:17 GMT+0530 (India Standard Time),
----
-
 # [Listerine Pocketmist Cool Mint, 2-Count (Pack of 6)](https://products.checkmycream.com/products/Listerine-Pocketmist-Cool-Mint-2-Count-(Pack-of-6).html)
 
 ### Positive Reviews

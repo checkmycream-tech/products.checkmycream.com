@@ -1,12 +1,3 @@
----
-title: NYX Cosmetics Mosaic Blush Powder, 0.20 Ounce,
-description: NYX Cosmetics Mosaic Blush Powder, 0.20 Ounce,
-author: Suvojit Manna,
-tags: NYX Cosmetics Mosaic Blush Powder, 0.20 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:39 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:39 GMT+0530 (India Standard Time),
----
-
 # [NYX Cosmetics Mosaic Blush Powder, 0.20 Ounce](https://products.checkmycream.com/products/NYX-Cosmetics-Mosaic-Blush-Powder-0.20-Ounce.html)
 
 ### Positive Reviews

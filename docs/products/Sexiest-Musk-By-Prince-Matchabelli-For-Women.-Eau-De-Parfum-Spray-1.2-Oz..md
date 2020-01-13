@@ -1,12 +1,3 @@
----
-title: Sexiest Musk By Prince Matchabelli For Women. Eau De Parfum Spray 1.2 Oz.,
-description: Sexiest Musk By Prince Matchabelli For Women. Eau De Parfum Spray 1.2 Oz.,
-author: Suvojit Manna,
-tags: Sexiest Musk By Prince Matchabelli For Women. Eau De Parfum Spray 1.2 Oz.,
-publishedAt: Fri Jan 10 2020 14:59:32 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:32 GMT+0530 (India Standard Time),
----
-
 # [Sexiest Musk By Prince Matchabelli For Women. Eau De Parfum Spray 1.2 Oz.](https://products.checkmycream.com/products/Sexiest-Musk-By-Prince-Matchabelli-For-Women.-Eau-De-Parfum-Spray-1.2-Oz..html)
 
 ### Positive Reviews

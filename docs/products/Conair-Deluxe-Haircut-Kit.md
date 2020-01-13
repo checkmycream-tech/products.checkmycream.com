@@ -1,12 +1,3 @@
----
-title: Conair Deluxe Haircut Kit,
-description: Conair Deluxe Haircut Kit,
-author: Suvojit Manna,
-tags: Conair Deluxe Haircut Kit,
-publishedAt: Fri Jan 10 2020 15:00:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:03 GMT+0530 (India Standard Time),
----
-
 # [Conair Deluxe Haircut Kit](https://products.checkmycream.com/products/Conair-Deluxe-Haircut-Kit.html)
 
 ### Positive Reviews

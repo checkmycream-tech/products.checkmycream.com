@@ -1,12 +1,3 @@
----
-title: Redken 01 Glass Smoothing Serum, 2-Ounce Bottle (Pack of 2),
-description: Redken 01 Glass Smoothing Serum, 2-Ounce Bottle (Pack of 2),
-author: Suvojit Manna,
-tags: Redken 01 Glass Smoothing Serum, 2-Ounce Bottle (Pack of 2),
-publishedAt: Fri Jan 10 2020 14:59:29 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:29 GMT+0530 (India Standard Time),
----
-
 # [Redken 01 Glass Smoothing Serum, 2-Ounce Bottle (Pack of 2)](https://products.checkmycream.com/products/Redken-01-Glass-Smoothing-Serum-2-Ounce-Bottle-(Pack-of-2).html)
 
 ### Positive Reviews

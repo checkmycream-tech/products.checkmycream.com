@@ -1,12 +1,3 @@
----
-title: Joie MyGel 4oz,
-description: Joie MyGel 4oz,
-author: Suvojit Manna,
-tags: Joie MyGel 4oz,
-publishedAt: Fri Jan 10 2020 15:00:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:03 GMT+0530 (India Standard Time),
----
-
 # [Joie MyGel 4oz](https://products.checkmycream.com/products/Joie-MyGel-4oz.html)
 
 ### Positive Reviews

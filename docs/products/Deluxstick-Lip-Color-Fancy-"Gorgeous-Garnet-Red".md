@@ -1,12 +1,3 @@
----
-title: Deluxstick Lip Color- Fancy &quot;Gorgeous Garnet Red&quot;,
-description: Deluxstick Lip Color- Fancy &quot;Gorgeous Garnet Red&quot;,
-author: Suvojit Manna,
-tags: Deluxstick Lip Color- Fancy &quot;Gorgeous Garnet Red&quot;,
-publishedAt: Fri Jan 10 2020 15:01:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:08 GMT+0530 (India Standard Time),
----
-
 # [Deluxstick Lip Color- Fancy &quot;Gorgeous Garnet Red&quot;](https://products.checkmycream.com/products/Deluxstick-Lip-Color-Fancy-&quot;Gorgeous-Garnet-Red&quot;.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Juicy Couture By Juicy Couture For Women. Eau De Parfum Spray 1.0 Oz.,
-description: Juicy Couture By Juicy Couture For Women. Eau De Parfum Spray 1.0 Oz.,
-author: Suvojit Manna,
-tags: Juicy Couture By Juicy Couture For Women. Eau De Parfum Spray 1.0 Oz.,
-publishedAt: Fri Jan 10 2020 14:59:16 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:16 GMT+0530 (India Standard Time),
----
-
 # [Juicy Couture By Juicy Couture For Women. Eau De Parfum Spray 1.0 Oz.](https://products.checkmycream.com/products/Juicy-Couture-By-Juicy-Couture-For-Women.-Eau-De-Parfum-Spray-1.0-Oz..html)
 
 ### Positive Reviews

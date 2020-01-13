@@ -1,12 +1,3 @@
----
-title: Slippery Stuff Liquid Personal Lubricant 8 fl. oz.,
-description: Slippery Stuff Liquid Personal Lubricant 8 fl. oz.,
-author: Suvojit Manna,
-tags: Slippery Stuff Liquid Personal Lubricant 8 fl. oz.,
-publishedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
----
-
 # [Slippery Stuff Liquid Personal Lubricant 8 fl. oz.](https://products.checkmycream.com/products/Slippery-Stuff-Liquid-Personal-Lubricant-8-fl.-oz..html)
 
 ### Positive Reviews

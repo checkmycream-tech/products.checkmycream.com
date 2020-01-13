@@ -1,12 +1,3 @@
----
-title: Nicerocker Hot Sauna Slimming Wrap Burn Cellulite Fat Weight Loss Waist Leg Thigh,
-description: Nicerocker Hot Sauna Slimming Wrap Burn Cellulite Fat Weight Loss Waist Leg Thigh,
-author: Suvojit Manna,
-tags: Nicerocker Hot Sauna Slimming Wrap Burn Cellulite Fat Weight Loss Waist Leg Thigh,
-publishedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
----
-
 # [Nicerocker Hot Sauna Slimming Wrap Burn Cellulite Fat Weight Loss Waist Leg Thigh](https://products.checkmycream.com/products/Nicerocker-Hot-Sauna-Slimming-Wrap-Burn-Cellulite-Fat-Weight-Loss-Waist-Leg-Thigh.html)
 
 ### Positive Reviews

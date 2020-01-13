@@ -1,12 +1,3 @@
----
-title: SnorePro-X Anti Snore Sleep Apnea Chin Strap,
-description: SnorePro-X Anti Snore Sleep Apnea Chin Strap,
-author: Suvojit Manna,
-tags: SnorePro-X Anti Snore Sleep Apnea Chin Strap,
-publishedAt: Fri Jan 10 2020 15:01:04 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:04 GMT+0530 (India Standard Time),
----
-
 # [SnorePro-X Anti Snore Sleep Apnea Chin Strap](https://products.checkmycream.com/products/SnorePro-X-Anti-Snore-Sleep-Apnea-Chin-Strap.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Coconut Body Oil - 8oz- 100% Pure &amp; Natural - For Body &amp; Hair!,
-description: Coconut Body Oil - 8oz- 100% Pure &amp; Natural - For Body &amp; Hair!,
-author: Suvojit Manna,
-tags: Coconut Body Oil - 8oz- 100% Pure &amp; Natural - For Body &amp; Hair!,
-publishedAt: Fri Jan 10 2020 15:00:11 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:11 GMT+0530 (India Standard Time),
----
-
 # [Coconut Body Oil - 8oz- 100% Pure &amp; Natural - For Body &amp; Hair!](https://products.checkmycream.com/products/Coconut-Body-Oil-8oz-100percent-Pure-and-Natural-For-Body-and-Hair!.html)
 
 ### Positive Reviews

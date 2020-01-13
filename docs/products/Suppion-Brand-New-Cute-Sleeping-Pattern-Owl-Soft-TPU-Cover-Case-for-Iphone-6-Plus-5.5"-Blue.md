@@ -1,12 +1,3 @@
----
-title: Suppion Brand New Cute Sleeping Pattern Owl Soft TPU Cover Case for Iphone 6 Plus 5.5&quot; Blue,
-description: Suppion Brand New Cute Sleeping Pattern Owl Soft TPU Cover Case for Iphone 6 Plus 5.5&quot; Blue,
-author: Suvojit Manna,
-tags: Suppion Brand New Cute Sleeping Pattern Owl Soft TPU Cover Case for Iphone 6 Plus 5.5&quot; Blue,
-publishedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
----
-
 # [Suppion Brand New Cute Sleeping Pattern Owl Soft TPU Cover Case for Iphone 6 Plus 5.5&quot; Blue](https://products.checkmycream.com/products/Suppion-Brand-New-Cute-Sleeping-Pattern-Owl-Soft-TPU-Cover-Case-for-Iphone-6-Plus-5.5&quot;-Blue.html)
 
 ### Positive Reviews

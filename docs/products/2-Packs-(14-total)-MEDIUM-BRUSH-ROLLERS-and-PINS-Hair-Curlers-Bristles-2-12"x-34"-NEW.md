@@ -1,12 +1,3 @@
----
-title: 2 Packs (14 total) MEDIUM BRUSH ROLLERS &amp; PINS Hair Curlers Bristles 2 1/2&quot;x 3/4&quot; NEW,
-description: 2 Packs (14 total) MEDIUM BRUSH ROLLERS &amp; PINS Hair Curlers Bristles 2 1/2&quot;x 3/4&quot; NEW,
-author: Suvojit Manna,
-tags: 2 Packs (14 total) MEDIUM BRUSH ROLLERS &amp; PINS Hair Curlers Bristles 2 1/2&quot;x 3/4&quot; NEW,
-publishedAt: Fri Jan 10 2020 15:00:29 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:29 GMT+0530 (India Standard Time),
----
-
 # [2 Packs (14 total) MEDIUM BRUSH ROLLERS &amp; PINS Hair Curlers Bristles 2 1/2&quot;x 3/4&quot; NEW](https://products.checkmycream.com/products/2-Packs-(14-total)-MEDIUM-BRUSH-ROLLERS-and-PINS-Hair-Curlers-Bristles-2-12&quot;x-34&quot;-NEW.html)
 
 ### Positive Reviews

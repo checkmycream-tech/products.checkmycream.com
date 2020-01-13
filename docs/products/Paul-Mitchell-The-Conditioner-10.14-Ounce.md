@@ -1,12 +1,3 @@
----
-title: Paul Mitchell The Conditioner, 10.14 Ounce,
-description: Paul Mitchell The Conditioner, 10.14 Ounce,
-author: Suvojit Manna,
-tags: Paul Mitchell The Conditioner, 10.14 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:51 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:51 GMT+0530 (India Standard Time),
----
-
 # [Paul Mitchell The Conditioner, 10.14 Ounce](https://products.checkmycream.com/products/Paul-Mitchell-The-Conditioner-10.14-Ounce.html)
 
 ### Positive Reviews

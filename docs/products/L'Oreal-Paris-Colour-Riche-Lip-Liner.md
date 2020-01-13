@@ -1,12 +1,3 @@
----
-title: L&#x27;Oreal Paris Colour Riche Lip Liner,
-description: L&#x27;Oreal Paris Colour Riche Lip Liner,
-author: Suvojit Manna,
-tags: L&#x27;Oreal Paris Colour Riche Lip Liner,
-publishedAt: Fri Jan 10 2020 14:59:59 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:59 GMT+0530 (India Standard Time),
----
-
 # [L&#x27;Oreal Paris Colour Riche Lip Liner](https://products.checkmycream.com/products/L&#x27;Oreal-Paris-Colour-Riche-Lip-Liner.html)
 
 ### Positive Reviews

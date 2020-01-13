@@ -1,12 +1,3 @@
----
-title: Three Pack Wahl * Size # 1/2 Nylon 1/16&quot; * Grey,
-description: Three Pack Wahl * Size # 1/2 Nylon 1/16&quot; * Grey,
-author: Suvojit Manna,
-tags: Three Pack Wahl * Size # 1/2 Nylon 1/16&quot; * Grey,
-publishedAt: Fri Jan 10 2020 15:00:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:02 GMT+0530 (India Standard Time),
----
-
 # [Three Pack Wahl * Size # 1/2 Nylon 1/16&quot; * Grey](https://products.checkmycream.com/products/Three-Pack-Wahl-*-Size-12-Nylon-116&quot;-*-Grey.html)
 
 ### Positive Reviews

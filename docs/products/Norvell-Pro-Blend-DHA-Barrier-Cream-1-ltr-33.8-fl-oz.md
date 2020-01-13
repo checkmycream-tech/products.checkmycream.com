@@ -1,12 +1,3 @@
----
-title: Norvell Pro-Blend DHA Barrier Cream 1 ltr / 33.8 fl oz,
-description: Norvell Pro-Blend DHA Barrier Cream 1 ltr / 33.8 fl oz,
-author: Suvojit Manna,
-tags: Norvell Pro-Blend DHA Barrier Cream 1 ltr / 33.8 fl oz,
-publishedAt: Fri Jan 10 2020 14:59:59 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:59 GMT+0530 (India Standard Time),
----
-
 # [Norvell Pro-Blend DHA Barrier Cream 1 ltr / 33.8 fl oz](https://products.checkmycream.com/products/Norvell-Pro-Blend-DHA-Barrier-Cream-1-ltr-33.8-fl-oz.html)
 
 ### Positive Reviews

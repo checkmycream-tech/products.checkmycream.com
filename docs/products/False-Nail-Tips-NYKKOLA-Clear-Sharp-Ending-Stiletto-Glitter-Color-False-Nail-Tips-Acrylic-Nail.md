@@ -1,12 +1,3 @@
----
-title: False Nail Tips NYKKOLA Clear Sharp Ending Stiletto Glitter Color False Nail Tips Acrylic Nail,
-description: False Nail Tips NYKKOLA Clear Sharp Ending Stiletto Glitter Color False Nail Tips Acrylic Nail,
-author: Suvojit Manna,
-tags: False Nail Tips NYKKOLA Clear Sharp Ending Stiletto Glitter Color False Nail Tips Acrylic Nail,
-publishedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
----
-
 # [False Nail Tips NYKKOLA Clear Sharp Ending Stiletto Glitter Color False Nail Tips Acrylic Nail](https://products.checkmycream.com/products/False-Nail-Tips-NYKKOLA-Clear-Sharp-Ending-Stiletto-Glitter-Color-False-Nail-Tips-Acrylic-Nail.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Natural Kingdom Children&#x27;s Multi Vitamin Gummies, 50 ct,
-description: Natural Kingdom Children&#x27;s Multi Vitamin Gummies, 50 ct,
-author: Suvojit Manna,
-tags: Natural Kingdom Children&#x27;s Multi Vitamin Gummies, 50 ct,
-publishedAt: Fri Jan 10 2020 14:59:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:57 GMT+0530 (India Standard Time),
----
-
 # [Natural Kingdom Children&#x27;s Multi Vitamin Gummies, 50 ct](https://products.checkmycream.com/products/Natural-Kingdom-Children&#x27;s-Multi-Vitamin-Gummies-50-ct.html)
 
 ### Positive Reviews

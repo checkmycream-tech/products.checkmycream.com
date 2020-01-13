@@ -1,12 +1,3 @@
----
-title: Fracas de Robert Piguet for Women Little Pink Box 2 Piece Set Includes: 1.0 oz Eau de Parfum Spray + 0.25 oz Eau de Parfum Roller Ball,
-description: Fracas de Robert Piguet for Women Little Pink Box 2 Piece Set Includes: 1.0 oz Eau de Parfum Spray + 0.25 oz Eau de Parfum Roller Ball,
-author: Suvojit Manna,
-tags: Fracas de Robert Piguet for Women Little Pink Box 2 Piece Set Includes: 1.0 oz Eau de Parfum Spray + 0.25 oz Eau de Parfum Roller Ball,
-publishedAt: Fri Jan 10 2020 15:00:37 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:37 GMT+0530 (India Standard Time),
----
-
 # [Fracas de Robert Piguet for Women Little Pink Box 2 Piece Set Includes: 1.0 oz Eau de Parfum Spray + 0.25 oz Eau de Parfum Roller Ball](https://products.checkmycream.com/products/Fracas-de-Robert-Piguet-for-Women-Little-Pink-Box-2-Piece-Set-Includes:-1.0-oz-Eau-de-Parfum-Spray-+-0.25-oz-Eau-de-Parfum-Roller-Ball.html)
 
 ### Positive Reviews

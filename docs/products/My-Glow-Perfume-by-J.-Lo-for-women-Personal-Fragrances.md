@@ -1,12 +1,3 @@
----
-title: My Glow Perfume by J. Lo for women Personal Fragrances,
-description: My Glow Perfume by J. Lo for women Personal Fragrances,
-author: Suvojit Manna,
-tags: My Glow Perfume by J. Lo for women Personal Fragrances,
-publishedAt: Fri Jan 10 2020 14:59:46 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:46 GMT+0530 (India Standard Time),
----
-
 # [My Glow Perfume by J. Lo for women Personal Fragrances](https://products.checkmycream.com/products/My-Glow-Perfume-by-J.-Lo-for-women-Personal-Fragrances.html)
 
 ### Positive Reviews

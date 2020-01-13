@@ -1,12 +1,3 @@
----
-title: Infiniti Pro by Conair 3/4-inch Tourmaline Ceramic  Mini Flat Iron,
-description: Infiniti Pro by Conair 3/4-inch Tourmaline Ceramic  Mini Flat Iron,
-author: Suvojit Manna,
-tags: Infiniti Pro by Conair 3/4-inch Tourmaline Ceramic  Mini Flat Iron,
-publishedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
----
-
 # [Infiniti Pro by Conair 3/4-inch Tourmaline Ceramic  Mini Flat Iron](https://products.checkmycream.com/products/Infiniti-Pro-by-Conair-34-inch-Tourmaline-Ceramic-Mini-Flat-Iron.html)
 
 ### Positive Reviews

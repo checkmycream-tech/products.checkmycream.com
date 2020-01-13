@@ -1,12 +1,3 @@
----
-title: Abercrombie &amp; Fitch Fierce By Abercrombie &amp; Fitch Cologne Spray 3.4 Oz,
-description: Abercrombie &amp; Fitch Fierce By Abercrombie &amp; Fitch Cologne Spray 3.4 Oz,
-author: Suvojit Manna,
-tags: Abercrombie &amp; Fitch Fierce By Abercrombie &amp; Fitch Cologne Spray 3.4 Oz,
-publishedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
----
-
 # [Abercrombie &amp; Fitch Fierce By Abercrombie &amp; Fitch Cologne Spray 3.4 Oz](https://products.checkmycream.com/products/Abercrombie-and-Fitch-Fierce-By-Abercrombie-and-Fitch-Cologne-Spray-3.4-Oz.html)
 
 ### Positive Reviews

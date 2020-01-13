@@ -1,12 +1,3 @@
----
-title: Bath &amp; Body Works Aromatherapy Energy Orange Ginger Sugar Scrub 13 fl oz,
-description: Bath &amp; Body Works Aromatherapy Energy Orange Ginger Sugar Scrub 13 fl oz,
-author: Suvojit Manna,
-tags: Bath &amp; Body Works Aromatherapy Energy Orange Ginger Sugar Scrub 13 fl oz,
-publishedAt: Fri Jan 10 2020 15:00:11 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:11 GMT+0530 (India Standard Time),
----
-
 # [Bath &amp; Body Works Aromatherapy Energy Orange Ginger Sugar Scrub 13 fl oz](https://products.checkmycream.com/products/Bath-and-Body-Works-Aromatherapy-Energy-Orange-Ginger-Sugar-Scrub-13-fl-oz.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: ArRord Braided Women Lady Warm Rageared Baggy Winter Beanie Knit Crochet Ski Hat Cap Hats,
-description: ArRord Braided Women Lady Warm Rageared Baggy Winter Beanie Knit Crochet Ski Hat Cap Hats,
-author: Suvojit Manna,
-tags: ArRord Braided Women Lady Warm Rageared Baggy Winter Beanie Knit Crochet Ski Hat Cap Hats,
-publishedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
----
-
 # [ArRord Braided Women Lady Warm Rageared Baggy Winter Beanie Knit Crochet Ski Hat Cap Hats](https://products.checkmycream.com/products/ArRord-Braided-Women-Lady-Warm-Rageared-Baggy-Winter-Beanie-Knit-Crochet-Ski-Hat-Cap-Hats.html)
 
 ### Positive Reviews

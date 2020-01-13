@@ -1,12 +1,3 @@
----
-title: Hydrating Shampoo/FN188854/35 oz//,
-description: Hydrating Shampoo/FN188854/35 oz//,
-author: Suvojit Manna,
-tags: Hydrating Shampoo/FN188854/35 oz//,
-publishedAt: Fri Jan 10 2020 14:59:21 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:21 GMT+0530 (India Standard Time),
----
-
 # [Hydrating Shampoo/FN188854/35 oz//](https://products.checkmycream.com/products/Hydrating-ShampooFN18885435-oz.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Leegoal New 100Pcs Designed Pink And Black Leopard Pattern Fake False Acrylic Uv Gel Nail Art Tips,
-description: Leegoal New 100Pcs Designed Pink And Black Leopard Pattern Fake False Acrylic Uv Gel Nail Art Tips,
-author: Suvojit Manna,
-tags: Leegoal New 100Pcs Designed Pink And Black Leopard Pattern Fake False Acrylic Uv Gel Nail Art Tips,
-publishedAt: Fri Jan 10 2020 15:00:29 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:29 GMT+0530 (India Standard Time),
----
-
 # [Leegoal New 100Pcs Designed Pink And Black Leopard Pattern Fake False Acrylic Uv Gel Nail Art Tips](https://products.checkmycream.com/products/Leegoal-New-100Pcs-Designed-Pink-And-Black-Leopard-Pattern-Fake-False-Acrylic-Uv-Gel-Nail-Art-Tips.html)
 
 ### Positive Reviews

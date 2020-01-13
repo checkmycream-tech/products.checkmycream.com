@@ -1,12 +1,3 @@
----
-title: Alterna Bamboo Smooth Kendi Oil Pure Treatment Oil (5.7 oz.),
-description: Alterna Bamboo Smooth Kendi Oil Pure Treatment Oil (5.7 oz.),
-author: Suvojit Manna,
-tags: Alterna Bamboo Smooth Kendi Oil Pure Treatment Oil (5.7 oz.),
-publishedAt: Fri Jan 10 2020 15:00:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:08 GMT+0530 (India Standard Time),
----
-
 # [Alterna Bamboo Smooth Kendi Oil Pure Treatment Oil (5.7 oz.)](https://products.checkmycream.com/products/Alterna-Bamboo-Smooth-Kendi-Oil-Pure-Treatment-Oil-(5.7-oz.).html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: SODIAL(R) Cotton Soft Nail Polish Arcylic UV Gel Cleanser Remover Removal Wipes Pads,
-description: SODIAL(R) Cotton Soft Nail Polish Arcylic UV Gel Cleanser Remover Removal Wipes Pads,
-author: Suvojit Manna,
-tags: SODIAL(R) Cotton Soft Nail Polish Arcylic UV Gel Cleanser Remover Removal Wipes Pads,
-publishedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
----
-
 # [SODIAL(R) Cotton Soft Nail Polish Arcylic UV Gel Cleanser Remover Removal Wipes Pads](https://products.checkmycream.com/products/SODIAL(R)-Cotton-Soft-Nail-Polish-Arcylic-UV-Gel-Cleanser-Remover-Removal-Wipes-Pads.html)
 
 ### Positive Reviews

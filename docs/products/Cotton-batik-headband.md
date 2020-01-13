@@ -1,12 +1,3 @@
----
-title: Cotton batik headband,
-description: Cotton batik headband,
-author: Suvojit Manna,
-tags: Cotton batik headband,
-publishedAt: Fri Jan 10 2020 15:00:36 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:36 GMT+0530 (India Standard Time),
----
-
 # [Cotton batik headband](https://products.checkmycream.com/products/Cotton-batik-headband.html)
 
 ### Positive Reviews

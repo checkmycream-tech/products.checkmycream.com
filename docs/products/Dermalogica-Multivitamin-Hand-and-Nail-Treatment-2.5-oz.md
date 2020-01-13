@@ -1,12 +1,3 @@
----
-title: Dermalogica Multivitamin Hand and Nail Treatment 2.5 oz,
-description: Dermalogica Multivitamin Hand and Nail Treatment 2.5 oz,
-author: Suvojit Manna,
-tags: Dermalogica Multivitamin Hand and Nail Treatment 2.5 oz,
-publishedAt: Fri Jan 10 2020 14:59:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:55 GMT+0530 (India Standard Time),
----
-
 # [Dermalogica Multivitamin Hand and Nail Treatment 2.5 oz](https://products.checkmycream.com/products/Dermalogica-Multivitamin-Hand-and-Nail-Treatment-2.5-oz.html)
 
 ### Positive Reviews

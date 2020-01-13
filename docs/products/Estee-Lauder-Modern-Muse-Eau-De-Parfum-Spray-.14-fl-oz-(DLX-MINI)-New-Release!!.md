@@ -1,12 +1,3 @@
----
-title: Estee Lauder Modern Muse Eau De Parfum Spray .14 fl oz (DLX MINI) New Release!!,
-description: Estee Lauder Modern Muse Eau De Parfum Spray .14 fl oz (DLX MINI) New Release!!,
-author: Suvojit Manna,
-tags: Estee Lauder Modern Muse Eau De Parfum Spray .14 fl oz (DLX MINI) New Release!!,
-publishedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
----
-
 # [Estee Lauder Modern Muse Eau De Parfum Spray .14 fl oz (DLX MINI) New Release!!](https://products.checkmycream.com/products/Estee-Lauder-Modern-Muse-Eau-De-Parfum-Spray-.14-fl-oz-(DLX-MINI)-New-Release!!.html)
 
 ### Positive Reviews

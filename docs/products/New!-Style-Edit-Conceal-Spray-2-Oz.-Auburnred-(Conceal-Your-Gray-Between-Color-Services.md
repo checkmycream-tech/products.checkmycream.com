@@ -1,12 +1,3 @@
----
-title: New! Style Edit Conceal Spray 2 Oz. Auburn/red (Conceal Your Gray Between Color Services,
-description: New! Style Edit Conceal Spray 2 Oz. Auburn/red (Conceal Your Gray Between Color Services,
-author: Suvojit Manna,
-tags: New! Style Edit Conceal Spray 2 Oz. Auburn/red (Conceal Your Gray Between Color Services,
-publishedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
----
-
 # [New! Style Edit Conceal Spray 2 Oz. Auburn/red (Conceal Your Gray Between Color Services](https://products.checkmycream.com/products/New!-Style-Edit-Conceal-Spray-2-Oz.-Auburnred-(Conceal-Your-Gray-Between-Color-Services.html)
 
 ### Positive Reviews

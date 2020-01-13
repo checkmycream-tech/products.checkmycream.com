@@ -1,12 +1,3 @@
----
-title: Spongeables 20+ Lavender Nectar with Buffer,
-description: Spongeables 20+ Lavender Nectar with Buffer,
-author: Suvojit Manna,
-tags: Spongeables 20+ Lavender Nectar with Buffer,
-publishedAt: Fri Jan 10 2020 14:59:46 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:46 GMT+0530 (India Standard Time),
----
-
 # [Spongeables 20+ Lavender Nectar with Buffer](https://products.checkmycream.com/products/Spongeables-20+-Lavender-Nectar-with-Buffer.html)
 
 ### Positive Reviews

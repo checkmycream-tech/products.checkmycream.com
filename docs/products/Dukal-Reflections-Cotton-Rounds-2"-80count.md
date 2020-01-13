@@ -1,12 +1,3 @@
----
-title: Dukal Reflections Cotton Rounds 2&quot; - 80count,
-description: Dukal Reflections Cotton Rounds 2&quot; - 80count,
-author: Suvojit Manna,
-tags: Dukal Reflections Cotton Rounds 2&quot; - 80count,
-publishedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
----
-
 # [Dukal Reflections Cotton Rounds 2&quot; - 80count](https://products.checkmycream.com/products/Dukal-Reflections-Cotton-Rounds-2&quot;-80count.html)
 
 ### Positive Reviews

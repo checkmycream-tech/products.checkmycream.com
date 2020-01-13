@@ -1,12 +1,3 @@
----
-title: Lucky You by Liz Claiborne for Men Mini EDT,
-description: Lucky You by Liz Claiborne for Men Mini EDT,
-author: Suvojit Manna,
-tags: Lucky You by Liz Claiborne for Men Mini EDT,
-publishedAt: Fri Jan 10 2020 14:59:24 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:24 GMT+0530 (India Standard Time),
----
-
 # [Lucky You by Liz Claiborne for Men Mini EDT](https://products.checkmycream.com/products/Lucky-You-by-Liz-Claiborne-for-Men-Mini-EDT.html)
 
 ### Positive Reviews

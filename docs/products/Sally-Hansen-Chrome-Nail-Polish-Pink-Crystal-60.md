@@ -1,12 +1,3 @@
----
-title: Sally Hansen Chrome Nail Polish - Pink Crystal - 60,
-description: Sally Hansen Chrome Nail Polish - Pink Crystal - 60,
-author: Suvojit Manna,
-tags: Sally Hansen Chrome Nail Polish - Pink Crystal - 60,
-publishedAt: Fri Jan 10 2020 14:58:59 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:58:59 GMT+0530 (India Standard Time),
----
-
 # [Sally Hansen Chrome Nail Polish - Pink Crystal - 60](https://products.checkmycream.com/products/Sally-Hansen-Chrome-Nail-Polish-Pink-Crystal-60.html)
 
 ### Positive Reviews

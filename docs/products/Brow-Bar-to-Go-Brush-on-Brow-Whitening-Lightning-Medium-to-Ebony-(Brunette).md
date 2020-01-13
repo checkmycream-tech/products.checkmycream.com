@@ -1,12 +1,3 @@
----
-title: Brow Bar to Go, Brush on Brow - Whitening Lightning, Medium to Ebony (Brunette),
-description: Brow Bar to Go, Brush on Brow - Whitening Lightning, Medium to Ebony (Brunette),
-author: Suvojit Manna,
-tags: Brow Bar to Go, Brush on Brow - Whitening Lightning, Medium to Ebony (Brunette),
-publishedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
----
-
 # [Brow Bar to Go, Brush on Brow - Whitening Lightning, Medium to Ebony (Brunette)](https://products.checkmycream.com/products/Brow-Bar-to-Go-Brush-on-Brow-Whitening-Lightning-Medium-to-Ebony-(Brunette).html)
 
 ### Positive Reviews

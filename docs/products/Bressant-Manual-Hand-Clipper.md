@@ -1,12 +1,3 @@
----
-title: Bressant Manual Hand Clipper,
-description: Bressant Manual Hand Clipper,
-author: Suvojit Manna,
-tags: Bressant Manual Hand Clipper,
-publishedAt: Fri Jan 10 2020 14:59:11 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:11 GMT+0530 (India Standard Time),
----
-
 # [Bressant Manual Hand Clipper](https://products.checkmycream.com/products/Bressant-Manual-Hand-Clipper.html)
 
 ### Positive Reviews

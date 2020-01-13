@@ -1,12 +1,3 @@
----
-title: Sulfur 8 Deep Cleaning Shampoo for Dandruff, 7.5 Ounce,
-description: Sulfur 8 Deep Cleaning Shampoo for Dandruff, 7.5 Ounce,
-author: Suvojit Manna,
-tags: Sulfur 8 Deep Cleaning Shampoo for Dandruff, 7.5 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:58 GMT+0530 (India Standard Time),
----
-
 # [Sulfur 8 Deep Cleaning Shampoo for Dandruff, 7.5 Ounce](https://products.checkmycream.com/products/Sulfur-8-Deep-Cleaning-Shampoo-for-Dandruff-7.5-Ounce.html)
 
 ### Positive Reviews

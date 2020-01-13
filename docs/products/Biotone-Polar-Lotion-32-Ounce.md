@@ -1,12 +1,3 @@
----
-title: Biotone Polar Lotion, 32 Ounce,
-description: Biotone Polar Lotion, 32 Ounce,
-author: Suvojit Manna,
-tags: Biotone Polar Lotion, 32 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:09 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:09 GMT+0530 (India Standard Time),
----
-
 # [Biotone Polar Lotion, 32 Ounce](https://products.checkmycream.com/products/Biotone-Polar-Lotion-32-Ounce.html)
 
 ### Positive Reviews

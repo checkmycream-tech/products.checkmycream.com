@@ -1,12 +1,3 @@
----
-title: Carol&#x27;s Daughter Almond Cookie Shea Souffle, 8 Ounce,
-description: Carol&#x27;s Daughter Almond Cookie Shea Souffle, 8 Ounce,
-author: Suvojit Manna,
-tags: Carol&#x27;s Daughter Almond Cookie Shea Souffle, 8 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:14 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:14 GMT+0530 (India Standard Time),
----
-
 # [Carol&#x27;s Daughter Almond Cookie Shea Souffle, 8 Ounce](https://products.checkmycream.com/products/Carol&#x27;s-Daughter-Almond-Cookie-Shea-Souffle-8-Ounce.html)
 
 ### Positive Reviews

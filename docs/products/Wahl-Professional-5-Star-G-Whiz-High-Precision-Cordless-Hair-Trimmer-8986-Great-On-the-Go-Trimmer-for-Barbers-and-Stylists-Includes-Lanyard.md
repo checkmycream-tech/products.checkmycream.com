@@ -1,12 +1,3 @@
----
-title: Wahl Professional 5-Star G-Whiz High Precision Cordless Hair Trimmer #8986 – Great On-the-Go Trimmer for Barbers and Stylists – Includes Lanyard,
-description: Wahl Professional 5-Star G-Whiz High Precision Cordless Hair Trimmer #8986 – Great On-the-Go Trimmer for Barbers and Stylists – Includes Lanyard,
-author: Suvojit Manna,
-tags: Wahl Professional 5-Star G-Whiz High Precision Cordless Hair Trimmer #8986 – Great On-the-Go Trimmer for Barbers and Stylists – Includes Lanyard,
-publishedAt: Fri Jan 10 2020 15:00:14 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:14 GMT+0530 (India Standard Time),
----
-
 # [Wahl Professional 5-Star G-Whiz High Precision Cordless Hair Trimmer #8986 – Great On-the-Go Trimmer for Barbers and Stylists – Includes Lanyard](https://products.checkmycream.com/products/Wahl-Professional-5-Star-G-Whiz-High-Precision-Cordless-Hair-Trimmer-8986-Great-On-the-Go-Trimmer-for-Barbers-and-Stylists-Includes-Lanyard.html)
 
 ### Positive Reviews

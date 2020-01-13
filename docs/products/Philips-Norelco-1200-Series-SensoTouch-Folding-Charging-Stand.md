@@ -1,12 +1,3 @@
----
-title: Philips Norelco 1200 Series SensoTouch Folding Charging Stand,
-description: Philips Norelco 1200 Series SensoTouch Folding Charging Stand,
-author: Suvojit Manna,
-tags: Philips Norelco 1200 Series SensoTouch Folding Charging Stand,
-publishedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
----
-
 # [Philips Norelco 1200 Series SensoTouch Folding Charging Stand](https://products.checkmycream.com/products/Philips-Norelco-1200-Series-SensoTouch-Folding-Charging-Stand.html)
 
 ### Positive Reviews

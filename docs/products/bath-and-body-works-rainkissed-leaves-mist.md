@@ -1,12 +1,3 @@
----
-title: bath and body works rainkissed leaves mist,
-description: bath and body works rainkissed leaves mist,
-author: Suvojit Manna,
-tags: bath and body works rainkissed leaves mist,
-publishedAt: Fri Jan 10 2020 14:59:33 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:33 GMT+0530 (India Standard Time),
----
-
 # [bath and body works rainkissed leaves mist](https://products.checkmycream.com/products/bath-and-body-works-rainkissed-leaves-mist.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Kokkai Sumi Grey Wash System 3-pack Tattoo Ink Supply -Tattoo Supplies-,
-description: Kokkai Sumi Grey Wash System 3-pack Tattoo Ink Supply -Tattoo Supplies-,
-author: Suvojit Manna,
-tags: Kokkai Sumi Grey Wash System 3-pack Tattoo Ink Supply -Tattoo Supplies-,
-publishedAt: Fri Jan 10 2020 15:00:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:00 GMT+0530 (India Standard Time),
----
-
 # [Kokkai Sumi Grey Wash System 3-pack Tattoo Ink Supply -Tattoo Supplies-](https://products.checkmycream.com/products/Kokkai-Sumi-Grey-Wash-System-3-pack-Tattoo-Ink-Supply-Tattoo-Supplies-.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Neutrogena Norwegian Formula Fast Absorbing Hand Cream,
-description: Neutrogena Norwegian Formula Fast Absorbing Hand Cream,
-author: Suvojit Manna,
-tags: Neutrogena Norwegian Formula Fast Absorbing Hand Cream,
-publishedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
----
-
 # [Neutrogena Norwegian Formula Fast Absorbing Hand Cream](https://products.checkmycream.com/products/Neutrogena-Norwegian-Formula-Fast-Absorbing-Hand-Cream.html)
 
 ### Positive Reviews

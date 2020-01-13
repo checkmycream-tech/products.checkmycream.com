@@ -1,12 +1,3 @@
----
-title: Philips Sonicare Airfloss Rechargeable Electric Flosser,
-description: Philips Sonicare Airfloss Rechargeable Electric Flosser,
-author: Suvojit Manna,
-tags: Philips Sonicare Airfloss Rechargeable Electric Flosser,
-publishedAt: Fri Jan 10 2020 15:01:04 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:04 GMT+0530 (India Standard Time),
----
-
 # [Philips Sonicare Airfloss Rechargeable Electric Flosser](https://products.checkmycream.com/products/Philips-Sonicare-Airfloss-Rechargeable-Electric-Flosser.html)
 
 ### Positive Reviews

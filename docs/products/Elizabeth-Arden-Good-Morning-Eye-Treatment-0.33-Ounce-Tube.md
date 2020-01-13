@@ -1,12 +1,3 @@
----
-title: Elizabeth Arden Good Morning Eye Treatment, 0.33-Ounce Tube,
-description: Elizabeth Arden Good Morning Eye Treatment, 0.33-Ounce Tube,
-author: Suvojit Manna,
-tags: Elizabeth Arden Good Morning Eye Treatment, 0.33-Ounce Tube,
-publishedAt: Fri Jan 10 2020 14:59:13 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:13 GMT+0530 (India Standard Time),
----
-
 # [Elizabeth Arden Good Morning Eye Treatment, 0.33-Ounce Tube](https://products.checkmycream.com/products/Elizabeth-Arden-Good-Morning-Eye-Treatment-0.33-Ounce-Tube.html)
 
 ### Positive Reviews

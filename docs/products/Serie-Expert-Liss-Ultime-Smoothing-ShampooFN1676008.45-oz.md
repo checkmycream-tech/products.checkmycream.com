@@ -1,12 +1,3 @@
----
-title: Serie Expert Liss Ultime Smoothing Shampoo/FN167600/8.45 oz//,
-description: Serie Expert Liss Ultime Smoothing Shampoo/FN167600/8.45 oz//,
-author: Suvojit Manna,
-tags: Serie Expert Liss Ultime Smoothing Shampoo/FN167600/8.45 oz//,
-publishedAt: Fri Jan 10 2020 14:59:32 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:32 GMT+0530 (India Standard Time),
----
-
 # [Serie Expert Liss Ultime Smoothing Shampoo/FN167600/8.45 oz//](https://products.checkmycream.com/products/Serie-Expert-Liss-Ultime-Smoothing-ShampooFN1676008.45-oz.html)
 
 ### Positive Reviews

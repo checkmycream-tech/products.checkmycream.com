@@ -1,12 +1,3 @@
----
-title: The Pedi Store (™) Extra Coarse Blue Micro Mineral Replacement Rollers for Micro Pedi (12 Pack),
-description: The Pedi Store (™) Extra Coarse Blue Micro Mineral Replacement Rollers for Micro Pedi (12 Pack),
-author: Suvojit Manna,
-tags: The Pedi Store (™) Extra Coarse Blue Micro Mineral Replacement Rollers for Micro Pedi (12 Pack),
-publishedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
----
-
 # [The Pedi Store (™) Extra Coarse Blue Micro Mineral Replacement Rollers for Micro Pedi (12 Pack)](https://products.checkmycream.com/products/The-Pedi-Store-(tm)-Extra-Coarse-Blue-Micro-Mineral-Replacement-Rollers-for-Micro-Pedi-(12-Pack).html)
 
 ### Positive Reviews

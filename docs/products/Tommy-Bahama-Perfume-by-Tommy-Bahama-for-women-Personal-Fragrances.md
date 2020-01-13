@@ -1,12 +1,3 @@
----
-title: Tommy Bahama Perfume by Tommy Bahama for women Personal Fragrances,
-description: Tommy Bahama Perfume by Tommy Bahama for women Personal Fragrances,
-author: Suvojit Manna,
-tags: Tommy Bahama Perfume by Tommy Bahama for women Personal Fragrances,
-publishedAt: Fri Jan 10 2020 14:59:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:05 GMT+0530 (India Standard Time),
----
-
 # [Tommy Bahama Perfume by Tommy Bahama for women Personal Fragrances](https://products.checkmycream.com/products/Tommy-Bahama-Perfume-by-Tommy-Bahama-for-women-Personal-Fragrances.html)
 
 ### Positive Reviews

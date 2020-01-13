@@ -1,12 +1,3 @@
----
-title: Tinkle Women&#x27;s Shaver Rose 36 Razors,
-description: Tinkle Women&#x27;s Shaver Rose 36 Razors,
-author: Suvojit Manna,
-tags: Tinkle Women&#x27;s Shaver Rose 36 Razors,
-publishedAt: Fri Jan 10 2020 15:00:38 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:38 GMT+0530 (India Standard Time),
----
-
 # [Tinkle Women&#x27;s Shaver Rose 36 Razors](https://products.checkmycream.com/products/Tinkle-Women&#x27;s-Shaver-Rose-36-Razors.html)
 
 ### Positive Reviews

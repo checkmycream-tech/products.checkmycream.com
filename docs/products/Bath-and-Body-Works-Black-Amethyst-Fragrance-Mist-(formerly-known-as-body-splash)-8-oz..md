@@ -1,12 +1,3 @@
----
-title: Bath and Body Works Black Amethyst Fragrance Mist (formerly known as body splash), 8 oz.,
-description: Bath and Body Works Black Amethyst Fragrance Mist (formerly known as body splash), 8 oz.,
-author: Suvojit Manna,
-tags: Bath and Body Works Black Amethyst Fragrance Mist (formerly known as body splash), 8 oz.,
-publishedAt: Fri Jan 10 2020 14:59:33 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:33 GMT+0530 (India Standard Time),
----
-
 # [Bath and Body Works Black Amethyst Fragrance Mist (formerly known as body splash), 8 oz.](https://products.checkmycream.com/products/Bath-and-Body-Works-Black-Amethyst-Fragrance-Mist-(formerly-known-as-body-splash)-8-oz..html)
 
 ### Positive Reviews

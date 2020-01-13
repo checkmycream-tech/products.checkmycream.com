@@ -1,12 +1,3 @@
----
-title: Philips Sonicare HX8012/30 Airfloss Replacement Nozzles, 2-pack,
-description: Philips Sonicare HX8012/30 Airfloss Replacement Nozzles, 2-pack,
-author: Suvojit Manna,
-tags: Philips Sonicare HX8012/30 Airfloss Replacement Nozzles, 2-pack,
-publishedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
----
-
 # [Philips Sonicare HX8012/30 Airfloss Replacement Nozzles, 2-pack](https://products.checkmycream.com/products/Philips-Sonicare-HX801230-Airfloss-Replacement-Nozzles-2-pack.html)
 
 ### Positive Reviews

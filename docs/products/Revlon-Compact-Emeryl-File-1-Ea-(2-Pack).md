@@ -1,12 +1,3 @@
----
-title: Revlon Compact Emeryl File 1 Ea (2 Pack),
-description: Revlon Compact Emeryl File 1 Ea (2 Pack),
-author: Suvojit Manna,
-tags: Revlon Compact Emeryl File 1 Ea (2 Pack),
-publishedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
----
-
 # [Revlon Compact Emeryl File 1 Ea (2 Pack)](https://products.checkmycream.com/products/Revlon-Compact-Emeryl-File-1-Ea-(2-Pack).html)
 
 ### Positive Reviews

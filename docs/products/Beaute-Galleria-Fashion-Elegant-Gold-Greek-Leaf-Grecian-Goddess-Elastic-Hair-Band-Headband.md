@@ -1,12 +1,3 @@
----
-title: Beaute Galleria - Fashion Elegant Gold Greek Leaf Grecian Goddess Elastic Hair Band Headband,
-description: Beaute Galleria - Fashion Elegant Gold Greek Leaf Grecian Goddess Elastic Hair Band Headband,
-author: Suvojit Manna,
-tags: Beaute Galleria - Fashion Elegant Gold Greek Leaf Grecian Goddess Elastic Hair Band Headband,
-publishedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
----
-
 # [Beaute Galleria - Fashion Elegant Gold Greek Leaf Grecian Goddess Elastic Hair Band Headband](https://products.checkmycream.com/products/Beaute-Galleria-Fashion-Elegant-Gold-Greek-Leaf-Grecian-Goddess-Elastic-Hair-Band-Headband.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: SERIOUS SKIN CARE C-Serum Vitamin C Ester Skin Conditioner 1 Oz,
-description: SERIOUS SKIN CARE C-Serum Vitamin C Ester Skin Conditioner 1 Oz,
-author: Suvojit Manna,
-tags: SERIOUS SKIN CARE C-Serum Vitamin C Ester Skin Conditioner 1 Oz,
-publishedAt: Fri Jan 10 2020 14:59:24 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:24 GMT+0530 (India Standard Time),
----
-
 # [SERIOUS SKIN CARE C-Serum Vitamin C Ester Skin Conditioner 1 Oz](https://products.checkmycream.com/products/SERIOUS-SKIN-CARE-C-Serum-Vitamin-C-Ester-Skin-Conditioner-1-Oz.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Wavebuilder Deep Wave Forming Pomade, 3 Ounce,
-description: Wavebuilder Deep Wave Forming Pomade, 3 Ounce,
-author: Suvojit Manna,
-tags: Wavebuilder Deep Wave Forming Pomade, 3 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:29 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:29 GMT+0530 (India Standard Time),
----
-
 # [Wavebuilder Deep Wave Forming Pomade, 3 Ounce](https://products.checkmycream.com/products/Wavebuilder-Deep-Wave-Forming-Pomade-3-Ounce.html)
 
 ### Positive Reviews

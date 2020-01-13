@@ -1,12 +1,3 @@
----
-title: Senscience Inner Restore Intensif Deep Repairing Mask for Unisex,
-description: Senscience Inner Restore Intensif Deep Repairing Mask for Unisex,
-author: Suvojit Manna,
-tags: Senscience Inner Restore Intensif Deep Repairing Mask for Unisex,
-publishedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
----
-
 # [Senscience Inner Restore Intensif Deep Repairing Mask for Unisex](https://products.checkmycream.com/products/Senscience-Inner-Restore-Intensif-Deep-Repairing-Mask-for-Unisex.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Summer&#x27;s Eve Cleansing Wash Island Splash, 9 Fluid Ounce (Pack Of 3),
-description: Summer&#x27;s Eve Cleansing Wash Island Splash, 9 Fluid Ounce (Pack Of 3),
-author: Suvojit Manna,
-tags: Summer&#x27;s Eve Cleansing Wash Island Splash, 9 Fluid Ounce (Pack Of 3),
-publishedAt: Fri Jan 10 2020 14:59:47 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:47 GMT+0530 (India Standard Time),
----
-
 # [Summer&#x27;s Eve Cleansing Wash Island Splash, 9 Fluid Ounce (Pack Of 3)](https://products.checkmycream.com/products/Summer&#x27;s-Eve-Cleansing-Wash-Island-Splash-9-Fluid-Ounce-(Pack-Of-3).html)
 
 ### Positive Reviews

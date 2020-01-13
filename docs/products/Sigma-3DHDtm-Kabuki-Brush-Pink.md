@@ -1,12 +1,3 @@
----
-title: Sigma 3DHD™ - Kabuki Brush - Pink,
-description: Sigma 3DHD™ - Kabuki Brush - Pink,
-author: Suvojit Manna,
-tags: Sigma 3DHD™ - Kabuki Brush - Pink,
-publishedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
----
-
 # [Sigma 3DHD™ - Kabuki Brush - Pink](https://products.checkmycream.com/products/Sigma-3DHDtm-Kabuki-Brush-Pink.html)
 
 ### Positive Reviews

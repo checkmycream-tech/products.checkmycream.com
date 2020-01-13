@@ -1,12 +1,3 @@
----
-title: Parda Spray,
-description: Parda Spray,
-author: Suvojit Manna,
-tags: Parda Spray,
-publishedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
----
-
 # [Parda Spray](https://products.checkmycream.com/products/Parda-Spray.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: J.R. Watkins Liquid Hand Soap 11 Oz Hand &amp; Foot Care,
-description: J.R. Watkins Liquid Hand Soap 11 Oz Hand &amp; Foot Care,
-author: Suvojit Manna,
-tags: J.R. Watkins Liquid Hand Soap 11 Oz Hand &amp; Foot Care,
-publishedAt: Fri Jan 10 2020 14:59:46 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:46 GMT+0530 (India Standard Time),
----
-
 # [J.R. Watkins Liquid Hand Soap 11 Oz Hand &amp; Foot Care](https://products.checkmycream.com/products/J.R.-Watkins-Liquid-Hand-Soap-11-Oz-Hand-and-Foot-Care.html)
 
 ### Positive Reviews

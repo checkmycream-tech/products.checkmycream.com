@@ -1,12 +1,3 @@
----
-title: Clean + Easy Numb Anesthetic Solution, 4 Ounce,
-description: Clean + Easy Numb Anesthetic Solution, 4 Ounce,
-author: Suvojit Manna,
-tags: Clean + Easy Numb Anesthetic Solution, 4 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:20 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:20 GMT+0530 (India Standard Time),
----
-
 # [Clean + Easy Numb Anesthetic Solution, 4 Ounce](https://products.checkmycream.com/products/Clean-+-Easy-Numb-Anesthetic-Solution-4-Ounce.html)
 
 ### Positive Reviews

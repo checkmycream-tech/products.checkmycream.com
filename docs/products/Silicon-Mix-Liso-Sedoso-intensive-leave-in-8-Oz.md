@@ -1,12 +1,3 @@
----
-title: Silicon Mix Liso Sedoso intensive leave-in 8 Oz,
-description: Silicon Mix Liso Sedoso intensive leave-in 8 Oz,
-author: Suvojit Manna,
-tags: Silicon Mix Liso Sedoso intensive leave-in 8 Oz,
-publishedAt: Fri Jan 10 2020 15:00:14 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:14 GMT+0530 (India Standard Time),
----
-
 # [Silicon Mix Liso Sedoso intensive leave-in 8 Oz](https://products.checkmycream.com/products/Silicon-Mix-Liso-Sedoso-intensive-leave-in-8-Oz.html)
 
 ### Positive Reviews

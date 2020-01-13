@@ -1,12 +1,3 @@
----
-title: Lansley Large-Fast Bust Enlargement Cream - 50 ml,
-description: Lansley Large-Fast Bust Enlargement Cream - 50 ml,
-author: Suvojit Manna,
-tags: Lansley Large-Fast Bust Enlargement Cream - 50 ml,
-publishedAt: Fri Jan 10 2020 15:00:23 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:23 GMT+0530 (India Standard Time),
----
-
 # [Lansley Large-Fast Bust Enlargement Cream - 50 ml](https://products.checkmycream.com/products/Lansley-Large-Fast-Bust-Enlargement-Cream-50-ml.html)
 
 ### Positive Reviews

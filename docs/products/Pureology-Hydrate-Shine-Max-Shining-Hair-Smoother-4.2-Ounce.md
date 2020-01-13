@@ -1,12 +1,3 @@
----
-title: Pureology Hydrate Shine Max Shining Hair Smoother, 4.2 Ounce,
-description: Pureology Hydrate Shine Max Shining Hair Smoother, 4.2 Ounce,
-author: Suvojit Manna,
-tags: Pureology Hydrate Shine Max Shining Hair Smoother, 4.2 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:17 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:17 GMT+0530 (India Standard Time),
----
-
 # [Pureology Hydrate Shine Max Shining Hair Smoother, 4.2 Ounce](https://products.checkmycream.com/products/Pureology-Hydrate-Shine-Max-Shining-Hair-Smoother-4.2-Ounce.html)
 
 ### Positive Reviews

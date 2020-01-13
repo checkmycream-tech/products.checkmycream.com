@@ -1,12 +1,3 @@
----
-title: Love &amp; Luck Christian Audigier for Men,
-description: Love &amp; Luck Christian Audigier for Men,
-author: Suvojit Manna,
-tags: Love &amp; Luck Christian Audigier for Men,
-publishedAt: Fri Jan 10 2020 14:59:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:57 GMT+0530 (India Standard Time),
----
-
 # [Love &amp; Luck Christian Audigier for Men](https://products.checkmycream.com/products/Love-and-Luck-Christian-Audigier-for-Men.html)
 
 ### Positive Reviews

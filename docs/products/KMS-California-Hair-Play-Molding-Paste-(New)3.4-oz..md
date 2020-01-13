@@ -1,12 +1,3 @@
----
-title: KMS California Hair Play Molding Paste (New)3.4 oz.,
-description: KMS California Hair Play Molding Paste (New)3.4 oz.,
-author: Suvojit Manna,
-tags: KMS California Hair Play Molding Paste (New)3.4 oz.,
-publishedAt: Fri Jan 10 2020 14:59:29 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:29 GMT+0530 (India Standard Time),
----
-
 # [KMS California Hair Play Molding Paste (New)3.4 oz.](https://products.checkmycream.com/products/KMS-California-Hair-Play-Molding-Paste-(New)3.4-oz..html)
 
 ### Positive Reviews

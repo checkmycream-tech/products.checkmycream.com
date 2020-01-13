@@ -1,12 +1,3 @@
----
-title: PUEEN 3D Nail Art Sticker Collection Set F2 - 16 Packs in Different Designs (Over 400 Stickers) Black &amp; White Glitter Rhinestones 3D Lace Patterns Flowers Butterflies Hearts Nail Art Decal Decorations Stickers-BH000509,
-description: PUEEN 3D Nail Art Sticker Collection Set F2 - 16 Packs in Different Designs (Over 400 Stickers) Black &amp; White Glitter Rhinestones 3D Lace Patterns Flowers Butterflies Hearts Nail Art Decal Decorations Stickers-BH000509,
-author: Suvojit Manna,
-tags: PUEEN 3D Nail Art Sticker Collection Set F2 - 16 Packs in Different Designs (Over 400 Stickers) Black &amp; White Glitter Rhinestones 3D Lace Patterns Flowers Butterflies Hearts Nail Art Decal Decorations Stickers-BH000509,
-publishedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
----
-
 # [PUEEN 3D Nail Art Sticker Collection Set F2 - 16 Packs in Different Designs (Over 400 Stickers) Black &amp; White Glitter Rhinestones 3D Lace Patterns Flowers Butterflies Hearts Nail Art Decal Decorations Stickers-BH000509](https://products.checkmycream.com/products/PUEEN-3D-Nail-Art-Sticker-Collection-Set-F2-16-Packs-in-Different-Designs-(Over-400-Stickers)-Black-and-White-Glitter-Rhinestones-3D-Lace-Patterns-Flowers-Butterflies-Hearts-Nail-Art-Decal-Decorations-Stickers-BH000509.html)
 
 ### Positive Reviews

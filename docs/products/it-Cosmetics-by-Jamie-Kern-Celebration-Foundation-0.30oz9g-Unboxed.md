@@ -1,12 +1,3 @@
----
-title: it Cosmetics by Jamie Kern Celebration Foundation 0.30oz/9g - Unboxed,
-description: it Cosmetics by Jamie Kern Celebration Foundation 0.30oz/9g - Unboxed,
-author: Suvojit Manna,
-tags: it Cosmetics by Jamie Kern Celebration Foundation 0.30oz/9g - Unboxed,
-publishedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
----
-
 # [it Cosmetics by Jamie Kern Celebration Foundation 0.30oz/9g - Unboxed](https://products.checkmycream.com/products/it-Cosmetics-by-Jamie-Kern-Celebration-Foundation-0.30oz9g-Unboxed.html)
 
 ### Positive Reviews

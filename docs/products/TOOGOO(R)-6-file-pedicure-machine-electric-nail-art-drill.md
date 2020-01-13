@@ -1,12 +1,3 @@
----
-title: TOOGOO(R) 6 file pedicure machine electric nail art drill,
-description: TOOGOO(R) 6 file pedicure machine electric nail art drill,
-author: Suvojit Manna,
-tags: TOOGOO(R) 6 file pedicure machine electric nail art drill,
-publishedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
----
-
 # [TOOGOO(R) 6 file pedicure machine electric nail art drill](https://products.checkmycream.com/products/TOOGOO(R)-6-file-pedicure-machine-electric-nail-art-drill.html)
 
 ### Positive Reviews

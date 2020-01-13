@@ -1,12 +1,3 @@
----
-title: Refresh Celluvisc Lubricant Eye Gel Single-use Containers .4ML 30 Ea,
-description: Refresh Celluvisc Lubricant Eye Gel Single-use Containers .4ML 30 Ea,
-author: Suvojit Manna,
-tags: Refresh Celluvisc Lubricant Eye Gel Single-use Containers .4ML 30 Ea,
-publishedAt: Fri Jan 10 2020 14:59:33 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:33 GMT+0530 (India Standard Time),
----
-
 # [Refresh Celluvisc Lubricant Eye Gel Single-use Containers .4ML 30 Ea](https://products.checkmycream.com/products/Refresh-Celluvisc-Lubricant-Eye-Gel-Single-use-Containers-.4ML-30-Ea.html)
 
 ### Positive Reviews

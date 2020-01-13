@@ -1,12 +1,3 @@
----
-title: Natty Jojoba Oil Hair Food 4oz [SEALED],
-description: Natty Jojoba Oil Hair Food 4oz [SEALED],
-author: Suvojit Manna,
-tags: Natty Jojoba Oil Hair Food 4oz [SEALED],
-publishedAt: Fri Jan 10 2020 15:00:17 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:17 GMT+0530 (India Standard Time),
----
-
 # [Natty Jojoba Oil Hair Food 4oz [SEALED]](https://products.checkmycream.com/products/Natty-Jojoba-Oil-Hair-Food-4oz-SEALED.html)
 
 ### Positive Reviews

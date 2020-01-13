@@ -1,12 +1,3 @@
----
-title: Leegoal Nail Art Tips Forms Acrylic UV Gel Tips Extension Manicure Tool (Gold,Set of 500),
-description: Leegoal Nail Art Tips Forms Acrylic UV Gel Tips Extension Manicure Tool (Gold,Set of 500),
-author: Suvojit Manna,
-tags: Leegoal Nail Art Tips Forms Acrylic UV Gel Tips Extension Manicure Tool (Gold,Set of 500),
-publishedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
----
-
 # [Leegoal Nail Art Tips Forms Acrylic UV Gel Tips Extension Manicure Tool (Gold,Set of 500)](https://products.checkmycream.com/products/Leegoal-Nail-Art-Tips-Forms-Acrylic-UV-Gel-Tips-Extension-Manicure-Tool-(GoldSet-of-500).html)
 
 ### Positive Reviews

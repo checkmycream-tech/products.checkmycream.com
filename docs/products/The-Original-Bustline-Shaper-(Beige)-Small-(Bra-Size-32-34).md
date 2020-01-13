@@ -1,12 +1,3 @@
----
-title: The Original Bustline Shaper (Beige) - Small (Bra Size 32-34),
-description: The Original Bustline Shaper (Beige) - Small (Bra Size 32-34),
-author: Suvojit Manna,
-tags: The Original Bustline Shaper (Beige) - Small (Bra Size 32-34),
-publishedAt: Fri Jan 10 2020 15:00:16 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:16 GMT+0530 (India Standard Time),
----
-
 # [The Original Bustline Shaper (Beige) - Small (Bra Size 32-34)](https://products.checkmycream.com/products/The-Original-Bustline-Shaper-(Beige)-Small-(Bra-Size-32-34).html)
 
 ### Positive Reviews

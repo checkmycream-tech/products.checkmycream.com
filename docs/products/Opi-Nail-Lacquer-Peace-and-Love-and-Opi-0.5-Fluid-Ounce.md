@@ -1,12 +1,3 @@
----
-title: Opi Nail Lacquer, Peace and Love and Opi, 0.5 Fluid Ounce,
-description: Opi Nail Lacquer, Peace and Love and Opi, 0.5 Fluid Ounce,
-author: Suvojit Manna,
-tags: Opi Nail Lacquer, Peace and Love and Opi, 0.5 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 14:59:11 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:11 GMT+0530 (India Standard Time),
----
-
 # [Opi Nail Lacquer, Peace and Love and Opi, 0.5 Fluid Ounce](https://products.checkmycream.com/products/Opi-Nail-Lacquer-Peace-and-Love-and-Opi-0.5-Fluid-Ounce.html)
 
 ### Positive Reviews

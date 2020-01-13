@@ -1,12 +1,3 @@
----
-title: NEW! Style Edit Conceal Spray 2 oz. BLACK/DARK BROWN (Conceal your gray between color services)- 2 Pack,
-description: NEW! Style Edit Conceal Spray 2 oz. BLACK/DARK BROWN (Conceal your gray between color services)- 2 Pack,
-author: Suvojit Manna,
-tags: NEW! Style Edit Conceal Spray 2 oz. BLACK/DARK BROWN (Conceal your gray between color services)- 2 Pack,
-publishedAt: Fri Jan 10 2020 15:01:06 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:06 GMT+0530 (India Standard Time),
----
-
 # [NEW! Style Edit Conceal Spray 2 oz. BLACK/DARK BROWN (Conceal your gray between color services)- 2 Pack](https://products.checkmycream.com/products/NEW!-Style-Edit-Conceal-Spray-2-oz.-BLACKDARK-BROWN-(Conceal-your-gray-between-color-services)-2-Pack.html)
 
 ### Positive Reviews

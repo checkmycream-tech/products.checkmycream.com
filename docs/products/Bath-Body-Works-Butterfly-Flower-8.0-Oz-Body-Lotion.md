@@ -1,12 +1,3 @@
----
-title: Bath Body Works Butterfly Flower 8.0 Oz Body Lotion,
-description: Bath Body Works Butterfly Flower 8.0 Oz Body Lotion,
-author: Suvojit Manna,
-tags: Bath Body Works Butterfly Flower 8.0 Oz Body Lotion,
-publishedAt: Fri Jan 10 2020 14:59:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:58 GMT+0530 (India Standard Time),
----
-
 # [Bath Body Works Butterfly Flower 8.0 Oz Body Lotion](https://products.checkmycream.com/products/Bath-Body-Works-Butterfly-Flower-8.0-Oz-Body-Lotion.html)
 
 ### Positive Reviews

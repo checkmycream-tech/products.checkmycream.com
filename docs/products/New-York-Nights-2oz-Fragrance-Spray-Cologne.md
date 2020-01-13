@@ -1,12 +1,3 @@
----
-title: New York Nights 2oz Fragrance Spray Cologne,
-description: New York Nights 2oz Fragrance Spray Cologne,
-author: Suvojit Manna,
-tags: New York Nights 2oz Fragrance Spray Cologne,
-publishedAt: Fri Jan 10 2020 14:59:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:02 GMT+0530 (India Standard Time),
----
-
 # [New York Nights 2oz Fragrance Spray Cologne](https://products.checkmycream.com/products/New-York-Nights-2oz-Fragrance-Spray-Cologne.html)
 
 ### Positive Reviews

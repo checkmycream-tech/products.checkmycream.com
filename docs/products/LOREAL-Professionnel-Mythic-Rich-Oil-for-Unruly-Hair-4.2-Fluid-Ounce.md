@@ -1,12 +1,3 @@
----
-title: LOREAL Professionnel Mythic Rich Oil for Unruly Hair, 4.2 Fluid Ounce,
-description: LOREAL Professionnel Mythic Rich Oil for Unruly Hair, 4.2 Fluid Ounce,
-author: Suvojit Manna,
-tags: LOREAL Professionnel Mythic Rich Oil for Unruly Hair, 4.2 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
----
-
 # [LOREAL Professionnel Mythic Rich Oil for Unruly Hair, 4.2 Fluid Ounce](https://products.checkmycream.com/products/LOREAL-Professionnel-Mythic-Rich-Oil-for-Unruly-Hair-4.2-Fluid-Ounce.html)
 
 ### Positive Reviews

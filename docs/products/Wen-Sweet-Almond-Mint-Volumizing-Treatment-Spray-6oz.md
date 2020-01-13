@@ -1,12 +1,3 @@
----
-title: Wen Sweet Almond Mint Volumizing Treatment Spray 6oz,
-description: Wen Sweet Almond Mint Volumizing Treatment Spray 6oz,
-author: Suvojit Manna,
-tags: Wen Sweet Almond Mint Volumizing Treatment Spray 6oz,
-publishedAt: Fri Jan 10 2020 15:00:30 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:30 GMT+0530 (India Standard Time),
----
-
 # [Wen Sweet Almond Mint Volumizing Treatment Spray 6oz](https://products.checkmycream.com/products/Wen-Sweet-Almond-Mint-Volumizing-Treatment-Spray-6oz.html)
 
 ### Positive Reviews

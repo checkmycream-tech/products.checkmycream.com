@@ -1,12 +1,3 @@
----
-title: Gelish Berry Buttoned Up Gel Polish, 0.5 Fluid Ounce,
-description: Gelish Berry Buttoned Up Gel Polish, 0.5 Fluid Ounce,
-author: Suvojit Manna,
-tags: Gelish Berry Buttoned Up Gel Polish, 0.5 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
----
-
 # [Gelish Berry Buttoned Up Gel Polish, 0.5 Fluid Ounce](https://products.checkmycream.com/products/Gelish-Berry-Buttoned-Up-Gel-Polish-0.5-Fluid-Ounce.html)
 
 ### Positive Reviews

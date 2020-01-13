@@ -1,12 +1,3 @@
----
-title: Reach Access Flosser Refill Pack-28 ct (Pack of 6),
-description: Reach Access Flosser Refill Pack-28 ct (Pack of 6),
-author: Suvojit Manna,
-tags: Reach Access Flosser Refill Pack-28 ct (Pack of 6),
-publishedAt: Fri Jan 10 2020 15:00:04 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:04 GMT+0530 (India Standard Time),
----
-
 # [Reach Access Flosser Refill Pack-28 ct (Pack of 6)](https://products.checkmycream.com/products/Reach-Access-Flosser-Refill-Pack-28-ct-(Pack-of-6).html)
 
 ### Positive Reviews

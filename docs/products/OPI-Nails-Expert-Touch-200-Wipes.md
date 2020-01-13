@@ -1,12 +1,3 @@
----
-title: OPI Nails Expert Touch 200 Wipes,
-description: OPI Nails Expert Touch 200 Wipes,
-author: Suvojit Manna,
-tags: OPI Nails Expert Touch 200 Wipes,
-publishedAt: Fri Jan 10 2020 15:00:09 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:09 GMT+0530 (India Standard Time),
----
-
 # [OPI Nails Expert Touch 200 Wipes](https://products.checkmycream.com/products/OPI-Nails-Expert-Touch-200-Wipes.html)
 
 ### Positive Reviews

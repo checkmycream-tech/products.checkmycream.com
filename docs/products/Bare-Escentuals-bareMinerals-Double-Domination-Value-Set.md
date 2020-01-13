@@ -1,12 +1,3 @@
----
-title: Bare Escentuals bareMinerals Double Domination Value Set,
-description: Bare Escentuals bareMinerals Double Domination Value Set,
-author: Suvojit Manna,
-tags: Bare Escentuals bareMinerals Double Domination Value Set,
-publishedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
----
-
 # [Bare Escentuals bareMinerals Double Domination Value Set](https://products.checkmycream.com/products/Bare-Escentuals-bareMinerals-Double-Domination-Value-Set.html)
 
 ### Positive Reviews

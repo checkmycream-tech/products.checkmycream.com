@@ -1,12 +1,3 @@
----
-title: White Shoulders Body Lotion for Women by Evyan,
-description: White Shoulders Body Lotion for Women by Evyan,
-author: Suvojit Manna,
-tags: White Shoulders Body Lotion for Women by Evyan,
-publishedAt: Fri Jan 10 2020 14:59:16 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:16 GMT+0530 (India Standard Time),
----
-
 # [White Shoulders Body Lotion for Women by Evyan](https://products.checkmycream.com/products/White-Shoulders-Body-Lotion-for-Women-by-Evyan.html)
 
 ### Positive Reviews

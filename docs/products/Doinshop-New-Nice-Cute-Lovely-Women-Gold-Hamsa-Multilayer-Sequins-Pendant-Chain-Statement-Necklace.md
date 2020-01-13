@@ -1,12 +1,3 @@
----
-title: Doinshop New Nice Cute Lovely Women Gold Hamsa Multilayer Sequins Pendant Chain Statement Necklace,
-description: Doinshop New Nice Cute Lovely Women Gold Hamsa Multilayer Sequins Pendant Chain Statement Necklace,
-author: Suvojit Manna,
-tags: Doinshop New Nice Cute Lovely Women Gold Hamsa Multilayer Sequins Pendant Chain Statement Necklace,
-publishedAt: Fri Jan 10 2020 15:01:04 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:04 GMT+0530 (India Standard Time),
----
-
 # [Doinshop New Nice Cute Lovely Women Gold Hamsa Multilayer Sequins Pendant Chain Statement Necklace](https://products.checkmycream.com/products/Doinshop-New-Nice-Cute-Lovely-Women-Gold-Hamsa-Multilayer-Sequins-Pendant-Chain-Statement-Necklace.html)
 
 ### Positive Reviews

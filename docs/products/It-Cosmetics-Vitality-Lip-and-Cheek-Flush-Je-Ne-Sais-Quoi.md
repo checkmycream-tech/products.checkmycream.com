@@ -1,12 +1,3 @@
----
-title: It Cosmetics Vitality Lip and Cheek Flush  Je Ne Sais Quoi,
-description: It Cosmetics Vitality Lip and Cheek Flush  Je Ne Sais Quoi,
-author: Suvojit Manna,
-tags: It Cosmetics Vitality Lip and Cheek Flush  Je Ne Sais Quoi,
-publishedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
----
-
 # [It Cosmetics Vitality Lip and Cheek Flush  Je Ne Sais Quoi](https://products.checkmycream.com/products/It-Cosmetics-Vitality-Lip-and-Cheek-Flush-Je-Ne-Sais-Quoi.html)
 
 ### Positive Reviews

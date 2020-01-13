@@ -1,12 +1,3 @@
----
-title: Men Metal Silver Tone Simple Necktie Tie Bar Clasp Clip #01,
-description: Men Metal Silver Tone Simple Necktie Tie Bar Clasp Clip #01,
-author: Suvojit Manna,
-tags: Men Metal Silver Tone Simple Necktie Tie Bar Clasp Clip #01,
-publishedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
----
-
 # [Men Metal Silver Tone Simple Necktie Tie Bar Clasp Clip #01](https://products.checkmycream.com/products/Men-Metal-Silver-Tone-Simple-Necktie-Tie-Bar-Clasp-Clip-01.html)
 
 ### Positive Reviews

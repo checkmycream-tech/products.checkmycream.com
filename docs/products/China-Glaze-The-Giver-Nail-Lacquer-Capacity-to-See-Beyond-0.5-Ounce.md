@@ -1,12 +1,3 @@
----
-title: China Glaze The Giver Nail Lacquer, Capacity to See Beyond, 0.5 Ounce,
-description: China Glaze The Giver Nail Lacquer, Capacity to See Beyond, 0.5 Ounce,
-author: Suvojit Manna,
-tags: China Glaze The Giver Nail Lacquer, Capacity to See Beyond, 0.5 Ounce,
-publishedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
----
-
 # [China Glaze The Giver Nail Lacquer, Capacity to See Beyond, 0.5 Ounce](https://products.checkmycream.com/products/China-Glaze-The-Giver-Nail-Lacquer-Capacity-to-See-Beyond-0.5-Ounce.html)
 
 ### Positive Reviews

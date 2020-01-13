@@ -1,12 +1,3 @@
----
-title: Kent 100mm Folding Fine Pocket Comb with Clip,
-description: Kent 100mm Folding Fine Pocket Comb with Clip,
-author: Suvojit Manna,
-tags: Kent 100mm Folding Fine Pocket Comb with Clip,
-publishedAt: Fri Jan 10 2020 14:59:46 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:46 GMT+0530 (India Standard Time),
----
-
 # [Kent 100mm Folding Fine Pocket Comb with Clip](https://products.checkmycream.com/products/Kent-100mm-Folding-Fine-Pocket-Comb-with-Clip.html)
 
 ### Positive Reviews

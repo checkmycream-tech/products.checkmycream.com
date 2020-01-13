@@ -1,12 +1,3 @@
----
-title: WEN Fig Cleansing Conditioner (128oz),
-description: WEN Fig Cleansing Conditioner (128oz),
-author: Suvojit Manna,
-tags: WEN Fig Cleansing Conditioner (128oz),
-publishedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
----
-
 # [WEN Fig Cleansing Conditioner (128oz)](https://products.checkmycream.com/products/WEN-Fig-Cleansing-Conditioner-(128oz).html)
 
 ### Positive Reviews

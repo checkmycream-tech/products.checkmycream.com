@@ -1,12 +1,3 @@
----
-title: Grapeseed Carrier Oil A Base Oil for Aromatherapy, Essential Oil or Massage use.,
-description: Grapeseed Carrier Oil A Base Oil for Aromatherapy, Essential Oil or Massage use.,
-author: Suvojit Manna,
-tags: Grapeseed Carrier Oil A Base Oil for Aromatherapy, Essential Oil or Massage use.,
-publishedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
----
-
 # [Grapeseed Carrier Oil A Base Oil for Aromatherapy, Essential Oil or Massage use.](https://products.checkmycream.com/products/Grapeseed-Carrier-Oil-A-Base-Oil-for-Aromatherapy-Essential-Oil-or-Massage-use..html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Carolina Herrera Cologne By Carolina Herrera For Men,
-description: Carolina Herrera Cologne By Carolina Herrera For Men,
-author: Suvojit Manna,
-tags: Carolina Herrera Cologne By Carolina Herrera For Men,
-publishedAt: Fri Jan 10 2020 14:59:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:55 GMT+0530 (India Standard Time),
----
-
 # [Carolina Herrera Cologne By Carolina Herrera For Men](https://products.checkmycream.com/products/Carolina-Herrera-Cologne-By-Carolina-Herrera-For-Men.html)
 
 ### Positive Reviews

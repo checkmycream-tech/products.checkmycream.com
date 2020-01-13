@@ -1,12 +1,3 @@
----
-title: Clarins Multi-Active Day Early Wrinkle Correction Cream Facial Treatment Products,
-description: Clarins Multi-Active Day Early Wrinkle Correction Cream Facial Treatment Products,
-author: Suvojit Manna,
-tags: Clarins Multi-Active Day Early Wrinkle Correction Cream Facial Treatment Products,
-publishedAt: Fri Jan 10 2020 14:59:38 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:38 GMT+0530 (India Standard Time),
----
-
 # [Clarins Multi-Active Day Early Wrinkle Correction Cream Facial Treatment Products](https://products.checkmycream.com/products/Clarins-Multi-Active-Day-Early-Wrinkle-Correction-Cream-Facial-Treatment-Products.html)
 
 ### Positive Reviews

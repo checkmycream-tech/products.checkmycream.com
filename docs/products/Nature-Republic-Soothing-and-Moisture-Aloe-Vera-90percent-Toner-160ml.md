@@ -1,12 +1,3 @@
----
-title: Nature Republic Soothing &amp; Moisture Aloe Vera 90% Toner 160ml,
-description: Nature Republic Soothing &amp; Moisture Aloe Vera 90% Toner 160ml,
-author: Suvojit Manna,
-tags: Nature Republic Soothing &amp; Moisture Aloe Vera 90% Toner 160ml,
-publishedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
----
-
 # [Nature Republic Soothing &amp; Moisture Aloe Vera 90% Toner 160ml](https://products.checkmycream.com/products/Nature-Republic-Soothing-and-Moisture-Aloe-Vera-90percent-Toner-160ml.html)
 
 ### Positive Reviews

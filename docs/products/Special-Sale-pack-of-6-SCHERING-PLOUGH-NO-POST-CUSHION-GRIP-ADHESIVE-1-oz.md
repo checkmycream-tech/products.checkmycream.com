@@ -1,12 +1,3 @@
----
-title: Special Sale pack of 6 SCHERING-PLOUGH NO POST CUSHION GRIP ADHESIVE 1 oz,
-description: Special Sale pack of 6 SCHERING-PLOUGH NO POST CUSHION GRIP ADHESIVE 1 oz,
-author: Suvojit Manna,
-tags: Special Sale pack of 6 SCHERING-PLOUGH NO POST CUSHION GRIP ADHESIVE 1 oz,
-publishedAt: Fri Jan 10 2020 15:00:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:01 GMT+0530 (India Standard Time),
----
-
 # [Special Sale pack of 6 SCHERING-PLOUGH NO POST CUSHION GRIP ADHESIVE 1 oz](https://products.checkmycream.com/products/Special-Sale-pack-of-6-SCHERING-PLOUGH-NO-POST-CUSHION-GRIP-ADHESIVE-1-oz.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: EVERMARKET(TM) 10PCS Fashion Nail Art 3d Alloy Rhinestones Nail Art DIY Decorations 1284,
-description: EVERMARKET(TM) 10PCS Fashion Nail Art 3d Alloy Rhinestones Nail Art DIY Decorations 1284,
-author: Suvojit Manna,
-tags: EVERMARKET(TM) 10PCS Fashion Nail Art 3d Alloy Rhinestones Nail Art DIY Decorations 1284,
-publishedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
----
-
 # [EVERMARKET(TM) 10PCS Fashion Nail Art 3d Alloy Rhinestones Nail Art DIY Decorations 1284](https://products.checkmycream.com/products/EVERMARKET(TM)-10PCS-Fashion-Nail-Art-3d-Alloy-Rhinestones-Nail-Art-DIY-Decorations-1284.html)
 
 ### Positive Reviews

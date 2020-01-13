@@ -1,12 +1,3 @@
----
-title: Lancome Trésor Eau de Parfum Spray (100 ml/3.4 fl. oz.),
-description: Lancome Trésor Eau de Parfum Spray (100 ml/3.4 fl. oz.),
-author: Suvojit Manna,
-tags: Lancome Trésor Eau de Parfum Spray (100 ml/3.4 fl. oz.),
-publishedAt: Fri Jan 10 2020 15:01:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:05 GMT+0530 (India Standard Time),
----
-
 # [Lancome Trésor Eau de Parfum Spray (100 ml/3.4 fl. oz.)](https://products.checkmycream.com/products/Lancome-Tresor-Eau-de-Parfum-Spray-(100-ml3.4-fl.-oz.).html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Honeywin 21&quot; Remy/remi Wavy 5 Clips in Hair Extensions Beauty Hairsalon 120g for Women&#x27;s Fashion One Piece Hair Packing Dark Brown,
-description: Honeywin 21&quot; Remy/remi Wavy 5 Clips in Hair Extensions Beauty Hairsalon 120g for Women&#x27;s Fashion One Piece Hair Packing Dark Brown,
-author: Suvojit Manna,
-tags: Honeywin 21&quot; Remy/remi Wavy 5 Clips in Hair Extensions Beauty Hairsalon 120g for Women&#x27;s Fashion One Piece Hair Packing Dark Brown,
-publishedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
----
-
 # [Honeywin 21&quot; Remy/remi Wavy 5 Clips in Hair Extensions Beauty Hairsalon 120g for Women&#x27;s Fashion One Piece Hair Packing Dark Brown](https://products.checkmycream.com/products/Honeywin-21&quot;-Remyremi-Wavy-5-Clips-in-Hair-Extensions-Beauty-Hairsalon-120g-for-Women&#x27;s-Fashion-One-Piece-Hair-Packing-Dark-Brown.html)
 
 ### Positive Reviews

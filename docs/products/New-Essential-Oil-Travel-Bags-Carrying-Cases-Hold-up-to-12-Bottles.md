@@ -1,12 +1,3 @@
----
-title: New Essential Oil Travel Bags / Carrying Cases, Hold up to 12 Bottles,
-description: New Essential Oil Travel Bags / Carrying Cases, Hold up to 12 Bottles,
-author: Suvojit Manna,
-tags: New Essential Oil Travel Bags / Carrying Cases, Hold up to 12 Bottles,
-publishedAt: Fri Jan 10 2020 15:01:07 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:07 GMT+0530 (India Standard Time),
----
-
 # [New Essential Oil Travel Bags / Carrying Cases, Hold up to 12 Bottles](https://products.checkmycream.com/products/New-Essential-Oil-Travel-Bags-Carrying-Cases-Hold-up-to-12-Bottles.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Vitamin E Creme for dry and sensitive skin 16 oz, - Family 3 pack! (Genes - Swiss Collagen Complex),
-description: Vitamin E Creme for dry and sensitive skin 16 oz, - Family 3 pack! (Genes - Swiss Collagen Complex),
-author: Suvojit Manna,
-tags: Vitamin E Creme for dry and sensitive skin 16 oz, - Family 3 pack! (Genes - Swiss Collagen Complex),
-publishedAt: Fri Jan 10 2020 15:00:12 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:12 GMT+0530 (India Standard Time),
----
-
 # [Vitamin E Creme for dry and sensitive skin 16 oz, - Family 3 pack! (Genes - Swiss Collagen Complex)](https://products.checkmycream.com/products/Vitamin-E-Creme-for-dry-and-sensitive-skin-16-oz-Family-3-pack!-(Genes-Swiss-Collagen-Complex).html)
 
 ### Positive Reviews

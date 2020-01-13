@@ -1,12 +1,3 @@
----
-title: Nail Art Stamping Image Plate KD18,
-description: Nail Art Stamping Image Plate KD18,
-author: Suvojit Manna,
-tags: Nail Art Stamping Image Plate KD18,
-publishedAt: Fri Jan 10 2020 15:00:20 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:20 GMT+0530 (India Standard Time),
----
-
 # [Nail Art Stamping Image Plate KD18](https://products.checkmycream.com/products/Nail-Art-Stamping-Image-Plate-KD18.html)
 
 ### Positive Reviews

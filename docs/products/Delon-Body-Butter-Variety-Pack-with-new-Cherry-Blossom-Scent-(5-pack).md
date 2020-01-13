@@ -1,12 +1,3 @@
----
-title: Delon Body Butter Variety Pack with new Cherry Blossom Scent (5-pack),
-description: Delon Body Butter Variety Pack with new Cherry Blossom Scent (5-pack),
-author: Suvojit Manna,
-tags: Delon Body Butter Variety Pack with new Cherry Blossom Scent (5-pack),
-publishedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
----
-
 # [Delon Body Butter Variety Pack with new Cherry Blossom Scent (5-pack)](https://products.checkmycream.com/products/Delon-Body-Butter-Variety-Pack-with-new-Cherry-Blossom-Scent-(5-pack).html)
 
 ### Positive Reviews

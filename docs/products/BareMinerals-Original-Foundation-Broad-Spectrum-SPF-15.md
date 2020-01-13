@@ -1,12 +1,3 @@
----
-title: BareMinerals Original Foundation Broad Spectrum SPF 15,
-description: BareMinerals Original Foundation Broad Spectrum SPF 15,
-author: Suvojit Manna,
-tags: BareMinerals Original Foundation Broad Spectrum SPF 15,
-publishedAt: Fri Jan 10 2020 15:00:20 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:20 GMT+0530 (India Standard Time),
----
-
 # [BareMinerals Original Foundation Broad Spectrum SPF 15](https://products.checkmycream.com/products/BareMinerals-Original-Foundation-Broad-Spectrum-SPF-15.html)
 
 ### Positive Reviews

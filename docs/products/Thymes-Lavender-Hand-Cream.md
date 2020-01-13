@@ -1,12 +1,3 @@
----
-title: Thymes Lavender Hand Cream,
-description: Thymes Lavender Hand Cream,
-author: Suvojit Manna,
-tags: Thymes Lavender Hand Cream,
-publishedAt: Fri Jan 10 2020 14:59:43 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:43 GMT+0530 (India Standard Time),
----
-
 # [Thymes Lavender Hand Cream](https://products.checkmycream.com/products/Thymes-Lavender-Hand-Cream.html)
 
 ### Positive Reviews

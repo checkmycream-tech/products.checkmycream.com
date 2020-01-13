@@ -1,12 +1,3 @@
----
-title: ARM &amp; Hammer Mentadent Advanced Whitening,
-description: ARM &amp; Hammer Mentadent Advanced Whitening,
-author: Suvojit Manna,
-tags: ARM &amp; Hammer Mentadent Advanced Whitening,
-publishedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
----
-
 # [ARM &amp; Hammer Mentadent Advanced Whitening](https://products.checkmycream.com/products/ARM-and-Hammer-Mentadent-Advanced-Whitening.html)
 
 ### Positive Reviews

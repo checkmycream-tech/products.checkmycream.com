@@ -1,12 +1,3 @@
----
-title: Touch Of Silver Daily Shampoo 200Ml,
-description: Touch Of Silver Daily Shampoo 200Ml,
-author: Suvojit Manna,
-tags: Touch Of Silver Daily Shampoo 200Ml,
-publishedAt: Fri Jan 10 2020 14:59:46 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:46 GMT+0530 (India Standard Time),
----
-
 # [Touch Of Silver Daily Shampoo 200Ml](https://products.checkmycream.com/products/Touch-Of-Silver-Daily-Shampoo-200Ml.html)
 
 ### Positive Reviews

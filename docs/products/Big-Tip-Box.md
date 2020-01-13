@@ -1,12 +1,3 @@
----
-title: Big Tip Box,
-description: Big Tip Box,
-author: Suvojit Manna,
-tags: Big Tip Box,
-publishedAt: Fri Jan 10 2020 14:59:43 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:43 GMT+0530 (India Standard Time),
----
-
 # [Big Tip Box](https://products.checkmycream.com/products/Big-Tip-Box.html)
 
 ### Positive Reviews

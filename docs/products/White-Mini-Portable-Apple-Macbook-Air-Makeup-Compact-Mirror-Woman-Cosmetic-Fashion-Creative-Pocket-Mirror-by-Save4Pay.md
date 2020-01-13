@@ -1,12 +1,3 @@
----
-title: White Mini Portable Apple Macbook Air Makeup Compact Mirror Woman Cosmetic Fashion Creative Pocket Mirror by Save4Pay,
-description: White Mini Portable Apple Macbook Air Makeup Compact Mirror Woman Cosmetic Fashion Creative Pocket Mirror by Save4Pay,
-author: Suvojit Manna,
-tags: White Mini Portable Apple Macbook Air Makeup Compact Mirror Woman Cosmetic Fashion Creative Pocket Mirror by Save4Pay,
-publishedAt: Fri Jan 10 2020 15:00:37 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:37 GMT+0530 (India Standard Time),
----
-
 # [White Mini Portable Apple Macbook Air Makeup Compact Mirror Woman Cosmetic Fashion Creative Pocket Mirror by Save4Pay](https://products.checkmycream.com/products/White-Mini-Portable-Apple-Macbook-Air-Makeup-Compact-Mirror-Woman-Cosmetic-Fashion-Creative-Pocket-Mirror-by-Save4Pay.html)
 
 ### Positive Reviews

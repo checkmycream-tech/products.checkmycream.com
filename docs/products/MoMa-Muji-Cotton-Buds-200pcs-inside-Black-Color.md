@@ -1,12 +1,3 @@
----
-title: MoMa Muji Cotton Buds 200pcs inside Black Color,
-description: MoMa Muji Cotton Buds 200pcs inside Black Color,
-author: Suvojit Manna,
-tags: MoMa Muji Cotton Buds 200pcs inside Black Color,
-publishedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
----
-
 # [MoMa Muji Cotton Buds 200pcs inside Black Color](https://products.checkmycream.com/products/MoMa-Muji-Cotton-Buds-200pcs-inside-Black-Color.html)
 
 ### Positive Reviews

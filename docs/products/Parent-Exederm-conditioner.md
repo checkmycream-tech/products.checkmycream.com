@@ -1,12 +1,3 @@
----
-title: Parent Exederm conditioner,
-description: Parent Exederm conditioner,
-author: Suvojit Manna,
-tags: Parent Exederm conditioner,
-publishedAt: Fri Jan 10 2020 14:59:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:57 GMT+0530 (India Standard Time),
----
-
 # [Parent Exederm conditioner](https://products.checkmycream.com/products/Parent-Exederm-conditioner.html)
 
 ### Positive Reviews

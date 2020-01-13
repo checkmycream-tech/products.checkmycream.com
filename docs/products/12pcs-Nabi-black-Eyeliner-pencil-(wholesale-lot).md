@@ -1,12 +1,3 @@
----
-title: 12pcs Nabi black Eyeliner pencil (wholesale lot),
-description: 12pcs Nabi black Eyeliner pencil (wholesale lot),
-author: Suvojit Manna,
-tags: 12pcs Nabi black Eyeliner pencil (wholesale lot),
-publishedAt: Fri Jan 10 2020 15:00:29 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:29 GMT+0530 (India Standard Time),
----
-
 # [12pcs Nabi black Eyeliner pencil (wholesale lot)](https://products.checkmycream.com/products/12pcs-Nabi-black-Eyeliner-pencil-(wholesale-lot).html)
 
 ### Positive Reviews

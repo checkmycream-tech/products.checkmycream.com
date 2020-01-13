@@ -1,12 +1,3 @@
----
-title: Tussy Cream Deodorant - Original Fresh Spice: 1.7 OZ,
-description: Tussy Cream Deodorant - Original Fresh Spice: 1.7 OZ,
-author: Suvojit Manna,
-tags: Tussy Cream Deodorant - Original Fresh Spice: 1.7 OZ,
-publishedAt: Fri Jan 10 2020 14:59:13 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:13 GMT+0530 (India Standard Time),
----
-
 # [Tussy Cream Deodorant - Original Fresh Spice: 1.7 OZ](https://products.checkmycream.com/products/Tussy-Cream-Deodorant-Original-Fresh-Spice:-1.7-OZ.html)
 
 ### Positive Reviews

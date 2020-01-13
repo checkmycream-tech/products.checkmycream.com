@@ -1,12 +1,3 @@
----
-title: OPI Gwen Stefani Nail-Polish Collection, Hey Baby, 0.5 Fluid Ounce,
-description: OPI Gwen Stefani Nail-Polish Collection, Hey Baby, 0.5 Fluid Ounce,
-author: Suvojit Manna,
-tags: OPI Gwen Stefani Nail-Polish Collection, Hey Baby, 0.5 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
----
-
 # [OPI Gwen Stefani Nail-Polish Collection, Hey Baby, 0.5 Fluid Ounce](https://products.checkmycream.com/products/OPI-Gwen-Stefani-Nail-Polish-Collection-Hey-Baby-0.5-Fluid-Ounce.html)
 
 ### Positive Reviews

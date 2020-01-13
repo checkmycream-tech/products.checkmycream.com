@@ -1,12 +1,3 @@
----
-title: Estee Lauder Lip Care 0.13 Oz New Pure Color Lipstick - # 17 Rose Tea (Creme) For Women,
-description: Estee Lauder Lip Care 0.13 Oz New Pure Color Lipstick - # 17 Rose Tea (Creme) For Women,
-author: Suvojit Manna,
-tags: Estee Lauder Lip Care 0.13 Oz New Pure Color Lipstick - # 17 Rose Tea (Creme) For Women,
-publishedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
----
-
 # [Estee Lauder Lip Care 0.13 Oz New Pure Color Lipstick - # 17 Rose Tea (Creme) For Women](https://products.checkmycream.com/products/Estee-Lauder-Lip-Care-0.13-Oz-New-Pure-Color-Lipstick-17-Rose-Tea-(Creme)-For-Women.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Tweezerman Stainless Brow Shaping Scissor and Brush,
-description: Tweezerman Stainless Brow Shaping Scissor and Brush,
-author: Suvojit Manna,
-tags: Tweezerman Stainless Brow Shaping Scissor and Brush,
-publishedAt: Fri Jan 10 2020 14:59:23 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:23 GMT+0530 (India Standard Time),
----
-
 # [Tweezerman Stainless Brow Shaping Scissor and Brush](https://products.checkmycream.com/products/Tweezerman-Stainless-Brow-Shaping-Scissor-and-Brush.html)
 
 ### Positive Reviews

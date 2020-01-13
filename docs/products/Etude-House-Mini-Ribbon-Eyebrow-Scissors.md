@@ -1,12 +1,3 @@
----
-title: Etude House Mini Ribbon Eyebrow Scissors,
-description: Etude House Mini Ribbon Eyebrow Scissors,
-author: Suvojit Manna,
-tags: Etude House Mini Ribbon Eyebrow Scissors,
-publishedAt: Fri Jan 10 2020 15:00:22 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:22 GMT+0530 (India Standard Time),
----
-
 # [Etude House Mini Ribbon Eyebrow Scissors](https://products.checkmycream.com/products/Etude-House-Mini-Ribbon-Eyebrow-Scissors.html)
 
 ### Positive Reviews

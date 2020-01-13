@@ -1,12 +1,3 @@
----
-title: Eminence Calm Skin Arnica Booster-Serum, 1 Ounce,
-description: Eminence Calm Skin Arnica Booster-Serum, 1 Ounce,
-author: Suvojit Manna,
-tags: Eminence Calm Skin Arnica Booster-Serum, 1 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
----
-
 # [Eminence Calm Skin Arnica Booster-Serum, 1 Ounce](https://products.checkmycream.com/products/Eminence-Calm-Skin-Arnica-Booster-Serum-1-Ounce.html)
 
 ### Positive Reviews

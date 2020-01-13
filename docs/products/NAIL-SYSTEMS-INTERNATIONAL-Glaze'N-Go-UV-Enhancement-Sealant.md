@@ -1,12 +1,3 @@
----
-title: NAIL SYSTEMS INTERNATIONAL Glaze&#x27;N Go UV Enhancement Sealant,
-description: NAIL SYSTEMS INTERNATIONAL Glaze&#x27;N Go UV Enhancement Sealant,
-author: Suvojit Manna,
-tags: NAIL SYSTEMS INTERNATIONAL Glaze&#x27;N Go UV Enhancement Sealant,
-publishedAt: Fri Jan 10 2020 14:59:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:57 GMT+0530 (India Standard Time),
----
-
 # [NAIL SYSTEMS INTERNATIONAL Glaze&#x27;N Go UV Enhancement Sealant](https://products.checkmycream.com/products/NAIL-SYSTEMS-INTERNATIONAL-Glaze&#x27;N-Go-UV-Enhancement-Sealant.html)
 
 ### Positive Reviews

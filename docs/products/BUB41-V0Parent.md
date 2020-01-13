@@ -1,12 +1,3 @@
----
-title: BUB41-V0Parent,
-description: BUB41-V0Parent,
-author: Suvojit Manna,
-tags: BUB41-V0Parent,
-publishedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
----
-
 # [BUB41-V0Parent](https://products.checkmycream.com/products/BUB41-V0Parent.html)
 
 ### Positive Reviews

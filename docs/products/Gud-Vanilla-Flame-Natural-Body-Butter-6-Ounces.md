@@ -1,12 +1,3 @@
----
-title: Gud  Vanilla Flame  Natural Body Butter, 6 Ounces,
-description: Gud  Vanilla Flame  Natural Body Butter, 6 Ounces,
-author: Suvojit Manna,
-tags: Gud  Vanilla Flame  Natural Body Butter, 6 Ounces,
-publishedAt: Fri Jan 10 2020 15:00:16 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:16 GMT+0530 (India Standard Time),
----
-
 # [Gud  Vanilla Flame  Natural Body Butter, 6 Ounces](https://products.checkmycream.com/products/Gud-Vanilla-Flame-Natural-Body-Butter-6-Ounces.html)
 
 ### Positive Reviews

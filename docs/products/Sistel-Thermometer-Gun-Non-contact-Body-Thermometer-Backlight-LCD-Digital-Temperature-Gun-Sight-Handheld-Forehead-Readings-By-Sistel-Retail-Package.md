@@ -1,12 +1,3 @@
----
-title: Sistel Thermometer Gun Non-contact Body Thermometer Backlight LCD Digital Temperature Gun Sight Handheld Forehead Readings -By Sistel Retail Package,
-description: Sistel Thermometer Gun Non-contact Body Thermometer Backlight LCD Digital Temperature Gun Sight Handheld Forehead Readings -By Sistel Retail Package,
-author: Suvojit Manna,
-tags: Sistel Thermometer Gun Non-contact Body Thermometer Backlight LCD Digital Temperature Gun Sight Handheld Forehead Readings -By Sistel Retail Package,
-publishedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
----
-
 # [Sistel Thermometer Gun Non-contact Body Thermometer Backlight LCD Digital Temperature Gun Sight Handheld Forehead Readings -By Sistel Retail Package](https://products.checkmycream.com/products/Sistel-Thermometer-Gun-Non-contact-Body-Thermometer-Backlight-LCD-Digital-Temperature-Gun-Sight-Handheld-Forehead-Readings-By-Sistel-Retail-Package.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Garnier Fructis Style Curl Calm Down Anti-Frizz Cream, Strong Hold, 6 Fluid Ounce,
-description: Garnier Fructis Style Curl Calm Down Anti-Frizz Cream, Strong Hold, 6 Fluid Ounce,
-author: Suvojit Manna,
-tags: Garnier Fructis Style Curl Calm Down Anti-Frizz Cream, Strong Hold, 6 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
----
-
 # [Garnier Fructis Style Curl Calm Down Anti-Frizz Cream, Strong Hold, 6 Fluid Ounce](https://products.checkmycream.com/products/Garnier-Fructis-Style-Curl-Calm-Down-Anti-Frizz-Cream-Strong-Hold-6-Fluid-Ounce.html)
 
 ### Positive Reviews

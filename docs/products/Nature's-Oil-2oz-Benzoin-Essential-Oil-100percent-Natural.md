@@ -1,12 +1,3 @@
----
-title: Nature&#x27;s Oil 2oz Benzoin Essential Oil 100% Natural,
-description: Nature&#x27;s Oil 2oz Benzoin Essential Oil 100% Natural,
-author: Suvojit Manna,
-tags: Nature&#x27;s Oil 2oz Benzoin Essential Oil 100% Natural,
-publishedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
----
-
 # [Nature&#x27;s Oil 2oz Benzoin Essential Oil 100% Natural](https://products.checkmycream.com/products/Nature&#x27;s-Oil-2oz-Benzoin-Essential-Oil-100percent-Natural.html)
 
 ### Positive Reviews

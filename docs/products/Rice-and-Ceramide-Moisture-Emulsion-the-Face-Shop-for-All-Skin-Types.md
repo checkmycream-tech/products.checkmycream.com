@@ -1,12 +1,3 @@
----
-title: Rice &amp; Ceramide Moisture Emulsion-the Face Shop for All Skin Types,
-description: Rice &amp; Ceramide Moisture Emulsion-the Face Shop for All Skin Types,
-author: Suvojit Manna,
-tags: Rice &amp; Ceramide Moisture Emulsion-the Face Shop for All Skin Types,
-publishedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
----
-
 # [Rice &amp; Ceramide Moisture Emulsion-the Face Shop for All Skin Types](https://products.checkmycream.com/products/Rice-and-Ceramide-Moisture-Emulsion-the-Face-Shop-for-All-Skin-Types.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: 12 Bars of Dudu-Osun Nigerian Black Soap 150g per Bar,
-description: 12 Bars of Dudu-Osun Nigerian Black Soap 150g per Bar,
-author: Suvojit Manna,
-tags: 12 Bars of Dudu-Osun Nigerian Black Soap 150g per Bar,
-publishedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
----
-
 # [12 Bars of Dudu-Osun Nigerian Black Soap 150g per Bar](https://products.checkmycream.com/products/12-Bars-of-Dudu-Osun-Nigerian-Black-Soap-150g-per-Bar.html)
 
 ### Positive Reviews

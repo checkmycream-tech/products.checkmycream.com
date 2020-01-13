@@ -1,12 +1,3 @@
----
-title: Lumene Time Freeze Eye Perfecting Treatment, .2 fl oz,
-description: Lumene Time Freeze Eye Perfecting Treatment, .2 fl oz,
-author: Suvojit Manna,
-tags: Lumene Time Freeze Eye Perfecting Treatment, .2 fl oz,
-publishedAt: Fri Jan 10 2020 15:00:04 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:04 GMT+0530 (India Standard Time),
----
-
 # [Lumene Time Freeze Eye Perfecting Treatment, .2 fl oz](https://products.checkmycream.com/products/Lumene-Time-Freeze-Eye-Perfecting-Treatment-.2-fl-oz.html)
 
 ### Positive Reviews

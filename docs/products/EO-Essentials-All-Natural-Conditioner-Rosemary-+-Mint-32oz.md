@@ -1,12 +1,3 @@
----
-title: EO Essentials All Natural Conditioner Rosemary + Mint 32oz,
-description: EO Essentials All Natural Conditioner Rosemary + Mint 32oz,
-author: Suvojit Manna,
-tags: EO Essentials All Natural Conditioner Rosemary + Mint 32oz,
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [EO Essentials All Natural Conditioner Rosemary + Mint 32oz](https://products.checkmycream.com/products/EO-Essentials-All-Natural-Conditioner-Rosemary-+-Mint-32oz.html)
 
 ### Positive Reviews

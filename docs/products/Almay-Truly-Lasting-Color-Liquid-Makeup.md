@@ -1,12 +1,3 @@
----
-title: Almay Truly Lasting Color Liquid Makeup,
-description: Almay Truly Lasting Color Liquid Makeup,
-author: Suvojit Manna,
-tags: Almay Truly Lasting Color Liquid Makeup,
-publishedAt: Fri Jan 10 2020 14:59:45 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:45 GMT+0530 (India Standard Time),
----
-
 # [Almay Truly Lasting Color Liquid Makeup](https://products.checkmycream.com/products/Almay-Truly-Lasting-Color-Liquid-Makeup.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Sally Hansen Lustre Shine Nail Color - Firefly - 0.33 oz,
-description: Sally Hansen Lustre Shine Nail Color - Firefly - 0.33 oz,
-author: Suvojit Manna,
-tags: Sally Hansen Lustre Shine Nail Color - Firefly - 0.33 oz,
-publishedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
----
-
 # [Sally Hansen Lustre Shine Nail Color - Firefly - 0.33 oz](https://products.checkmycream.com/products/Sally-Hansen-Lustre-Shine-Nail-Color-Firefly-0.33-oz.html)
 
 ### Positive Reviews

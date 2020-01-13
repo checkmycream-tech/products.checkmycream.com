@@ -1,12 +1,3 @@
----
-title: Yonka Serum age defense 15 ml-Net 0.51 fl.oz.,
-description: Yonka Serum age defense 15 ml-Net 0.51 fl.oz.,
-author: Suvojit Manna,
-tags: Yonka Serum age defense 15 ml-Net 0.51 fl.oz.,
-publishedAt: Fri Jan 10 2020 14:59:24 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:24 GMT+0530 (India Standard Time),
----
-
 # [Yonka Serum age defense 15 ml-Net 0.51 fl.oz.](https://products.checkmycream.com/products/Yonka-Serum-age-defense-15-ml-Net-0.51-fl.oz..html)
 
 ### Positive Reviews

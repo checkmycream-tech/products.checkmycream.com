@@ -1,12 +1,3 @@
----
-title: ZOYA Nail Polish .5 oz Happi #610,
-description: ZOYA Nail Polish .5 oz Happi #610,
-author: Suvojit Manna,
-tags: ZOYA Nail Polish .5 oz Happi #610,
-publishedAt: Fri Jan 10 2020 14:59:51 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:51 GMT+0530 (India Standard Time),
----
-
 # [ZOYA Nail Polish .5 oz Happi #610](https://products.checkmycream.com/products/ZOYA-Nail-Polish-.5-oz-Happi-610.html)
 
 ### Positive Reviews

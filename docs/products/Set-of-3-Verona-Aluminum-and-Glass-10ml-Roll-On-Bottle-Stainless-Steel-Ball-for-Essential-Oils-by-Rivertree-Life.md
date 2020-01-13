@@ -1,12 +1,3 @@
----
-title: Set of 3 Verona Aluminum &amp; Glass 10ml Roll On Bottle; Stainless Steel Ball for Essential Oils by Rivertree Life,
-description: Set of 3 Verona Aluminum &amp; Glass 10ml Roll On Bottle; Stainless Steel Ball for Essential Oils by Rivertree Life,
-author: Suvojit Manna,
-tags: Set of 3 Verona Aluminum &amp; Glass 10ml Roll On Bottle; Stainless Steel Ball for Essential Oils by Rivertree Life,
-publishedAt: Fri Jan 10 2020 15:01:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:05 GMT+0530 (India Standard Time),
----
-
 # [Set of 3 Verona Aluminum &amp; Glass 10ml Roll On Bottle; Stainless Steel Ball for Essential Oils by Rivertree Life](https://products.checkmycream.com/products/Set-of-3-Verona-Aluminum-and-Glass-10ml-Roll-On-Bottle-Stainless-Steel-Ball-for-Essential-Oils-by-Rivertree-Life.html)
 
 ### Positive Reviews

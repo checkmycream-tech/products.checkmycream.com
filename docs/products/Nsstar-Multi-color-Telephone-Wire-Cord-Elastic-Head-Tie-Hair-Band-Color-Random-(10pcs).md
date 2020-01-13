@@ -1,12 +1,3 @@
----
-title: Nsstar Multi-color Telephone Wire Cord Elastic Head Tie Hair Band, Color Random (10pcs),
-description: Nsstar Multi-color Telephone Wire Cord Elastic Head Tie Hair Band, Color Random (10pcs),
-author: Suvojit Manna,
-tags: Nsstar Multi-color Telephone Wire Cord Elastic Head Tie Hair Band, Color Random (10pcs),
-publishedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
----
-
 # [Nsstar Multi-color Telephone Wire Cord Elastic Head Tie Hair Band, Color Random (10pcs)](https://products.checkmycream.com/products/Nsstar-Multi-color-Telephone-Wire-Cord-Elastic-Head-Tie-Hair-Band-Color-Random-(10pcs).html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Marilyn Brush Teasing and Backcombing Brush,
-description: Marilyn Brush Teasing and Backcombing Brush,
-author: Suvojit Manna,
-tags: Marilyn Brush Teasing and Backcombing Brush,
-publishedAt: Fri Jan 10 2020 14:59:22 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:22 GMT+0530 (India Standard Time),
----
-
 # [Marilyn Brush Teasing and Backcombing Brush](https://products.checkmycream.com/products/Marilyn-Brush-Teasing-and-Backcombing-Brush.html)
 
 ### Positive Reviews

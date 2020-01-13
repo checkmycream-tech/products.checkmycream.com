@@ -1,12 +1,3 @@
----
-title: WEN® by Chaz Dean Summer Honey Peach Cleansing Conditioner Duo 2 x 16 oz. (32 oz. Total) plus Wen DVD,
-description: WEN® by Chaz Dean Summer Honey Peach Cleansing Conditioner Duo 2 x 16 oz. (32 oz. Total) plus Wen DVD,
-author: Suvojit Manna,
-tags: WEN® by Chaz Dean Summer Honey Peach Cleansing Conditioner Duo 2 x 16 oz. (32 oz. Total) plus Wen DVD,
-publishedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
----
-
 # [WEN® by Chaz Dean Summer Honey Peach Cleansing Conditioner Duo 2 x 16 oz. (32 oz. Total) plus Wen DVD](https://products.checkmycream.com/products/WEN(r)-by-Chaz-Dean-Summer-Honey-Peach-Cleansing-Conditioner-Duo-2-x-16-oz.-(32-oz.-Total)-plus-Wen-DVD.html)
 
 ### Positive Reviews

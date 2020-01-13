@@ -1,12 +1,3 @@
----
-title: 14&quot; Body-Reach+ Bendable &quot;Unbreakable&quot; Lotion Applicator includes: (6) SpongeAbles or (1) Year Supply!,
-description: 14&quot; Body-Reach+ Bendable &quot;Unbreakable&quot; Lotion Applicator includes: (6) SpongeAbles or (1) Year Supply!,
-author: Suvojit Manna,
-tags: 14&quot; Body-Reach+ Bendable &quot;Unbreakable&quot; Lotion Applicator includes: (6) SpongeAbles or (1) Year Supply!,
-publishedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
----
-
 # [14&quot; Body-Reach+ Bendable &quot;Unbreakable&quot; Lotion Applicator includes: (6) SpongeAbles or (1) Year Supply!](https://products.checkmycream.com/products/14&quot;-Body-Reach+-Bendable-&quot;Unbreakable&quot;-Lotion-Applicator-includes:-(6)-SpongeAbles-or-(1)-Year-Supply!.html)
 
 ### Positive Reviews

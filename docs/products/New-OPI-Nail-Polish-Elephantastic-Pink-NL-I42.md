@@ -1,12 +1,3 @@
----
-title: New OPI Nail Polish Elephantastic Pink NL I42,
-description: New OPI Nail Polish Elephantastic Pink NL I42,
-author: Suvojit Manna,
-tags: New OPI Nail Polish Elephantastic Pink NL I42,
-publishedAt: Fri Jan 10 2020 14:59:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:58 GMT+0530 (India Standard Time),
----
-
 # [New OPI Nail Polish Elephantastic Pink NL I42](https://products.checkmycream.com/products/New-OPI-Nail-Polish-Elephantastic-Pink-NL-I42.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: HOT Womens Hairpiece Wavy Curly Claw Hair Ponytail Clip-on Short Hair Extensions (Light Brown),
-description: HOT Womens Hairpiece Wavy Curly Claw Hair Ponytail Clip-on Short Hair Extensions (Light Brown),
-author: Suvojit Manna,
-tags: HOT Womens Hairpiece Wavy Curly Claw Hair Ponytail Clip-on Short Hair Extensions (Light Brown),
-publishedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
----
-
 # [HOT Womens Hairpiece Wavy Curly Claw Hair Ponytail Clip-on Short Hair Extensions (Light Brown)](https://products.checkmycream.com/products/HOT-Womens-Hairpiece-Wavy-Curly-Claw-Hair-Ponytail-Clip-on-Short-Hair-Extensions-(Light-Brown).html)
 
 ### Positive Reviews

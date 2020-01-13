@@ -1,12 +1,3 @@
----
-title: CND Scentsations sundrenched lotion 8.3oz,
-description: CND Scentsations sundrenched lotion 8.3oz,
-author: Suvojit Manna,
-tags: CND Scentsations sundrenched lotion 8.3oz,
-publishedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
----
-
 # [CND Scentsations sundrenched lotion 8.3oz](https://products.checkmycream.com/products/CND-Scentsations-sundrenched-lotion-8.3oz.html)
 
 ### Positive Reviews

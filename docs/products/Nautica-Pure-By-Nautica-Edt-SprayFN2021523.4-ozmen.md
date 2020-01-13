@@ -1,12 +1,3 @@
----
-title: Nautica Pure By Nautica Edt Spray/FN202152/3.4 oz/men/,
-description: Nautica Pure By Nautica Edt Spray/FN202152/3.4 oz/men/,
-author: Suvojit Manna,
-tags: Nautica Pure By Nautica Edt Spray/FN202152/3.4 oz/men/,
-publishedAt: Fri Jan 10 2020 14:59:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:56 GMT+0530 (India Standard Time),
----
-
 # [Nautica Pure By Nautica Edt Spray/FN202152/3.4 oz/men/](https://products.checkmycream.com/products/Nautica-Pure-By-Nautica-Edt-SprayFN2021523.4-ozmen.html)
 
 ### Positive Reviews

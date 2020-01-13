@@ -1,12 +1,3 @@
----
-title: Brazilian Blowout - Acai Daily Smoothing Serum - 240ml/8oz,
-description: Brazilian Blowout - Acai Daily Smoothing Serum - 240ml/8oz,
-author: Suvojit Manna,
-tags: Brazilian Blowout - Acai Daily Smoothing Serum - 240ml/8oz,
-publishedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
----
-
 # [Brazilian Blowout - Acai Daily Smoothing Serum - 240ml/8oz](https://products.checkmycream.com/products/Brazilian-Blowout-Acai-Daily-Smoothing-Serum-240ml8oz.html)
 
 ### Positive Reviews

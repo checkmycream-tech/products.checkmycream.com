@@ -1,12 +1,3 @@
----
-title: SHANY Cosmetics Urban Gal Collection Brush Kit, 13 Ounce,
-description: SHANY Cosmetics Urban Gal Collection Brush Kit, 13 Ounce,
-author: Suvojit Manna,
-tags: SHANY Cosmetics Urban Gal Collection Brush Kit, 13 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:13 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:13 GMT+0530 (India Standard Time),
----
-
 # [SHANY Cosmetics Urban Gal Collection Brush Kit, 13 Ounce](https://products.checkmycream.com/products/SHANY-Cosmetics-Urban-Gal-Collection-Brush-Kit-13-Ounce.html)
 
 ### Positive Reviews

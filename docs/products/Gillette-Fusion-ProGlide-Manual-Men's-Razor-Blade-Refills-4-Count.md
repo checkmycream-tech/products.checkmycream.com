@@ -1,12 +1,3 @@
----
-title: Gillette Fusion ProGlide Manual Men&#x27;s Razor Blade Refills, 4 Count,
-description: Gillette Fusion ProGlide Manual Men&#x27;s Razor Blade Refills, 4 Count,
-author: Suvojit Manna,
-tags: Gillette Fusion ProGlide Manual Men&#x27;s Razor Blade Refills, 4 Count,
-publishedAt: Fri Jan 10 2020 15:01:07 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:07 GMT+0530 (India Standard Time),
----
-
 # [Gillette Fusion ProGlide Manual Men&#x27;s Razor Blade Refills, 4 Count](https://products.checkmycream.com/products/Gillette-Fusion-ProGlide-Manual-Men&#x27;s-Razor-Blade-Refills-4-Count.html)
 
 ### Positive Reviews

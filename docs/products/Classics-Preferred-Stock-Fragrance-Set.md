@@ -1,12 +1,3 @@
----
-title: Classics Preferred Stock Fragrance Set,
-description: Classics Preferred Stock Fragrance Set,
-author: Suvojit Manna,
-tags: Classics Preferred Stock Fragrance Set,
-publishedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
----
-
 # [Classics Preferred Stock Fragrance Set](https://products.checkmycream.com/products/Classics-Preferred-Stock-Fragrance-Set.html)
 
 ### Positive Reviews

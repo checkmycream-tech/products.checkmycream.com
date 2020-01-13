@@ -1,12 +1,3 @@
----
-title: Animale By Animale Parfums For Women,
-description: Animale By Animale Parfums For Women,
-author: Suvojit Manna,
-tags: Animale By Animale Parfums For Women,
-publishedAt: Fri Jan 10 2020 14:59:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:00 GMT+0530 (India Standard Time),
----
-
 # [Animale By Animale Parfums For Women](https://products.checkmycream.com/products/Animale-By-Animale-Parfums-For-Women.html)
 
 ### Positive Reviews

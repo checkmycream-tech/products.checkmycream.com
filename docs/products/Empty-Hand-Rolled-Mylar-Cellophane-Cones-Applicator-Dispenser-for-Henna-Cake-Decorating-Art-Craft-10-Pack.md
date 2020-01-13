@@ -1,12 +1,3 @@
----
-title: Empty Hand Rolled Mylar Cellophane Cones Applicator Dispenser for Henna Cake Decorating Art Craft 10 Pack,
-description: Empty Hand Rolled Mylar Cellophane Cones Applicator Dispenser for Henna Cake Decorating Art Craft 10 Pack,
-author: Suvojit Manna,
-tags: Empty Hand Rolled Mylar Cellophane Cones Applicator Dispenser for Henna Cake Decorating Art Craft 10 Pack,
-publishedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
----
-
 # [Empty Hand Rolled Mylar Cellophane Cones Applicator Dispenser for Henna Cake Decorating Art Craft 10 Pack](https://products.checkmycream.com/products/Empty-Hand-Rolled-Mylar-Cellophane-Cones-Applicator-Dispenser-for-Henna-Cake-Decorating-Art-Craft-10-Pack.html)
 
 ### Positive Reviews

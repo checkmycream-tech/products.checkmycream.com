@@ -1,12 +1,3 @@
----
-title: Victoria&#x27;s Secret Body Wash for Women, 0.16 Pound,
-description: Victoria&#x27;s Secret Body Wash for Women, 0.16 Pound,
-author: Suvojit Manna,
-tags: Victoria&#x27;s Secret Body Wash for Women, 0.16 Pound,
-publishedAt: Fri Jan 10 2020 15:00:10 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:10 GMT+0530 (India Standard Time),
----
-
 # [Victoria&#x27;s Secret Body Wash for Women, 0.16 Pound](https://products.checkmycream.com/products/Victoria&#x27;s-Secret-Body-Wash-for-Women-0.16-Pound.html)
 
 ### Positive Reviews

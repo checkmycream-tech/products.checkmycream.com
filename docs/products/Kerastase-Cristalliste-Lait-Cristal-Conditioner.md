@@ -1,12 +1,3 @@
----
-title: Kerastase Cristalliste Lait Cristal Conditioner,
-description: Kerastase Cristalliste Lait Cristal Conditioner,
-author: Suvojit Manna,
-tags: Kerastase Cristalliste Lait Cristal Conditioner,
-publishedAt: Fri Jan 10 2020 15:00:21 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:21 GMT+0530 (India Standard Time),
----
-
 # [Kerastase Cristalliste Lait Cristal Conditioner](https://products.checkmycream.com/products/Kerastase-Cristalliste-Lait-Cristal-Conditioner.html)
 
 ### Positive Reviews

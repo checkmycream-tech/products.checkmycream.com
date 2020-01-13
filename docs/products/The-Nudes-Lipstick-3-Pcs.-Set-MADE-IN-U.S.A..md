@@ -1,12 +1,3 @@
----
-title: The Nudes Lipstick 3 Pcs. Set MADE IN U.S.A.,
-description: The Nudes Lipstick 3 Pcs. Set MADE IN U.S.A.,
-author: Suvojit Manna,
-tags: The Nudes Lipstick 3 Pcs. Set MADE IN U.S.A.,
-publishedAt: Fri Jan 10 2020 15:01:09 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:09 GMT+0530 (India Standard Time),
----
-
 # [The Nudes Lipstick 3 Pcs. Set MADE IN U.S.A.](https://products.checkmycream.com/products/The-Nudes-Lipstick-3-Pcs.-Set-MADE-IN-U.S.A..html)
 
 ### Positive Reviews

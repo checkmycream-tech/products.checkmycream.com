@@ -1,12 +1,3 @@
----
-title: Redken Outshine 01 Anti-frizz Polishing Milk 3.4 Oz. Set of 2,
-description: Redken Outshine 01 Anti-frizz Polishing Milk 3.4 Oz. Set of 2,
-author: Suvojit Manna,
-tags: Redken Outshine 01 Anti-frizz Polishing Milk 3.4 Oz. Set of 2,
-publishedAt: Fri Jan 10 2020 15:00:23 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:23 GMT+0530 (India Standard Time),
----
-
 # [Redken Outshine 01 Anti-frizz Polishing Milk 3.4 Oz. Set of 2](https://products.checkmycream.com/products/Redken-Outshine-01-Anti-frizz-Polishing-Milk-3.4-Oz.-Set-of-2.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: 19Beauty ®Fashion Retro Peacock Full Crystal Rhinestones Hairpin Barrette Hair Clip Bridal,
-description: 19Beauty ®Fashion Retro Peacock Full Crystal Rhinestones Hairpin Barrette Hair Clip Bridal,
-author: Suvojit Manna,
-tags: 19Beauty ®Fashion Retro Peacock Full Crystal Rhinestones Hairpin Barrette Hair Clip Bridal,
-publishedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
----
-
 # [19Beauty ®Fashion Retro Peacock Full Crystal Rhinestones Hairpin Barrette Hair Clip Bridal](https://products.checkmycream.com/products/19Beauty-(r)Fashion-Retro-Peacock-Full-Crystal-Rhinestones-Hairpin-Barrette-Hair-Clip-Bridal.html)
 
 ### Positive Reviews

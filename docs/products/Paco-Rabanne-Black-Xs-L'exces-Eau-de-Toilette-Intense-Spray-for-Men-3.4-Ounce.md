@@ -1,12 +1,3 @@
----
-title: Paco Rabanne Black Xs L&#x27;exces Eau de Toilette Intense Spray for Men, 3.4 Ounce,
-description: Paco Rabanne Black Xs L&#x27;exces Eau de Toilette Intense Spray for Men, 3.4 Ounce,
-author: Suvojit Manna,
-tags: Paco Rabanne Black Xs L&#x27;exces Eau de Toilette Intense Spray for Men, 3.4 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
----
-
 # [Paco Rabanne Black Xs L&#x27;exces Eau de Toilette Intense Spray for Men, 3.4 Ounce](https://products.checkmycream.com/products/Paco-Rabanne-Black-Xs-L&#x27;exces-Eau-de-Toilette-Intense-Spray-for-Men-3.4-Ounce.html)
 
 ### Positive Reviews

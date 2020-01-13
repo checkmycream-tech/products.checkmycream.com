@@ -1,12 +1,3 @@
----
-title: Sally Hansen Beauty Tools, Nip&#x27;em Neat-Cuticle Nipper with pusher, 1/2 Jaw,
-description: Sally Hansen Beauty Tools, Nip&#x27;em Neat-Cuticle Nipper with pusher, 1/2 Jaw,
-author: Suvojit Manna,
-tags: Sally Hansen Beauty Tools, Nip&#x27;em Neat-Cuticle Nipper with pusher, 1/2 Jaw,
-publishedAt: Fri Jan 10 2020 15:00:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:02 GMT+0530 (India Standard Time),
----
-
 # [Sally Hansen Beauty Tools, Nip&#x27;em Neat-Cuticle Nipper with pusher, 1/2 Jaw](https://products.checkmycream.com/products/Sally-Hansen-Beauty-Tools-Nip&#x27;em-Neat-Cuticle-Nipper-with-pusher-12-Jaw.html)
 
 ### Positive Reviews

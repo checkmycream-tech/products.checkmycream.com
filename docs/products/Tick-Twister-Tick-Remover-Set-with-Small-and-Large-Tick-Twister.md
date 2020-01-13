@@ -1,12 +1,3 @@
----
-title: Tick Twister Tick Remover Set with Small and Large Tick Twister,
-description: Tick Twister Tick Remover Set with Small and Large Tick Twister,
-author: Suvojit Manna,
-tags: Tick Twister Tick Remover Set with Small and Large Tick Twister,
-publishedAt: Fri Jan 10 2020 15:00:21 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:21 GMT+0530 (India Standard Time),
----
-
 # [Tick Twister Tick Remover Set with Small and Large Tick Twister](https://products.checkmycream.com/products/Tick-Twister-Tick-Remover-Set-with-Small-and-Large-Tick-Twister.html)
 
 ### Positive Reviews

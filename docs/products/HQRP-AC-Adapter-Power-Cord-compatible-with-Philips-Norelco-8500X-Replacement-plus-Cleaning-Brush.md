@@ -1,12 +1,3 @@
----
-title: HQRP AC Adapter / Power Cord compatible with Philips Norelco 8500X Replacement plus Cleaning Brush,
-description: HQRP AC Adapter / Power Cord compatible with Philips Norelco 8500X Replacement plus Cleaning Brush,
-author: Suvojit Manna,
-tags: HQRP AC Adapter / Power Cord compatible with Philips Norelco 8500X Replacement plus Cleaning Brush,
-publishedAt: Fri Jan 10 2020 15:00:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:05 GMT+0530 (India Standard Time),
----
-
 # [HQRP AC Adapter / Power Cord compatible with Philips Norelco 8500X Replacement plus Cleaning Brush](https://products.checkmycream.com/products/HQRP-AC-Adapter-Power-Cord-compatible-with-Philips-Norelco-8500X-Replacement-plus-Cleaning-Brush.html)
 
 ### Positive Reviews

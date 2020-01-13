@@ -1,12 +1,3 @@
----
-title: Booty Parlor Kissaholic Aphrodisiac Breath Spray 1 ea,
-description: Booty Parlor Kissaholic Aphrodisiac Breath Spray 1 ea,
-author: Suvojit Manna,
-tags: Booty Parlor Kissaholic Aphrodisiac Breath Spray 1 ea,
-publishedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
----
-
 # [Booty Parlor Kissaholic Aphrodisiac Breath Spray 1 ea](https://products.checkmycream.com/products/Booty-Parlor-Kissaholic-Aphrodisiac-Breath-Spray-1-ea.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Mia Secret Professional Acrylic Nail System Clear Acrylic Powder 1/4 oz,
-description: Mia Secret Professional Acrylic Nail System Clear Acrylic Powder 1/4 oz,
-author: Suvojit Manna,
-tags: Mia Secret Professional Acrylic Nail System Clear Acrylic Powder 1/4 oz,
-publishedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
----
-
 # [Mia Secret Professional Acrylic Nail System Clear Acrylic Powder 1/4 oz](https://products.checkmycream.com/products/Mia-Secret-Professional-Acrylic-Nail-System-Clear-Acrylic-Powder-14-oz.html)
 
 ### Positive Reviews

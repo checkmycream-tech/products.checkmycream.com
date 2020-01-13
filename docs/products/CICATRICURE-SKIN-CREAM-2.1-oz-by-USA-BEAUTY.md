@@ -1,12 +1,3 @@
----
-title: CICATRICURE SKIN CREAM 2.1 oz by USA BEAUTY,
-description: CICATRICURE SKIN CREAM 2.1 oz by USA BEAUTY,
-author: Suvojit Manna,
-tags: CICATRICURE SKIN CREAM 2.1 oz by USA BEAUTY,
-publishedAt: Fri Jan 10 2020 14:59:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:57 GMT+0530 (India Standard Time),
----
-
 # [CICATRICURE SKIN CREAM 2.1 oz by USA BEAUTY](https://products.checkmycream.com/products/CICATRICURE-SKIN-CREAM-2.1-oz-by-USA-BEAUTY.html)
 
 ### Positive Reviews

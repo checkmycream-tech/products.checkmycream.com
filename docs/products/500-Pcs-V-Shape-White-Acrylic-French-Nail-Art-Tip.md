@@ -1,12 +1,3 @@
----
-title: 500 Pcs V Shape White Acrylic French Nail Art Tip,
-description: 500 Pcs V Shape White Acrylic French Nail Art Tip,
-author: Suvojit Manna,
-tags: 500 Pcs V Shape White Acrylic French Nail Art Tip,
-publishedAt: Fri Jan 10 2020 15:00:30 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:30 GMT+0530 (India Standard Time),
----
-
 # [500 Pcs V Shape White Acrylic French Nail Art Tip](https://products.checkmycream.com/products/500-Pcs-V-Shape-White-Acrylic-French-Nail-Art-Tip.html)
 
 ### Positive Reviews

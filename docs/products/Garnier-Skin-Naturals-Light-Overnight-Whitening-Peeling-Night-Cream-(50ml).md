@@ -1,12 +1,3 @@
----
-title: Garnier Skin Naturals Light Overnight Whitening Peeling Night Cream (50ml),
-description: Garnier Skin Naturals Light Overnight Whitening Peeling Night Cream (50ml),
-author: Suvojit Manna,
-tags: Garnier Skin Naturals Light Overnight Whitening Peeling Night Cream (50ml),
-publishedAt: Fri Jan 10 2020 14:59:59 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:59 GMT+0530 (India Standard Time),
----
-
 # [Garnier Skin Naturals Light Overnight Whitening Peeling Night Cream (50ml)](https://products.checkmycream.com/products/Garnier-Skin-Naturals-Light-Overnight-Whitening-Peeling-Night-Cream-(50ml).html)
 
 ### Positive Reviews

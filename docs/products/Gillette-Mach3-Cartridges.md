@@ -1,12 +1,3 @@
----
-title: Gillette Mach3 Cartridges,
-description: Gillette Mach3 Cartridges,
-author: Suvojit Manna,
-tags: Gillette Mach3 Cartridges,
-publishedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
----
-
 # [Gillette Mach3 Cartridges](https://products.checkmycream.com/products/Gillette-Mach3-Cartridges.html)
 
 ### Positive Reviews

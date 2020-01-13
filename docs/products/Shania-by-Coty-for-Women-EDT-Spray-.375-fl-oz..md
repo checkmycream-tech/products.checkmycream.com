@@ -1,12 +1,3 @@
----
-title: Shania by Coty for Women EDT Spray .375 fl oz.,
-description: Shania by Coty for Women EDT Spray .375 fl oz.,
-author: Suvojit Manna,
-tags: Shania by Coty for Women EDT Spray .375 fl oz.,
-publishedAt: Fri Jan 10 2020 14:59:10 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:10 GMT+0530 (India Standard Time),
----
-
 # [Shania by Coty for Women EDT Spray .375 fl oz.](https://products.checkmycream.com/products/Shania-by-Coty-for-Women-EDT-Spray-.375-fl-oz..html)
 
 ### Positive Reviews

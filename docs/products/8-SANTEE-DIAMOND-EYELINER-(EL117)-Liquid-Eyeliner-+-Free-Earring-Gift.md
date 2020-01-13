@@ -1,12 +1,3 @@
----
-title: 8 SANTEE DIAMOND EYELINER (EL117) Liquid Eyeliner + Free Earring Gift,
-description: 8 SANTEE DIAMOND EYELINER (EL117) Liquid Eyeliner + Free Earring Gift,
-author: Suvojit Manna,
-tags: 8 SANTEE DIAMOND EYELINER (EL117) Liquid Eyeliner + Free Earring Gift,
-publishedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
----
-
 # [8 SANTEE DIAMOND EYELINER (EL117) Liquid Eyeliner + Free Earring Gift](https://products.checkmycream.com/products/8-SANTEE-DIAMOND-EYELINER-(EL117)-Liquid-Eyeliner-+-Free-Earring-Gift.html)
 
 ### Positive Reviews

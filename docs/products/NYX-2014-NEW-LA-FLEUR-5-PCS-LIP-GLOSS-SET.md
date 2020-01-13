@@ -1,12 +1,3 @@
----
-title: NYX 2014 NEW - LA FLEUR 5 PCS LIP GLOSS SET,
-description: NYX 2014 NEW - LA FLEUR 5 PCS LIP GLOSS SET,
-author: Suvojit Manna,
-tags: NYX 2014 NEW - LA FLEUR 5 PCS LIP GLOSS SET,
-publishedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
----
-
 # [NYX 2014 NEW - LA FLEUR 5 PCS LIP GLOSS SET](https://products.checkmycream.com/products/NYX-2014-NEW-LA-FLEUR-5-PCS-LIP-GLOSS-SET.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Cabochard Perfume by Gres for women Personal Fragrances,
-description: Cabochard Perfume by Gres for women Personal Fragrances,
-author: Suvojit Manna,
-tags: Cabochard Perfume by Gres for women Personal Fragrances,
-publishedAt: Fri Jan 10 2020 14:59:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:57 GMT+0530 (India Standard Time),
----
-
 # [Cabochard Perfume by Gres for women Personal Fragrances](https://products.checkmycream.com/products/Cabochard-Perfume-by-Gres-for-women-Personal-Fragrances.html)
 
 ### Positive Reviews

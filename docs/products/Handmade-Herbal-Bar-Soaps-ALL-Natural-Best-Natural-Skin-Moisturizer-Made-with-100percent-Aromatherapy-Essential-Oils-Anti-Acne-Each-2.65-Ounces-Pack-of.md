@@ -1,12 +1,3 @@
----
-title: Handmade Herbal Bar Soaps - ALL Natural - Best Natural Skin Moisturizer - Made with 100% Aromatherapy Essential Oils - Anti Acne - Each 2.65 Ounces - Pack of,
-description: Handmade Herbal Bar Soaps - ALL Natural - Best Natural Skin Moisturizer - Made with 100% Aromatherapy Essential Oils - Anti Acne - Each 2.65 Ounces - Pack of,
-author: Suvojit Manna,
-tags: Handmade Herbal Bar Soaps - ALL Natural - Best Natural Skin Moisturizer - Made with 100% Aromatherapy Essential Oils - Anti Acne - Each 2.65 Ounces - Pack of,
-publishedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
----
-
 # [Handmade Herbal Bar Soaps - ALL Natural - Best Natural Skin Moisturizer - Made with 100% Aromatherapy Essential Oils - Anti Acne - Each 2.65 Ounces - Pack of](https://products.checkmycream.com/products/Handmade-Herbal-Bar-Soaps-ALL-Natural-Best-Natural-Skin-Moisturizer-Made-with-100percent-Aromatherapy-Essential-Oils-Anti-Acne-Each-2.65-Ounces-Pack-of.html)
 
 ### Positive Reviews

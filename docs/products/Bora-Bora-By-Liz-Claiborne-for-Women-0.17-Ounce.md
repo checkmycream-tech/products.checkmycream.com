@@ -1,12 +1,3 @@
----
-title: Bora Bora By Liz Claiborne for Women, 0.17 Ounce,
-description: Bora Bora By Liz Claiborne for Women, 0.17 Ounce,
-author: Suvojit Manna,
-tags: Bora Bora By Liz Claiborne for Women, 0.17 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:12 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:12 GMT+0530 (India Standard Time),
----
-
 # [Bora Bora By Liz Claiborne for Women, 0.17 Ounce](https://products.checkmycream.com/products/Bora-Bora-By-Liz-Claiborne-for-Women-0.17-Ounce.html)
 
 ### Positive Reviews

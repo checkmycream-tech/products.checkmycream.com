@@ -1,12 +1,3 @@
----
-title: L&#x27;oreal Professionnel Vitamino Color Mask,
-description: L&#x27;oreal Professionnel Vitamino Color Mask,
-author: Suvojit Manna,
-tags: L&#x27;oreal Professionnel Vitamino Color Mask,
-publishedAt: Fri Jan 10 2020 14:59:42 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:42 GMT+0530 (India Standard Time),
----
-
 # [L&#x27;oreal Professionnel Vitamino Color Mask](https://products.checkmycream.com/products/L&#x27;oreal-Professionnel-Vitamino-Color-Mask.html)
 
 ### Positive Reviews

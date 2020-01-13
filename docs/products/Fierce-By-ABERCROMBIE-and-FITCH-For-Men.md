@@ -1,12 +1,3 @@
----
-title: Fierce By ABERCROMBIE &amp; FITCH For Men,
-description: Fierce By ABERCROMBIE &amp; FITCH For Men,
-author: Suvojit Manna,
-tags: Fierce By ABERCROMBIE &amp; FITCH For Men,
-publishedAt: Fri Jan 10 2020 15:00:38 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:38 GMT+0530 (India Standard Time),
----
-
 # [Fierce By ABERCROMBIE &amp; FITCH For Men](https://products.checkmycream.com/products/Fierce-By-ABERCROMBIE-and-FITCH-For-Men.html)
 
 ### Positive Reviews

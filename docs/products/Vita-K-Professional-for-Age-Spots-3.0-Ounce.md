@@ -1,12 +1,3 @@
----
-title: Vita-K Professional for Age Spots, 3.0 Ounce,
-description: Vita-K Professional for Age Spots, 3.0 Ounce,
-author: Suvojit Manna,
-tags: Vita-K Professional for Age Spots, 3.0 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:46 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:46 GMT+0530 (India Standard Time),
----
-
 # [Vita-K Professional for Age Spots, 3.0 Ounce](https://products.checkmycream.com/products/Vita-K-Professional-for-Age-Spots-3.0-Ounce.html)
 
 ### Positive Reviews

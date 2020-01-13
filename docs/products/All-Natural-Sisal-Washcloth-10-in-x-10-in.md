@@ -1,12 +1,3 @@
----
-title: All Natural Sisal Washcloth, 10 in x 10 in,
-description: All Natural Sisal Washcloth, 10 in x 10 in,
-author: Suvojit Manna,
-tags: All Natural Sisal Washcloth, 10 in x 10 in,
-publishedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
----
-
 # [All Natural Sisal Washcloth, 10 in x 10 in](https://products.checkmycream.com/products/All-Natural-Sisal-Washcloth-10-in-x-10-in.html)
 
 ### Positive Reviews

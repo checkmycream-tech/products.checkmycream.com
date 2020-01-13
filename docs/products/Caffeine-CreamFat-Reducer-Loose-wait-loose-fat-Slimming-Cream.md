@@ -1,12 +1,3 @@
----
-title: Caffeine Cream,Fat Reducer ,Loose wait ,loose fat , Slimming Cream,
-description: Caffeine Cream,Fat Reducer ,Loose wait ,loose fat , Slimming Cream,
-author: Suvojit Manna,
-tags: Caffeine Cream,Fat Reducer ,Loose wait ,loose fat , Slimming Cream,
-publishedAt: Fri Jan 10 2020 15:00:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:08 GMT+0530 (India Standard Time),
----
-
 # [Caffeine Cream,Fat Reducer ,Loose wait ,loose fat , Slimming Cream](https://products.checkmycream.com/products/Caffeine-CreamFat-Reducer-Loose-wait-loose-fat-Slimming-Cream.html)
 
 ### Positive Reviews

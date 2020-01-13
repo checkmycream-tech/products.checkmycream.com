@@ -1,12 +1,3 @@
----
-title: W7 Naked Nudes Eyeshadow Palette (4 Neutral Shades),
-description: W7 Naked Nudes Eyeshadow Palette (4 Neutral Shades),
-author: Suvojit Manna,
-tags: W7 Naked Nudes Eyeshadow Palette (4 Neutral Shades),
-publishedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
----
-
 # [W7 Naked Nudes Eyeshadow Palette (4 Neutral Shades)](https://products.checkmycream.com/products/W7-Naked-Nudes-Eyeshadow-Palette-(4-Neutral-Shades).html)
 
 ### Positive Reviews

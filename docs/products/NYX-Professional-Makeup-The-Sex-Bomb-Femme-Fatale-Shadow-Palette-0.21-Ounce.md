@@ -1,12 +1,3 @@
----
-title: NYX Professional Makeup The Sex Bomb Femme Fatale Shadow Palette, 0.21 Ounce,
-description: NYX Professional Makeup The Sex Bomb Femme Fatale Shadow Palette, 0.21 Ounce,
-author: Suvojit Manna,
-tags: NYX Professional Makeup The Sex Bomb Femme Fatale Shadow Palette, 0.21 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
----
-
 # [NYX Professional Makeup The Sex Bomb Femme Fatale Shadow Palette, 0.21 Ounce](https://products.checkmycream.com/products/NYX-Professional-Makeup-The-Sex-Bomb-Femme-Fatale-Shadow-Palette-0.21-Ounce.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Elizabeth Arden Millenium Day Renewal Emulsion, 2.5-Ounce Container,
-description: Elizabeth Arden Millenium Day Renewal Emulsion, 2.5-Ounce Container,
-author: Suvojit Manna,
-tags: Elizabeth Arden Millenium Day Renewal Emulsion, 2.5-Ounce Container,
-publishedAt: Fri Jan 10 2020 14:59:45 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:45 GMT+0530 (India Standard Time),
----
-
 # [Elizabeth Arden Millenium Day Renewal Emulsion, 2.5-Ounce Container](https://products.checkmycream.com/products/Elizabeth-Arden-Millenium-Day-Renewal-Emulsion-2.5-Ounce-Container.html)
 
 ### Positive Reviews

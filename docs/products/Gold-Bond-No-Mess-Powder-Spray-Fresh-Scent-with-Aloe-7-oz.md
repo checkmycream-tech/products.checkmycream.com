@@ -1,12 +1,3 @@
----
-title: Gold Bond No Mess Powder Spray, Fresh Scent with Aloe 7 oz,
-description: Gold Bond No Mess Powder Spray, Fresh Scent with Aloe 7 oz,
-author: Suvojit Manna,
-tags: Gold Bond No Mess Powder Spray, Fresh Scent with Aloe 7 oz,
-publishedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
----
-
 # [Gold Bond No Mess Powder Spray, Fresh Scent with Aloe 7 oz](https://products.checkmycream.com/products/Gold-Bond-No-Mess-Powder-Spray-Fresh-Scent-with-Aloe-7-oz.html)
 
 ### Positive Reviews

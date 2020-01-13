@@ -1,12 +1,3 @@
----
-title: Baza Moisture Barrier Antifungal Cream 5oz (Pack of 2),
-description: Baza Moisture Barrier Antifungal Cream 5oz (Pack of 2),
-author: Suvojit Manna,
-tags: Baza Moisture Barrier Antifungal Cream 5oz (Pack of 2),
-publishedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
----
-
 # [Baza Moisture Barrier Antifungal Cream 5oz (Pack of 2)](https://products.checkmycream.com/products/Baza-Moisture-Barrier-Antifungal-Cream-5oz-(Pack-of-2).html)
 
 ### Positive Reviews

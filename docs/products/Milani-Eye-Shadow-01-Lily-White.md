@@ -1,12 +1,3 @@
----
-title: Milani Eye Shadow #01 Lily White,
-description: Milani Eye Shadow #01 Lily White,
-author: Suvojit Manna,
-tags: Milani Eye Shadow #01 Lily White,
-publishedAt: Fri Jan 10 2020 14:59:37 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:37 GMT+0530 (India Standard Time),
----
-
 # [Milani Eye Shadow #01 Lily White](https://products.checkmycream.com/products/Milani-Eye-Shadow-01-Lily-White.html)
 
 ### Positive Reviews

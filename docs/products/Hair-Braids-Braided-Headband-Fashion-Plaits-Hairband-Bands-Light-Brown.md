@@ -1,12 +1,3 @@
----
-title: Hair Braids Braided Headband Fashion Plaits Hairband Bands - Light Brown,
-description: Hair Braids Braided Headband Fashion Plaits Hairband Bands - Light Brown,
-author: Suvojit Manna,
-tags: Hair Braids Braided Headband Fashion Plaits Hairband Bands - Light Brown,
-publishedAt: Fri Jan 10 2020 15:00:32 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:32 GMT+0530 (India Standard Time),
----
-
 # [Hair Braids Braided Headband Fashion Plaits Hairband Bands - Light Brown](https://products.checkmycream.com/products/Hair-Braids-Braided-Headband-Fashion-Plaits-Hairband-Bands-Light-Brown.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Mrs. Meyer&#x27;s Clean Day Liquid Hand Soap Refill, 33 fl oz, Basil (Pack of 2),
-description: Mrs. Meyer&#x27;s Clean Day Liquid Hand Soap Refill, 33 fl oz, Basil (Pack of 2),
-author: Suvojit Manna,
-tags: Mrs. Meyer&#x27;s Clean Day Liquid Hand Soap Refill, 33 fl oz, Basil (Pack of 2),
-publishedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
----
-
 # [Mrs. Meyer&#x27;s Clean Day Liquid Hand Soap Refill, 33 fl oz, Basil (Pack of 2)](https://products.checkmycream.com/products/Mrs.-Meyer&#x27;s-Clean-Day-Liquid-Hand-Soap-Refill-33-fl-oz-Basil-(Pack-of-2).html)
 
 ### Positive Reviews

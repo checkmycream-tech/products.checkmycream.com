@@ -1,12 +1,3 @@
----
-title: Evo Salty Dog Cocktail Beach Spray, 6.8 Ounce,
-description: Evo Salty Dog Cocktail Beach Spray, 6.8 Ounce,
-author: Suvojit Manna,
-tags: Evo Salty Dog Cocktail Beach Spray, 6.8 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:12 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:12 GMT+0530 (India Standard Time),
----
-
 # [Evo Salty Dog Cocktail Beach Spray, 6.8 Ounce](https://products.checkmycream.com/products/Evo-Salty-Dog-Cocktail-Beach-Spray-6.8-Ounce.html)
 
 ### Positive Reviews

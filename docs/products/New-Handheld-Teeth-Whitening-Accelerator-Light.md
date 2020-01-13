@@ -1,12 +1,3 @@
----
-title: New Handheld Teeth Whitening Accelerator Light,
-description: New Handheld Teeth Whitening Accelerator Light,
-author: Suvojit Manna,
-tags: New Handheld Teeth Whitening Accelerator Light,
-publishedAt: Fri Jan 10 2020 14:59:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:55 GMT+0530 (India Standard Time),
----
-
 # [New Handheld Teeth Whitening Accelerator Light](https://products.checkmycream.com/products/New-Handheld-Teeth-Whitening-Accelerator-Light.html)
 
 ### Positive Reviews

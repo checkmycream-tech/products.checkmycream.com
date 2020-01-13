@@ -1,12 +1,3 @@
----
-title: Silver Plated Bead Chain Anklet Bracelet Foot Jewelry Barefoot Sandal Beach Woman,
-description: Silver Plated Bead Chain Anklet Bracelet Foot Jewelry Barefoot Sandal Beach Woman,
-author: Suvojit Manna,
-tags: Silver Plated Bead Chain Anklet Bracelet Foot Jewelry Barefoot Sandal Beach Woman,
-publishedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
----
-
 # [Silver Plated Bead Chain Anklet Bracelet Foot Jewelry Barefoot Sandal Beach Woman](https://products.checkmycream.com/products/Silver-Plated-Bead-Chain-Anklet-Bracelet-Foot-Jewelry-Barefoot-Sandal-Beach-Woman.html)
 
 ### Positive Reviews

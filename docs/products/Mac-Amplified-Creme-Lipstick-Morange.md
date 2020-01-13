@@ -1,12 +1,3 @@
----
-title: Mac Amplified Creme Lipstick, Morange,
-description: Mac Amplified Creme Lipstick, Morange,
-author: Suvojit Manna,
-tags: Mac Amplified Creme Lipstick, Morange,
-publishedAt: Fri Jan 10 2020 14:59:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:01 GMT+0530 (India Standard Time),
----
-
 # [Mac Amplified Creme Lipstick, Morange](https://products.checkmycream.com/products/Mac-Amplified-Creme-Lipstick-Morange.html)
 
 ### Positive Reviews

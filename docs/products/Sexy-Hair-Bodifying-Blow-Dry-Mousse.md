@@ -1,12 +1,3 @@
----
-title: Sexy Hair Bodifying Blow Dry Mousse,
-description: Sexy Hair Bodifying Blow Dry Mousse,
-author: Suvojit Manna,
-tags: Sexy Hair Bodifying Blow Dry Mousse,
-publishedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
----
-
 # [Sexy Hair Bodifying Blow Dry Mousse](https://products.checkmycream.com/products/Sexy-Hair-Bodifying-Blow-Dry-Mousse.html)
 
 ### Positive Reviews

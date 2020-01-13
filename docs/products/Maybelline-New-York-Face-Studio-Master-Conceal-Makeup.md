@@ -1,12 +1,3 @@
----
-title: Maybelline New York Face Studio Master Conceal Makeup,
-description: Maybelline New York Face Studio Master Conceal Makeup,
-author: Suvojit Manna,
-tags: Maybelline New York Face Studio Master Conceal Makeup,
-publishedAt: Fri Jan 10 2020 15:01:04 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:04 GMT+0530 (India Standard Time),
----
-
 # [Maybelline New York Face Studio Master Conceal Makeup](https://products.checkmycream.com/products/Maybelline-New-York-Face-Studio-Master-Conceal-Makeup.html)
 
 ### Positive Reviews

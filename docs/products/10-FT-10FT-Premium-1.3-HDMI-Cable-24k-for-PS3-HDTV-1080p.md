@@ -1,12 +1,3 @@
----
-title: 10 FT 10FT Premium 1.3 HDMI Cable 24k for PS3 HDTV 1080p,
-description: 10 FT 10FT Premium 1.3 HDMI Cable 24k for PS3 HDTV 1080p,
-author: Suvojit Manna,
-tags: 10 FT 10FT Premium 1.3 HDMI Cable 24k for PS3 HDTV 1080p,
-publishedAt: Fri Jan 10 2020 15:01:09 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:09 GMT+0530 (India Standard Time),
----
-
 # [10 FT 10FT Premium 1.3 HDMI Cable 24k for PS3 HDTV 1080p](https://products.checkmycream.com/products/10-FT-10FT-Premium-1.3-HDMI-Cable-24k-for-PS3-HDTV-1080p.html)
 
 ### Positive Reviews

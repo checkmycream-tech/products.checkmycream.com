@@ -1,12 +1,3 @@
----
-title: Ear Piercing Gun Steel Pierce Metal Instrument kits L010037 by 1TattooWorld,
-description: Ear Piercing Gun Steel Pierce Metal Instrument kits L010037 by 1TattooWorld,
-author: Suvojit Manna,
-tags: Ear Piercing Gun Steel Pierce Metal Instrument kits L010037 by 1TattooWorld,
-publishedAt: Fri Jan 10 2020 15:00:18 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:18 GMT+0530 (India Standard Time),
----
-
 # [Ear Piercing Gun Steel Pierce Metal Instrument kits L010037 by 1TattooWorld](https://products.checkmycream.com/products/Ear-Piercing-Gun-Steel-Pierce-Metal-Instrument-kits-L010037-by-1TattooWorld.html)
 
 ### Positive Reviews

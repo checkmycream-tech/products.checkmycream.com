@@ -1,12 +1,3 @@
----
-title: AXE Deodorant Stick for Men, Anarchy For Him 3 oz (Pack of 12),
-description: AXE Deodorant Stick for Men, Anarchy For Him 3 oz (Pack of 12),
-author: Suvojit Manna,
-tags: AXE Deodorant Stick for Men, Anarchy For Him 3 oz (Pack of 12),
-publishedAt: Fri Jan 10 2020 15:00:37 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:37 GMT+0530 (India Standard Time),
----
-
 # [AXE Deodorant Stick for Men, Anarchy For Him 3 oz (Pack of 12)](https://products.checkmycream.com/products/AXE-Deodorant-Stick-for-Men-Anarchy-For-Him-3-oz-(Pack-of-12).html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Thermal Spa Electric Heat Cap,
-description: Thermal Spa Electric Heat Cap,
-author: Suvojit Manna,
-tags: Thermal Spa Electric Heat Cap,
-publishedAt: Fri Jan 10 2020 14:59:39 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:39 GMT+0530 (India Standard Time),
----
-
 # [Thermal Spa Electric Heat Cap](https://products.checkmycream.com/products/Thermal-Spa-Electric-Heat-Cap.html)
 
 ### Positive Reviews

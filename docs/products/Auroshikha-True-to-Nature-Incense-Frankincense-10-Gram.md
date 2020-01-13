@@ -1,12 +1,3 @@
----
-title: Auroshikha True to Nature Incense, Frankincense, 10 Gram,
-description: Auroshikha True to Nature Incense, Frankincense, 10 Gram,
-author: Suvojit Manna,
-tags: Auroshikha True to Nature Incense, Frankincense, 10 Gram,
-publishedAt: Fri Jan 10 2020 14:59:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:02 GMT+0530 (India Standard Time),
----
-
 # [Auroshikha True to Nature Incense, Frankincense, 10 Gram](https://products.checkmycream.com/products/Auroshikha-True-to-Nature-Incense-Frankincense-10-Gram.html)
 
 ### Positive Reviews

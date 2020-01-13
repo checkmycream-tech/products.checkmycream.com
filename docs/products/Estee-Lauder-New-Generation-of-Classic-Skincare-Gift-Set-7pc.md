@@ -1,12 +1,3 @@
----
-title: Estee Lauder New Generation of Classic Skincare Gift Set 7pc,
-description: Estee Lauder New Generation of Classic Skincare Gift Set 7pc,
-author: Suvojit Manna,
-tags: Estee Lauder New Generation of Classic Skincare Gift Set 7pc,
-publishedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
----
-
 # [Estee Lauder New Generation of Classic Skincare Gift Set 7pc](https://products.checkmycream.com/products/Estee-Lauder-New-Generation-of-Classic-Skincare-Gift-Set-7pc.html)
 
 ### Positive Reviews

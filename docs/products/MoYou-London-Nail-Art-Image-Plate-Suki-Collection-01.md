@@ -1,12 +1,3 @@
----
-title: MoYou-London Nail Art Image Plate Suki Collection 01,
-description: MoYou-London Nail Art Image Plate Suki Collection 01,
-author: Suvojit Manna,
-tags: MoYou-London Nail Art Image Plate Suki Collection 01,
-publishedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
----
-
 # [MoYou-London Nail Art Image Plate Suki Collection 01](https://products.checkmycream.com/products/MoYou-London-Nail-Art-Image-Plate-Suki-Collection-01.html)
 
 ### Positive Reviews

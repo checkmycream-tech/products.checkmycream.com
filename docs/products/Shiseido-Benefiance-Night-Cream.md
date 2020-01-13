@@ -1,12 +1,3 @@
----
-title: Shiseido Benefiance Night Cream,
-description: Shiseido Benefiance Night Cream,
-author: Suvojit Manna,
-tags: Shiseido Benefiance Night Cream,
-publishedAt: Fri Jan 10 2020 15:00:04 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:04 GMT+0530 (India Standard Time),
----
-
 # [Shiseido Benefiance Night Cream](https://products.checkmycream.com/products/Shiseido-Benefiance-Night-Cream.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: TY0072 Classic Vans Logo, Vans Shoe Bumper Decal, Classic Old Brand Logo Sticker,
-description: TY0072 Classic Vans Logo, Vans Shoe Bumper Decal, Classic Old Brand Logo Sticker,
-author: Suvojit Manna,
-tags: TY0072 Classic Vans Logo, Vans Shoe Bumper Decal, Classic Old Brand Logo Sticker,
-publishedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
----
-
 # [TY0072 Classic Vans Logo, Vans Shoe Bumper Decal, Classic Old Brand Logo Sticker](https://products.checkmycream.com/products/TY0072-Classic-Vans-Logo-Vans-Shoe-Bumper-Decal-Classic-Old-Brand-Logo-Sticker.html)
 
 ### Positive Reviews

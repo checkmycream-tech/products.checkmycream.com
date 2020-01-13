@@ -1,12 +1,3 @@
----
-title: Avon Unplugged for her by Jon Bon Jovi - 3 pc Set,
-description: Avon Unplugged for her by Jon Bon Jovi - 3 pc Set,
-author: Suvojit Manna,
-tags: Avon Unplugged for her by Jon Bon Jovi - 3 pc Set,
-publishedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
----
-
 # [Avon Unplugged for her by Jon Bon Jovi - 3 pc Set](https://products.checkmycream.com/products/Avon-Unplugged-for-her-by-Jon-Bon-Jovi-3-pc-Set.html)
 
 ### Positive Reviews

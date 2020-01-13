@@ -1,12 +1,3 @@
----
-title: Real Techniques Blush Brush,
-description: Real Techniques Blush Brush,
-author: Suvojit Manna,
-tags: Real Techniques Blush Brush,
-publishedAt: Fri Jan 10 2020 15:01:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:05 GMT+0530 (India Standard Time),
----
-
 # [Real Techniques Blush Brush](https://products.checkmycream.com/products/Real-Techniques-Blush-Brush.html)
 
 ### Positive Reviews

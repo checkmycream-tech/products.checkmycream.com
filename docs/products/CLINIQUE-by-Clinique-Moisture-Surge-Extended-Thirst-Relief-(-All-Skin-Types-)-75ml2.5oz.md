@@ -1,12 +1,3 @@
----
-title: CLINIQUE by Clinique Moisture Surge Extended Thirst Relief ( All Skin Types )--75ml/2.5oz,
-description: CLINIQUE by Clinique Moisture Surge Extended Thirst Relief ( All Skin Types )--75ml/2.5oz,
-author: Suvojit Manna,
-tags: CLINIQUE by Clinique Moisture Surge Extended Thirst Relief ( All Skin Types )--75ml/2.5oz,
-publishedAt: Fri Jan 10 2020 15:00:45 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:45 GMT+0530 (India Standard Time),
----
-
 # [CLINIQUE by Clinique Moisture Surge Extended Thirst Relief ( All Skin Types )--75ml/2.5oz](https://products.checkmycream.com/products/CLINIQUE-by-Clinique-Moisture-Surge-Extended-Thirst-Relief-(-All-Skin-Types-)-75ml2.5oz.html)
 
 ### Positive Reviews

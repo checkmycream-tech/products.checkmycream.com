@@ -1,12 +1,3 @@
----
-title: Daylee Naturals Mesh Bath Pouf Sponge 4 Pack,
-description: Daylee Naturals Mesh Bath Pouf Sponge 4 Pack,
-author: Suvojit Manna,
-tags: Daylee Naturals Mesh Bath Pouf Sponge 4 Pack,
-publishedAt: Fri Jan 10 2020 15:00:20 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:20 GMT+0530 (India Standard Time),
----
-
 # [Daylee Naturals Mesh Bath Pouf Sponge 4 Pack](https://products.checkmycream.com/products/Daylee-Naturals-Mesh-Bath-Pouf-Sponge-4-Pack.html)
 
 ### Positive Reviews

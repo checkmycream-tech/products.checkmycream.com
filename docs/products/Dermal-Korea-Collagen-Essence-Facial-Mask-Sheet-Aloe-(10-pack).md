@@ -1,12 +1,3 @@
----
-title: Dermal Korea Collagen Essence Facial Mask Sheet - Aloe (10 pack),
-description: Dermal Korea Collagen Essence Facial Mask Sheet - Aloe (10 pack),
-author: Suvojit Manna,
-tags: Dermal Korea Collagen Essence Facial Mask Sheet - Aloe (10 pack),
-publishedAt: Fri Jan 10 2020 15:00:31 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:31 GMT+0530 (India Standard Time),
----
-
 # [Dermal Korea Collagen Essence Facial Mask Sheet - Aloe (10 pack)](https://products.checkmycream.com/products/Dermal-Korea-Collagen-Essence-Facial-Mask-Sheet-Aloe-(10-pack).html)
 
 ### Positive Reviews

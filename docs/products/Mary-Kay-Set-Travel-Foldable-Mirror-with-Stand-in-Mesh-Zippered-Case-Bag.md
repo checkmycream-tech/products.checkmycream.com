@@ -1,12 +1,3 @@
----
-title: Mary Kay Set Travel Foldable Mirror with Stand in Mesh Zippered Case Bag,
-description: Mary Kay Set Travel Foldable Mirror with Stand in Mesh Zippered Case Bag,
-author: Suvojit Manna,
-tags: Mary Kay Set Travel Foldable Mirror with Stand in Mesh Zippered Case Bag,
-publishedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
----
-
 # [Mary Kay Set Travel Foldable Mirror with Stand in Mesh Zippered Case Bag](https://products.checkmycream.com/products/Mary-Kay-Set-Travel-Foldable-Mirror-with-Stand-in-Mesh-Zippered-Case-Bag.html)
 
 ### Positive Reviews

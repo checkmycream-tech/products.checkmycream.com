@@ -1,12 +1,3 @@
----
-title: TONSEE Girl Simple Style Love Heart Rhinestone Pendant Open Bangle Bracelet,
-description: TONSEE Girl Simple Style Love Heart Rhinestone Pendant Open Bangle Bracelet,
-author: Suvojit Manna,
-tags: TONSEE Girl Simple Style Love Heart Rhinestone Pendant Open Bangle Bracelet,
-publishedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
----
-
 # [TONSEE Girl Simple Style Love Heart Rhinestone Pendant Open Bangle Bracelet](https://products.checkmycream.com/products/TONSEE-Girl-Simple-Style-Love-Heart-Rhinestone-Pendant-Open-Bangle-Bracelet.html)
 
 ### Positive Reviews

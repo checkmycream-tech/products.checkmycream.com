@@ -1,12 +1,3 @@
----
-title: Annie Shampoo &amp; Cutting Cape,
-description: Annie Shampoo &amp; Cutting Cape,
-author: Suvojit Manna,
-tags: Annie Shampoo &amp; Cutting Cape,
-publishedAt: Fri Jan 10 2020 15:00:09 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:09 GMT+0530 (India Standard Time),
----
-
 # [Annie Shampoo &amp; Cutting Cape](https://products.checkmycream.com/products/Annie-Shampoo-and-Cutting-Cape.html)
 
 ### Positive Reviews

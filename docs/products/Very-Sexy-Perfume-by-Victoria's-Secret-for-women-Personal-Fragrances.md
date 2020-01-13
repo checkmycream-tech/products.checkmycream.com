@@ -1,12 +1,3 @@
----
-title: Very Sexy Perfume by Victoria&#x27;s Secret for women Personal Fragrances,
-description: Very Sexy Perfume by Victoria&#x27;s Secret for women Personal Fragrances,
-author: Suvojit Manna,
-tags: Very Sexy Perfume by Victoria&#x27;s Secret for women Personal Fragrances,
-publishedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
----
-
 # [Very Sexy Perfume by Victoria&#x27;s Secret for women Personal Fragrances](https://products.checkmycream.com/products/Very-Sexy-Perfume-by-Victoria&#x27;s-Secret-for-women-Personal-Fragrances.html)
 
 ### Positive Reviews

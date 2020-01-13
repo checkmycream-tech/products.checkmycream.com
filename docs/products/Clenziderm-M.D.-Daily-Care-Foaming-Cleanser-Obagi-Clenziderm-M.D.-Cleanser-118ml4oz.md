@@ -1,12 +1,3 @@
----
-title: Clenziderm M.D. Daily Care Foaming Cleanser - Obagi - Clenziderm M.D. - Cleanser - 118ml/4oz,
-description: Clenziderm M.D. Daily Care Foaming Cleanser - Obagi - Clenziderm M.D. - Cleanser - 118ml/4oz,
-author: Suvojit Manna,
-tags: Clenziderm M.D. Daily Care Foaming Cleanser - Obagi - Clenziderm M.D. - Cleanser - 118ml/4oz,
-publishedAt: Fri Jan 10 2020 14:59:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:58 GMT+0530 (India Standard Time),
----
-
 # [Clenziderm M.D. Daily Care Foaming Cleanser - Obagi - Clenziderm M.D. - Cleanser - 118ml/4oz](https://products.checkmycream.com/products/Clenziderm-M.D.-Daily-Care-Foaming-Cleanser-Obagi-Clenziderm-M.D.-Cleanser-118ml4oz.html)
 
 ### Positive Reviews

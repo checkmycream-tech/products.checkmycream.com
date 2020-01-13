@@ -1,12 +1,3 @@
----
-title: Saloniture Tabletop Blow Dryer &amp; Hair Iron Holder - Salon Appliance Stand,
-description: Saloniture Tabletop Blow Dryer &amp; Hair Iron Holder - Salon Appliance Stand,
-author: Suvojit Manna,
-tags: Saloniture Tabletop Blow Dryer &amp; Hair Iron Holder - Salon Appliance Stand,
-publishedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
----
-
 # [Saloniture Tabletop Blow Dryer &amp; Hair Iron Holder - Salon Appliance Stand](https://products.checkmycream.com/products/Saloniture-Tabletop-Blow-Dryer-and-Hair-Iron-Holder-Salon-Appliance-Stand.html)
 
 ### Positive Reviews

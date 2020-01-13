@@ -1,12 +1,3 @@
----
-title: Olay Age Defying Instant Hydration Night Cream 1.7 Oz,
-description: Olay Age Defying Instant Hydration Night Cream 1.7 Oz,
-author: Suvojit Manna,
-tags: Olay Age Defying Instant Hydration Night Cream 1.7 Oz,
-publishedAt: Fri Jan 10 2020 15:00:22 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:22 GMT+0530 (India Standard Time),
----
-
 # [Olay Age Defying Instant Hydration Night Cream 1.7 Oz](https://products.checkmycream.com/products/Olay-Age-Defying-Instant-Hydration-Night-Cream-1.7-Oz.html)
 
 ### Positive Reviews

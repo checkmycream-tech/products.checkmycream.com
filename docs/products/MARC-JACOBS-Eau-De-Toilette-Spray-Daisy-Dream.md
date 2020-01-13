@@ -1,12 +1,3 @@
----
-title: MARC JACOBS Eau De Toilette Spray, Daisy Dream,
-description: MARC JACOBS Eau De Toilette Spray, Daisy Dream,
-author: Suvojit Manna,
-tags: MARC JACOBS Eau De Toilette Spray, Daisy Dream,
-publishedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
----
-
 # [MARC JACOBS Eau De Toilette Spray, Daisy Dream](https://products.checkmycream.com/products/MARC-JACOBS-Eau-De-Toilette-Spray-Daisy-Dream.html)
 
 ### Positive Reviews

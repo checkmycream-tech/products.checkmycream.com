@@ -1,12 +1,3 @@
----
-title: Reneetan 3 Packs Self Tan Mitt Sunless Tan Gloves Applicator Face Mitts for Self Tanner,
-description: Reneetan 3 Packs Self Tan Mitt Sunless Tan Gloves Applicator Face Mitts for Self Tanner,
-author: Suvojit Manna,
-tags: Reneetan 3 Packs Self Tan Mitt Sunless Tan Gloves Applicator Face Mitts for Self Tanner,
-publishedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
----
-
 # [Reneetan 3 Packs Self Tan Mitt Sunless Tan Gloves Applicator Face Mitts for Self Tanner](https://products.checkmycream.com/products/Reneetan-3-Packs-Self-Tan-Mitt-Sunless-Tan-Gloves-Applicator-Face-Mitts-for-Self-Tanner.html)
 
 ### Positive Reviews

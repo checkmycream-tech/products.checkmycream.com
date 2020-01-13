@@ -1,12 +1,3 @@
----
-title: iPad Air 2 Case, i-Blason Apple iPad Air 2 Case ArmorBox [Dual Layer] Convertible [Heavy Duty] Full-Body Protection KickStand Case with Built-in Screen Protector for Kids Friendly 2014 Release (iPad Air 2, Red/Black),
-description: iPad Air 2 Case, i-Blason Apple iPad Air 2 Case ArmorBox [Dual Layer] Convertible [Heavy Duty] Full-Body Protection KickStand Case with Built-in Screen Protector for Kids Friendly 2014 Release (iPad Air 2, Red/Black),
-author: Suvojit Manna,
-tags: iPad Air 2 Case, i-Blason Apple iPad Air 2 Case ArmorBox [Dual Layer] Convertible [Heavy Duty] Full-Body Protection KickStand Case with Built-in Screen Protector for Kids Friendly 2014 Release (iPad Air 2, Red/Black),
-publishedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
----
-
 # [iPad Air 2 Case, i-Blason Apple iPad Air 2 Case ArmorBox [Dual Layer] Convertible [Heavy Duty] Full-Body Protection KickStand Case with Built-in Screen Protector for Kids Friendly 2014 Release (iPad Air 2, Red/Black)](https://products.checkmycream.com/products/iPad-Air-2-Case-i-Blason-Apple-iPad-Air-2-Case-ArmorBox-Dual-Layer-Convertible-Heavy-Duty-Full-Body-Protection-KickStand-Case-with-Built-in-Screen-Protector-for-Kids-Friendly-2014-Release-(iPad-Air-2-RedBlack).html)
 
 ### Positive Reviews

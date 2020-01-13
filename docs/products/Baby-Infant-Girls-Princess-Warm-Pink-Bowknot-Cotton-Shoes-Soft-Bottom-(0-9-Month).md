@@ -1,12 +1,3 @@
----
-title: Baby Infant Girls Princess Warm Pink Bowknot Cotton Shoes Soft Bottom (0-9 Month),
-description: Baby Infant Girls Princess Warm Pink Bowknot Cotton Shoes Soft Bottom (0-9 Month),
-author: Suvojit Manna,
-tags: Baby Infant Girls Princess Warm Pink Bowknot Cotton Shoes Soft Bottom (0-9 Month),
-publishedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
----
-
 # [Baby Infant Girls Princess Warm Pink Bowknot Cotton Shoes Soft Bottom (0-9 Month)](https://products.checkmycream.com/products/Baby-Infant-Girls-Princess-Warm-Pink-Bowknot-Cotton-Shoes-Soft-Bottom-(0-9-Month).html)
 
 ### Positive Reviews

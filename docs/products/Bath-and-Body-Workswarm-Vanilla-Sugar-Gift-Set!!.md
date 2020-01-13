@@ -1,12 +1,3 @@
----
-title: Bath and Body Works,warm Vanilla Sugar Gift Set!!,
-description: Bath and Body Works,warm Vanilla Sugar Gift Set!!,
-author: Suvojit Manna,
-tags: Bath and Body Works,warm Vanilla Sugar Gift Set!!,
-publishedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
----
-
 # [Bath and Body Works,warm Vanilla Sugar Gift Set!!](https://products.checkmycream.com/products/Bath-and-Body-Workswarm-Vanilla-Sugar-Gift-Set!!.html)
 
 ### Positive Reviews

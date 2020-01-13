@@ -1,12 +1,3 @@
----
-title: Medline MedSpa Antiperspirant - Roll-on, 1.5 oz ea.- 1 Each,
-description: Medline MedSpa Antiperspirant - Roll-on, 1.5 oz ea.- 1 Each,
-author: Suvojit Manna,
-tags: Medline MedSpa Antiperspirant - Roll-on, 1.5 oz ea.- 1 Each,
-publishedAt: Fri Jan 10 2020 15:00:11 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:11 GMT+0530 (India Standard Time),
----
-
 # [Medline MedSpa Antiperspirant - Roll-on, 1.5 oz ea.- 1 Each](https://products.checkmycream.com/products/Medline-MedSpa-Antiperspirant-Roll-on-1.5-oz-ea.-1-Each.html)
 
 ### Positive Reviews

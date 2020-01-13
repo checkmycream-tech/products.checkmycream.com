@@ -1,12 +1,3 @@
----
-title: TRESemme Thermal Creations Heat Tamer Protective Spray 8 fl oz (236 ml)Pack of 3,
-description: TRESemme Thermal Creations Heat Tamer Protective Spray 8 fl oz (236 ml)Pack of 3,
-author: Suvojit Manna,
-tags: TRESemme Thermal Creations Heat Tamer Protective Spray 8 fl oz (236 ml)Pack of 3,
-publishedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
----
-
 # [TRESemme Thermal Creations Heat Tamer Protective Spray 8 fl oz (236 ml)Pack of 3](https://products.checkmycream.com/products/TRESemme-Thermal-Creations-Heat-Tamer-Protective-Spray-8-fl-oz-(236-ml)Pack-of-3.html)
 
 ### Positive Reviews

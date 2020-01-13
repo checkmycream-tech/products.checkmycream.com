@@ -1,12 +1,3 @@
----
-title: Dead Sea Mud Mask 100% Pure And Natural Organic Dead Sea Mud From Israel Plus a Jar of Seaweed Powder to Boost Mud Mask &amp; Tighten Skin,
-description: Dead Sea Mud Mask 100% Pure And Natural Organic Dead Sea Mud From Israel Plus a Jar of Seaweed Powder to Boost Mud Mask &amp; Tighten Skin,
-author: Suvojit Manna,
-tags: Dead Sea Mud Mask 100% Pure And Natural Organic Dead Sea Mud From Israel Plus a Jar of Seaweed Powder to Boost Mud Mask &amp; Tighten Skin,
-publishedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
----
-
 # [Dead Sea Mud Mask 100% Pure And Natural Organic Dead Sea Mud From Israel Plus a Jar of Seaweed Powder to Boost Mud Mask &amp; Tighten Skin](https://products.checkmycream.com/products/Dead-Sea-Mud-Mask-100percent-Pure-And-Natural-Organic-Dead-Sea-Mud-From-Israel-Plus-a-Jar-of-Seaweed-Powder-to-Boost-Mud-Mask-and-Tighten-Skin.html)
 
 ### Positive Reviews

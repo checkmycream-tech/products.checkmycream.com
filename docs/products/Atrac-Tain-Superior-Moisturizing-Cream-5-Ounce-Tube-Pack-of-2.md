@@ -1,12 +1,3 @@
----
-title: Atrac-Tain Superior Moisturizing Cream - 5 Ounce Tube - Pack of 2,
-description: Atrac-Tain Superior Moisturizing Cream - 5 Ounce Tube - Pack of 2,
-author: Suvojit Manna,
-tags: Atrac-Tain Superior Moisturizing Cream - 5 Ounce Tube - Pack of 2,
-publishedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
----
-
 # [Atrac-Tain Superior Moisturizing Cream - 5 Ounce Tube - Pack of 2](https://products.checkmycream.com/products/Atrac-Tain-Superior-Moisturizing-Cream-5-Ounce-Tube-Pack-of-2.html)
 
 ### Positive Reviews

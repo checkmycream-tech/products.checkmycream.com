@@ -1,12 +1,3 @@
----
-title: Christian Dior Miss Dior Eau De Parfum Spray for Women,
-description: Christian Dior Miss Dior Eau De Parfum Spray for Women,
-author: Suvojit Manna,
-tags: Christian Dior Miss Dior Eau De Parfum Spray for Women,
-publishedAt: Fri Jan 10 2020 15:00:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:05 GMT+0530 (India Standard Time),
----
-
 # [Christian Dior Miss Dior Eau De Parfum Spray for Women](https://products.checkmycream.com/products/Christian-Dior-Miss-Dior-Eau-De-Parfum-Spray-for-Women.html)
 
 ### Positive Reviews

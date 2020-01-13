@@ -1,12 +1,3 @@
----
-title: eFuture(TM) Light Purple Stylish Elegant Colorfull Rhinestone Butterfly Bride Hair Clip/Comb +eFuture&#x27;s nice Keyring by eFuture,
-description: eFuture(TM) Light Purple Stylish Elegant Colorfull Rhinestone Butterfly Bride Hair Clip/Comb +eFuture&#x27;s nice Keyring by eFuture,
-author: Suvojit Manna,
-tags: eFuture(TM) Light Purple Stylish Elegant Colorfull Rhinestone Butterfly Bride Hair Clip/Comb +eFuture&#x27;s nice Keyring by eFuture,
-publishedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
----
-
 # [eFuture(TM) Light Purple Stylish Elegant Colorfull Rhinestone Butterfly Bride Hair Clip/Comb +eFuture&#x27;s nice Keyring by eFuture](https://products.checkmycream.com/products/eFuture(TM)-Light-Purple-Stylish-Elegant-Colorfull-Rhinestone-Butterfly-Bride-Hair-ClipComb-+eFuture&#x27;s-nice-Keyring-by-eFuture.html)
 
 ### Positive Reviews

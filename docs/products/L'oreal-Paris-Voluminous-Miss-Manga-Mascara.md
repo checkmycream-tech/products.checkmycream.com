@@ -1,12 +1,3 @@
----
-title: L&#x27;oreal Paris Voluminous Miss Manga Mascara,
-description: L&#x27;oreal Paris Voluminous Miss Manga Mascara,
-author: Suvojit Manna,
-tags: L&#x27;oreal Paris Voluminous Miss Manga Mascara,
-publishedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
----
-
 # [L&#x27;oreal Paris Voluminous Miss Manga Mascara](https://products.checkmycream.com/products/L&#x27;oreal-Paris-Voluminous-Miss-Manga-Mascara.html)
 
 ### Positive Reviews

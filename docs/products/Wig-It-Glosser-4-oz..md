@@ -1,12 +1,3 @@
----
-title: Wig It Glosser 4 oz.,
-description: Wig It Glosser 4 oz.,
-author: Suvojit Manna,
-tags: Wig It Glosser 4 oz.,
-publishedAt: Fri Jan 10 2020 14:59:59 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:59 GMT+0530 (India Standard Time),
----
-
 # [Wig It Glosser 4 oz.](https://products.checkmycream.com/products/Wig-It-Glosser-4-oz..html)
 
 ### Positive Reviews

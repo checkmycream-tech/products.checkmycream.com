@@ -1,12 +1,3 @@
----
-title: Gold Chunky Large Bling Statement Curb Chain Fashion Necklace Choker By VAGA®,
-description: Gold Chunky Large Bling Statement Curb Chain Fashion Necklace Choker By VAGA®,
-author: Suvojit Manna,
-tags: Gold Chunky Large Bling Statement Curb Chain Fashion Necklace Choker By VAGA®,
-publishedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
----
-
 # [Gold Chunky Large Bling Statement Curb Chain Fashion Necklace Choker By VAGA®](https://products.checkmycream.com/products/Gold-Chunky-Large-Bling-Statement-Curb-Chain-Fashion-Necklace-Choker-By-VAGA(r).html)
 
 ### Positive Reviews

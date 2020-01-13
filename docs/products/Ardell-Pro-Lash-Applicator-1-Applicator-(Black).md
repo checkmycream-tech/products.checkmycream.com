@@ -1,12 +1,3 @@
----
-title: Ardell Pro Lash Applicator 1 Applicator (Black),
-description: Ardell Pro Lash Applicator 1 Applicator (Black),
-author: Suvojit Manna,
-tags: Ardell Pro Lash Applicator 1 Applicator (Black),
-publishedAt: Fri Jan 10 2020 14:59:49 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:49 GMT+0530 (India Standard Time),
----
-
 # [Ardell Pro Lash Applicator 1 Applicator (Black)](https://products.checkmycream.com/products/Ardell-Pro-Lash-Applicator-1-Applicator-(Black).html)
 
 ### Positive Reviews

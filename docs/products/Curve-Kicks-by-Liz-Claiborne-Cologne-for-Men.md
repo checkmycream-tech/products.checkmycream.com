@@ -1,12 +1,3 @@
----
-title: Curve Kicks by Liz Claiborne Cologne for Men,
-description: Curve Kicks by Liz Claiborne Cologne for Men,
-author: Suvojit Manna,
-tags: Curve Kicks by Liz Claiborne Cologne for Men,
-publishedAt: Fri Jan 10 2020 14:59:17 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:17 GMT+0530 (India Standard Time),
----
-
 # [Curve Kicks by Liz Claiborne Cologne for Men](https://products.checkmycream.com/products/Curve-Kicks-by-Liz-Claiborne-Cologne-for-Men.html)
 
 ### Positive Reviews

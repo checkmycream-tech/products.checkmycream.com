@@ -1,12 +1,3 @@
----
-title: BECCA Shimmering Skin Perfector Pressed - Moonstone,
-description: BECCA Shimmering Skin Perfector Pressed - Moonstone,
-author: Suvojit Manna,
-tags: BECCA Shimmering Skin Perfector Pressed - Moonstone,
-publishedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
----
-
 # [BECCA Shimmering Skin Perfector Pressed - Moonstone](https://products.checkmycream.com/products/BECCA-Shimmering-Skin-Perfector-Pressed-Moonstone.html)
 
 ### Positive Reviews

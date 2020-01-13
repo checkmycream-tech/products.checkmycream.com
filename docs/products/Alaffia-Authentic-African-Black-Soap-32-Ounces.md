@@ -1,12 +1,3 @@
----
-title: Alaffia - Authentic African Black Soap, 32 Ounces,
-description: Alaffia - Authentic African Black Soap, 32 Ounces,
-author: Suvojit Manna,
-tags: Alaffia - Authentic African Black Soap, 32 Ounces,
-publishedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
----
-
 # [Alaffia - Authentic African Black Soap, 32 Ounces](https://products.checkmycream.com/products/Alaffia-Authentic-African-Black-Soap-32-Ounces.html)
 
 ### Positive Reviews

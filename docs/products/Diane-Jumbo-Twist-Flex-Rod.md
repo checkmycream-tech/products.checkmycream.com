@@ -1,12 +1,3 @@
----
-title: Diane Jumbo Twist-Flex Rod,
-description: Diane Jumbo Twist-Flex Rod,
-author: Suvojit Manna,
-tags: Diane Jumbo Twist-Flex Rod,
-publishedAt: Fri Jan 10 2020 15:00:30 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:30 GMT+0530 (India Standard Time),
----
-
 # [Diane Jumbo Twist-Flex Rod](https://products.checkmycream.com/products/Diane-Jumbo-Twist-Flex-Rod.html)
 
 ### Positive Reviews

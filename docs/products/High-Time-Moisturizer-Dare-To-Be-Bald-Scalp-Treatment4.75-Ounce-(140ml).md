@@ -1,12 +1,3 @@
----
-title: High Time Moisturizer Dare To Be Bald Scalp Treatment4.75 Ounce (140ml),
-description: High Time Moisturizer Dare To Be Bald Scalp Treatment4.75 Ounce (140ml),
-author: Suvojit Manna,
-tags: High Time Moisturizer Dare To Be Bald Scalp Treatment4.75 Ounce (140ml),
-publishedAt: Fri Jan 10 2020 15:00:10 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:10 GMT+0530 (India Standard Time),
----
-
 # [High Time Moisturizer Dare To Be Bald Scalp Treatment4.75 Ounce (140ml)](https://products.checkmycream.com/products/High-Time-Moisturizer-Dare-To-Be-Bald-Scalp-Treatment4.75-Ounce-(140ml).html)
 
 ### Positive Reviews

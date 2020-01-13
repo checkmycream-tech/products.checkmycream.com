@@ -1,12 +1,3 @@
----
-title: Bath &amp; Body Works Oak for Men 8 Oz Body Lotion,
-description: Bath &amp; Body Works Oak for Men 8 Oz Body Lotion,
-author: Suvojit Manna,
-tags: Bath &amp; Body Works Oak for Men 8 Oz Body Lotion,
-publishedAt: Fri Jan 10 2020 15:00:10 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:10 GMT+0530 (India Standard Time),
----
-
 # [Bath &amp; Body Works Oak for Men 8 Oz Body Lotion](https://products.checkmycream.com/products/Bath-and-Body-Works-Oak-for-Men-8-Oz-Body-Lotion.html)
 
 ### Positive Reviews

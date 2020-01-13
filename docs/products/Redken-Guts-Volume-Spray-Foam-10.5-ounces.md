@@ -1,12 +1,3 @@
----
-title: Redken Guts Volume Spray Foam 10.5 ounces,
-description: Redken Guts Volume Spray Foam 10.5 ounces,
-author: Suvojit Manna,
-tags: Redken Guts Volume Spray Foam 10.5 ounces,
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [Redken Guts Volume Spray Foam 10.5 ounces](https://products.checkmycream.com/products/Redken-Guts-Volume-Spray-Foam-10.5-ounces.html)
 
 ### Positive Reviews

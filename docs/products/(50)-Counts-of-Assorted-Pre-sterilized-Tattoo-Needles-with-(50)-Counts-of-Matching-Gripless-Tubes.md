@@ -1,12 +1,3 @@
----
-title: (50) Counts of Assorted Pre-sterilized Tattoo Needles with (50) Counts of Matching Gripless Tubes,
-description: (50) Counts of Assorted Pre-sterilized Tattoo Needles with (50) Counts of Matching Gripless Tubes,
-author: Suvojit Manna,
-tags: (50) Counts of Assorted Pre-sterilized Tattoo Needles with (50) Counts of Matching Gripless Tubes,
-publishedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
----
-
 # [(50) Counts of Assorted Pre-sterilized Tattoo Needles with (50) Counts of Matching Gripless Tubes](https://products.checkmycream.com/products/(50)-Counts-of-Assorted-Pre-sterilized-Tattoo-Needles-with-(50)-Counts-of-Matching-Gripless-Tubes.html)
 
 ### Positive Reviews

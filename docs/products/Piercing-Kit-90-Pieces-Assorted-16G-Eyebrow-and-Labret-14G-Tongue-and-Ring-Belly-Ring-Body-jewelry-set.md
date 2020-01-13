@@ -1,12 +1,3 @@
----
-title: Piercing Kit 90 Pieces Assorted 16G Eyebrow and Labret, 14G Tongue and Ring Belly Ring Body jewelry set,
-description: Piercing Kit 90 Pieces Assorted 16G Eyebrow and Labret, 14G Tongue and Ring Belly Ring Body jewelry set,
-author: Suvojit Manna,
-tags: Piercing Kit 90 Pieces Assorted 16G Eyebrow and Labret, 14G Tongue and Ring Belly Ring Body jewelry set,
-publishedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
----
-
 # [Piercing Kit 90 Pieces Assorted 16G Eyebrow and Labret, 14G Tongue and Ring Belly Ring Body jewelry set](https://products.checkmycream.com/products/Piercing-Kit-90-Pieces-Assorted-16G-Eyebrow-and-Labret-14G-Tongue-and-Ring-Belly-Ring-Body-jewelry-set.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Head &amp; Shoulders Old Spice 2-In-1 Dandruff Shampoo and Conditioner for Men,
-description: Head &amp; Shoulders Old Spice 2-In-1 Dandruff Shampoo and Conditioner for Men,
-author: Suvojit Manna,
-tags: Head &amp; Shoulders Old Spice 2-In-1 Dandruff Shampoo and Conditioner for Men,
-publishedAt: Fri Jan 10 2020 15:00:36 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:36 GMT+0530 (India Standard Time),
----
-
 # [Head &amp; Shoulders Old Spice 2-In-1 Dandruff Shampoo and Conditioner for Men](https://products.checkmycream.com/products/Head-and-Shoulders-Old-Spice-2-In-1-Dandruff-Shampoo-and-Conditioner-for-Men.html)
 
 ### Positive Reviews

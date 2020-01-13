@@ -1,12 +1,3 @@
----
-title: Kltech Latest Cosmetic Brush Face Makeup Blusher Powder Foundation Tool,
-description: Kltech Latest Cosmetic Brush Face Makeup Blusher Powder Foundation Tool,
-author: Suvojit Manna,
-tags: Kltech Latest Cosmetic Brush Face Makeup Blusher Powder Foundation Tool,
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [Kltech Latest Cosmetic Brush Face Makeup Blusher Powder Foundation Tool](https://products.checkmycream.com/products/Kltech-Latest-Cosmetic-Brush-Face-Makeup-Blusher-Powder-Foundation-Tool.html)
 
 ### Positive Reviews

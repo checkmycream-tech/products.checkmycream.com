@@ -1,12 +1,3 @@
----
-title: Joico Color Endure Violet Conditioner, 10.1 Ounce,
-description: Joico Color Endure Violet Conditioner, 10.1 Ounce,
-author: Suvojit Manna,
-tags: Joico Color Endure Violet Conditioner, 10.1 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:12 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:12 GMT+0530 (India Standard Time),
----
-
 # [Joico Color Endure Violet Conditioner, 10.1 Ounce](https://products.checkmycream.com/products/Joico-Color-Endure-Violet-Conditioner-10.1-Ounce.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: GYBest Best Luxurious Synthetic Make Up Brush Set Cosmetics Foundation Blending Blush Eyeliner Face Powder Brush Makeup Brush Kit (10pcs, Golden Black),
-description: GYBest Best Luxurious Synthetic Make Up Brush Set Cosmetics Foundation Blending Blush Eyeliner Face Powder Brush Makeup Brush Kit (10pcs, Golden Black),
-author: Suvojit Manna,
-tags: GYBest Best Luxurious Synthetic Make Up Brush Set Cosmetics Foundation Blending Blush Eyeliner Face Powder Brush Makeup Brush Kit (10pcs, Golden Black),
-publishedAt: Fri Jan 10 2020 15:01:07 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:07 GMT+0530 (India Standard Time),
----
-
 # [GYBest Best Luxurious Synthetic Make Up Brush Set Cosmetics Foundation Blending Blush Eyeliner Face Powder Brush Makeup Brush Kit (10pcs, Golden Black)](https://products.checkmycream.com/products/GYBest-Best-Luxurious-Synthetic-Make-Up-Brush-Set-Cosmetics-Foundation-Blending-Blush-Eyeliner-Face-Powder-Brush-Makeup-Brush-Kit-(10pcs-Golden-Black).html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: FASH Christmas Sale! Professional Goat Hair and Nylon Makeup Brush Set 20 Pcs with Pink Travel Case,
-description: FASH Christmas Sale! Professional Goat Hair and Nylon Makeup Brush Set 20 Pcs with Pink Travel Case,
-author: Suvojit Manna,
-tags: FASH Christmas Sale! Professional Goat Hair and Nylon Makeup Brush Set 20 Pcs with Pink Travel Case,
-publishedAt: Fri Jan 10 2020 15:00:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:03 GMT+0530 (India Standard Time),
----
-
 # [FASH Christmas Sale! Professional Goat Hair and Nylon Makeup Brush Set 20 Pcs with Pink Travel Case](https://products.checkmycream.com/products/FASH-Christmas-Sale!-Professional-Goat-Hair-and-Nylon-Makeup-Brush-Set-20-Pcs-with-Pink-Travel-Case.html)
 
 ### Positive Reviews

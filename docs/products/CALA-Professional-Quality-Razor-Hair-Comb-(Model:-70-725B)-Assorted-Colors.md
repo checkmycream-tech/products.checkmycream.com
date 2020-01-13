@@ -1,12 +1,3 @@
----
-title: CALA Professional Quality Razor Hair Comb (Model: 70-725B), Assorted Colors,
-description: CALA Professional Quality Razor Hair Comb (Model: 70-725B), Assorted Colors,
-author: Suvojit Manna,
-tags: CALA Professional Quality Razor Hair Comb (Model: 70-725B), Assorted Colors,
-publishedAt: Fri Jan 10 2020 14:59:34 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:34 GMT+0530 (India Standard Time),
----
-
 # [CALA Professional Quality Razor Hair Comb (Model: 70-725B), Assorted Colors](https://products.checkmycream.com/products/CALA-Professional-Quality-Razor-Hair-Comb-(Model:-70-725B)-Assorted-Colors.html)
 
 ### Positive Reviews

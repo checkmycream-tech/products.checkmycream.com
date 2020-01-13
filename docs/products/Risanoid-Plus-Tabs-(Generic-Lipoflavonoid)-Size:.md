@@ -1,12 +1,3 @@
----
-title: Risanoid Plus Tabs (Generic Lipoflavonoid) Size:,
-description: Risanoid Plus Tabs (Generic Lipoflavonoid) Size:,
-author: Suvojit Manna,
-tags: Risanoid Plus Tabs (Generic Lipoflavonoid) Size:,
-publishedAt: Fri Jan 10 2020 14:59:30 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:30 GMT+0530 (India Standard Time),
----
-
 # [Risanoid Plus Tabs (Generic Lipoflavonoid) Size:](https://products.checkmycream.com/products/Risanoid-Plus-Tabs-(Generic-Lipoflavonoid)-Size:.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: VALUE MAKERS 2015 Hot 3 Color Eyebrow Makeup Powder Eyebrows Shaping Powder Palette + 4 Stencils + Eyebrow Wax Makeup Kit Cosmetics Tools,
-description: VALUE MAKERS 2015 Hot 3 Color Eyebrow Makeup Powder Eyebrows Shaping Powder Palette + 4 Stencils + Eyebrow Wax Makeup Kit Cosmetics Tools,
-author: Suvojit Manna,
-tags: VALUE MAKERS 2015 Hot 3 Color Eyebrow Makeup Powder Eyebrows Shaping Powder Palette + 4 Stencils + Eyebrow Wax Makeup Kit Cosmetics Tools,
-publishedAt: Fri Jan 10 2020 15:01:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:08 GMT+0530 (India Standard Time),
----
-
 # [VALUE MAKERS 2015 Hot 3 Color Eyebrow Makeup Powder Eyebrows Shaping Powder Palette + 4 Stencils + Eyebrow Wax Makeup Kit Cosmetics Tools](https://products.checkmycream.com/products/VALUE-MAKERS-2015-Hot-3-Color-Eyebrow-Makeup-Powder-Eyebrows-Shaping-Powder-Palette-+-4-Stencils-+-Eyebrow-Wax-Makeup-Kit-Cosmetics-Tools.html)
 
 ### Positive Reviews

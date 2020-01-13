@@ -1,12 +1,3 @@
----
-title: Yes To Blueberries Age Refresh Deep Wrinkle Night Cream, 1.7 Ounce,
-description: Yes To Blueberries Age Refresh Deep Wrinkle Night Cream, 1.7 Ounce,
-author: Suvojit Manna,
-tags: Yes To Blueberries Age Refresh Deep Wrinkle Night Cream, 1.7 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
----
-
 # [Yes To Blueberries Age Refresh Deep Wrinkle Night Cream, 1.7 Ounce](https://products.checkmycream.com/products/Yes-To-Blueberries-Age-Refresh-Deep-Wrinkle-Night-Cream-1.7-Ounce.html)
 
 ### Positive Reviews

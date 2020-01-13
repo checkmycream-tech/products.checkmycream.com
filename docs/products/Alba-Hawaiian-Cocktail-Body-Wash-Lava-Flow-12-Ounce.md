@@ -1,12 +1,3 @@
----
-title: Alba Hawaiian Cocktail Body Wash, Lava Flow, 12 Ounce,
-description: Alba Hawaiian Cocktail Body Wash, Lava Flow, 12 Ounce,
-author: Suvojit Manna,
-tags: Alba Hawaiian Cocktail Body Wash, Lava Flow, 12 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:10 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:10 GMT+0530 (India Standard Time),
----
-
 # [Alba Hawaiian Cocktail Body Wash, Lava Flow, 12 Ounce](https://products.checkmycream.com/products/Alba-Hawaiian-Cocktail-Body-Wash-Lava-Flow-12-Ounce.html)
 
 ### Positive Reviews

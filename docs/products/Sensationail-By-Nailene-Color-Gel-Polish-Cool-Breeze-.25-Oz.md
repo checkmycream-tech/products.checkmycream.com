@@ -1,12 +1,3 @@
----
-title: Sensationail By Nailene Color Gel Polish Cool Breeze .25 Oz,
-description: Sensationail By Nailene Color Gel Polish Cool Breeze .25 Oz,
-author: Suvojit Manna,
-tags: Sensationail By Nailene Color Gel Polish Cool Breeze .25 Oz,
-publishedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
----
-
 # [Sensationail By Nailene Color Gel Polish Cool Breeze .25 Oz](https://products.checkmycream.com/products/Sensationail-By-Nailene-Color-Gel-Polish-Cool-Breeze-.25-Oz.html)
 
 ### Positive Reviews

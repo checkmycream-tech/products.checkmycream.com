@@ -1,12 +1,3 @@
----
-title: Brut By Faberge For Men. Gift Set ( Cologne Pour 5.0 Oz + Splash On 7.0 Oz ),
-description: Brut By Faberge For Men. Gift Set ( Cologne Pour 5.0 Oz + Splash On 7.0 Oz ),
-author: Suvojit Manna,
-tags: Brut By Faberge For Men. Gift Set ( Cologne Pour 5.0 Oz + Splash On 7.0 Oz ),
-publishedAt: Fri Jan 10 2020 14:59:43 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:43 GMT+0530 (India Standard Time),
----
-
 # [Brut By Faberge For Men. Gift Set ( Cologne Pour 5.0 Oz + Splash On 7.0 Oz )](https://products.checkmycream.com/products/Brut-By-Faberge-For-Men.-Gift-Set-(-Cologne-Pour-5.0-Oz-+-Splash-On-7.0-Oz-).html)
 
 ### Positive Reviews

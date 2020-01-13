@@ -1,12 +1,3 @@
----
-title: Prickly Heat Powder Snake Brand (300 Gram); Original Cool Body Powder for Sport Girl and Men/ Summer Hot Weather Powder,
-description: Prickly Heat Powder Snake Brand (300 Gram); Original Cool Body Powder for Sport Girl and Men/ Summer Hot Weather Powder,
-author: Suvojit Manna,
-tags: Prickly Heat Powder Snake Brand (300 Gram); Original Cool Body Powder for Sport Girl and Men/ Summer Hot Weather Powder,
-publishedAt: Fri Jan 10 2020 15:00:21 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:21 GMT+0530 (India Standard Time),
----
-
 # [Prickly Heat Powder Snake Brand (300 Gram); Original Cool Body Powder for Sport Girl and Men/ Summer Hot Weather Powder](https://products.checkmycream.com/products/Prickly-Heat-Powder-Snake-Brand-(300-Gram)-Original-Cool-Body-Powder-for-Sport-Girl-and-Men-Summer-Hot-Weather-Powder.html)
 
 ### Positive Reviews

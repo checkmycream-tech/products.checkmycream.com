@@ -1,12 +1,3 @@
----
-title: Bal A Versailles For Women By Jean Desprez Eau De Toilette Spray,
-description: Bal A Versailles For Women By Jean Desprez Eau De Toilette Spray,
-author: Suvojit Manna,
-tags: Bal A Versailles For Women By Jean Desprez Eau De Toilette Spray,
-publishedAt: Fri Jan 10 2020 14:59:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:05 GMT+0530 (India Standard Time),
----
-
 # [Bal A Versailles For Women By Jean Desprez Eau De Toilette Spray](https://products.checkmycream.com/products/Bal-A-Versailles-For-Women-By-Jean-Desprez-Eau-De-Toilette-Spray.html)
 
 ### Positive Reviews

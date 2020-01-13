@@ -1,12 +1,3 @@
----
-title: 6 Pack Diamon Deb Nail Files 8 Inches Long,
-description: 6 Pack Diamon Deb Nail Files 8 Inches Long,
-author: Suvojit Manna,
-tags: 6 Pack Diamon Deb Nail Files 8 Inches Long,
-publishedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
----
-
 # [6 Pack Diamon Deb Nail Files 8 Inches Long](https://products.checkmycream.com/products/6-Pack-Diamon-Deb-Nail-Files-8-Inches-Long.html)
 
 ### Positive Reviews

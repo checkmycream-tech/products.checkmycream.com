@@ -1,12 +1,3 @@
----
-title: Maybelline New York Superstay 24,
-description: Maybelline New York Superstay 24,
-author: Suvojit Manna,
-tags: Maybelline New York Superstay 24,
-publishedAt: Fri Jan 10 2020 14:59:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:58 GMT+0530 (India Standard Time),
----
-
 # [Maybelline New York Superstay 24](https://products.checkmycream.com/products/Maybelline-New-York-Superstay-24.html)
 
 ### Positive Reviews

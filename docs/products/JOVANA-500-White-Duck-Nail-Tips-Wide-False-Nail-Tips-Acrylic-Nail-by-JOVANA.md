@@ -1,12 +1,3 @@
----
-title: JOVANA 500 White Duck Nail Tips Wide False Nail Tips Acrylic Nail by JOVANA,
-description: JOVANA 500 White Duck Nail Tips Wide False Nail Tips Acrylic Nail by JOVANA,
-author: Suvojit Manna,
-tags: JOVANA 500 White Duck Nail Tips Wide False Nail Tips Acrylic Nail by JOVANA,
-publishedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
----
-
 # [JOVANA 500 White Duck Nail Tips Wide False Nail Tips Acrylic Nail by JOVANA](https://products.checkmycream.com/products/JOVANA-500-White-Duck-Nail-Tips-Wide-False-Nail-Tips-Acrylic-Nail-by-JOVANA.html)
 
 ### Positive Reviews

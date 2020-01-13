@@ -1,12 +1,3 @@
----
-title: Estee Lauder Sensuous Nude Eau de Parfum Spray, Mini, 0.05 Fluid Ounce,
-description: Estee Lauder Sensuous Nude Eau de Parfum Spray, Mini, 0.05 Fluid Ounce,
-author: Suvojit Manna,
-tags: Estee Lauder Sensuous Nude Eau de Parfum Spray, Mini, 0.05 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
----
-
 # [Estee Lauder Sensuous Nude Eau de Parfum Spray, Mini, 0.05 Fluid Ounce](https://products.checkmycream.com/products/Estee-Lauder-Sensuous-Nude-Eau-de-Parfum-Spray-Mini-0.05-Fluid-Ounce.html)
 
 ### Positive Reviews

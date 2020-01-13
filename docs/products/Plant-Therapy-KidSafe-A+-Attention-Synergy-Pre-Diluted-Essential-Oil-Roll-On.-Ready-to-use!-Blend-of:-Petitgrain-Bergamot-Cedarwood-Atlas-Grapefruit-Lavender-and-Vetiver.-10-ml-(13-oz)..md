@@ -1,12 +1,3 @@
----
-title: Plant Therapy KidSafe A+ Attention Synergy Pre-Diluted Essential Oil Roll-On. Ready to use! Blend of: Petitgrain, Bergamot, Cedarwood Atlas, Grapefruit, Lavender and Vetiver. 10 ml (1/3 oz).,
-description: Plant Therapy KidSafe A+ Attention Synergy Pre-Diluted Essential Oil Roll-On. Ready to use! Blend of: Petitgrain, Bergamot, Cedarwood Atlas, Grapefruit, Lavender and Vetiver. 10 ml (1/3 oz).,
-author: Suvojit Manna,
-tags: Plant Therapy KidSafe A+ Attention Synergy Pre-Diluted Essential Oil Roll-On. Ready to use! Blend of: Petitgrain, Bergamot, Cedarwood Atlas, Grapefruit, Lavender and Vetiver. 10 ml (1/3 oz).,
-publishedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
----
-
 # [Plant Therapy KidSafe A+ Attention Synergy Pre-Diluted Essential Oil Roll-On. Ready to use! Blend of: Petitgrain, Bergamot, Cedarwood Atlas, Grapefruit, Lavender and Vetiver. 10 ml (1/3 oz).](https://products.checkmycream.com/products/Plant-Therapy-KidSafe-A+-Attention-Synergy-Pre-Diluted-Essential-Oil-Roll-On.-Ready-to-use!-Blend-of:-Petitgrain-Bergamot-Cedarwood-Atlas-Grapefruit-Lavender-and-Vetiver.-10-ml-(13-oz)..html)
 
 ### Positive Reviews

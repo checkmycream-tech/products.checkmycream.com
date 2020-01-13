@@ -1,12 +1,3 @@
----
-title: Salerm Hi Repair Shampoo and Repair Mask Combo Set,
-description: Salerm Hi Repair Shampoo and Repair Mask Combo Set,
-author: Suvojit Manna,
-tags: Salerm Hi Repair Shampoo and Repair Mask Combo Set,
-publishedAt: Fri Jan 10 2020 15:00:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:08 GMT+0530 (India Standard Time),
----
-
 # [Salerm Hi Repair Shampoo and Repair Mask Combo Set](https://products.checkmycream.com/products/Salerm-Hi-Repair-Shampoo-and-Repair-Mask-Combo-Set.html)
 
 ### Positive Reviews

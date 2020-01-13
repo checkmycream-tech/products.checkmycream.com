@@ -1,12 +1,3 @@
----
-title: Blue Seduction For Women by Antonio Banderas Eau De Toilette Spray,
-description: Blue Seduction For Women by Antonio Banderas Eau De Toilette Spray,
-author: Suvojit Manna,
-tags: Blue Seduction For Women by Antonio Banderas Eau De Toilette Spray,
-publishedAt: Fri Jan 10 2020 14:59:33 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:33 GMT+0530 (India Standard Time),
----
-
 # [Blue Seduction For Women by Antonio Banderas Eau De Toilette Spray](https://products.checkmycream.com/products/Blue-Seduction-For-Women-by-Antonio-Banderas-Eau-De-Toilette-Spray.html)
 
 ### Positive Reviews

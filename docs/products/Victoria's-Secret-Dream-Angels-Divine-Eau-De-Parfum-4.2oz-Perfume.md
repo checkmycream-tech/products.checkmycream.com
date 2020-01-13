@@ -1,12 +1,3 @@
----
-title: Victoria&#x27;s Secret Dream Angels Divine Eau De Parfum 4.2oz Perfume,
-description: Victoria&#x27;s Secret Dream Angels Divine Eau De Parfum 4.2oz Perfume,
-author: Suvojit Manna,
-tags: Victoria&#x27;s Secret Dream Angels Divine Eau De Parfum 4.2oz Perfume,
-publishedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
----
-
 # [Victoria&#x27;s Secret Dream Angels Divine Eau De Parfum 4.2oz Perfume](https://products.checkmycream.com/products/Victoria&#x27;s-Secret-Dream-Angels-Divine-Eau-De-Parfum-4.2oz-Perfume.html)
 
 ### Positive Reviews

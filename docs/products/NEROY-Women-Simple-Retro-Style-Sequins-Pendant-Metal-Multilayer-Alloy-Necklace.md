@@ -1,12 +1,3 @@
----
-title: NEROY Women Simple Retro Style Sequins Pendant Metal Multilayer Alloy Necklace,
-description: NEROY Women Simple Retro Style Sequins Pendant Metal Multilayer Alloy Necklace,
-author: Suvojit Manna,
-tags: NEROY Women Simple Retro Style Sequins Pendant Metal Multilayer Alloy Necklace,
-publishedAt: Fri Jan 10 2020 15:01:07 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:07 GMT+0530 (India Standard Time),
----
-
 # [NEROY Women Simple Retro Style Sequins Pendant Metal Multilayer Alloy Necklace](https://products.checkmycream.com/products/NEROY-Women-Simple-Retro-Style-Sequins-Pendant-Metal-Multilayer-Alloy-Necklace.html)
 
 ### Positive Reviews

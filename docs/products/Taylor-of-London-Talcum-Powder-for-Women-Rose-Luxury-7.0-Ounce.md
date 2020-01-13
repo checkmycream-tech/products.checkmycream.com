@@ -1,12 +1,3 @@
----
-title: Taylor of London Talcum Powder for Women, Rose Luxury, 7.0 Ounce,
-description: Taylor of London Talcum Powder for Women, Rose Luxury, 7.0 Ounce,
-author: Suvojit Manna,
-tags: Taylor of London Talcum Powder for Women, Rose Luxury, 7.0 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:23 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:23 GMT+0530 (India Standard Time),
----
-
 # [Taylor of London Talcum Powder for Women, Rose Luxury, 7.0 Ounce](https://products.checkmycream.com/products/Taylor-of-London-Talcum-Powder-for-Women-Rose-Luxury-7.0-Ounce.html)
 
 ### Positive Reviews

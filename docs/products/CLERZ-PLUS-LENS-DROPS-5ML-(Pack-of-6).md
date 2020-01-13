@@ -1,12 +1,3 @@
----
-title: CLERZ PLUS LENS DROPS 5ML (Pack of 6),
-description: CLERZ PLUS LENS DROPS 5ML (Pack of 6),
-author: Suvojit Manna,
-tags: CLERZ PLUS LENS DROPS 5ML (Pack of 6),
-publishedAt: Fri Jan 10 2020 15:00:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:01 GMT+0530 (India Standard Time),
----
-
 # [CLERZ PLUS LENS DROPS 5ML (Pack of 6)](https://products.checkmycream.com/products/CLERZ-PLUS-LENS-DROPS-5ML-(Pack-of-6).html)
 
 ### Positive Reviews

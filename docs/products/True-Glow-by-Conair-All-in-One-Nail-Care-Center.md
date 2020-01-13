@@ -1,12 +1,3 @@
----
-title: True Glow by Conair All-in-One Nail Care Center,
-description: True Glow by Conair All-in-One Nail Care Center,
-author: Suvojit Manna,
-tags: True Glow by Conair All-in-One Nail Care Center,
-publishedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
----
-
 # [True Glow by Conair All-in-One Nail Care Center](https://products.checkmycream.com/products/True-Glow-by-Conair-All-in-One-Nail-Care-Center.html)
 
 ### Positive Reviews

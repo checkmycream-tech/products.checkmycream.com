@@ -1,12 +1,3 @@
----
-title: Solangel Empty Polish Bottles 1/2 Oz Pack of 3 Bottles,
-description: Solangel Empty Polish Bottles 1/2 Oz Pack of 3 Bottles,
-author: Suvojit Manna,
-tags: Solangel Empty Polish Bottles 1/2 Oz Pack of 3 Bottles,
-publishedAt: Fri Jan 10 2020 15:01:06 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:06 GMT+0530 (India Standard Time),
----
-
 # [Solangel Empty Polish Bottles 1/2 Oz Pack of 3 Bottles](https://products.checkmycream.com/products/Solangel-Empty-Polish-Bottles-12-Oz-Pack-of-3-Bottles.html)
 
 ### Positive Reviews

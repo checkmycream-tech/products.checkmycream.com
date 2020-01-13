@@ -1,12 +1,3 @@
----
-title: Adonia Athena 7 Minute Lift,
-description: Adonia Athena 7 Minute Lift,
-author: Suvojit Manna,
-tags: Adonia Athena 7 Minute Lift,
-publishedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
----
-
 # [Adonia Athena 7 Minute Lift](https://products.checkmycream.com/products/Adonia-Athena-7-Minute-Lift.html)
 
 ### Positive Reviews

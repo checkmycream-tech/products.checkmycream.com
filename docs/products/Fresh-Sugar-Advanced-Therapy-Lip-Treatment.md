@@ -1,12 +1,3 @@
----
-title: Fresh Sugar Advanced Therapy Lip Treatment,
-description: Fresh Sugar Advanced Therapy Lip Treatment,
-author: Suvojit Manna,
-tags: Fresh Sugar Advanced Therapy Lip Treatment,
-publishedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
----
-
 # [Fresh Sugar Advanced Therapy Lip Treatment](https://products.checkmycream.com/products/Fresh-Sugar-Advanced-Therapy-Lip-Treatment.html)
 
 ### Positive Reviews

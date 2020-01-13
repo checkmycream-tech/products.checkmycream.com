@@ -1,12 +1,3 @@
----
-title: ProFoot Vita-Gel Toe Protector,
-description: ProFoot Vita-Gel Toe Protector,
-author: Suvojit Manna,
-tags: ProFoot Vita-Gel Toe Protector,
-publishedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
----
-
 # [ProFoot Vita-Gel Toe Protector](https://products.checkmycream.com/products/ProFoot-Vita-Gel-Toe-Protector.html)
 
 ### Positive Reviews

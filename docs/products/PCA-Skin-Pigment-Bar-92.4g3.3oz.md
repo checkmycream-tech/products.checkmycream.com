@@ -1,12 +1,3 @@
----
-title: PCA Skin Pigment Bar - 92.4g/3.3oz,
-description: PCA Skin Pigment Bar - 92.4g/3.3oz,
-author: Suvojit Manna,
-tags: PCA Skin Pigment Bar - 92.4g/3.3oz,
-publishedAt: Fri Jan 10 2020 14:59:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:58 GMT+0530 (India Standard Time),
----
-
 # [PCA Skin Pigment Bar - 92.4g/3.3oz](https://products.checkmycream.com/products/PCA-Skin-Pigment-Bar-92.4g3.3oz.html)
 
 ### Positive Reviews

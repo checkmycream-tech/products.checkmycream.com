@@ -1,12 +1,3 @@
----
-title: Secret Clinical Strength Advanced Solid 1.6 oz (3 Pack),
-description: Secret Clinical Strength Advanced Solid 1.6 oz (3 Pack),
-author: Suvojit Manna,
-tags: Secret Clinical Strength Advanced Solid 1.6 oz (3 Pack),
-publishedAt: Fri Jan 10 2020 15:00:45 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:45 GMT+0530 (India Standard Time),
----
-
 # [Secret Clinical Strength Advanced Solid 1.6 oz (3 Pack)](https://products.checkmycream.com/products/Secret-Clinical-Strength-Advanced-Solid-1.6-oz-(3-Pack).html)
 
 ### Positive Reviews

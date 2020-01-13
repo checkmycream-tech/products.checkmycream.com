@@ -1,12 +1,3 @@
----
-title: Freeman Cucumber Facial Peel-Off Mask - 6 oz,
-description: Freeman Cucumber Facial Peel-Off Mask - 6 oz,
-author: Suvojit Manna,
-tags: Freeman Cucumber Facial Peel-Off Mask - 6 oz,
-publishedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
----
-
 # [Freeman Cucumber Facial Peel-Off Mask - 6 oz](https://products.checkmycream.com/products/Freeman-Cucumber-Facial-Peel-Off-Mask-6-oz.html)
 
 ### Positive Reviews

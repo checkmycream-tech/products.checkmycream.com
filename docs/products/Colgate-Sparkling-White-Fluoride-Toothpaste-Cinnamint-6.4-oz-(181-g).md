@@ -1,12 +1,3 @@
----
-title: Colgate Sparkling White Fluoride Toothpaste, Cinnamint, 6.4 oz (181 g),
-description: Colgate Sparkling White Fluoride Toothpaste, Cinnamint, 6.4 oz (181 g),
-author: Suvojit Manna,
-tags: Colgate Sparkling White Fluoride Toothpaste, Cinnamint, 6.4 oz (181 g),
-publishedAt: Fri Jan 10 2020 14:59:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:03 GMT+0530 (India Standard Time),
----
-
 # [Colgate Sparkling White Fluoride Toothpaste, Cinnamint, 6.4 oz (181 g)](https://products.checkmycream.com/products/Colgate-Sparkling-White-Fluoride-Toothpaste-Cinnamint-6.4-oz-(181-g).html)
 
 ### Positive Reviews

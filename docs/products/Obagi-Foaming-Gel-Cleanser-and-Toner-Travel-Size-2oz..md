@@ -1,12 +1,3 @@
----
-title: Obagi Foaming Gel Cleanser and Toner Travel Size 2oz.,
-description: Obagi Foaming Gel Cleanser and Toner Travel Size 2oz.,
-author: Suvojit Manna,
-tags: Obagi Foaming Gel Cleanser and Toner Travel Size 2oz.,
-publishedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
----
-
 # [Obagi Foaming Gel Cleanser and Toner Travel Size 2oz.](https://products.checkmycream.com/products/Obagi-Foaming-Gel-Cleanser-and-Toner-Travel-Size-2oz..html)
 
 ### Positive Reviews

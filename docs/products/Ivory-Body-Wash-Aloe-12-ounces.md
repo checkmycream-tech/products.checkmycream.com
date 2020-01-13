@@ -1,12 +1,3 @@
----
-title: Ivory Body Wash, Aloe, 12 ounces,
-description: Ivory Body Wash, Aloe, 12 ounces,
-author: Suvojit Manna,
-tags: Ivory Body Wash, Aloe, 12 ounces,
-publishedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
----
-
 # [Ivory Body Wash, Aloe, 12 ounces](https://products.checkmycream.com/products/Ivory-Body-Wash-Aloe-12-ounces.html)
 
 ### Positive Reviews

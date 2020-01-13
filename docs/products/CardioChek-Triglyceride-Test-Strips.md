@@ -1,12 +1,3 @@
----
-title: CardioChek Triglyceride Test Strips,
-description: CardioChek Triglyceride Test Strips,
-author: Suvojit Manna,
-tags: CardioChek Triglyceride Test Strips,
-publishedAt: Fri Jan 10 2020 14:59:23 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:23 GMT+0530 (India Standard Time),
----
-
 # [CardioChek Triglyceride Test Strips](https://products.checkmycream.com/products/CardioChek-Triglyceride-Test-Strips.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: DaySeventh Fashion Lace Tassel Sheer Burntout Floral Print Triangle Mantilla Scarf Shawl (White),
-description: DaySeventh Fashion Lace Tassel Sheer Burntout Floral Print Triangle Mantilla Scarf Shawl (White),
-author: Suvojit Manna,
-tags: DaySeventh Fashion Lace Tassel Sheer Burntout Floral Print Triangle Mantilla Scarf Shawl (White),
-publishedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
----
-
 # [DaySeventh Fashion Lace Tassel Sheer Burntout Floral Print Triangle Mantilla Scarf Shawl (White)](https://products.checkmycream.com/products/DaySeventh-Fashion-Lace-Tassel-Sheer-Burntout-Floral-Print-Triangle-Mantilla-Scarf-Shawl-(White).html)
 
 ### Positive Reviews

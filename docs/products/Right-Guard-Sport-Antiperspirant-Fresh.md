@@ -1,12 +1,3 @@
----
-title: Right Guard Sport Antiperspirant , Fresh,
-description: Right Guard Sport Antiperspirant , Fresh,
-author: Suvojit Manna,
-tags: Right Guard Sport Antiperspirant , Fresh,
-publishedAt: Fri Jan 10 2020 14:59:46 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:46 GMT+0530 (India Standard Time),
----
-
 # [Right Guard Sport Antiperspirant , Fresh](https://products.checkmycream.com/products/Right-Guard-Sport-Antiperspirant-Fresh.html)
 
 ### Positive Reviews

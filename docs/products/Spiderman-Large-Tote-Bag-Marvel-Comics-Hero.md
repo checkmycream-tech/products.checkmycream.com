@@ -1,12 +1,3 @@
----
-title: Spiderman Large Tote Bag Marvel Comics Hero,
-description: Spiderman Large Tote Bag Marvel Comics Hero,
-author: Suvojit Manna,
-tags: Spiderman Large Tote Bag Marvel Comics Hero,
-publishedAt: Fri Jan 10 2020 15:00:16 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:16 GMT+0530 (India Standard Time),
----
-
 # [Spiderman Large Tote Bag Marvel Comics Hero](https://products.checkmycream.com/products/Spiderman-Large-Tote-Bag-Marvel-Comics-Hero.html)
 
 ### Positive Reviews

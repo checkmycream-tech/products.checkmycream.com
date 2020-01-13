@@ -1,12 +1,3 @@
----
-title: Jovana 10 Pairs Natural Long Fake False Eyelashes Eye Makeup,
-description: Jovana 10 Pairs Natural Long Fake False Eyelashes Eye Makeup,
-author: Suvojit Manna,
-tags: Jovana 10 Pairs Natural Long Fake False Eyelashes Eye Makeup,
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [Jovana 10 Pairs Natural Long Fake False Eyelashes Eye Makeup](https://products.checkmycream.com/products/Jovana-10-Pairs-Natural-Long-Fake-False-Eyelashes-Eye-Makeup.html)
 
 ### Positive Reviews

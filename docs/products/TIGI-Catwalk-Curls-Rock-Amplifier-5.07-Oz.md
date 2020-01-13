@@ -1,12 +1,3 @@
----
-title: TIGI Catwalk Curls Rock Amplifier, 5.07 Oz,
-description: TIGI Catwalk Curls Rock Amplifier, 5.07 Oz,
-author: Suvojit Manna,
-tags: TIGI Catwalk Curls Rock Amplifier, 5.07 Oz,
-publishedAt: Fri Jan 10 2020 15:00:22 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:22 GMT+0530 (India Standard Time),
----
-
 # [TIGI Catwalk Curls Rock Amplifier, 5.07 Oz](https://products.checkmycream.com/products/TIGI-Catwalk-Curls-Rock-Amplifier-5.07-Oz.html)
 
 ### Positive Reviews

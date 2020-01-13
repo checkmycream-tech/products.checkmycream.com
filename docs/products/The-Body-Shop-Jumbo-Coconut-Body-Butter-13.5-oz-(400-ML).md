@@ -1,12 +1,3 @@
----
-title: The Body Shop Jumbo Coconut Body Butter 13.5 oz (400 ML),
-description: The Body Shop Jumbo Coconut Body Butter 13.5 oz (400 ML),
-author: Suvojit Manna,
-tags: The Body Shop Jumbo Coconut Body Butter 13.5 oz (400 ML),
-publishedAt: Fri Jan 10 2020 15:00:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:03 GMT+0530 (India Standard Time),
----
-
 # [The Body Shop Jumbo Coconut Body Butter 13.5 oz (400 ML)](https://products.checkmycream.com/products/The-Body-Shop-Jumbo-Coconut-Body-Butter-13.5-oz-(400-ML).html)
 
 ### Positive Reviews

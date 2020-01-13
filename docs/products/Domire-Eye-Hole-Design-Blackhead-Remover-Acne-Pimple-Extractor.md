@@ -1,12 +1,3 @@
----
-title: Domire Eye Hole Design Blackhead Remover Acne Pimple Extractor,
-description: Domire Eye Hole Design Blackhead Remover Acne Pimple Extractor,
-author: Suvojit Manna,
-tags: Domire Eye Hole Design Blackhead Remover Acne Pimple Extractor,
-publishedAt: Fri Jan 10 2020 15:01:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:05 GMT+0530 (India Standard Time),
----
-
 # [Domire Eye Hole Design Blackhead Remover Acne Pimple Extractor](https://products.checkmycream.com/products/Domire-Eye-Hole-Design-Blackhead-Remover-Acne-Pimple-Extractor.html)
 
 ### Positive Reviews

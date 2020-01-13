@@ -1,12 +1,3 @@
----
-title: Davines Melu Mellow Split Ends Repairing Sealing Serum for Unisex, 3.38 Ounce,
-description: Davines Melu Mellow Split Ends Repairing Sealing Serum for Unisex, 3.38 Ounce,
-author: Suvojit Manna,
-tags: Davines Melu Mellow Split Ends Repairing Sealing Serum for Unisex, 3.38 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:44 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:44 GMT+0530 (India Standard Time),
----
-
 # [Davines Melu Mellow Split Ends Repairing Sealing Serum for Unisex, 3.38 Ounce](https://products.checkmycream.com/products/Davines-Melu-Mellow-Split-Ends-Repairing-Sealing-Serum-for-Unisex-3.38-Ounce.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Moves Pulse for Her Eau-De-Toilette Spray by Adidas,
-description: Moves Pulse for Her Eau-De-Toilette Spray by Adidas,
-author: Suvojit Manna,
-tags: Moves Pulse for Her Eau-De-Toilette Spray by Adidas,
-publishedAt: Fri Jan 10 2020 15:00:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:00 GMT+0530 (India Standard Time),
----
-
 # [Moves Pulse for Her Eau-De-Toilette Spray by Adidas](https://products.checkmycream.com/products/Moves-Pulse-for-Her-Eau-De-Toilette-Spray-by-Adidas.html)
 
 ### Positive Reviews

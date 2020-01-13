@@ -1,12 +1,3 @@
----
-title: SEKI EDGE SS-306- 1/4 Jaw Cuticle Nipper,
-description: SEKI EDGE SS-306- 1/4 Jaw Cuticle Nipper,
-author: Suvojit Manna,
-tags: SEKI EDGE SS-306- 1/4 Jaw Cuticle Nipper,
-publishedAt: Fri Jan 10 2020 14:59:46 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:46 GMT+0530 (India Standard Time),
----
-
 # [SEKI EDGE SS-306- 1/4 Jaw Cuticle Nipper](https://products.checkmycream.com/products/SEKI-EDGE-SS-306-14-Jaw-Cuticle-Nipper.html)
 
 ### Positive Reviews

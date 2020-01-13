@@ -1,12 +1,3 @@
----
-title: Silkening Conditioner/FN166024/5 oz//,
-description: Silkening Conditioner/FN166024/5 oz//,
-author: Suvojit Manna,
-tags: Silkening Conditioner/FN166024/5 oz//,
-publishedAt: Fri Jan 10 2020 14:59:22 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:22 GMT+0530 (India Standard Time),
----
-
 # [Silkening Conditioner/FN166024/5 oz//](https://products.checkmycream.com/products/Silkening-ConditionerFN1660245-oz.html)
 
 ### Positive Reviews

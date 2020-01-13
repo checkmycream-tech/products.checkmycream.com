@@ -1,12 +1,3 @@
----
-title: The Pedi Store (TM) SUPER Coarse Micro Mineral Emjoi Micro-Pedi Compatible Replacement Rollers for Unisex Tough Calluses (4 pack),
-description: The Pedi Store (TM) SUPER Coarse Micro Mineral Emjoi Micro-Pedi Compatible Replacement Rollers for Unisex Tough Calluses (4 pack),
-author: Suvojit Manna,
-tags: The Pedi Store (TM) SUPER Coarse Micro Mineral Emjoi Micro-Pedi Compatible Replacement Rollers for Unisex Tough Calluses (4 pack),
-publishedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
----
-
 # [The Pedi Store (TM) SUPER Coarse Micro Mineral Emjoi Micro-Pedi Compatible Replacement Rollers for Unisex Tough Calluses (4 pack)](https://products.checkmycream.com/products/The-Pedi-Store-(TM)-SUPER-Coarse-Micro-Mineral-Emjoi-Micro-Pedi-Compatible-Replacement-Rollers-for-Unisex-Tough-Calluses-(4-pack).html)
 
 ### Positive Reviews

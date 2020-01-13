@@ -1,12 +1,3 @@
----
-title: Maybelline New York Shine Free Oil Control Pressed Powder,
-description: Maybelline New York Shine Free Oil Control Pressed Powder,
-author: Suvojit Manna,
-tags: Maybelline New York Shine Free Oil Control Pressed Powder,
-publishedAt: Fri Jan 10 2020 14:59:21 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:21 GMT+0530 (India Standard Time),
----
-
 # [Maybelline New York Shine Free Oil Control Pressed Powder](https://products.checkmycream.com/products/Maybelline-New-York-Shine-Free-Oil-Control-Pressed-Powder.html)
 
 ### Positive Reviews

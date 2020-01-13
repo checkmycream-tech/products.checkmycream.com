@@ -1,12 +1,3 @@
----
-title: MAKE UP FOR EVER Aqua Eyes Mat Black 0L,
-description: MAKE UP FOR EVER Aqua Eyes Mat Black 0L,
-author: Suvojit Manna,
-tags: MAKE UP FOR EVER Aqua Eyes Mat Black 0L,
-publishedAt: Fri Jan 10 2020 14:59:11 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:11 GMT+0530 (India Standard Time),
----
-
 # [MAKE UP FOR EVER Aqua Eyes Mat Black 0L](https://products.checkmycream.com/products/MAKE-UP-FOR-EVER-Aqua-Eyes-Mat-Black-0L.html)
 
 ### Positive Reviews

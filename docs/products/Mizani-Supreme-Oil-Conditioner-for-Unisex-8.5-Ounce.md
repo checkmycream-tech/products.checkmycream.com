@@ -1,12 +1,3 @@
----
-title: Mizani Supreme Oil Conditioner for Unisex, 8.5 Ounce,
-description: Mizani Supreme Oil Conditioner for Unisex, 8.5 Ounce,
-author: Suvojit Manna,
-tags: Mizani Supreme Oil Conditioner for Unisex, 8.5 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:30 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:30 GMT+0530 (India Standard Time),
----
-
 # [Mizani Supreme Oil Conditioner for Unisex, 8.5 Ounce](https://products.checkmycream.com/products/Mizani-Supreme-Oil-Conditioner-for-Unisex-8.5-Ounce.html)
 
 ### Positive Reviews

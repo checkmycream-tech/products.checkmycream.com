@@ -1,12 +1,3 @@
----
-title: Pjur Eros Bodyglide Original 250ml (pack 2),
-description: Pjur Eros Bodyglide Original 250ml (pack 2),
-author: Suvojit Manna,
-tags: Pjur Eros Bodyglide Original 250ml (pack 2),
-publishedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
----
-
 # [Pjur Eros Bodyglide Original 250ml (pack 2)](https://products.checkmycream.com/products/Pjur-Eros-Bodyglide-Original-250ml-(pack-2).html)
 
 ### Positive Reviews

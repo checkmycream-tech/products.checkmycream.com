@@ -1,12 +1,3 @@
----
-title: Lot of 2 Sinfully Black 15x Bronzer By Australian Gold 8.5 Oz Tanning Lotion,
-description: Lot of 2 Sinfully Black 15x Bronzer By Australian Gold 8.5 Oz Tanning Lotion,
-author: Suvojit Manna,
-tags: Lot of 2 Sinfully Black 15x Bronzer By Australian Gold 8.5 Oz Tanning Lotion,
-publishedAt: Fri Jan 10 2020 15:00:04 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:04 GMT+0530 (India Standard Time),
----
-
 # [Lot of 2 Sinfully Black 15x Bronzer By Australian Gold 8.5 Oz Tanning Lotion](https://products.checkmycream.com/products/Lot-of-2-Sinfully-Black-15x-Bronzer-By-Australian-Gold-8.5-Oz-Tanning-Lotion.html)
 
 ### Positive Reviews

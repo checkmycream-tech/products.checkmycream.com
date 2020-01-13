@@ -1,12 +1,3 @@
----
-title: Loma Organics Repairative Creme Shampoo &amp; Conditioner 12 OZ Combo,
-description: Loma Organics Repairative Creme Shampoo &amp; Conditioner 12 OZ Combo,
-author: Suvojit Manna,
-tags: Loma Organics Repairative Creme Shampoo &amp; Conditioner 12 OZ Combo,
-publishedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
----
-
 # [Loma Organics Repairative Creme Shampoo &amp; Conditioner 12 OZ Combo](https://products.checkmycream.com/products/Loma-Organics-Repairative-Creme-Shampoo-and-Conditioner-12-OZ-Combo.html)
 
 ### Positive Reviews

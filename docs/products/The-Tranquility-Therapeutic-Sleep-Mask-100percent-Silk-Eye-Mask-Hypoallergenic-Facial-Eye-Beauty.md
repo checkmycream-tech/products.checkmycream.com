@@ -1,12 +1,3 @@
----
-title: The Tranquility Therapeutic Sleep Mask; 100% Silk Eye Mask, Hypoallergenic, Facial Eye Beauty,
-description: The Tranquility Therapeutic Sleep Mask; 100% Silk Eye Mask, Hypoallergenic, Facial Eye Beauty,
-author: Suvojit Manna,
-tags: The Tranquility Therapeutic Sleep Mask; 100% Silk Eye Mask, Hypoallergenic, Facial Eye Beauty,
-publishedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
----
-
 # [The Tranquility Therapeutic Sleep Mask; 100% Silk Eye Mask, Hypoallergenic, Facial Eye Beauty](https://products.checkmycream.com/products/The-Tranquility-Therapeutic-Sleep-Mask-100percent-Silk-Eye-Mask-Hypoallergenic-Facial-Eye-Beauty.html)
 
 ### Positive Reviews

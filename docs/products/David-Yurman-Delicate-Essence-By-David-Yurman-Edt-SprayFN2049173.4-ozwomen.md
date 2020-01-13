@@ -1,12 +1,3 @@
----
-title: David Yurman Delicate Essence By David Yurman Edt Spray/FN204917/3.4 oz/women/,
-description: David Yurman Delicate Essence By David Yurman Edt Spray/FN204917/3.4 oz/women/,
-author: Suvojit Manna,
-tags: David Yurman Delicate Essence By David Yurman Edt Spray/FN204917/3.4 oz/women/,
-publishedAt: Fri Jan 10 2020 15:00:13 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:13 GMT+0530 (India Standard Time),
----
-
 # [David Yurman Delicate Essence By David Yurman Edt Spray/FN204917/3.4 oz/women/](https://products.checkmycream.com/products/David-Yurman-Delicate-Essence-By-David-Yurman-Edt-SprayFN2049173.4-ozwomen.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Vktech® Width 25cm Lady Sexy Long Curl Wavy Clip-on Hair Extension Dark Brown,
-description: Vktech® Width 25cm Lady Sexy Long Curl Wavy Clip-on Hair Extension Dark Brown,
-author: Suvojit Manna,
-tags: Vktech® Width 25cm Lady Sexy Long Curl Wavy Clip-on Hair Extension Dark Brown,
-publishedAt: Fri Jan 10 2020 15:00:38 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:38 GMT+0530 (India Standard Time),
----
-
 # [Vktech® Width 25cm Lady Sexy Long Curl Wavy Clip-on Hair Extension Dark Brown](https://products.checkmycream.com/products/Vktech(r)-Width-25cm-Lady-Sexy-Long-Curl-Wavy-Clip-on-Hair-Extension-Dark-Brown.html)
 
 ### Positive Reviews

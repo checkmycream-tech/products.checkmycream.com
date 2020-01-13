@@ -1,12 +1,3 @@
----
-title: Dove go fresh Beauty Bar, Restore 4 oz, 6 Bar,
-description: Dove go fresh Beauty Bar, Restore 4 oz, 6 Bar,
-author: Suvojit Manna,
-tags: Dove go fresh Beauty Bar, Restore 4 oz, 6 Bar,
-publishedAt: Fri Jan 10 2020 15:00:38 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:38 GMT+0530 (India Standard Time),
----
-
 # [Dove go fresh Beauty Bar, Restore 4 oz, 6 Bar](https://products.checkmycream.com/products/Dove-go-fresh-Beauty-Bar-Restore-4-oz-6-Bar.html)
 
 ### Positive Reviews

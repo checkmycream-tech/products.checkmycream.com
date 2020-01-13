@@ -1,12 +1,3 @@
----
-title: Victoria&#x27;s Secret VERY SEXY Body Lotion 6.7 FL OZ,
-description: Victoria&#x27;s Secret VERY SEXY Body Lotion 6.7 FL OZ,
-author: Suvojit Manna,
-tags: Victoria&#x27;s Secret VERY SEXY Body Lotion 6.7 FL OZ,
-publishedAt: Fri Jan 10 2020 14:59:31 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:31 GMT+0530 (India Standard Time),
----
-
 # [Victoria&#x27;s Secret VERY SEXY Body Lotion 6.7 FL OZ](https://products.checkmycream.com/products/Victoria&#x27;s-Secret-VERY-SEXY-Body-Lotion-6.7-FL-OZ.html)
 
 ### Positive Reviews

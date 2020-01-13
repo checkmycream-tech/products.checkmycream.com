@@ -1,12 +1,3 @@
----
-title: Benetton Sport Eau de Toilette for Women by Benetton,
-description: Benetton Sport Eau de Toilette for Women by Benetton,
-author: Suvojit Manna,
-tags: Benetton Sport Eau de Toilette for Women by Benetton,
-publishedAt: Fri Jan 10 2020 14:59:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:05 GMT+0530 (India Standard Time),
----
-
 # [Benetton Sport Eau de Toilette for Women by Benetton](https://products.checkmycream.com/products/Benetton-Sport-Eau-de-Toilette-for-Women-by-Benetton.html)
 
 ### Positive Reviews

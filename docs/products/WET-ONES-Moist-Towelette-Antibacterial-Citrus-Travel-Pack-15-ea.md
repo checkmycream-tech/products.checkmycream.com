@@ -1,12 +1,3 @@
----
-title: WET ONES Moist Towelette, Antibacterial, Citrus, Travel Pack 15 ea,
-description: WET ONES Moist Towelette, Antibacterial, Citrus, Travel Pack 15 ea,
-author: Suvojit Manna,
-tags: WET ONES Moist Towelette, Antibacterial, Citrus, Travel Pack 15 ea,
-publishedAt: Fri Jan 10 2020 14:59:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:58 GMT+0530 (India Standard Time),
----
-
 # [WET ONES Moist Towelette, Antibacterial, Citrus, Travel Pack 15 ea](https://products.checkmycream.com/products/WET-ONES-Moist-Towelette-Antibacterial-Citrus-Travel-Pack-15-ea.html)
 
 ### Positive Reviews

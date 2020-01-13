@@ -1,12 +1,3 @@
----
-title: NEEWER® Ladies Leopard Envelope Faux Leather Purse Coins Wallet Clutch Bag Handbag,
-description: NEEWER® Ladies Leopard Envelope Faux Leather Purse Coins Wallet Clutch Bag Handbag,
-author: Suvojit Manna,
-tags: NEEWER® Ladies Leopard Envelope Faux Leather Purse Coins Wallet Clutch Bag Handbag,
-publishedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
----
-
 # [NEEWER® Ladies Leopard Envelope Faux Leather Purse Coins Wallet Clutch Bag Handbag](https://products.checkmycream.com/products/NEEWER(r)-Ladies-Leopard-Envelope-Faux-Leather-Purse-Coins-Wallet-Clutch-Bag-Handbag.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: New Nordic Skin Care Collagen Filler, 60 Count,
-description: New Nordic Skin Care Collagen Filler, 60 Count,
-author: Suvojit Manna,
-tags: New Nordic Skin Care Collagen Filler, 60 Count,
-publishedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
----
-
 # [New Nordic Skin Care Collagen Filler, 60 Count](https://products.checkmycream.com/products/New-Nordic-Skin-Care-Collagen-Filler-60-Count.html)
 
 ### Positive Reviews

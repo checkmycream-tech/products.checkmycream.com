@@ -1,12 +1,3 @@
----
-title: BR Beauty Revolution Complete Make Over Makeup Artist Kit - Pro Series All in One Makeup Palette,
-description: BR Beauty Revolution Complete Make Over Makeup Artist Kit - Pro Series All in One Makeup Palette,
-author: Suvojit Manna,
-tags: BR Beauty Revolution Complete Make Over Makeup Artist Kit - Pro Series All in One Makeup Palette,
-publishedAt: Fri Jan 10 2020 15:00:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:05 GMT+0530 (India Standard Time),
----
-
 # [BR Beauty Revolution Complete Make Over Makeup Artist Kit - Pro Series All in One Makeup Palette](https://products.checkmycream.com/products/BR-Beauty-Revolution-Complete-Make-Over-Makeup-Artist-Kit-Pro-Series-All-in-One-Makeup-Palette.html)
 
 ### Positive Reviews

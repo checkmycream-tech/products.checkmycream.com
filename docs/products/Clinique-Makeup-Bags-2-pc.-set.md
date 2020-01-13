@@ -1,12 +1,3 @@
----
-title: Clinique Makeup Bags - 2 pc. set,
-description: Clinique Makeup Bags - 2 pc. set,
-author: Suvojit Manna,
-tags: Clinique Makeup Bags - 2 pc. set,
-publishedAt: Fri Jan 10 2020 15:00:20 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:20 GMT+0530 (India Standard Time),
----
-
 # [Clinique Makeup Bags - 2 pc. set](https://products.checkmycream.com/products/Clinique-Makeup-Bags-2-pc.-set.html)
 
 ### Positive Reviews

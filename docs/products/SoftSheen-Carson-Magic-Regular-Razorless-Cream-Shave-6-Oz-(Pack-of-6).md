@@ -1,12 +1,3 @@
----
-title: SoftSheen Carson Magic Regular Razorless Cream Shave 6 Oz (Pack of 6),
-description: SoftSheen Carson Magic Regular Razorless Cream Shave 6 Oz (Pack of 6),
-author: Suvojit Manna,
-tags: SoftSheen Carson Magic Regular Razorless Cream Shave 6 Oz (Pack of 6),
-publishedAt: Fri Jan 10 2020 14:59:28 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:28 GMT+0530 (India Standard Time),
----
-
 # [SoftSheen Carson Magic Regular Razorless Cream Shave 6 Oz (Pack of 6)](https://products.checkmycream.com/products/SoftSheen-Carson-Magic-Regular-Razorless-Cream-Shave-6-Oz-(Pack-of-6).html)
 
 ### Positive Reviews

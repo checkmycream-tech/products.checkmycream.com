@@ -1,12 +1,3 @@
----
-title: Vidal Sassoon 6 Piece Thin Metal Barrettes,
-description: Vidal Sassoon 6 Piece Thin Metal Barrettes,
-author: Suvojit Manna,
-tags: Vidal Sassoon 6 Piece Thin Metal Barrettes,
-publishedAt: Fri Jan 10 2020 15:00:20 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:20 GMT+0530 (India Standard Time),
----
-
 # [Vidal Sassoon 6 Piece Thin Metal Barrettes](https://products.checkmycream.com/products/Vidal-Sassoon-6-Piece-Thin-Metal-Barrettes.html)
 
 ### Positive Reviews

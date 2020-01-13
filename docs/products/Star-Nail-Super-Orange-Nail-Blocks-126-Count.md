@@ -1,12 +1,3 @@
----
-title: Star Nail Super Orange Nail Blocks 126-Count,
-description: Star Nail Super Orange Nail Blocks 126-Count,
-author: Suvojit Manna,
-tags: Star Nail Super Orange Nail Blocks 126-Count,
-publishedAt: Fri Jan 10 2020 15:00:10 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:10 GMT+0530 (India Standard Time),
----
-
 # [Star Nail Super Orange Nail Blocks 126-Count](https://products.checkmycream.com/products/Star-Nail-Super-Orange-Nail-Blocks-126-Count.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: DEDC Double Layer Cosmetic Bag Rose Red with Black Dot Travel Toiletry Cosmetic Makeup Bag Organizer With Mirror,
-description: DEDC Double Layer Cosmetic Bag Rose Red with Black Dot Travel Toiletry Cosmetic Makeup Bag Organizer With Mirror,
-author: Suvojit Manna,
-tags: DEDC Double Layer Cosmetic Bag Rose Red with Black Dot Travel Toiletry Cosmetic Makeup Bag Organizer With Mirror,
-publishedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
----
-
 # [DEDC Double Layer Cosmetic Bag Rose Red with Black Dot Travel Toiletry Cosmetic Makeup Bag Organizer With Mirror](https://products.checkmycream.com/products/DEDC-Double-Layer-Cosmetic-Bag-Rose-Red-with-Black-Dot-Travel-Toiletry-Cosmetic-Makeup-Bag-Organizer-With-Mirror.html)
 
 ### Positive Reviews

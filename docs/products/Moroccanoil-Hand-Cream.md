@@ -1,12 +1,3 @@
----
-title: Moroccanoil Hand Cream,
-description: Moroccanoil Hand Cream,
-author: Suvojit Manna,
-tags: Moroccanoil Hand Cream,
-publishedAt: Fri Jan 10 2020 15:00:38 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:38 GMT+0530 (India Standard Time),
----
-
 # [Moroccanoil Hand Cream](https://products.checkmycream.com/products/Moroccanoil-Hand-Cream.html)
 
 ### Positive Reviews

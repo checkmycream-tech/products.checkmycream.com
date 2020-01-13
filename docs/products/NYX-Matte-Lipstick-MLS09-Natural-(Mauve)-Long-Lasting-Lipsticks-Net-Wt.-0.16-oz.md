@@ -1,12 +1,3 @@
----
-title: NYX Matte Lipstick MLS09 - Natural (Mauve) Long Lasting Lipsticks Net Wt. 0.16 oz,
-description: NYX Matte Lipstick MLS09 - Natural (Mauve) Long Lasting Lipsticks Net Wt. 0.16 oz,
-author: Suvojit Manna,
-tags: NYX Matte Lipstick MLS09 - Natural (Mauve) Long Lasting Lipsticks Net Wt. 0.16 oz,
-publishedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
----
-
 # [NYX Matte Lipstick MLS09 - Natural (Mauve) Long Lasting Lipsticks Net Wt. 0.16 oz](https://products.checkmycream.com/products/NYX-Matte-Lipstick-MLS09-Natural-(Mauve)-Long-Lasting-Lipsticks-Net-Wt.-0.16-oz.html)
 
 ### Positive Reviews

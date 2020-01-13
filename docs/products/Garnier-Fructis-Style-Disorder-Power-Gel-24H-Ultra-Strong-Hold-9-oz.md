@@ -1,12 +1,3 @@
----
-title: Garnier Fructis Style Disorder Power Gel, 24H Ultra Strong Hold 9 oz,
-description: Garnier Fructis Style Disorder Power Gel, 24H Ultra Strong Hold 9 oz,
-author: Suvojit Manna,
-tags: Garnier Fructis Style Disorder Power Gel, 24H Ultra Strong Hold 9 oz,
-publishedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
----
-
 # [Garnier Fructis Style Disorder Power Gel, 24H Ultra Strong Hold 9 oz](https://products.checkmycream.com/products/Garnier-Fructis-Style-Disorder-Power-Gel-24H-Ultra-Strong-Hold-9-oz.html)
 
 ### Positive Reviews

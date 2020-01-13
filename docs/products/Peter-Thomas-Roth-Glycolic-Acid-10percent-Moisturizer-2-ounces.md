@@ -1,12 +1,3 @@
----
-title: Peter Thomas Roth Glycolic Acid 10% Moisturizer--/2 ounces,
-description: Peter Thomas Roth Glycolic Acid 10% Moisturizer--/2 ounces,
-author: Suvojit Manna,
-tags: Peter Thomas Roth Glycolic Acid 10% Moisturizer--/2 ounces,
-publishedAt: Fri Jan 10 2020 14:59:13 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:13 GMT+0530 (India Standard Time),
----
-
 # [Peter Thomas Roth Glycolic Acid 10% Moisturizer--/2 ounces](https://products.checkmycream.com/products/Peter-Thomas-Roth-Glycolic-Acid-10percent-Moisturizer-2-ounces.html)
 
 ### Positive Reviews

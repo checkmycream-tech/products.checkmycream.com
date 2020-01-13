@@ -1,12 +1,3 @@
----
-title: Supersmile Whitening System - Sm 2 piece Kit,
-description: Supersmile Whitening System - Sm 2 piece Kit,
-author: Suvojit Manna,
-tags: Supersmile Whitening System - Sm 2 piece Kit,
-publishedAt: Fri Jan 10 2020 14:59:10 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:10 GMT+0530 (India Standard Time),
----
-
 # [Supersmile Whitening System - Sm 2 piece Kit](https://products.checkmycream.com/products/Supersmile-Whitening-System-Sm-2-piece-Kit.html)
 
 ### Positive Reviews

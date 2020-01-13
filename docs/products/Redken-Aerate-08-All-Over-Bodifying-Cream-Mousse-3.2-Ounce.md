@@ -1,12 +1,3 @@
----
-title: Redken Aerate 08 All-Over Bodifying Cream Mousse, 3.2 Ounce,
-description: Redken Aerate 08 All-Over Bodifying Cream Mousse, 3.2 Ounce,
-author: Suvojit Manna,
-tags: Redken Aerate 08 All-Over Bodifying Cream Mousse, 3.2 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [Redken Aerate 08 All-Over Bodifying Cream Mousse, 3.2 Ounce](https://products.checkmycream.com/products/Redken-Aerate-08-All-Over-Bodifying-Cream-Mousse-3.2-Ounce.html)
 
 ### Positive Reviews

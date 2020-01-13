@@ -1,12 +1,3 @@
----
-title: 10 Pcs Pink Buffer Buffing Sanding Block File Manicure Pedicure For Nail Art,
-description: 10 Pcs Pink Buffer Buffing Sanding Block File Manicure Pedicure For Nail Art,
-author: Suvojit Manna,
-tags: 10 Pcs Pink Buffer Buffing Sanding Block File Manicure Pedicure For Nail Art,
-publishedAt: Fri Jan 10 2020 15:00:32 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:32 GMT+0530 (India Standard Time),
----
-
 # [10 Pcs Pink Buffer Buffing Sanding Block File Manicure Pedicure For Nail Art](https://products.checkmycream.com/products/10-Pcs-Pink-Buffer-Buffing-Sanding-Block-File-Manicure-Pedicure-For-Nail-Art.html)
 
 ### Positive Reviews

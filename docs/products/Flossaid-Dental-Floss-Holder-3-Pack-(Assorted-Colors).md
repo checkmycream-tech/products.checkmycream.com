@@ -1,12 +1,3 @@
----
-title: Flossaid Dental Floss Holder - 3 Pack  (Assorted Colors),
-description: Flossaid Dental Floss Holder - 3 Pack  (Assorted Colors),
-author: Suvojit Manna,
-tags: Flossaid Dental Floss Holder - 3 Pack  (Assorted Colors),
-publishedAt: Fri Jan 10 2020 15:01:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:08 GMT+0530 (India Standard Time),
----
-
 # [Flossaid Dental Floss Holder - 3 Pack  (Assorted Colors)](https://products.checkmycream.com/products/Flossaid-Dental-Floss-Holder-3-Pack-(Assorted-Colors).html)
 
 ### Positive Reviews

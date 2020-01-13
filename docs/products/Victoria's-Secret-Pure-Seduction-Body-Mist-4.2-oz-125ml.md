@@ -1,12 +1,3 @@
----
-title: Victoria&#x27;s Secret Pure Seduction Body Mist 4.2 oz / 125ml,
-description: Victoria&#x27;s Secret Pure Seduction Body Mist 4.2 oz / 125ml,
-author: Suvojit Manna,
-tags: Victoria&#x27;s Secret Pure Seduction Body Mist 4.2 oz / 125ml,
-publishedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
----
-
 # [Victoria&#x27;s Secret Pure Seduction Body Mist 4.2 oz / 125ml](https://products.checkmycream.com/products/Victoria&#x27;s-Secret-Pure-Seduction-Body-Mist-4.2-oz-125ml.html)
 
 ### Positive Reviews

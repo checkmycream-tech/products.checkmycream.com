@@ -1,12 +1,3 @@
----
-title: Badge Magic Cut to Fit Freestyle Patch Adhesive Kit,
-description: Badge Magic Cut to Fit Freestyle Patch Adhesive Kit,
-author: Suvojit Manna,
-tags: Badge Magic Cut to Fit Freestyle Patch Adhesive Kit,
-publishedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
----
-
 # [Badge Magic Cut to Fit Freestyle Patch Adhesive Kit](https://products.checkmycream.com/products/Badge-Magic-Cut-to-Fit-Freestyle-Patch-Adhesive-Kit.html)
 
 ### Positive Reviews

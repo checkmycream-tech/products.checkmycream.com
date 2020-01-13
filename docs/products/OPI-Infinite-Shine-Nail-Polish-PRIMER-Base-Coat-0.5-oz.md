@@ -1,12 +1,3 @@
----
-title: OPI Infinite Shine Nail Polish PRIMER Base Coat 0.5 oz,
-description: OPI Infinite Shine Nail Polish PRIMER Base Coat 0.5 oz,
-author: Suvojit Manna,
-tags: OPI Infinite Shine Nail Polish PRIMER Base Coat 0.5 oz,
-publishedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
----
-
 # [OPI Infinite Shine Nail Polish PRIMER Base Coat 0.5 oz](https://products.checkmycream.com/products/OPI-Infinite-Shine-Nail-Polish-PRIMER-Base-Coat-0.5-oz.html)
 
 ### Positive Reviews

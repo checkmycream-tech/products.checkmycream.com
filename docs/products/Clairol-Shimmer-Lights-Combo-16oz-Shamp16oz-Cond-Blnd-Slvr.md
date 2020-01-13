@@ -1,12 +1,3 @@
----
-title: Clairol Shimmer Lights Combo 16oz Shamp/16oz Cond Blnd-Slvr,
-description: Clairol Shimmer Lights Combo 16oz Shamp/16oz Cond Blnd-Slvr,
-author: Suvojit Manna,
-tags: Clairol Shimmer Lights Combo 16oz Shamp/16oz Cond Blnd-Slvr,
-publishedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
----
-
 # [Clairol Shimmer Lights Combo 16oz Shamp/16oz Cond Blnd-Slvr](https://products.checkmycream.com/products/Clairol-Shimmer-Lights-Combo-16oz-Shamp16oz-Cond-Blnd-Slvr.html)
 
 ### Positive Reviews

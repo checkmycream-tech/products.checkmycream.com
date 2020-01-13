@@ -1,12 +1,3 @@
----
-title: Ferrari Scuderia Red Men&#x27;s EDT Eau De Toilette Spray - FSR9231507,
-description: Ferrari Scuderia Red Men&#x27;s EDT Eau De Toilette Spray - FSR9231507,
-author: Suvojit Manna,
-tags: Ferrari Scuderia Red Men&#x27;s EDT Eau De Toilette Spray - FSR9231507,
-publishedAt: Fri Jan 10 2020 15:00:45 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:45 GMT+0530 (India Standard Time),
----
-
 # [Ferrari Scuderia Red Men&#x27;s EDT Eau De Toilette Spray - FSR9231507](https://products.checkmycream.com/products/Ferrari-Scuderia-Red-Men&#x27;s-EDT-Eau-De-Toilette-Spray-FSR9231507.html)
 
 ### Positive Reviews

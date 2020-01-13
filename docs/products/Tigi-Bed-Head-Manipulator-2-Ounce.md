@@ -1,12 +1,3 @@
----
-title: Tigi Bed Head Manipulator, 2 Ounce,
-description: Tigi Bed Head Manipulator, 2 Ounce,
-author: Suvojit Manna,
-tags: Tigi Bed Head Manipulator, 2 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:06 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:06 GMT+0530 (India Standard Time),
----
-
 # [Tigi Bed Head Manipulator, 2 Ounce](https://products.checkmycream.com/products/Tigi-Bed-Head-Manipulator-2-Ounce.html)
 
 ### Positive Reviews

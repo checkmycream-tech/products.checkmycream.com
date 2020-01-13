@@ -1,12 +1,3 @@
----
-title: I-Tal Hemp Wick ~ Large ~ Made Of Organic Hemp &amp; Bees Wax ~ 15.5 Feet,
-description: I-Tal Hemp Wick ~ Large ~ Made Of Organic Hemp &amp; Bees Wax ~ 15.5 Feet,
-author: Suvojit Manna,
-tags: I-Tal Hemp Wick ~ Large ~ Made Of Organic Hemp &amp; Bees Wax ~ 15.5 Feet,
-publishedAt: Fri Jan 10 2020 15:00:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:03 GMT+0530 (India Standard Time),
----
-
 # [I-Tal Hemp Wick ~ Large ~ Made Of Organic Hemp &amp; Bees Wax ~ 15.5 Feet](https://products.checkmycream.com/products/I-Tal-Hemp-Wick-~-Large-~-Made-Of-Organic-Hemp-and-Bees-Wax-~-15.5-Feet.html)
 
 ### Positive Reviews

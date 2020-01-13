@@ -1,12 +1,3 @@
----
-title: Shiseido Future Solution Lx Concentrated Balancing Softener for Unisex, 5 Ounce,
-description: Shiseido Future Solution Lx Concentrated Balancing Softener for Unisex, 5 Ounce,
-author: Suvojit Manna,
-tags: Shiseido Future Solution Lx Concentrated Balancing Softener for Unisex, 5 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:45 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:45 GMT+0530 (India Standard Time),
----
-
 # [Shiseido Future Solution Lx Concentrated Balancing Softener for Unisex, 5 Ounce](https://products.checkmycream.com/products/Shiseido-Future-Solution-Lx-Concentrated-Balancing-Softener-for-Unisex-5-Ounce.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: BleedArrest Nosebleed Clotting Foam Strip,
-description: BleedArrest Nosebleed Clotting Foam Strip,
-author: Suvojit Manna,
-tags: BleedArrest Nosebleed Clotting Foam Strip,
-publishedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
----
-
 # [BleedArrest Nosebleed Clotting Foam Strip](https://products.checkmycream.com/products/BleedArrest-Nosebleed-Clotting-Foam-Strip.html)
 
 ### Positive Reviews

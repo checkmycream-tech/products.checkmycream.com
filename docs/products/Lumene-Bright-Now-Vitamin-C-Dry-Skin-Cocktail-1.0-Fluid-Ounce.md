@@ -1,12 +1,3 @@
----
-title: Lumene Bright Now Vitamin C Dry Skin Cocktail, 1.0 Fluid Ounce,
-description: Lumene Bright Now Vitamin C Dry Skin Cocktail, 1.0 Fluid Ounce,
-author: Suvojit Manna,
-tags: Lumene Bright Now Vitamin C Dry Skin Cocktail, 1.0 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
----
-
 # [Lumene Bright Now Vitamin C Dry Skin Cocktail, 1.0 Fluid Ounce](https://products.checkmycream.com/products/Lumene-Bright-Now-Vitamin-C-Dry-Skin-Cocktail-1.0-Fluid-Ounce.html)
 
 ### Positive Reviews

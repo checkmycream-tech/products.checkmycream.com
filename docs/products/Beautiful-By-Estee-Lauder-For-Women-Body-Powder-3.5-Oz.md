@@ -1,12 +1,3 @@
----
-title: Beautiful By Estee Lauder For Women Body Powder 3.5 Oz,
-description: Beautiful By Estee Lauder For Women Body Powder 3.5 Oz,
-author: Suvojit Manna,
-tags: Beautiful By Estee Lauder For Women Body Powder 3.5 Oz,
-publishedAt: Fri Jan 10 2020 14:59:43 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:43 GMT+0530 (India Standard Time),
----
-
 # [Beautiful By Estee Lauder For Women Body Powder 3.5 Oz](https://products.checkmycream.com/products/Beautiful-By-Estee-Lauder-For-Women-Body-Powder-3.5-Oz.html)
 
 ### Positive Reviews

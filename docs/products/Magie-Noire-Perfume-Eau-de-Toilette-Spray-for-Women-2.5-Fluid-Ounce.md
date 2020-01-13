@@ -1,12 +1,3 @@
----
-title: Magie Noire Perfume Eau de Toilette Spray for Women, 2.5 Fluid Ounce,
-description: Magie Noire Perfume Eau de Toilette Spray for Women, 2.5 Fluid Ounce,
-author: Suvojit Manna,
-tags: Magie Noire Perfume Eau de Toilette Spray for Women, 2.5 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
----
-
 # [Magie Noire Perfume Eau de Toilette Spray for Women, 2.5 Fluid Ounce](https://products.checkmycream.com/products/Magie-Noire-Perfume-Eau-de-Toilette-Spray-for-Women-2.5-Fluid-Ounce.html)
 
 ### Positive Reviews

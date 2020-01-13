@@ -1,12 +1,3 @@
----
-title: 3 Crystal Acrylic Powder For Nail Art White/Pink/Clear by LIFECART,
-description: 3 Crystal Acrylic Powder For Nail Art White/Pink/Clear by LIFECART,
-author: Suvojit Manna,
-tags: 3 Crystal Acrylic Powder For Nail Art White/Pink/Clear by LIFECART,
-publishedAt: Fri Jan 10 2020 15:00:38 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:38 GMT+0530 (India Standard Time),
----
-
 # [3 Crystal Acrylic Powder For Nail Art White/Pink/Clear by LIFECART](https://products.checkmycream.com/products/3-Crystal-Acrylic-Powder-For-Nail-Art-WhitePinkClear-by-LIFECART.html)
 
 ### Positive Reviews

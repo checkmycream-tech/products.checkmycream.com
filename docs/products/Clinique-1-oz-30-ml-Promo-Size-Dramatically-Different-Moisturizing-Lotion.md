@@ -1,12 +1,3 @@
----
-title: Clinique 1 oz / 30 ml Promo Size Dramatically Different Moisturizing Lotion,
-description: Clinique 1 oz / 30 ml Promo Size Dramatically Different Moisturizing Lotion,
-author: Suvojit Manna,
-tags: Clinique 1 oz / 30 ml Promo Size Dramatically Different Moisturizing Lotion,
-publishedAt: Fri Jan 10 2020 14:59:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:57 GMT+0530 (India Standard Time),
----
-
 # [Clinique 1 oz / 30 ml Promo Size Dramatically Different Moisturizing Lotion](https://products.checkmycream.com/products/Clinique-1-oz-30-ml-Promo-Size-Dramatically-Different-Moisturizing-Lotion.html)
 
 ### Positive Reviews

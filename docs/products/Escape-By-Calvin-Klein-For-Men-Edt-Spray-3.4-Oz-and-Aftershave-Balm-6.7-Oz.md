@@ -1,12 +1,3 @@
----
-title: Escape By Calvin Klein For Men Edt Spray 3.4 Oz &amp; Aftershave Balm 6.7 Oz,
-description: Escape By Calvin Klein For Men Edt Spray 3.4 Oz &amp; Aftershave Balm 6.7 Oz,
-author: Suvojit Manna,
-tags: Escape By Calvin Klein For Men Edt Spray 3.4 Oz &amp; Aftershave Balm 6.7 Oz,
-publishedAt: Fri Jan 10 2020 14:59:43 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:43 GMT+0530 (India Standard Time),
----
-
 # [Escape By Calvin Klein For Men Edt Spray 3.4 Oz &amp; Aftershave Balm 6.7 Oz](https://products.checkmycream.com/products/Escape-By-Calvin-Klein-For-Men-Edt-Spray-3.4-Oz-and-Aftershave-Balm-6.7-Oz.html)
 
 ### Positive Reviews

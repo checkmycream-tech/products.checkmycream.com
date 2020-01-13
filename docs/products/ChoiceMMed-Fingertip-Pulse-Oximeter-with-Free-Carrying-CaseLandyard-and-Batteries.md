@@ -1,12 +1,3 @@
----
-title: ChoiceMMed Fingertip Pulse Oximeter with Free Carrying Case,Landyard and Batteries,
-description: ChoiceMMed Fingertip Pulse Oximeter with Free Carrying Case,Landyard and Batteries,
-author: Suvojit Manna,
-tags: ChoiceMMed Fingertip Pulse Oximeter with Free Carrying Case,Landyard and Batteries,
-publishedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
----
-
 # [ChoiceMMed Fingertip Pulse Oximeter with Free Carrying Case,Landyard and Batteries](https://products.checkmycream.com/products/ChoiceMMed-Fingertip-Pulse-Oximeter-with-Free-Carrying-CaseLandyard-and-Batteries.html)
 
 ### Positive Reviews

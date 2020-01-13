@@ -1,12 +1,3 @@
----
-title: Hummer H2 Eau de Toilette for Men by Hummer,
-description: Hummer H2 Eau de Toilette for Men by Hummer,
-author: Suvojit Manna,
-tags: Hummer H2 Eau de Toilette for Men by Hummer,
-publishedAt: Fri Jan 10 2020 14:59:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:08 GMT+0530 (India Standard Time),
----
-
 # [Hummer H2 Eau de Toilette for Men by Hummer](https://products.checkmycream.com/products/Hummer-H2-Eau-de-Toilette-for-Men-by-Hummer.html)
 
 ### Positive Reviews

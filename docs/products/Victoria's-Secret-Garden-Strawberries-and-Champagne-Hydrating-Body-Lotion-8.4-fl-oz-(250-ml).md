@@ -1,12 +1,3 @@
----
-title: Victoria&#x27;s Secret Garden Strawberries and Champagne Hydrating Body Lotion 8.4 fl oz (250 ml),
-description: Victoria&#x27;s Secret Garden Strawberries and Champagne Hydrating Body Lotion 8.4 fl oz (250 ml),
-author: Suvojit Manna,
-tags: Victoria&#x27;s Secret Garden Strawberries and Champagne Hydrating Body Lotion 8.4 fl oz (250 ml),
-publishedAt: Fri Jan 10 2020 14:59:25 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:25 GMT+0530 (India Standard Time),
----
-
 # [Victoria&#x27;s Secret Garden Strawberries and Champagne Hydrating Body Lotion 8.4 fl oz (250 ml)](https://products.checkmycream.com/products/Victoria&#x27;s-Secret-Garden-Strawberries-and-Champagne-Hydrating-Body-Lotion-8.4-fl-oz-(250-ml).html)
 
 ### Positive Reviews

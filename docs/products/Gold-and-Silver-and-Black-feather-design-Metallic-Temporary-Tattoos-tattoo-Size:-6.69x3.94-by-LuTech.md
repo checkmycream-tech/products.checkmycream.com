@@ -1,12 +1,3 @@
----
-title: Gold &amp; Silver &amp; Black feather design Metallic Temporary Tattoos, tattoo Size: 6.69x3.94 by LuTech,
-description: Gold &amp; Silver &amp; Black feather design Metallic Temporary Tattoos, tattoo Size: 6.69x3.94 by LuTech,
-author: Suvojit Manna,
-tags: Gold &amp; Silver &amp; Black feather design Metallic Temporary Tattoos, tattoo Size: 6.69x3.94 by LuTech,
-publishedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
----
-
 # [Gold &amp; Silver &amp; Black feather design Metallic Temporary Tattoos, tattoo Size: 6.69x3.94 by LuTech](https://products.checkmycream.com/products/Gold-and-Silver-and-Black-feather-design-Metallic-Temporary-Tattoos-tattoo-Size:-6.69x3.94-by-LuTech.html)
 
 ### Positive Reviews

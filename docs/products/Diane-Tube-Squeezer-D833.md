@@ -1,12 +1,3 @@
----
-title: Diane Tube Squeezer, D833,
-description: Diane Tube Squeezer, D833,
-author: Suvojit Manna,
-tags: Diane Tube Squeezer, D833,
-publishedAt: Fri Jan 10 2020 14:59:45 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:45 GMT+0530 (India Standard Time),
----
-
 # [Diane Tube Squeezer, D833](https://products.checkmycream.com/products/Diane-Tube-Squeezer-D833.html)
 
 ### Positive Reviews

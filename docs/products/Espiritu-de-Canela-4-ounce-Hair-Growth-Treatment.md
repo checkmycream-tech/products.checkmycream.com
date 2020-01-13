@@ -1,12 +1,3 @@
----
-title: Espiritu de Canela 4-ounce Hair Growth Treatment,
-description: Espiritu de Canela 4-ounce Hair Growth Treatment,
-author: Suvojit Manna,
-tags: Espiritu de Canela 4-ounce Hair Growth Treatment,
-publishedAt: Fri Jan 10 2020 15:00:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:03 GMT+0530 (India Standard Time),
----
-
 # [Espiritu de Canela 4-ounce Hair Growth Treatment](https://products.checkmycream.com/products/Espiritu-de-Canela-4-ounce-Hair-Growth-Treatment.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Metallic Gold Silver Black Jewelry Temporary Bling Tattoo All-In-One Package 5 Sheets (Style#1),
-description: Metallic Gold Silver Black Jewelry Temporary Bling Tattoo All-In-One Package 5 Sheets (Style#1),
-author: Suvojit Manna,
-tags: Metallic Gold Silver Black Jewelry Temporary Bling Tattoo All-In-One Package 5 Sheets (Style#1),
-publishedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
----
-
 # [Metallic Gold Silver Black Jewelry Temporary Bling Tattoo All-In-One Package 5 Sheets (Style#1)](https://products.checkmycream.com/products/Metallic-Gold-Silver-Black-Jewelry-Temporary-Bling-Tattoo-All-In-One-Package-5-Sheets-(Style1).html)
 
 ### Positive Reviews

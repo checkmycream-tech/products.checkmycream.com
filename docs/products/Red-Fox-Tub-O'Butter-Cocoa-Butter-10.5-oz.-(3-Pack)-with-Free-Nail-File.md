@@ -1,12 +1,3 @@
----
-title: Red Fox Tub O&#x27;Butter Cocoa Butter 10.5 oz. (3-Pack) with Free Nail File,
-description: Red Fox Tub O&#x27;Butter Cocoa Butter 10.5 oz. (3-Pack) with Free Nail File,
-author: Suvojit Manna,
-tags: Red Fox Tub O&#x27;Butter Cocoa Butter 10.5 oz. (3-Pack) with Free Nail File,
-publishedAt: Fri Jan 10 2020 15:00:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:02 GMT+0530 (India Standard Time),
----
-
 # [Red Fox Tub O&#x27;Butter Cocoa Butter 10.5 oz. (3-Pack) with Free Nail File](https://products.checkmycream.com/products/Red-Fox-Tub-O&#x27;Butter-Cocoa-Butter-10.5-oz.-(3-Pack)-with-Free-Nail-File.html)
 
 ### Positive Reviews

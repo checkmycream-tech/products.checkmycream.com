@@ -1,12 +1,3 @@
----
-title: Maybelline Volum&#x27; Express Washable Mascara .34 fl oz (10 ml),
-description: Maybelline Volum&#x27; Express Washable Mascara .34 fl oz (10 ml),
-author: Suvojit Manna,
-tags: Maybelline Volum&#x27; Express Washable Mascara .34 fl oz (10 ml),
-publishedAt: Fri Jan 10 2020 14:58:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:58:58 GMT+0530 (India Standard Time),
----
-
 # [Maybelline Volum&#x27; Express Washable Mascara .34 fl oz (10 ml)](https://products.checkmycream.com/products/Maybelline-Volum&#x27;-Express-Washable-Mascara-.34-fl-oz-(10-ml).html)
 
 ### Positive Reviews

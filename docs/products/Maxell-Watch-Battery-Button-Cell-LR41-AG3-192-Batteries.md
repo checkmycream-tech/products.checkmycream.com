@@ -1,12 +1,3 @@
----
-title: Maxell Watch Battery Button Cell LR41 AG3 192 Batteries,
-description: Maxell Watch Battery Button Cell LR41 AG3 192 Batteries,
-author: Suvojit Manna,
-tags: Maxell Watch Battery Button Cell LR41 AG3 192 Batteries,
-publishedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
----
-
 # [Maxell Watch Battery Button Cell LR41 AG3 192 Batteries](https://products.checkmycream.com/products/Maxell-Watch-Battery-Button-Cell-LR41-AG3-192-Batteries.html)
 
 ### Positive Reviews

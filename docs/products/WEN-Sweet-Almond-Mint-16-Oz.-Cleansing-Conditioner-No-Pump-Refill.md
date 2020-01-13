@@ -1,12 +1,3 @@
----
-title: WEN Sweet Almond Mint 16 Oz. Cleansing Conditioner No Pump Refill,
-description: WEN Sweet Almond Mint 16 Oz. Cleansing Conditioner No Pump Refill,
-author: Suvojit Manna,
-tags: WEN Sweet Almond Mint 16 Oz. Cleansing Conditioner No Pump Refill,
-publishedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
----
-
 # [WEN Sweet Almond Mint 16 Oz. Cleansing Conditioner No Pump Refill](https://products.checkmycream.com/products/WEN-Sweet-Almond-Mint-16-Oz.-Cleansing-Conditioner-No-Pump-Refill.html)
 
 ### Positive Reviews

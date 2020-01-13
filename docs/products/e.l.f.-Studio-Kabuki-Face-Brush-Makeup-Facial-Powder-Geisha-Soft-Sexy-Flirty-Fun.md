@@ -1,12 +1,3 @@
----
-title: e.l.f. Studio Kabuki Face Brush Makeup Facial Powder Geisha Soft Sexy Flirty Fun,
-description: e.l.f. Studio Kabuki Face Brush Makeup Facial Powder Geisha Soft Sexy Flirty Fun,
-author: Suvojit Manna,
-tags: e.l.f. Studio Kabuki Face Brush Makeup Facial Powder Geisha Soft Sexy Flirty Fun,
-publishedAt: Fri Jan 10 2020 15:00:23 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:23 GMT+0530 (India Standard Time),
----
-
 # [e.l.f. Studio Kabuki Face Brush Makeup Facial Powder Geisha Soft Sexy Flirty Fun](https://products.checkmycream.com/products/e.l.f.-Studio-Kabuki-Face-Brush-Makeup-Facial-Powder-Geisha-Soft-Sexy-Flirty-Fun.html)
 
 ### Positive Reviews

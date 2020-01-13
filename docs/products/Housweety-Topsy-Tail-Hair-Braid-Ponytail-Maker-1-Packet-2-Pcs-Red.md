@@ -1,12 +1,3 @@
----
-title: Housweety Topsy Tail Hair Braid Ponytail Maker, 1 Packet, 2 Pcs, Red,
-description: Housweety Topsy Tail Hair Braid Ponytail Maker, 1 Packet, 2 Pcs, Red,
-author: Suvojit Manna,
-tags: Housweety Topsy Tail Hair Braid Ponytail Maker, 1 Packet, 2 Pcs, Red,
-publishedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
----
-
 # [Housweety Topsy Tail Hair Braid Ponytail Maker, 1 Packet, 2 Pcs, Red](https://products.checkmycream.com/products/Housweety-Topsy-Tail-Hair-Braid-Ponytail-Maker-1-Packet-2-Pcs-Red.html)
 
 ### Positive Reviews

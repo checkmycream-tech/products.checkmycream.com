@@ -1,12 +1,3 @@
----
-title: H1121 New Headband Synthetic Hair Wig Braid Dark Brown Wide 1 Cm Beautiful by Fonza Shop,
-description: H1121 New Headband Synthetic Hair Wig Braid Dark Brown Wide 1 Cm Beautiful by Fonza Shop,
-author: Suvojit Manna,
-tags: H1121 New Headband Synthetic Hair Wig Braid Dark Brown Wide 1 Cm Beautiful by Fonza Shop,
-publishedAt: Fri Jan 10 2020 15:00:29 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:29 GMT+0530 (India Standard Time),
----
-
 # [H1121 New Headband Synthetic Hair Wig Braid Dark Brown Wide 1 Cm Beautiful by Fonza Shop](https://products.checkmycream.com/products/H1121-New-Headband-Synthetic-Hair-Wig-Braid-Dark-Brown-Wide-1-Cm-Beautiful-by-Fonza-Shop.html)
 
 ### Positive Reviews

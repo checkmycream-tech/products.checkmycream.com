@@ -1,12 +1,3 @@
----
-title: BUTTER LIP GLOSS FORTUNE COOKI,
-description: BUTTER LIP GLOSS FORTUNE COOKI,
-author: Suvojit Manna,
-tags: BUTTER LIP GLOSS FORTUNE COOKI,
-publishedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
----
-
 # [BUTTER LIP GLOSS FORTUNE COOKI](https://products.checkmycream.com/products/BUTTER-LIP-GLOSS-FORTUNE-COOKI.html)
 
 ### Positive Reviews

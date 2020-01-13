@@ -1,12 +1,3 @@
----
-title: True Glow by Conair Thermal Paraffin Bath Wax Refill; replacement wax for Model PB8NR,
-description: True Glow by Conair Thermal Paraffin Bath Wax Refill; replacement wax for Model PB8NR,
-author: Suvojit Manna,
-tags: True Glow by Conair Thermal Paraffin Bath Wax Refill; replacement wax for Model PB8NR,
-publishedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
----
-
 # [True Glow by Conair Thermal Paraffin Bath Wax Refill; replacement wax for Model PB8NR](https://products.checkmycream.com/products/True-Glow-by-Conair-Thermal-Paraffin-Bath-Wax-Refill-replacement-wax-for-Model-PB8NR.html)
 
 ### Positive Reviews

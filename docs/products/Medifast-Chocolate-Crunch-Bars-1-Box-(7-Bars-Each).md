@@ -1,12 +1,3 @@
----
-title: Medifast Chocolate Crunch Bars 1 Box (7 Bars Each),
-description: Medifast Chocolate Crunch Bars 1 Box (7 Bars Each),
-author: Suvojit Manna,
-tags: Medifast Chocolate Crunch Bars 1 Box (7 Bars Each),
-publishedAt: Fri Jan 10 2020 14:59:38 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:38 GMT+0530 (India Standard Time),
----
-
 # [Medifast Chocolate Crunch Bars 1 Box (7 Bars Each)](https://products.checkmycream.com/products/Medifast-Chocolate-Crunch-Bars-1-Box-(7-Bars-Each).html)
 
 ### Positive Reviews

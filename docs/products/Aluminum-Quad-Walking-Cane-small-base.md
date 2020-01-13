@@ -1,12 +1,3 @@
----
-title: Aluminum Quad Walking Cane, small base,
-description: Aluminum Quad Walking Cane, small base,
-author: Suvojit Manna,
-tags: Aluminum Quad Walking Cane, small base,
-publishedAt: Fri Jan 10 2020 14:59:07 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:07 GMT+0530 (India Standard Time),
----
-
 # [Aluminum Quad Walking Cane, small base](https://products.checkmycream.com/products/Aluminum-Quad-Walking-Cane-small-base.html)
 
 ### Positive Reviews

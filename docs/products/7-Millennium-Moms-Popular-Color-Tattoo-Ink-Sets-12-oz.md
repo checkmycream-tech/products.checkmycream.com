@@ -1,12 +1,3 @@
----
-title: 7 Millennium Moms Popular Color Tattoo Ink Sets -1/2 oz,
-description: 7 Millennium Moms Popular Color Tattoo Ink Sets -1/2 oz,
-author: Suvojit Manna,
-tags: 7 Millennium Moms Popular Color Tattoo Ink Sets -1/2 oz,
-publishedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
----
-
 # [7 Millennium Moms Popular Color Tattoo Ink Sets -1/2 oz](https://products.checkmycream.com/products/7-Millennium-Moms-Popular-Color-Tattoo-Ink-Sets-12-oz.html)
 
 ### Positive Reviews

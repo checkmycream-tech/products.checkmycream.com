@@ -1,12 +1,3 @@
----
-title: Denture Bath LIGHT BLUE,
-description: Denture Bath LIGHT BLUE,
-author: Suvojit Manna,
-tags: Denture Bath LIGHT BLUE,
-publishedAt: Fri Jan 10 2020 14:59:33 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:33 GMT+0530 (India Standard Time),
----
-
 # [Denture Bath LIGHT BLUE](https://products.checkmycream.com/products/Denture-Bath-LIGHT-BLUE.html)
 
 ### Positive Reviews

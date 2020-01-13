@@ -1,12 +1,3 @@
----
-title: EcoTools Airbrush Concealer Brush 1 ea,
-description: EcoTools Airbrush Concealer Brush 1 ea,
-author: Suvojit Manna,
-tags: EcoTools Airbrush Concealer Brush 1 ea,
-publishedAt: Fri Jan 10 2020 14:59:44 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:44 GMT+0530 (India Standard Time),
----
-
 # [EcoTools Airbrush Concealer Brush 1 ea](https://products.checkmycream.com/products/EcoTools-Airbrush-Concealer-Brush-1-ea.html)
 
 ### Positive Reviews

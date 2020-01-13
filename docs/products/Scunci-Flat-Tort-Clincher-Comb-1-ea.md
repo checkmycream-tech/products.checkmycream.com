@@ -1,12 +1,3 @@
----
-title: Scunci Flat Tort Clincher Comb 1 ea,
-description: Scunci Flat Tort Clincher Comb 1 ea,
-author: Suvojit Manna,
-tags: Scunci Flat Tort Clincher Comb 1 ea,
-publishedAt: Fri Jan 10 2020 14:59:32 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:32 GMT+0530 (India Standard Time),
----
-
 # [Scunci Flat Tort Clincher Comb 1 ea](https://products.checkmycream.com/products/Scunci-Flat-Tort-Clincher-Comb-1-ea.html)
 
 ### Positive Reviews

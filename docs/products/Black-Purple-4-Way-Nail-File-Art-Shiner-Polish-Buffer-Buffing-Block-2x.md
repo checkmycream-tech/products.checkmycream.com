@@ -1,12 +1,3 @@
----
-title: Black Purple 4 Way Nail File Art Shiner Polish Buffer Buffing Block 2x,
-description: Black Purple 4 Way Nail File Art Shiner Polish Buffer Buffing Block 2x,
-author: Suvojit Manna,
-tags: Black Purple 4 Way Nail File Art Shiner Polish Buffer Buffing Block 2x,
-publishedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
----
-
 # [Black Purple 4 Way Nail File Art Shiner Polish Buffer Buffing Block 2x](https://products.checkmycream.com/products/Black-Purple-4-Way-Nail-File-Art-Shiner-Polish-Buffer-Buffing-Block-2x.html)
 
 ### Positive Reviews

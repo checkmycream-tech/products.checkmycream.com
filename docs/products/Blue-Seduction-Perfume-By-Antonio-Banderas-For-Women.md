@@ -1,12 +1,3 @@
----
-title: Blue Seduction Perfume By Antonio Banderas For Women,
-description: Blue Seduction Perfume By Antonio Banderas For Women,
-author: Suvojit Manna,
-tags: Blue Seduction Perfume By Antonio Banderas For Women,
-publishedAt: Fri Jan 10 2020 15:00:15 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:15 GMT+0530 (India Standard Time),
----
-
 # [Blue Seduction Perfume By Antonio Banderas For Women](https://products.checkmycream.com/products/Blue-Seduction-Perfume-By-Antonio-Banderas-For-Women.html)
 
 ### Positive Reviews

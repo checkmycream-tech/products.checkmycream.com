@@ -1,12 +1,3 @@
----
-title: WaterPik Replacement Faucet Filter Cartridge,
-description: WaterPik Replacement Faucet Filter Cartridge,
-author: Suvojit Manna,
-tags: WaterPik Replacement Faucet Filter Cartridge,
-publishedAt: Fri Jan 10 2020 14:58:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:58:58 GMT+0530 (India Standard Time),
----
-
 # [WaterPik Replacement Faucet Filter Cartridge](https://products.checkmycream.com/products/WaterPik-Replacement-Faucet-Filter-Cartridge.html)
 
 ### Positive Reviews

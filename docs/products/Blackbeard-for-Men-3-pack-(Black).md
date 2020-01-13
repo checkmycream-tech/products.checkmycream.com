@@ -1,12 +1,3 @@
----
-title: Blackbeard for Men - 3-pack (Black),
-description: Blackbeard for Men - 3-pack (Black),
-author: Suvojit Manna,
-tags: Blackbeard for Men - 3-pack (Black),
-publishedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
----
-
 # [Blackbeard for Men - 3-pack (Black)](https://products.checkmycream.com/products/Blackbeard-for-Men-3-pack-(Black).html)
 
 ### Positive Reviews

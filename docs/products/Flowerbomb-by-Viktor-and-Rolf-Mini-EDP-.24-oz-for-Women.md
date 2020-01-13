@@ -1,12 +1,3 @@
----
-title: Flowerbomb by Viktor &amp; Rolf Mini EDP .24 oz for Women,
-description: Flowerbomb by Viktor &amp; Rolf Mini EDP .24 oz for Women,
-author: Suvojit Manna,
-tags: Flowerbomb by Viktor &amp; Rolf Mini EDP .24 oz for Women,
-publishedAt: Fri Jan 10 2020 15:00:14 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:14 GMT+0530 (India Standard Time),
----
-
 # [Flowerbomb by Viktor &amp; Rolf Mini EDP .24 oz for Women](https://products.checkmycream.com/products/Flowerbomb-by-Viktor-and-Rolf-Mini-EDP-.24-oz-for-Women.html)
 
 ### Positive Reviews

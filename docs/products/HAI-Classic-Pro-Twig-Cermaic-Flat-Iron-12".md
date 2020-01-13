@@ -1,12 +1,3 @@
----
-title: HAI Classic Pro Twig Cermaic Flat Iron-1/2&quot;,
-description: HAI Classic Pro Twig Cermaic Flat Iron-1/2&quot;,
-author: Suvojit Manna,
-tags: HAI Classic Pro Twig Cermaic Flat Iron-1/2&quot;,
-publishedAt: Fri Jan 10 2020 14:59:36 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:36 GMT+0530 (India Standard Time),
----
-
 # [HAI Classic Pro Twig Cermaic Flat Iron-1/2&quot;](https://products.checkmycream.com/products/HAI-Classic-Pro-Twig-Cermaic-Flat-Iron-12&quot;.html)
 
 ### Positive Reviews

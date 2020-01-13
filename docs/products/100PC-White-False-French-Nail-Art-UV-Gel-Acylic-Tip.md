@@ -1,12 +1,3 @@
----
-title: 100PC White False French Nail Art UV Gel Acylic Tip,
-description: 100PC White False French Nail Art UV Gel Acylic Tip,
-author: Suvojit Manna,
-tags: 100PC White False French Nail Art UV Gel Acylic Tip,
-publishedAt: Fri Jan 10 2020 15:00:29 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:29 GMT+0530 (India Standard Time),
----
-
 # [100PC White False French Nail Art UV Gel Acylic Tip](https://products.checkmycream.com/products/100PC-White-False-French-Nail-Art-UV-Gel-Acylic-Tip.html)
 
 ### Positive Reviews

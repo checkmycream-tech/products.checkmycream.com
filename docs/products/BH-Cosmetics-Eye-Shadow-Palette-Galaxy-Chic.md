@@ -1,12 +1,3 @@
----
-title: BH Cosmetics Eye Shadow Palette, Galaxy Chic,
-description: BH Cosmetics Eye Shadow Palette, Galaxy Chic,
-author: Suvojit Manna,
-tags: BH Cosmetics Eye Shadow Palette, Galaxy Chic,
-publishedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
----
-
 # [BH Cosmetics Eye Shadow Palette, Galaxy Chic](https://products.checkmycream.com/products/BH-Cosmetics-Eye-Shadow-Palette-Galaxy-Chic.html)
 
 ### Positive Reviews

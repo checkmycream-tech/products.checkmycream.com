@@ -1,12 +1,3 @@
----
-title: Mary Kay Creme-to-Powder Foundation ~ Ivory 5 (Formerly Beige 2) - NEW Formula!,
-description: Mary Kay Creme-to-Powder Foundation ~ Ivory 5 (Formerly Beige 2) - NEW Formula!,
-author: Suvojit Manna,
-tags: Mary Kay Creme-to-Powder Foundation ~ Ivory 5 (Formerly Beige 2) - NEW Formula!,
-publishedAt: Fri Jan 10 2020 15:00:37 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:37 GMT+0530 (India Standard Time),
----
-
 # [Mary Kay Creme-to-Powder Foundation ~ Ivory 5 (Formerly Beige 2) - NEW Formula!](https://products.checkmycream.com/products/Mary-Kay-Creme-to-Powder-Foundation-~-Ivory-5-(Formerly-Beige-2)-NEW-Formula!.html)
 
 ### Positive Reviews

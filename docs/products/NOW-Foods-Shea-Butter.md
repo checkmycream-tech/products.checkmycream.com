@@ -1,12 +1,3 @@
----
-title: NOW Foods Shea Butter,
-description: NOW Foods Shea Butter,
-author: Suvojit Manna,
-tags: NOW Foods Shea Butter,
-publishedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
----
-
 # [NOW Foods Shea Butter](https://products.checkmycream.com/products/NOW-Foods-Shea-Butter.html)
 
 ### Positive Reviews

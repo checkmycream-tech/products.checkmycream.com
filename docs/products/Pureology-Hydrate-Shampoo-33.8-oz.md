@@ -1,12 +1,3 @@
----
-title: Pureology Hydrate Shampoo, 33.8 oz,
-description: Pureology Hydrate Shampoo, 33.8 oz,
-author: Suvojit Manna,
-tags: Pureology Hydrate Shampoo, 33.8 oz,
-publishedAt: Fri Jan 10 2020 15:00:20 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:20 GMT+0530 (India Standard Time),
----
-
 # [Pureology Hydrate Shampoo, 33.8 oz](https://products.checkmycream.com/products/Pureology-Hydrate-Shampoo-33.8-oz.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: AFTER INKED Moisturizer Aftercare Lotion 2.5oz Squeeze Bottle Tattoo Supply,
-description: AFTER INKED Moisturizer Aftercare Lotion 2.5oz Squeeze Bottle Tattoo Supply,
-author: Suvojit Manna,
-tags: AFTER INKED Moisturizer Aftercare Lotion 2.5oz Squeeze Bottle Tattoo Supply,
-publishedAt: Fri Jan 10 2020 15:00:38 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:38 GMT+0530 (India Standard Time),
----
-
 # [AFTER INKED Moisturizer Aftercare Lotion 2.5oz Squeeze Bottle Tattoo Supply](https://products.checkmycream.com/products/AFTER-INKED-Moisturizer-Aftercare-Lotion-2.5oz-Squeeze-Bottle-Tattoo-Supply.html)
 
 ### Positive Reviews

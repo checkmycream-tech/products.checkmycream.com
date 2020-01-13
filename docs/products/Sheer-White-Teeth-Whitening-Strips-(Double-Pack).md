@@ -1,12 +1,3 @@
----
-title: Sheer White Teeth Whitening Strips (Double Pack),
-description: Sheer White Teeth Whitening Strips (Double Pack),
-author: Suvojit Manna,
-tags: Sheer White Teeth Whitening Strips (Double Pack),
-publishedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
----
-
 # [Sheer White Teeth Whitening Strips (Double Pack)](https://products.checkmycream.com/products/Sheer-White-Teeth-Whitening-Strips-(Double-Pack).html)
 
 ### Positive Reviews

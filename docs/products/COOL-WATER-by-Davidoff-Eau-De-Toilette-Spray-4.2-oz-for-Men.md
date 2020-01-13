@@ -1,12 +1,3 @@
----
-title: COOL WATER by Davidoff Eau De Toilette Spray 4.2 oz for Men,
-description: COOL WATER by Davidoff Eau De Toilette Spray 4.2 oz for Men,
-author: Suvojit Manna,
-tags: COOL WATER by Davidoff Eau De Toilette Spray 4.2 oz for Men,
-publishedAt: Fri Jan 10 2020 15:00:13 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:13 GMT+0530 (India Standard Time),
----
-
 # [COOL WATER by Davidoff Eau De Toilette Spray 4.2 oz for Men](https://products.checkmycream.com/products/COOL-WATER-by-Davidoff-Eau-De-Toilette-Spray-4.2-oz-for-Men.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Bodycology Moisturizing Body Cream, Pure White Gardenia, 8 Ounce,
-description: Bodycology Moisturizing Body Cream, Pure White Gardenia, 8 Ounce,
-author: Suvojit Manna,
-tags: Bodycology Moisturizing Body Cream, Pure White Gardenia, 8 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:28 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:28 GMT+0530 (India Standard Time),
----
-
 # [Bodycology Moisturizing Body Cream, Pure White Gardenia, 8 Ounce](https://products.checkmycream.com/products/Bodycology-Moisturizing-Body-Cream-Pure-White-Gardenia-8-Ounce.html)
 
 ### Positive Reviews

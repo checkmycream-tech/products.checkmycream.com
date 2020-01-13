@@ -1,12 +1,3 @@
----
-title: i-UniK TAB 4 Case with Stylus (TAB 4 8.0, Cute Pink),
-description: i-UniK TAB 4 Case with Stylus (TAB 4 8.0, Cute Pink),
-author: Suvojit Manna,
-tags: i-UniK TAB 4 Case with Stylus (TAB 4 8.0, Cute Pink),
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [i-UniK TAB 4 Case with Stylus (TAB 4 8.0, Cute Pink)](https://products.checkmycream.com/products/i-UniK-TAB-4-Case-with-Stylus-(TAB-4-8.0-Cute-Pink).html)
 
 ### Positive Reviews

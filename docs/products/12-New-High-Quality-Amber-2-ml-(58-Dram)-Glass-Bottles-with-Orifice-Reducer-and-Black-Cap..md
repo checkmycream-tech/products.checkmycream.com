@@ -1,12 +1,3 @@
----
-title: 12 New, High Quality, Amber 2 ml (5/8 Dram) Glass Bottles, with Orifice Reducer and Black Cap.,
-description: 12 New, High Quality, Amber 2 ml (5/8 Dram) Glass Bottles, with Orifice Reducer and Black Cap.,
-author: Suvojit Manna,
-tags: 12 New, High Quality, Amber 2 ml (5/8 Dram) Glass Bottles, with Orifice Reducer and Black Cap.,
-publishedAt: Fri Jan 10 2020 15:01:07 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:07 GMT+0530 (India Standard Time),
----
-
 # [12 New, High Quality, Amber 2 ml (5/8 Dram) Glass Bottles, with Orifice Reducer and Black Cap.](https://products.checkmycream.com/products/12-New-High-Quality-Amber-2-ml-(58-Dram)-Glass-Bottles-with-Orifice-Reducer-and-Black-Cap..html)
 
 ### Positive Reviews

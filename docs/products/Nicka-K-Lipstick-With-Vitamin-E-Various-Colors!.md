@@ -1,12 +1,3 @@
----
-title: Nicka K Lipstick With Vitamin E - Various Colors!,
-description: Nicka K Lipstick With Vitamin E - Various Colors!,
-author: Suvojit Manna,
-tags: Nicka K Lipstick With Vitamin E - Various Colors!,
-publishedAt: Fri Jan 10 2020 15:00:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:05 GMT+0530 (India Standard Time),
----
-
 # [Nicka K Lipstick With Vitamin E - Various Colors!](https://products.checkmycream.com/products/Nicka-K-Lipstick-With-Vitamin-E-Various-Colors!.html)
 
 ### Positive Reviews

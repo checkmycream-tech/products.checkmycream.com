@@ -1,12 +1,3 @@
----
-title: Elemis Deep Cleanse Facial Wash, 6.8 Ounce,
-description: Elemis Deep Cleanse Facial Wash, 6.8 Ounce,
-author: Suvojit Manna,
-tags: Elemis Deep Cleanse Facial Wash, 6.8 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:07 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:07 GMT+0530 (India Standard Time),
----
-
 # [Elemis Deep Cleanse Facial Wash, 6.8 Ounce](https://products.checkmycream.com/products/Elemis-Deep-Cleanse-Facial-Wash-6.8-Ounce.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Classical design diy iphone 5/5s case,
-description: Classical design diy iphone 5/5s case,
-author: Suvojit Manna,
-tags: Classical design diy iphone 5/5s case,
-publishedAt: Fri Jan 10 2020 15:01:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:05 GMT+0530 (India Standard Time),
----
-
 # [Classical design diy iphone 5/5s case](https://products.checkmycream.com/products/Classical-design-diy-iphone-55s-case.html)
 
 ### Positive Reviews

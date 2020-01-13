@@ -1,12 +1,3 @@
----
-title: Halston by Halston for Women Gift Set,
-description: Halston by Halston for Women Gift Set,
-author: Suvojit Manna,
-tags: Halston by Halston for Women Gift Set,
-publishedAt: Fri Jan 10 2020 14:59:26 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:26 GMT+0530 (India Standard Time),
----
-
 # [Halston by Halston for Women Gift Set](https://products.checkmycream.com/products/Halston-by-Halston-for-Women-Gift-Set.html)
 
 ### Positive Reviews

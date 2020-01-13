@@ -1,12 +1,3 @@
----
-title: Penetraitt Deep Strengthening and Repair-Masque - Sebastian - Hair Care - 150ml/5.1oz,
-description: Penetraitt Deep Strengthening and Repair-Masque - Sebastian - Hair Care - 150ml/5.1oz,
-author: Suvojit Manna,
-tags: Penetraitt Deep Strengthening and Repair-Masque - Sebastian - Hair Care - 150ml/5.1oz,
-publishedAt: Fri Jan 10 2020 14:59:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:57 GMT+0530 (India Standard Time),
----
-
 # [Penetraitt Deep Strengthening and Repair-Masque - Sebastian - Hair Care - 150ml/5.1oz](https://products.checkmycream.com/products/Penetraitt-Deep-Strengthening-and-Repair-Masque-Sebastian-Hair-Care-150ml5.1oz.html)
 
 ### Positive Reviews

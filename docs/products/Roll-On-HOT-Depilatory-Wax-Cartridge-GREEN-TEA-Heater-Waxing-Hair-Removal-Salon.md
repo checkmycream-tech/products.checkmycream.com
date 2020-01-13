@@ -1,12 +1,3 @@
----
-title: Roll-On HOT Depilatory Wax Cartridge GREEN TEA Heater Waxing Hair Removal Salon,
-description: Roll-On HOT Depilatory Wax Cartridge GREEN TEA Heater Waxing Hair Removal Salon,
-author: Suvojit Manna,
-tags: Roll-On HOT Depilatory Wax Cartridge GREEN TEA Heater Waxing Hair Removal Salon,
-publishedAt: Fri Jan 10 2020 15:00:32 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:32 GMT+0530 (India Standard Time),
----
-
 # [Roll-On HOT Depilatory Wax Cartridge GREEN TEA Heater Waxing Hair Removal Salon](https://products.checkmycream.com/products/Roll-On-HOT-Depilatory-Wax-Cartridge-GREEN-TEA-Heater-Waxing-Hair-Removal-Salon.html)
 
 ### Positive Reviews

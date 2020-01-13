@@ -1,12 +1,3 @@
----
-title: VICTORIA&#x27;S SECRET SPORT NYLON TOTE BAG WITH ELASTIC HAIR TIES by Victoria&#x27;s Secret,
-description: VICTORIA&#x27;S SECRET SPORT NYLON TOTE BAG WITH ELASTIC HAIR TIES by Victoria&#x27;s Secret,
-author: Suvojit Manna,
-tags: VICTORIA&#x27;S SECRET SPORT NYLON TOTE BAG WITH ELASTIC HAIR TIES by Victoria&#x27;s Secret,
-publishedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
----
-
 # [VICTORIA&#x27;S SECRET SPORT NYLON TOTE BAG WITH ELASTIC HAIR TIES by Victoria&#x27;s Secret](https://products.checkmycream.com/products/VICTORIA&#x27;S-SECRET-SPORT-NYLON-TOTE-BAG-WITH-ELASTIC-HAIR-TIES-by-Victoria&#x27;s-Secret.html)
 
 ### Positive Reviews

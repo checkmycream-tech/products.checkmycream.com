@@ -1,12 +1,3 @@
----
-title: mary kay timewise repair Volu-firm lifting serum 1 onz new full size retail $70.00,
-description: mary kay timewise repair Volu-firm lifting serum 1 onz new full size retail $70.00,
-author: Suvojit Manna,
-tags: mary kay timewise repair Volu-firm lifting serum 1 onz new full size retail $70.00,
-publishedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
----
-
 # [mary kay timewise repair Volu-firm lifting serum 1 onz new full size retail $70.00](https://products.checkmycream.com/products/mary-kay-timewise-repair-Volu-firm-lifting-serum-1-onz-new-full-size-retail-dollar70.00.html)
 
 ### Positive Reviews

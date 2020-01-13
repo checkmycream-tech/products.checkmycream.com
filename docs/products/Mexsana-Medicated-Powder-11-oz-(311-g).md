@@ -1,12 +1,3 @@
----
-title: Mexsana Medicated Powder, 11 oz (311 g),
-description: Mexsana Medicated Powder, 11 oz (311 g),
-author: Suvojit Manna,
-tags: Mexsana Medicated Powder, 11 oz (311 g),
-publishedAt: Fri Jan 10 2020 14:58:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:58:57 GMT+0530 (India Standard Time),
----
-
 # [Mexsana Medicated Powder, 11 oz (311 g)](https://products.checkmycream.com/products/Mexsana-Medicated-Powder-11-oz-(311-g).html)
 
 ### Positive Reviews

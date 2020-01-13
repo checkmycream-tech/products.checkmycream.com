@@ -1,12 +1,3 @@
----
-title: ELASTO-GEL HEAD AND FACIAL THERAPY Cranial Cap,
-description: ELASTO-GEL HEAD AND FACIAL THERAPY Cranial Cap,
-author: Suvojit Manna,
-tags: ELASTO-GEL HEAD AND FACIAL THERAPY Cranial Cap,
-publishedAt: Fri Jan 10 2020 14:59:14 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:14 GMT+0530 (India Standard Time),
----
-
 # [ELASTO-GEL HEAD AND FACIAL THERAPY Cranial Cap](https://products.checkmycream.com/products/ELASTO-GEL-HEAD-AND-FACIAL-THERAPY-Cranial-Cap.html)
 
 ### Positive Reviews

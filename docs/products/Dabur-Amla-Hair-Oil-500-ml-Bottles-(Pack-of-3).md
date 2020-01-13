@@ -1,12 +1,3 @@
----
-title: Dabur  Amla Hair Oil, 500-ml Bottles (Pack of 3),
-description: Dabur  Amla Hair Oil, 500-ml Bottles (Pack of 3),
-author: Suvojit Manna,
-tags: Dabur  Amla Hair Oil, 500-ml Bottles (Pack of 3),
-publishedAt: Fri Jan 10 2020 14:59:39 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:39 GMT+0530 (India Standard Time),
----
-
 # [Dabur  Amla Hair Oil, 500-ml Bottles (Pack of 3)](https://products.checkmycream.com/products/Dabur-Amla-Hair-Oil-500-ml-Bottles-(Pack-of-3).html)
 
 ### Positive Reviews

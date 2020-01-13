@@ -1,12 +1,3 @@
----
-title: Tree Hut Hand Cream, 3 Ounce,
-description: Tree Hut Hand Cream, 3 Ounce,
-author: Suvojit Manna,
-tags: Tree Hut Hand Cream, 3 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
----
-
 # [Tree Hut Hand Cream, 3 Ounce](https://products.checkmycream.com/products/Tree-Hut-Hand-Cream-3-Ounce.html)
 
 ### Positive Reviews

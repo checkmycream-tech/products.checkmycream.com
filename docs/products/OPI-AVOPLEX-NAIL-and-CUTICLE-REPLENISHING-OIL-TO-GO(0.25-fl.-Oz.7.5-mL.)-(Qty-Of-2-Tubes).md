@@ -1,12 +1,3 @@
----
-title: OPI AVOPLEX NAIL &amp; CUTICLE REPLENISHING OIL TO GO(0.25 fl. Oz./7.5 mL.) (Qty, Of 2 Tubes),
-description: OPI AVOPLEX NAIL &amp; CUTICLE REPLENISHING OIL TO GO(0.25 fl. Oz./7.5 mL.) (Qty, Of 2 Tubes),
-author: Suvojit Manna,
-tags: OPI AVOPLEX NAIL &amp; CUTICLE REPLENISHING OIL TO GO(0.25 fl. Oz./7.5 mL.) (Qty, Of 2 Tubes),
-publishedAt: Fri Jan 10 2020 15:00:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:08 GMT+0530 (India Standard Time),
----
-
 # [OPI AVOPLEX NAIL &amp; CUTICLE REPLENISHING OIL TO GO(0.25 fl. Oz./7.5 mL.) (Qty, Of 2 Tubes)](https://products.checkmycream.com/products/OPI-AVOPLEX-NAIL-and-CUTICLE-REPLENISHING-OIL-TO-GO(0.25-fl.-Oz.7.5-mL.)-(Qty-Of-2-Tubes).html)
 
 ### Positive Reviews

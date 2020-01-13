@@ -1,12 +1,3 @@
----
-title: BATH AND BODY WORKS,&quot;SWEET PEA&quot;,GIFT SET,body lotion,shower gel,fragrance mist.,
-description: BATH AND BODY WORKS,&quot;SWEET PEA&quot;,GIFT SET,body lotion,shower gel,fragrance mist.,
-author: Suvojit Manna,
-tags: BATH AND BODY WORKS,&quot;SWEET PEA&quot;,GIFT SET,body lotion,shower gel,fragrance mist.,
-publishedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
----
-
 # [BATH AND BODY WORKS,&quot;SWEET PEA&quot;,GIFT SET,body lotion,shower gel,fragrance mist.](https://products.checkmycream.com/products/BATH-AND-BODY-WORKS&quot;SWEET-PEA&quot;GIFT-SETbody-lotionshower-gelfragrance-mist..html)
 
 ### Positive Reviews

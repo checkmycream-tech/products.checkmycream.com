@@ -1,12 +1,3 @@
----
-title: Pureology Pure Volume Shampoo (For Fine Colour-Treated Hair) (New Packaging) - 250ml/8.5oz,
-description: Pureology Pure Volume Shampoo (For Fine Colour-Treated Hair) (New Packaging) - 250ml/8.5oz,
-author: Suvojit Manna,
-tags: Pureology Pure Volume Shampoo (For Fine Colour-Treated Hair) (New Packaging) - 250ml/8.5oz,
-publishedAt: Fri Jan 10 2020 15:00:38 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:38 GMT+0530 (India Standard Time),
----
-
 # [Pureology Pure Volume Shampoo (For Fine Colour-Treated Hair) (New Packaging) - 250ml/8.5oz](https://products.checkmycream.com/products/Pureology-Pure-Volume-Shampoo-(For-Fine-Colour-Treated-Hair)-(New-Packaging)-250ml8.5oz.html)
 
 ### Positive Reviews

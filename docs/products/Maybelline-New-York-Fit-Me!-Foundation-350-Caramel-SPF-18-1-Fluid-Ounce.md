@@ -1,12 +1,3 @@
----
-title: Maybelline New York Fit Me! Foundation, 350 Caramel, SPF 18, 1 Fluid Ounce,
-description: Maybelline New York Fit Me! Foundation, 350 Caramel, SPF 18, 1 Fluid Ounce,
-author: Suvojit Manna,
-tags: Maybelline New York Fit Me! Foundation, 350 Caramel, SPF 18, 1 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 14:59:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:58 GMT+0530 (India Standard Time),
----
-
 # [Maybelline New York Fit Me! Foundation, 350 Caramel, SPF 18, 1 Fluid Ounce](https://products.checkmycream.com/products/Maybelline-New-York-Fit-Me!-Foundation-350-Caramel-SPF-18-1-Fluid-Ounce.html)
 
 ### Positive Reviews

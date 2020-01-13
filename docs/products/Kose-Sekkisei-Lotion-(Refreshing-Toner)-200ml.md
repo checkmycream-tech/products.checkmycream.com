@@ -1,12 +1,3 @@
----
-title: Kose Sekkisei Lotion (Refreshing Toner) 200ml,
-description: Kose Sekkisei Lotion (Refreshing Toner) 200ml,
-author: Suvojit Manna,
-tags: Kose Sekkisei Lotion (Refreshing Toner) 200ml,
-publishedAt: Fri Jan 10 2020 14:59:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:02 GMT+0530 (India Standard Time),
----
-
 # [Kose Sekkisei Lotion (Refreshing Toner) 200ml](https://products.checkmycream.com/products/Kose-Sekkisei-Lotion-(Refreshing-Toner)-200ml.html)
 
 ### Positive Reviews

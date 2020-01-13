@@ -1,12 +1,3 @@
----
-title: 3 NYX Wonder Pencil - Face Concealer Full Set!!,
-description: 3 NYX Wonder Pencil - Face Concealer Full Set!!,
-author: Suvojit Manna,
-tags: 3 NYX Wonder Pencil - Face Concealer Full Set!!,
-publishedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
----
-
 # [3 NYX Wonder Pencil - Face Concealer Full Set!!](https://products.checkmycream.com/products/3-NYX-Wonder-Pencil-Face-Concealer-Full-Set!!.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Himalaya Kajal 1gm Extra Smooth Water Proof,
-description: Himalaya Kajal 1gm Extra Smooth Water Proof,
-author: Suvojit Manna,
-tags: Himalaya Kajal 1gm Extra Smooth Water Proof,
-publishedAt: Fri Jan 10 2020 15:00:31 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:31 GMT+0530 (India Standard Time),
----
-
 # [Himalaya Kajal 1gm Extra Smooth Water Proof](https://products.checkmycream.com/products/Himalaya-Kajal-1gm-Extra-Smooth-Water-Proof.html)
 
 ### Positive Reviews

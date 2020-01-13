@@ -1,12 +1,3 @@
----
-title: Reviva Labs Antioxidant Skin Smoothing Day Cream 2 Ounce,
-description: Reviva Labs Antioxidant Skin Smoothing Day Cream 2 Ounce,
-author: Suvojit Manna,
-tags: Reviva Labs Antioxidant Skin Smoothing Day Cream 2 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:14 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:14 GMT+0530 (India Standard Time),
----
-
 # [Reviva Labs Antioxidant Skin Smoothing Day Cream 2 Ounce](https://products.checkmycream.com/products/Reviva-Labs-Antioxidant-Skin-Smoothing-Day-Cream-2-Ounce.html)
 
 ### Positive Reviews

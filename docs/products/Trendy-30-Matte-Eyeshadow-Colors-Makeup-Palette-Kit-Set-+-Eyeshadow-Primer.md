@@ -1,12 +1,3 @@
----
-title: Trendy 30 Matte Eyeshadow Colors Makeup Palette Kit Set + Eyeshadow Primer,
-description: Trendy 30 Matte Eyeshadow Colors Makeup Palette Kit Set + Eyeshadow Primer,
-author: Suvojit Manna,
-tags: Trendy 30 Matte Eyeshadow Colors Makeup Palette Kit Set + Eyeshadow Primer,
-publishedAt: Fri Jan 10 2020 15:00:13 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:13 GMT+0530 (India Standard Time),
----
-
 # [Trendy 30 Matte Eyeshadow Colors Makeup Palette Kit Set + Eyeshadow Primer](https://products.checkmycream.com/products/Trendy-30-Matte-Eyeshadow-Colors-Makeup-Palette-Kit-Set-+-Eyeshadow-Primer.html)
 
 ### Positive Reviews

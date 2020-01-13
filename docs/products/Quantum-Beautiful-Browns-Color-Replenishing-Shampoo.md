@@ -1,12 +1,3 @@
----
-title: Quantum Beautiful Browns Color Replenishing Shampoo,
-description: Quantum Beautiful Browns Color Replenishing Shampoo,
-author: Suvojit Manna,
-tags: Quantum Beautiful Browns Color Replenishing Shampoo,
-publishedAt: Fri Jan 10 2020 14:59:49 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:49 GMT+0530 (India Standard Time),
----
-
 # [Quantum Beautiful Browns Color Replenishing Shampoo](https://products.checkmycream.com/products/Quantum-Beautiful-Browns-Color-Replenishing-Shampoo.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Carapex Dark Spot Corrector - for Uneven Skin Tones, Age Spots, Liver Spots, Freckles, Sun Damage, Acne Marks, Scars, Skin Discolorations and Birthmarks, Unscented, 60ml,
-description: Carapex Dark Spot Corrector - for Uneven Skin Tones, Age Spots, Liver Spots, Freckles, Sun Damage, Acne Marks, Scars, Skin Discolorations and Birthmarks, Unscented, 60ml,
-author: Suvojit Manna,
-tags: Carapex Dark Spot Corrector - for Uneven Skin Tones, Age Spots, Liver Spots, Freckles, Sun Damage, Acne Marks, Scars, Skin Discolorations and Birthmarks, Unscented, 60ml,
-publishedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
----
-
 # [Carapex Dark Spot Corrector - for Uneven Skin Tones, Age Spots, Liver Spots, Freckles, Sun Damage, Acne Marks, Scars, Skin Discolorations and Birthmarks, Unscented, 60ml](https://products.checkmycream.com/products/Carapex-Dark-Spot-Corrector-for-Uneven-Skin-Tones-Age-Spots-Liver-Spots-Freckles-Sun-Damage-Acne-Marks-Scars-Skin-Discolorations-and-Birthmarks-Unscented-60ml.html)
 
 ### Positive Reviews

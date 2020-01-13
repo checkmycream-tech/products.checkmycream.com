@@ -1,12 +1,3 @@
----
-title: Sebastian Shine Crafter Moldable Shine Wax with Rock Crystal, 1.7 Ounce,
-description: Sebastian Shine Crafter Moldable Shine Wax with Rock Crystal, 1.7 Ounce,
-author: Suvojit Manna,
-tags: Sebastian Shine Crafter Moldable Shine Wax with Rock Crystal, 1.7 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:32 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:32 GMT+0530 (India Standard Time),
----
-
 # [Sebastian Shine Crafter Moldable Shine Wax with Rock Crystal, 1.7 Ounce](https://products.checkmycream.com/products/Sebastian-Shine-Crafter-Moldable-Shine-Wax-with-Rock-Crystal-1.7-Ounce.html)
 
 ### Positive Reviews

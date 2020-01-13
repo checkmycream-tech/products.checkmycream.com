@@ -1,12 +1,3 @@
----
-title: ESTEE LAUDER &quot;Lilly Pulitzer&quot; Tote Bag and Zippered Pouch Set,
-description: ESTEE LAUDER &quot;Lilly Pulitzer&quot; Tote Bag and Zippered Pouch Set,
-author: Suvojit Manna,
-tags: ESTEE LAUDER &quot;Lilly Pulitzer&quot; Tote Bag and Zippered Pouch Set,
-publishedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
----
-
 # [ESTEE LAUDER &quot;Lilly Pulitzer&quot; Tote Bag and Zippered Pouch Set](https://products.checkmycream.com/products/ESTEE-LAUDER-&quot;Lilly-Pulitzer&quot;-Tote-Bag-and-Zippered-Pouch-Set.html)
 
 ### Positive Reviews

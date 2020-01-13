@@ -1,12 +1,3 @@
----
-title: Health Logics Biocell Collagen - 120 Capsules,
-description: Health Logics Biocell Collagen - 120 Capsules,
-author: Suvojit Manna,
-tags: Health Logics Biocell Collagen - 120 Capsules,
-publishedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
----
-
 # [Health Logics Biocell Collagen - 120 Capsules](https://products.checkmycream.com/products/Health-Logics-Biocell-Collagen-120-Capsules.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Village Naturals Bath Shoppe Lavender Milk Bath &amp; Body Wash 25oz,
-description: Village Naturals Bath Shoppe Lavender Milk Bath &amp; Body Wash 25oz,
-author: Suvojit Manna,
-tags: Village Naturals Bath Shoppe Lavender Milk Bath &amp; Body Wash 25oz,
-publishedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
----
-
 # [Village Naturals Bath Shoppe Lavender Milk Bath &amp; Body Wash 25oz](https://products.checkmycream.com/products/Village-Naturals-Bath-Shoppe-Lavender-Milk-Bath-and-Body-Wash-25oz.html)
 
 ### Positive Reviews

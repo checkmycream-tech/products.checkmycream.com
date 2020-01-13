@@ -1,12 +1,3 @@
----
-title: Cuticle Nipper D501,
-description: Cuticle Nipper D501,
-author: Suvojit Manna,
-tags: Cuticle Nipper D501,
-publishedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
----
-
 # [Cuticle Nipper D501](https://products.checkmycream.com/products/Cuticle-Nipper-D501.html)
 
 ### Positive Reviews

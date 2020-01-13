@@ -1,12 +1,3 @@
----
-title: Bath &amp; Body Works Oahu Coconut Sunset Body Lotion 8oz,
-description: Bath &amp; Body Works Oahu Coconut Sunset Body Lotion 8oz,
-author: Suvojit Manna,
-tags: Bath &amp; Body Works Oahu Coconut Sunset Body Lotion 8oz,
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [Bath &amp; Body Works Oahu Coconut Sunset Body Lotion 8oz](https://products.checkmycream.com/products/Bath-and-Body-Works-Oahu-Coconut-Sunset-Body-Lotion-8oz.html)
 
 ### Positive Reviews

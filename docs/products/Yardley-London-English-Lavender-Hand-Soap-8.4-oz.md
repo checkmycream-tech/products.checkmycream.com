@@ -1,12 +1,3 @@
----
-title: Yardley London English Lavender Hand Soap, 8.4 oz,
-description: Yardley London English Lavender Hand Soap, 8.4 oz,
-author: Suvojit Manna,
-tags: Yardley London English Lavender Hand Soap, 8.4 oz,
-publishedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
----
-
 # [Yardley London English Lavender Hand Soap, 8.4 oz](https://products.checkmycream.com/products/Yardley-London-English-Lavender-Hand-Soap-8.4-oz.html)
 
 ### Positive Reviews

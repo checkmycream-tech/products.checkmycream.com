@@ -1,12 +1,3 @@
----
-title: TAMMY TAYLOR Pain Away 3 oz,
-description: TAMMY TAYLOR Pain Away 3 oz,
-author: Suvojit Manna,
-tags: TAMMY TAYLOR Pain Away 3 oz,
-publishedAt: Fri Jan 10 2020 14:59:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:02 GMT+0530 (India Standard Time),
----
-
 # [TAMMY TAYLOR Pain Away 3 oz](https://products.checkmycream.com/products/TAMMY-TAYLOR-Pain-Away-3-oz.html)
 
 ### Positive Reviews

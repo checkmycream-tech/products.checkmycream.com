@@ -1,12 +1,3 @@
----
-title: PURE GOLD POUR HOMME-EDT-3.4  Ounces -FOR MEN by Diamond Collection,
-description: PURE GOLD POUR HOMME-EDT-3.4  Ounces -FOR MEN by Diamond Collection,
-author: Suvojit Manna,
-tags: PURE GOLD POUR HOMME-EDT-3.4  Ounces -FOR MEN by Diamond Collection,
-publishedAt: Fri Jan 10 2020 15:00:37 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:37 GMT+0530 (India Standard Time),
----
-
 # [PURE GOLD POUR HOMME-EDT-3.4  Ounces -FOR MEN by Diamond Collection](https://products.checkmycream.com/products/PURE-GOLD-POUR-HOMME-EDT-3.4-Ounces-FOR-MEN-by-Diamond-Collection.html)
 
 ### Positive Reviews

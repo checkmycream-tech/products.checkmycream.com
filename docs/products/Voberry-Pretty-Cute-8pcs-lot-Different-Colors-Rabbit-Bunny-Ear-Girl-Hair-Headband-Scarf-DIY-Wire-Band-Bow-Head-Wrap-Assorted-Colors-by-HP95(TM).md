@@ -1,12 +1,3 @@
----
-title: Voberry Pretty Cute 8pcs /lot Different Colors Rabbit Bunny Ear Girl Hair Headband Scarf DIY Wire Band Bow Head Wrap Assorted Colors by HP95(TM),
-description: Voberry Pretty Cute 8pcs /lot Different Colors Rabbit Bunny Ear Girl Hair Headband Scarf DIY Wire Band Bow Head Wrap Assorted Colors by HP95(TM),
-author: Suvojit Manna,
-tags: Voberry Pretty Cute 8pcs /lot Different Colors Rabbit Bunny Ear Girl Hair Headband Scarf DIY Wire Band Bow Head Wrap Assorted Colors by HP95(TM),
-publishedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
----
-
 # [Voberry Pretty Cute 8pcs /lot Different Colors Rabbit Bunny Ear Girl Hair Headband Scarf DIY Wire Band Bow Head Wrap Assorted Colors by HP95(TM)](https://products.checkmycream.com/products/Voberry-Pretty-Cute-8pcs-lot-Different-Colors-Rabbit-Bunny-Ear-Girl-Hair-Headband-Scarf-DIY-Wire-Band-Bow-Head-Wrap-Assorted-Colors-by-HP95(TM).html)
 
 ### Positive Reviews

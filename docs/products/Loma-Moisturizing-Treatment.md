@@ -1,12 +1,3 @@
----
-title: Loma Moisturizing Treatment,
-description: Loma Moisturizing Treatment,
-author: Suvojit Manna,
-tags: Loma Moisturizing Treatment,
-publishedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
----
-
 # [Loma Moisturizing Treatment](https://products.checkmycream.com/products/Loma-Moisturizing-Treatment.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: L&#x27;eau d&#x27;Issey Pour Homme by Issey Miyake Bath And Shower Gels,
-description: L&#x27;eau d&#x27;Issey Pour Homme by Issey Miyake Bath And Shower Gels,
-author: Suvojit Manna,
-tags: L&#x27;eau d&#x27;Issey Pour Homme by Issey Miyake Bath And Shower Gels,
-publishedAt: Fri Jan 10 2020 14:59:37 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:37 GMT+0530 (India Standard Time),
----
-
 # [L&#x27;eau d&#x27;Issey Pour Homme by Issey Miyake Bath And Shower Gels](https://products.checkmycream.com/products/L&#x27;eau-d&#x27;Issey-Pour-Homme-by-Issey-Miyake-Bath-And-Shower-Gels.html)
 
 ### Positive Reviews

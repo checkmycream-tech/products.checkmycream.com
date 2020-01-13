@@ -1,12 +1,3 @@
----
-title: GLYSOLID Skin Cream, Tube 1 fl oz (30 ml),
-description: GLYSOLID Skin Cream, Tube 1 fl oz (30 ml),
-author: Suvojit Manna,
-tags: GLYSOLID Skin Cream, Tube 1 fl oz (30 ml),
-publishedAt: Fri Jan 10 2020 14:59:06 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:06 GMT+0530 (India Standard Time),
----
-
 # [GLYSOLID Skin Cream, Tube 1 fl oz (30 ml)](https://products.checkmycream.com/products/GLYSOLID-Skin-Cream-Tube-1-fl-oz-(30-ml).html)
 
 ### Positive Reviews

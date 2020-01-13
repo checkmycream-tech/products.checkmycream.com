@@ -1,12 +1,3 @@
----
-title: Revlon Super Lustrous Lipstick,
-description: Revlon Super Lustrous Lipstick,
-author: Suvojit Manna,
-tags: Revlon Super Lustrous Lipstick,
-publishedAt: Fri Jan 10 2020 14:59:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:58 GMT+0530 (India Standard Time),
----
-
 # [Revlon Super Lustrous Lipstick](https://products.checkmycream.com/products/Revlon-Super-Lustrous-Lipstick.html)
 
 ### Positive Reviews

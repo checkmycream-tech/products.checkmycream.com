@@ -1,12 +1,3 @@
----
-title: Young Living Essential Oil Packets- Variety Packet of 5 Essential Oils: Lemon, Lavender, Peace and Calming, Peppermint, and Thieves.,
-description: Young Living Essential Oil Packets- Variety Packet of 5 Essential Oils: Lemon, Lavender, Peace and Calming, Peppermint, and Thieves.,
-author: Suvojit Manna,
-tags: Young Living Essential Oil Packets- Variety Packet of 5 Essential Oils: Lemon, Lavender, Peace and Calming, Peppermint, and Thieves.,
-publishedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
----
-
 # [Young Living Essential Oil Packets- Variety Packet of 5 Essential Oils: Lemon, Lavender, Peace and Calming, Peppermint, and Thieves.](https://products.checkmycream.com/products/Young-Living-Essential-Oil-Packets-Variety-Packet-of-5-Essential-Oils:-Lemon-Lavender-Peace-and-Calming-Peppermint-and-Thieves..html)
 
 ### Positive Reviews

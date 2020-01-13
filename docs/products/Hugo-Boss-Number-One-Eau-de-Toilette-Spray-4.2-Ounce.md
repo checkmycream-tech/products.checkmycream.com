@@ -1,12 +1,3 @@
----
-title: Hugo Boss Number One Eau de Toilette Spray, 4.2 Ounce,
-description: Hugo Boss Number One Eau de Toilette Spray, 4.2 Ounce,
-author: Suvojit Manna,
-tags: Hugo Boss Number One Eau de Toilette Spray, 4.2 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:09 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:09 GMT+0530 (India Standard Time),
----
-
 # [Hugo Boss Number One Eau de Toilette Spray, 4.2 Ounce](https://products.checkmycream.com/products/Hugo-Boss-Number-One-Eau-de-Toilette-Spray-4.2-Ounce.html)
 
 ### Positive Reviews

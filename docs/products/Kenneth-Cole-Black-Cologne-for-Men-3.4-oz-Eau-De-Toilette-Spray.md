@@ -1,12 +1,3 @@
----
-title: Kenneth Cole Black Cologne for Men 3.4 oz Eau De Toilette Spray,
-description: Kenneth Cole Black Cologne for Men 3.4 oz Eau De Toilette Spray,
-author: Suvojit Manna,
-tags: Kenneth Cole Black Cologne for Men 3.4 oz Eau De Toilette Spray,
-publishedAt: Fri Jan 10 2020 14:58:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:58:57 GMT+0530 (India Standard Time),
----
-
 # [Kenneth Cole Black Cologne for Men 3.4 oz Eau De Toilette Spray](https://products.checkmycream.com/products/Kenneth-Cole-Black-Cologne-for-Men-3.4-oz-Eau-De-Toilette-Spray.html)
 
 ### Positive Reviews

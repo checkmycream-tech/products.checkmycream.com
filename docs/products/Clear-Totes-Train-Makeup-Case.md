@@ -1,12 +1,3 @@
----
-title: Clear Totes Train Makeup Case,
-description: Clear Totes Train Makeup Case,
-author: Suvojit Manna,
-tags: Clear Totes Train Makeup Case,
-publishedAt: Fri Jan 10 2020 14:59:46 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:46 GMT+0530 (India Standard Time),
----
-
 # [Clear Totes Train Makeup Case](https://products.checkmycream.com/products/Clear-Totes-Train-Makeup-Case.html)
 
 ### Positive Reviews

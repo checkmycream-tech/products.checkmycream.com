@@ -1,12 +1,3 @@
----
-title: 12 New, High Quality, White, 2 oz Cosmetic Jars, with Liners and Dome Lids,
-description: 12 New, High Quality, White, 2 oz Cosmetic Jars, with Liners and Dome Lids,
-author: Suvojit Manna,
-tags: 12 New, High Quality, White, 2 oz Cosmetic Jars, with Liners and Dome Lids,
-publishedAt: Fri Jan 10 2020 15:01:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:05 GMT+0530 (India Standard Time),
----
-
 # [12 New, High Quality, White, 2 oz Cosmetic Jars, with Liners and Dome Lids](https://products.checkmycream.com/products/12-New-High-Quality-White-2-oz-Cosmetic-Jars-with-Liners-and-Dome-Lids.html)
 
 ### Positive Reviews

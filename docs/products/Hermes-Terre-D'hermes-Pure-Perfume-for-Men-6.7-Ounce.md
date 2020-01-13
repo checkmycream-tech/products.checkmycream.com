@@ -1,12 +1,3 @@
----
-title: Hermes Terre D&#x27;hermes Pure Perfume for Men, 6.7 Ounce,
-description: Hermes Terre D&#x27;hermes Pure Perfume for Men, 6.7 Ounce,
-author: Suvojit Manna,
-tags: Hermes Terre D&#x27;hermes Pure Perfume for Men, 6.7 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
----
-
 # [Hermes Terre D&#x27;hermes Pure Perfume for Men, 6.7 Ounce](https://products.checkmycream.com/products/Hermes-Terre-D&#x27;hermes-Pure-Perfume-for-Men-6.7-Ounce.html)
 
 ### Positive Reviews

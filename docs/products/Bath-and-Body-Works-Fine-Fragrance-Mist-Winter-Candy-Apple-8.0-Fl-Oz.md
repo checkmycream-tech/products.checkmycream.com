@@ -1,12 +1,3 @@
----
-title: Bath and Body Works Fine Fragrance Mist Winter Candy Apple, 8.0 Fl Oz,
-description: Bath and Body Works Fine Fragrance Mist Winter Candy Apple, 8.0 Fl Oz,
-author: Suvojit Manna,
-tags: Bath and Body Works Fine Fragrance Mist Winter Candy Apple, 8.0 Fl Oz,
-publishedAt: Fri Jan 10 2020 15:01:04 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:04 GMT+0530 (India Standard Time),
----
-
 # [Bath and Body Works Fine Fragrance Mist Winter Candy Apple, 8.0 Fl Oz](https://products.checkmycream.com/products/Bath-and-Body-Works-Fine-Fragrance-Mist-Winter-Candy-Apple-8.0-Fl-Oz.html)
 
 ### Positive Reviews

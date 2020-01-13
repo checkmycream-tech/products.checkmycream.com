@@ -1,12 +1,3 @@
----
-title: Dove Go Fresh Energizing Body Mist, 3 Ounce (Pack of 3),
-description: Dove Go Fresh Energizing Body Mist, 3 Ounce (Pack of 3),
-author: Suvojit Manna,
-tags: Dove Go Fresh Energizing Body Mist, 3 Ounce (Pack of 3),
-publishedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
----
-
 # [Dove Go Fresh Energizing Body Mist, 3 Ounce (Pack of 3)](https://products.checkmycream.com/products/Dove-Go-Fresh-Energizing-Body-Mist-3-Ounce-(Pack-of-3).html)
 
 ### Positive Reviews

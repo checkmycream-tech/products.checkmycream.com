@@ -1,12 +1,3 @@
----
-title: SENSI-CARE Sting Free Barrier Wipe, 30PK,
-description: SENSI-CARE Sting Free Barrier Wipe, 30PK,
-author: Suvojit Manna,
-tags: SENSI-CARE Sting Free Barrier Wipe, 30PK,
-publishedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
----
-
 # [SENSI-CARE Sting Free Barrier Wipe, 30PK](https://products.checkmycream.com/products/SENSI-CARE-Sting-Free-Barrier-Wipe-30PK.html)
 
 ### Positive Reviews

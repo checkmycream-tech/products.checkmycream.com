@@ -1,12 +1,3 @@
----
-title: Groom Mate Nose &amp; Ear Hair Trimmer,
-description: Groom Mate Nose &amp; Ear Hair Trimmer,
-author: Suvojit Manna,
-tags: Groom Mate Nose &amp; Ear Hair Trimmer,
-publishedAt: Fri Jan 10 2020 14:59:06 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:06 GMT+0530 (India Standard Time),
----
-
 # [Groom Mate Nose &amp; Ear Hair Trimmer](https://products.checkmycream.com/products/Groom-Mate-Nose-and-Ear-Hair-Trimmer.html)
 
 ### Positive Reviews

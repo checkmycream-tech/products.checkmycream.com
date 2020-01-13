@@ -1,12 +1,3 @@
----
-title: Wire Scroll Bridal Princess Crystal Wedding Tiara,
-description: Wire Scroll Bridal Princess Crystal Wedding Tiara,
-author: Suvojit Manna,
-tags: Wire Scroll Bridal Princess Crystal Wedding Tiara,
-publishedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
----
-
 # [Wire Scroll Bridal Princess Crystal Wedding Tiara](https://products.checkmycream.com/products/Wire-Scroll-Bridal-Princess-Crystal-Wedding-Tiara.html)
 
 ### Positive Reviews

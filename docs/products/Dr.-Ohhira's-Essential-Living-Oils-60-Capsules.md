@@ -1,12 +1,3 @@
----
-title: Dr. Ohhira&#x27;s Essential Living Oils - 60 - Capsules,
-description: Dr. Ohhira&#x27;s Essential Living Oils - 60 - Capsules,
-author: Suvojit Manna,
-tags: Dr. Ohhira&#x27;s Essential Living Oils - 60 - Capsules,
-publishedAt: Fri Jan 10 2020 14:59:24 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:24 GMT+0530 (India Standard Time),
----
-
 # [Dr. Ohhira&#x27;s Essential Living Oils - 60 - Capsules](https://products.checkmycream.com/products/Dr.-Ohhira&#x27;s-Essential-Living-Oils-60-Capsules.html)
 
 ### Positive Reviews

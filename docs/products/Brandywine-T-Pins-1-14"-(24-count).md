@@ -1,12 +1,3 @@
----
-title: Brandywine T-Pins 1 1/4&quot; (24 count),
-description: Brandywine T-Pins 1 1/4&quot; (24 count),
-author: Suvojit Manna,
-tags: Brandywine T-Pins 1 1/4&quot; (24 count),
-publishedAt: Fri Jan 10 2020 14:59:25 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:25 GMT+0530 (India Standard Time),
----
-
 # [Brandywine T-Pins 1 1/4&quot; (24 count)](https://products.checkmycream.com/products/Brandywine-T-Pins-1-14&quot;-(24-count).html)
 
 ### Positive Reviews

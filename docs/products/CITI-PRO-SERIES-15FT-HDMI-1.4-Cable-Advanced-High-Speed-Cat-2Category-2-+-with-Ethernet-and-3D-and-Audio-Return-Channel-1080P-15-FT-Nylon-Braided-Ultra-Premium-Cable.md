@@ -1,12 +1,3 @@
----
-title: CITI PRO SERIES - 15FT HDMI 1.4 Cable Advanced High Speed Cat 2/Category 2 + with Ethernet and 3D and Audio Return Channel 1080P 15 FT / Nylon Braided Ultra Premium Cable,
-description: CITI PRO SERIES - 15FT HDMI 1.4 Cable Advanced High Speed Cat 2/Category 2 + with Ethernet and 3D and Audio Return Channel 1080P 15 FT / Nylon Braided Ultra Premium Cable,
-author: Suvojit Manna,
-tags: CITI PRO SERIES - 15FT HDMI 1.4 Cable Advanced High Speed Cat 2/Category 2 + with Ethernet and 3D and Audio Return Channel 1080P 15 FT / Nylon Braided Ultra Premium Cable,
-publishedAt: Fri Jan 10 2020 15:01:09 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:09 GMT+0530 (India Standard Time),
----
-
 # [CITI PRO SERIES - 15FT HDMI 1.4 Cable Advanced High Speed Cat 2/Category 2 + with Ethernet and 3D and Audio Return Channel 1080P 15 FT / Nylon Braided Ultra Premium Cable](https://products.checkmycream.com/products/CITI-PRO-SERIES-15FT-HDMI-1.4-Cable-Advanced-High-Speed-Cat-2Category-2-+-with-Ethernet-and-3D-and-Audio-Return-Channel-1080P-15-FT-Nylon-Braided-Ultra-Premium-Cable.html)
 
 ### Positive Reviews

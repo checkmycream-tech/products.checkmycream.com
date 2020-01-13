@@ -1,12 +1,3 @@
----
-title: Brow Powder Duo,
-description: Brow Powder Duo,
-author: Suvojit Manna,
-tags: Brow Powder Duo,
-publishedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
----
-
 # [Brow Powder Duo](https://products.checkmycream.com/products/Brow-Powder-Duo.html)
 
 ### Positive Reviews

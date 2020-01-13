@@ -1,12 +1,3 @@
----
-title: BOUCHERON Mini Eau de Parfum for Women, 0.15 Fluid Ounce,
-description: BOUCHERON Mini Eau de Parfum for Women, 0.15 Fluid Ounce,
-author: Suvojit Manna,
-tags: BOUCHERON Mini Eau de Parfum for Women, 0.15 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 15:00:31 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:31 GMT+0530 (India Standard Time),
----
-
 # [BOUCHERON Mini Eau de Parfum for Women, 0.15 Fluid Ounce](https://products.checkmycream.com/products/BOUCHERON-Mini-Eau-de-Parfum-for-Women-0.15-Fluid-Ounce.html)
 
 ### Positive Reviews

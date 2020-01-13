@@ -1,12 +1,3 @@
----
-title: Lot of 3 Clinique Happy 0.14 oz Mini Bottle Deluxe Spray,
-description: Lot of 3 Clinique Happy 0.14 oz Mini Bottle Deluxe Spray,
-author: Suvojit Manna,
-tags: Lot of 3 Clinique Happy 0.14 oz Mini Bottle Deluxe Spray,
-publishedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
----
-
 # [Lot of 3 Clinique Happy 0.14 oz Mini Bottle Deluxe Spray](https://products.checkmycream.com/products/Lot-of-3-Clinique-Happy-0.14-oz-Mini-Bottle-Deluxe-Spray.html)
 
 ### Positive Reviews

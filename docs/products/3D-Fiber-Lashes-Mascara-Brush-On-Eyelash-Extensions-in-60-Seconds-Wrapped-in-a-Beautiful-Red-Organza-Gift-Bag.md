@@ -1,12 +1,3 @@
----
-title: 3D Fiber Lashes Mascara, Brush On Eyelash Extensions in 60 Seconds, Wrapped in a Beautiful Red Organza Gift Bag,
-description: 3D Fiber Lashes Mascara, Brush On Eyelash Extensions in 60 Seconds, Wrapped in a Beautiful Red Organza Gift Bag,
-author: Suvojit Manna,
-tags: 3D Fiber Lashes Mascara, Brush On Eyelash Extensions in 60 Seconds, Wrapped in a Beautiful Red Organza Gift Bag,
-publishedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
----
-
 # [3D Fiber Lashes Mascara, Brush On Eyelash Extensions in 60 Seconds, Wrapped in a Beautiful Red Organza Gift Bag](https://products.checkmycream.com/products/3D-Fiber-Lashes-Mascara-Brush-On-Eyelash-Extensions-in-60-Seconds-Wrapped-in-a-Beautiful-Red-Organza-Gift-Bag.html)
 
 ### Positive Reviews

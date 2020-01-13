@@ -1,12 +1,3 @@
----
-title: Mosco PB18305 Mosco Liquid Callus &amp; Corn Remover: 0.3 OZ,
-description: Mosco PB18305 Mosco Liquid Callus &amp; Corn Remover: 0.3 OZ,
-author: Suvojit Manna,
-tags: Mosco PB18305 Mosco Liquid Callus &amp; Corn Remover: 0.3 OZ,
-publishedAt: Fri Jan 10 2020 14:59:46 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:46 GMT+0530 (India Standard Time),
----
-
 # [Mosco PB18305 Mosco Liquid Callus &amp; Corn Remover: 0.3 OZ](https://products.checkmycream.com/products/Mosco-PB18305-Mosco-Liquid-Callus-and-Corn-Remover:-0.3-OZ.html)
 
 ### Positive Reviews

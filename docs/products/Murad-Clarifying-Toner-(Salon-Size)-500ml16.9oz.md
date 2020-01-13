@@ -1,12 +1,3 @@
----
-title: Murad Clarifying Toner (Salon Size) - 500ml/16.9oz,
-description: Murad Clarifying Toner (Salon Size) - 500ml/16.9oz,
-author: Suvojit Manna,
-tags: Murad Clarifying Toner (Salon Size) - 500ml/16.9oz,
-publishedAt: Fri Jan 10 2020 14:59:44 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:44 GMT+0530 (India Standard Time),
----
-
 # [Murad Clarifying Toner (Salon Size) - 500ml/16.9oz](https://products.checkmycream.com/products/Murad-Clarifying-Toner-(Salon-Size)-500ml16.9oz.html)
 
 ### Positive Reviews

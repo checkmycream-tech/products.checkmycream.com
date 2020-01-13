@@ -1,12 +1,3 @@
----
-title: Rusk W8Less Multi 12 in 1 Miracle Leave-In Treatment, 2 Ounce,
-description: Rusk W8Less Multi 12 in 1 Miracle Leave-In Treatment, 2 Ounce,
-author: Suvojit Manna,
-tags: Rusk W8Less Multi 12 in 1 Miracle Leave-In Treatment, 2 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
----
-
 # [Rusk W8Less Multi 12 in 1 Miracle Leave-In Treatment, 2 Ounce](https://products.checkmycream.com/products/Rusk-W8Less-Multi-12-in-1-Miracle-Leave-In-Treatment-2-Ounce.html)
 
 ### Positive Reviews

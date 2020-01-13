@@ -1,12 +1,3 @@
----
-title: Professional UV Gel Nail Art Tips Builder Brush 7 Sizes with Bonus Glitter Powder (One Jar) And Nail Tape,
-description: Professional UV Gel Nail Art Tips Builder Brush 7 Sizes with Bonus Glitter Powder (One Jar) And Nail Tape,
-author: Suvojit Manna,
-tags: Professional UV Gel Nail Art Tips Builder Brush 7 Sizes with Bonus Glitter Powder (One Jar) And Nail Tape,
-publishedAt: Fri Jan 10 2020 15:00:11 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:11 GMT+0530 (India Standard Time),
----
-
 # [Professional UV Gel Nail Art Tips Builder Brush 7 Sizes with Bonus Glitter Powder (One Jar) And Nail Tape](https://products.checkmycream.com/products/Professional-UV-Gel-Nail-Art-Tips-Builder-Brush-7-Sizes-with-Bonus-Glitter-Powder-(One-Jar)-And-Nail-Tape.html)
 
 ### Positive Reviews

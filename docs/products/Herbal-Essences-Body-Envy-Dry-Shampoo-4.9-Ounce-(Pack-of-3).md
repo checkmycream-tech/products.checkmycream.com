@@ -1,12 +1,3 @@
----
-title: Herbal Essences Body Envy Dry Shampoo 4.9 Ounce (Pack of 3),
-description: Herbal Essences Body Envy Dry Shampoo 4.9 Ounce (Pack of 3),
-author: Suvojit Manna,
-tags: Herbal Essences Body Envy Dry Shampoo 4.9 Ounce (Pack of 3),
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [Herbal Essences Body Envy Dry Shampoo 4.9 Ounce (Pack of 3)](https://products.checkmycream.com/products/Herbal-Essences-Body-Envy-Dry-Shampoo-4.9-Ounce-(Pack-of-3).html)
 
 ### Positive Reviews

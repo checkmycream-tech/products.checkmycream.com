@@ -1,12 +1,3 @@
----
-title: Benefit Cosmetics Roller Lash Curling Lifting Mascara (Black) Deluxe Mini 0.1 oz,
-description: Benefit Cosmetics Roller Lash Curling Lifting Mascara (Black) Deluxe Mini 0.1 oz,
-author: Suvojit Manna,
-tags: Benefit Cosmetics Roller Lash Curling Lifting Mascara (Black) Deluxe Mini 0.1 oz,
-publishedAt: Fri Jan 10 2020 15:01:07 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:07 GMT+0530 (India Standard Time),
----
-
 # [Benefit Cosmetics Roller Lash Curling Lifting Mascara (Black) Deluxe Mini 0.1 oz](https://products.checkmycream.com/products/Benefit-Cosmetics-Roller-Lash-Curling-Lifting-Mascara-(Black)-Deluxe-Mini-0.1-oz.html)
 
 ### Positive Reviews

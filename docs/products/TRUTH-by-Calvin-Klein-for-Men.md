@@ -1,12 +1,3 @@
----
-title: TRUTH by Calvin Klein for Men,
-description: TRUTH by Calvin Klein for Men,
-author: Suvojit Manna,
-tags: TRUTH by Calvin Klein for Men,
-publishedAt: Fri Jan 10 2020 14:59:16 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:16 GMT+0530 (India Standard Time),
----
-
 # [TRUTH by Calvin Klein for Men](https://products.checkmycream.com/products/TRUTH-by-Calvin-Klein-for-Men.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: one &#x27;n only Brazilian Tech Keratin De-frizz Wand, .5 Ounce,
-description: one &#x27;n only Brazilian Tech Keratin De-frizz Wand, .5 Ounce,
-author: Suvojit Manna,
-tags: one &#x27;n only Brazilian Tech Keratin De-frizz Wand, .5 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
----
-
 # [one &#x27;n only Brazilian Tech Keratin De-frizz Wand, .5 Ounce](https://products.checkmycream.com/products/one-&#x27;n-only-Brazilian-Tech-Keratin-De-frizz-Wand-.5-Ounce.html)
 
 ### Positive Reviews

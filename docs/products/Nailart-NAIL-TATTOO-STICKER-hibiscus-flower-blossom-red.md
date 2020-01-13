@@ -1,12 +1,3 @@
----
-title: Nailart NAIL TATTOO STICKER - hibiscus / flower / blossom - red,
-description: Nailart NAIL TATTOO STICKER - hibiscus / flower / blossom - red,
-author: Suvojit Manna,
-tags: Nailart NAIL TATTOO STICKER - hibiscus / flower / blossom - red,
-publishedAt: Fri Jan 10 2020 15:00:13 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:13 GMT+0530 (India Standard Time),
----
-
 # [Nailart NAIL TATTOO STICKER - hibiscus / flower / blossom - red](https://products.checkmycream.com/products/Nailart-NAIL-TATTOO-STICKER-hibiscus-flower-blossom-red.html)
 
 ### Positive Reviews

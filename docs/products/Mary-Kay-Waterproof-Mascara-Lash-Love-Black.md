@@ -1,12 +1,3 @@
----
-title: Mary Kay Waterproof Mascara Lash Love Black,
-description: Mary Kay Waterproof Mascara Lash Love Black,
-author: Suvojit Manna,
-tags: Mary Kay Waterproof Mascara Lash Love Black,
-publishedAt: Fri Jan 10 2020 15:00:10 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:10 GMT+0530 (India Standard Time),
----
-
 # [Mary Kay Waterproof Mascara Lash Love Black](https://products.checkmycream.com/products/Mary-Kay-Waterproof-Mascara-Lash-Love-Black.html)
 
 ### Positive Reviews

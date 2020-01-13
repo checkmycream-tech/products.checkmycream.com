@@ -5,7 +5,8 @@
   "private": true,
   "scripts": {
     "dev": "vuepress dev docs --port 8089 ",
-    "build": "vuepress build docs -d public",
+    "generate": "cd scripts ; node --max_old_space_size=8000 generateMarkdown.js",
+    "build": "node --max_old_space_size=28096 ./node_modules/.bin/vuepress build docs -d public",
     "postbuild": "vuepress-sitemap -H https://products.checkmycream.com -d public"
   },
   "devDependencies": {

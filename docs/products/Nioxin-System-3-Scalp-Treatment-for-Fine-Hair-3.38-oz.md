@@ -1,12 +1,3 @@
----
-title: Nioxin System 3 Scalp Treatment for Fine Hair, 3.38 oz,
-description: Nioxin System 3 Scalp Treatment for Fine Hair, 3.38 oz,
-author: Suvojit Manna,
-tags: Nioxin System 3 Scalp Treatment for Fine Hair, 3.38 oz,
-publishedAt: Fri Jan 10 2020 15:00:10 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:10 GMT+0530 (India Standard Time),
----
-
 # [Nioxin System 3 Scalp Treatment for Fine Hair, 3.38 oz](https://products.checkmycream.com/products/Nioxin-System-3-Scalp-Treatment-for-Fine-Hair-3.38-oz.html)
 
 ### Positive Reviews

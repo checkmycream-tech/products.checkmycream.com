@@ -1,12 +1,3 @@
----
-title: Oster Professional 076077-010 Outlaw Powerful &amp; Quiet Detachable Blade Clipper System,
-description: Oster Professional 076077-010 Outlaw Powerful &amp; Quiet Detachable Blade Clipper System,
-author: Suvojit Manna,
-tags: Oster Professional 076077-010 Outlaw Powerful &amp; Quiet Detachable Blade Clipper System,
-publishedAt: Fri Jan 10 2020 14:59:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:58 GMT+0530 (India Standard Time),
----
-
 # [Oster Professional 076077-010 Outlaw Powerful &amp; Quiet Detachable Blade Clipper System](https://products.checkmycream.com/products/Oster-Professional-076077-010-Outlaw-Powerful-and-Quiet-Detachable-Blade-Clipper-System.html)
 
 ### Positive Reviews

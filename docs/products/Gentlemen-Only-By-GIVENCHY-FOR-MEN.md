@@ -1,12 +1,3 @@
----
-title: Gentlemen Only By GIVENCHY FOR MEN,
-description: Gentlemen Only By GIVENCHY FOR MEN,
-author: Suvojit Manna,
-tags: Gentlemen Only By GIVENCHY FOR MEN,
-publishedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
----
-
 # [Gentlemen Only By GIVENCHY FOR MEN](https://products.checkmycream.com/products/Gentlemen-Only-By-GIVENCHY-FOR-MEN.html)
 
 ### Positive Reviews

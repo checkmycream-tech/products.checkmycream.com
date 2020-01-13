@@ -1,12 +1,3 @@
----
-title: Bath &amp; Body  Deep Cleansing Hand Soap Japanese Cherry Blossom,
-description: Bath &amp; Body  Deep Cleansing Hand Soap Japanese Cherry Blossom,
-author: Suvojit Manna,
-tags: Bath &amp; Body  Deep Cleansing Hand Soap Japanese Cherry Blossom,
-publishedAt: Fri Jan 10 2020 14:59:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:58 GMT+0530 (India Standard Time),
----
-
 # [Bath &amp; Body  Deep Cleansing Hand Soap Japanese Cherry Blossom](https://products.checkmycream.com/products/Bath-and-Body-Deep-Cleansing-Hand-Soap-Japanese-Cherry-Blossom.html)
 
 ### Positive Reviews

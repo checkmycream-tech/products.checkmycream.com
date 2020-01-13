@@ -1,12 +1,3 @@
----
-title: Scunci Conair Original Topsy Tail Hairstyling Tool,
-description: Scunci Conair Original Topsy Tail Hairstyling Tool,
-author: Suvojit Manna,
-tags: Scunci Conair Original Topsy Tail Hairstyling Tool,
-publishedAt: Fri Jan 10 2020 15:00:36 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:36 GMT+0530 (India Standard Time),
----
-
 # [Scunci Conair Original Topsy Tail Hairstyling Tool](https://products.checkmycream.com/products/Scunci-Conair-Original-Topsy-Tail-Hairstyling-Tool.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Dove Purely Pampering Body Wash, Coconut Milk with Jasmine Petals 22 oz,
-description: Dove Purely Pampering Body Wash, Coconut Milk with Jasmine Petals 22 oz,
-author: Suvojit Manna,
-tags: Dove Purely Pampering Body Wash, Coconut Milk with Jasmine Petals 22 oz,
-publishedAt: Fri Jan 10 2020 15:00:06 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:06 GMT+0530 (India Standard Time),
----
-
 # [Dove Purely Pampering Body Wash, Coconut Milk with Jasmine Petals 22 oz](https://products.checkmycream.com/products/Dove-Purely-Pampering-Body-Wash-Coconut-Milk-with-Jasmine-Petals-22-oz.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Multipurpose Floral Crystal Comestic Makeup Beauty Storage Travelling Bath Bag,
-description: Multipurpose Floral Crystal Comestic Makeup Beauty Storage Travelling Bath Bag,
-author: Suvojit Manna,
-tags: Multipurpose Floral Crystal Comestic Makeup Beauty Storage Travelling Bath Bag,
-publishedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
----
-
 # [Multipurpose Floral Crystal Comestic Makeup Beauty Storage Travelling Bath Bag](https://products.checkmycream.com/products/Multipurpose-Floral-Crystal-Comestic-Makeup-Beauty-Storage-Travelling-Bath-Bag.html)
 
 ### Positive Reviews

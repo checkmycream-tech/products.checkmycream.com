@@ -1,12 +1,3 @@
----
-title: Coty Sand &amp; Sable Cologne Spray-2 oz,
-description: Coty Sand &amp; Sable Cologne Spray-2 oz,
-author: Suvojit Manna,
-tags: Coty Sand &amp; Sable Cologne Spray-2 oz,
-publishedAt: Fri Jan 10 2020 14:59:25 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:25 GMT+0530 (India Standard Time),
----
-
 # [Coty Sand &amp; Sable Cologne Spray-2 oz](https://products.checkmycream.com/products/Coty-Sand-and-Sable-Cologne-Spray-2-oz.html)
 
 ### Positive Reviews

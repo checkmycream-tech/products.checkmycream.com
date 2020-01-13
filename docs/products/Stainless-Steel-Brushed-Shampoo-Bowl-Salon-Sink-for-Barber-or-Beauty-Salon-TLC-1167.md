@@ -1,12 +1,3 @@
----
-title: Stainless Steel Brushed Shampoo Bowl Salon Sink for Barber or Beauty Salon TLC-1167,
-description: Stainless Steel Brushed Shampoo Bowl Salon Sink for Barber or Beauty Salon TLC-1167,
-author: Suvojit Manna,
-tags: Stainless Steel Brushed Shampoo Bowl Salon Sink for Barber or Beauty Salon TLC-1167,
-publishedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
----
-
 # [Stainless Steel Brushed Shampoo Bowl Salon Sink for Barber or Beauty Salon TLC-1167](https://products.checkmycream.com/products/Stainless-Steel-Brushed-Shampoo-Bowl-Salon-Sink-for-Barber-or-Beauty-Salon-TLC-1167.html)
 
 ### Positive Reviews

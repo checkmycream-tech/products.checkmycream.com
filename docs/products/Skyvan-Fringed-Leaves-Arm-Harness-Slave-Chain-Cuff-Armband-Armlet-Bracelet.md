@@ -1,12 +1,3 @@
----
-title: Skyvan Fringed Leaves Arm Harness Slave Chain Cuff Armband Armlet Bracelet,
-description: Skyvan Fringed Leaves Arm Harness Slave Chain Cuff Armband Armlet Bracelet,
-author: Suvojit Manna,
-tags: Skyvan Fringed Leaves Arm Harness Slave Chain Cuff Armband Armlet Bracelet,
-publishedAt: Fri Jan 10 2020 15:01:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:05 GMT+0530 (India Standard Time),
----
-
 # [Skyvan Fringed Leaves Arm Harness Slave Chain Cuff Armband Armlet Bracelet](https://products.checkmycream.com/products/Skyvan-Fringed-Leaves-Arm-Harness-Slave-Chain-Cuff-Armband-Armlet-Bracelet.html)
 
 ### Positive Reviews

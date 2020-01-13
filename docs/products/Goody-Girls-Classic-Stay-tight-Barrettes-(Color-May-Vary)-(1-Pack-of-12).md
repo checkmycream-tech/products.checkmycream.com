@@ -1,12 +1,3 @@
----
-title: Goody Girls Classic Stay-tight Barrettes (Color May Vary) (1-Pack of 12),
-description: Goody Girls Classic Stay-tight Barrettes (Color May Vary) (1-Pack of 12),
-author: Suvojit Manna,
-tags: Goody Girls Classic Stay-tight Barrettes (Color May Vary) (1-Pack of 12),
-publishedAt: Fri Jan 10 2020 15:00:18 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:18 GMT+0530 (India Standard Time),
----
-
 # [Goody Girls Classic Stay-tight Barrettes (Color May Vary) (1-Pack of 12)](https://products.checkmycream.com/products/Goody-Girls-Classic-Stay-tight-Barrettes-(Color-May-Vary)-(1-Pack-of-12).html)
 
 ### Positive Reviews

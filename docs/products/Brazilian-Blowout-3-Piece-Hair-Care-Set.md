@@ -1,12 +1,3 @@
----
-title: Brazilian Blowout 3 Piece Hair Care Set,
-description: Brazilian Blowout 3 Piece Hair Care Set,
-author: Suvojit Manna,
-tags: Brazilian Blowout 3 Piece Hair Care Set,
-publishedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
----
-
 # [Brazilian Blowout 3 Piece Hair Care Set](https://products.checkmycream.com/products/Brazilian-Blowout-3-Piece-Hair-Care-Set.html)
 
 ### Positive Reviews

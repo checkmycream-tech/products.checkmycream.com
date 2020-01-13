@@ -1,12 +1,3 @@
----
-title: Ted Lapidus Lapidus Pour Homme Black Extreme Eau de Toilette Spray for Men, 3.4 Ounce,
-description: Ted Lapidus Lapidus Pour Homme Black Extreme Eau de Toilette Spray for Men, 3.4 Ounce,
-author: Suvojit Manna,
-tags: Ted Lapidus Lapidus Pour Homme Black Extreme Eau de Toilette Spray for Men, 3.4 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:32 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:32 GMT+0530 (India Standard Time),
----
-
 # [Ted Lapidus Lapidus Pour Homme Black Extreme Eau de Toilette Spray for Men, 3.4 Ounce](https://products.checkmycream.com/products/Ted-Lapidus-Lapidus-Pour-Homme-Black-Extreme-Eau-de-Toilette-Spray-for-Men-3.4-Ounce.html)
 
 ### Positive Reviews

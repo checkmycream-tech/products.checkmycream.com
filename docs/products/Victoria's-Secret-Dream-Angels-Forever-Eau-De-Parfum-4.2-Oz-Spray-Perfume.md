@@ -1,12 +1,3 @@
----
-title: Victoria&#x27;s Secret Dream Angels Forever Eau De Parfum 4.2 Oz Spray Perfume,
-description: Victoria&#x27;s Secret Dream Angels Forever Eau De Parfum 4.2 Oz Spray Perfume,
-author: Suvojit Manna,
-tags: Victoria&#x27;s Secret Dream Angels Forever Eau De Parfum 4.2 Oz Spray Perfume,
-publishedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
----
-
 # [Victoria&#x27;s Secret Dream Angels Forever Eau De Parfum 4.2 Oz Spray Perfume](https://products.checkmycream.com/products/Victoria&#x27;s-Secret-Dream-Angels-Forever-Eau-De-Parfum-4.2-Oz-Spray-Perfume.html)
 
 ### Positive Reviews

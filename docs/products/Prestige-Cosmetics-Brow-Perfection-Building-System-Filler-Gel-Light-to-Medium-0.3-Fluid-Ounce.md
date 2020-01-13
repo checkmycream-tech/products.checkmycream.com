@@ -1,12 +1,3 @@
----
-title: Prestige Cosmetics Brow Perfection Building System Filler Gel, Light to Medium, 0.3 Fluid Ounce,
-description: Prestige Cosmetics Brow Perfection Building System Filler Gel, Light to Medium, 0.3 Fluid Ounce,
-author: Suvojit Manna,
-tags: Prestige Cosmetics Brow Perfection Building System Filler Gel, Light to Medium, 0.3 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 15:00:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:03 GMT+0530 (India Standard Time),
----
-
 # [Prestige Cosmetics Brow Perfection Building System Filler Gel, Light to Medium, 0.3 Fluid Ounce](https://products.checkmycream.com/products/Prestige-Cosmetics-Brow-Perfection-Building-System-Filler-Gel-Light-to-Medium-0.3-Fluid-Ounce.html)
 
 ### Positive Reviews

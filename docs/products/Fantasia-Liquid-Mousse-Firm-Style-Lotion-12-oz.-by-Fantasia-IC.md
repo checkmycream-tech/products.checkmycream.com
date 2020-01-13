@@ -1,12 +1,3 @@
----
-title: Fantasia Liquid Mousse Firm Style Lotion 12 oz. by Fantasia IC,
-description: Fantasia Liquid Mousse Firm Style Lotion 12 oz. by Fantasia IC,
-author: Suvojit Manna,
-tags: Fantasia Liquid Mousse Firm Style Lotion 12 oz. by Fantasia IC,
-publishedAt: Fri Jan 10 2020 14:59:04 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:04 GMT+0530 (India Standard Time),
----
-
 # [Fantasia Liquid Mousse Firm Style Lotion 12 oz. by Fantasia IC](https://products.checkmycream.com/products/Fantasia-Liquid-Mousse-Firm-Style-Lotion-12-oz.-by-Fantasia-IC.html)
 
 ### Positive Reviews

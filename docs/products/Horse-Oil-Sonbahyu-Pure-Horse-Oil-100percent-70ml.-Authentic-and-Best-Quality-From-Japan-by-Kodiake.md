@@ -1,12 +1,3 @@
----
-title: Horse Oil Sonbahyu Pure Horse Oil 100% 70ml. Authentic and Best Quality From Japan by Kodiake,
-description: Horse Oil Sonbahyu Pure Horse Oil 100% 70ml. Authentic and Best Quality From Japan by Kodiake,
-author: Suvojit Manna,
-tags: Horse Oil Sonbahyu Pure Horse Oil 100% 70ml. Authentic and Best Quality From Japan by Kodiake,
-publishedAt: Fri Jan 10 2020 15:00:38 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:38 GMT+0530 (India Standard Time),
----
-
 # [Horse Oil Sonbahyu Pure Horse Oil 100% 70ml. Authentic and Best Quality From Japan by Kodiake](https://products.checkmycream.com/products/Horse-Oil-Sonbahyu-Pure-Horse-Oil-100percent-70ml.-Authentic-and-Best-Quality-From-Japan-by-Kodiake.html)
 
 ### Positive Reviews

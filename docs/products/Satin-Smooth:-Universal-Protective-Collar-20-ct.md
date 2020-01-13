@@ -1,12 +1,3 @@
----
-title: Satin Smooth: Universal Protective Collar, 20 ct,
-description: Satin Smooth: Universal Protective Collar, 20 ct,
-author: Suvojit Manna,
-tags: Satin Smooth: Universal Protective Collar, 20 ct,
-publishedAt: Fri Jan 10 2020 15:00:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:00 GMT+0530 (India Standard Time),
----
-
 # [Satin Smooth: Universal Protective Collar, 20 ct](https://products.checkmycream.com/products/Satin-Smooth:-Universal-Protective-Collar-20-ct.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Nail Polish Wall Rack Display, (FUJI BRAND) Fits up to 96 Bottles,
-description: Nail Polish Wall Rack Display, (FUJI BRAND) Fits up to 96 Bottles,
-author: Suvojit Manna,
-tags: Nail Polish Wall Rack Display, (FUJI BRAND) Fits up to 96 Bottles,
-publishedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
----
-
 # [Nail Polish Wall Rack Display, (FUJI BRAND) Fits up to 96 Bottles](https://products.checkmycream.com/products/Nail-Polish-Wall-Rack-Display-(FUJI-BRAND)-Fits-up-to-96-Bottles.html)
 
 ### Positive Reviews

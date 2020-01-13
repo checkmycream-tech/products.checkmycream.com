@@ -1,12 +1,3 @@
----
-title: Test Pass Detox Shampoo - Single Use, NET 2 FL. OZ.,
-description: Test Pass Detox Shampoo - Single Use, NET 2 FL. OZ.,
-author: Suvojit Manna,
-tags: Test Pass Detox Shampoo - Single Use, NET 2 FL. OZ.,
-publishedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
----
-
 # [Test Pass Detox Shampoo - Single Use, NET 2 FL. OZ.](https://products.checkmycream.com/products/Test-Pass-Detox-Shampoo-Single-Use-NET-2-FL.-OZ..html)
 
 ### Positive Reviews

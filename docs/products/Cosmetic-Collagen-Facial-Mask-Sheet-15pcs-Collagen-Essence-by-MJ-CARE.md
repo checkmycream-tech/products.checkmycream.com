@@ -1,12 +1,3 @@
----
-title: Cosmetic Collagen Facial Mask Sheet 15pcs - Collagen Essence by MJ CARE,
-description: Cosmetic Collagen Facial Mask Sheet 15pcs - Collagen Essence by MJ CARE,
-author: Suvojit Manna,
-tags: Cosmetic Collagen Facial Mask Sheet 15pcs - Collagen Essence by MJ CARE,
-publishedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
----
-
 # [Cosmetic Collagen Facial Mask Sheet 15pcs - Collagen Essence by MJ CARE](https://products.checkmycream.com/products/Cosmetic-Collagen-Facial-Mask-Sheet-15pcs-Collagen-Essence-by-MJ-CARE.html)
 
 ### Positive Reviews

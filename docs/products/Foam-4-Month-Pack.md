@@ -1,12 +1,3 @@
----
-title: Foam 4 Month Pack,
-description: Foam 4 Month Pack,
-author: Suvojit Manna,
-tags: Foam 4 Month Pack,
-publishedAt: Fri Jan 10 2020 15:00:23 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:23 GMT+0530 (India Standard Time),
----
-
 # [Foam 4 Month Pack](https://products.checkmycream.com/products/Foam-4-Month-Pack.html)
 
 ### Positive Reviews

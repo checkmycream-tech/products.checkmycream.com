@@ -1,12 +1,3 @@
----
-title: Dior Homme Sport by Christian Dior for Men. Eau De Toilette Spray 3.4-Ounces,
-description: Dior Homme Sport by Christian Dior for Men. Eau De Toilette Spray 3.4-Ounces,
-author: Suvojit Manna,
-tags: Dior Homme Sport by Christian Dior for Men. Eau De Toilette Spray 3.4-Ounces,
-publishedAt: Fri Jan 10 2020 14:59:33 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:33 GMT+0530 (India Standard Time),
----
-
 # [Dior Homme Sport by Christian Dior for Men. Eau De Toilette Spray 3.4-Ounces](https://products.checkmycream.com/products/Dior-Homme-Sport-by-Christian-Dior-for-Men.-Eau-De-Toilette-Spray-3.4-Ounces.html)
 
 ### Positive Reviews

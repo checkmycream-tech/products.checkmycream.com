@@ -1,12 +1,3 @@
----
-title: OPI LED TRUVIEW WORK STATION LAMP,
-description: OPI LED TRUVIEW WORK STATION LAMP,
-author: Suvojit Manna,
-tags: OPI LED TRUVIEW WORK STATION LAMP,
-publishedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
----
-
 # [OPI LED TRUVIEW WORK STATION LAMP](https://products.checkmycream.com/products/OPI-LED-TRUVIEW-WORK-STATION-LAMP.html)
 
 ### Positive Reviews

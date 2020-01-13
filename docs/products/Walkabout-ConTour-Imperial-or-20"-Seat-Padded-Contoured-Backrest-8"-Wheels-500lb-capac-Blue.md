@@ -1,12 +1,3 @@
----
-title: Walkabout ConTour Imperial | 20&quot; Seat, Padded Contoured Backrest, 8&quot; Wheels, 500lb capac, Blue,
-description: Walkabout ConTour Imperial | 20&quot; Seat, Padded Contoured Backrest, 8&quot; Wheels, 500lb capac, Blue,
-author: Suvojit Manna,
-tags: Walkabout ConTour Imperial | 20&quot; Seat, Padded Contoured Backrest, 8&quot; Wheels, 500lb capac, Blue,
-publishedAt: Fri Jan 10 2020 14:59:26 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:26 GMT+0530 (India Standard Time),
----
-
 # [Walkabout ConTour Imperial | 20&quot; Seat, Padded Contoured Backrest, 8&quot; Wheels, 500lb capac, Blue](https://products.checkmycream.com/products/Walkabout-ConTour-Imperial-or-20&quot;-Seat-Padded-Contoured-Backrest-8&quot;-Wheels-500lb-capac-Blue.html)
 
 ### Positive Reviews

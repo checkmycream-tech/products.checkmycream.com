@@ -1,12 +1,3 @@
----
-title: Covergirl Intense Shadowblast Eye Shadow, Brown Bling 815 (2 Pack),
-description: Covergirl Intense Shadowblast Eye Shadow, Brown Bling 815 (2 Pack),
-author: Suvojit Manna,
-tags: Covergirl Intense Shadowblast Eye Shadow, Brown Bling 815 (2 Pack),
-publishedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
----
-
 # [Covergirl Intense Shadowblast Eye Shadow, Brown Bling 815 (2 Pack)](https://products.checkmycream.com/products/Covergirl-Intense-Shadowblast-Eye-Shadow-Brown-Bling-815-(2-Pack).html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Raphycool Steam Hair Straightening Brush Double Plate Fast Detangling Straighter Comb,
-description: Raphycool Steam Hair Straightening Brush Double Plate Fast Detangling Straighter Comb,
-author: Suvojit Manna,
-tags: Raphycool Steam Hair Straightening Brush Double Plate Fast Detangling Straighter Comb,
-publishedAt: Fri Jan 10 2020 15:01:06 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:06 GMT+0530 (India Standard Time),
----
-
 # [Raphycool Steam Hair Straightening Brush Double Plate Fast Detangling Straighter Comb](https://products.checkmycream.com/products/Raphycool-Steam-Hair-Straightening-Brush-Double-Plate-Fast-Detangling-Straighter-Comb.html)
 
 ### Positive Reviews

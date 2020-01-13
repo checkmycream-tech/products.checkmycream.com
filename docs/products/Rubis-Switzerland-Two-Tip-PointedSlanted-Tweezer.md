@@ -1,12 +1,3 @@
----
-title: Rubis Switzerland Two Tip Pointed/Slanted Tweezer,
-description: Rubis Switzerland Two Tip Pointed/Slanted Tweezer,
-author: Suvojit Manna,
-tags: Rubis Switzerland Two Tip Pointed/Slanted Tweezer,
-publishedAt: Fri Jan 10 2020 14:59:09 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:09 GMT+0530 (India Standard Time),
----
-
 # [Rubis Switzerland Two Tip Pointed/Slanted Tweezer](https://products.checkmycream.com/products/Rubis-Switzerland-Two-Tip-PointedSlanted-Tweezer.html)
 
 ### Positive Reviews

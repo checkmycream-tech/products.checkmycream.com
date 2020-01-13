@@ -1,12 +1,3 @@
----
-title: Axe Bodyspray, Rise, 4ounce Cans (Pack of 6),
-description: Axe Bodyspray, Rise, 4ounce Cans (Pack of 6),
-author: Suvojit Manna,
-tags: Axe Bodyspray, Rise, 4ounce Cans (Pack of 6),
-publishedAt: Fri Jan 10 2020 14:59:43 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:43 GMT+0530 (India Standard Time),
----
-
 # [Axe Bodyspray, Rise, 4ounce Cans (Pack of 6)](https://products.checkmycream.com/products/Axe-Bodyspray-Rise-4ounce-Cans-(Pack-of-6).html)
 
 ### Positive Reviews

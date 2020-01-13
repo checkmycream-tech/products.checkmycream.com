@@ -1,12 +1,3 @@
----
-title: Enjoydeal 5pcs White Highlight Waterproof Cosmetic Makeup Eyeliner Pencil Eye Shadow Pen,
-description: Enjoydeal 5pcs White Highlight Waterproof Cosmetic Makeup Eyeliner Pencil Eye Shadow Pen,
-author: Suvojit Manna,
-tags: Enjoydeal 5pcs White Highlight Waterproof Cosmetic Makeup Eyeliner Pencil Eye Shadow Pen,
-publishedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
----
-
 # [Enjoydeal 5pcs White Highlight Waterproof Cosmetic Makeup Eyeliner Pencil Eye Shadow Pen](https://products.checkmycream.com/products/Enjoydeal-5pcs-White-Highlight-Waterproof-Cosmetic-Makeup-Eyeliner-Pencil-Eye-Shadow-Pen.html)
 
 ### Positive Reviews

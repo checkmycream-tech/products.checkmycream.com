@@ -1,12 +1,3 @@
----
-title: Patti Labelle Girlfriend By Patti Labelle Eau De Parfum Spray/FN140423/3.4 oz/women/,
-description: Patti Labelle Girlfriend By Patti Labelle Eau De Parfum Spray/FN140423/3.4 oz/women/,
-author: Suvojit Manna,
-tags: Patti Labelle Girlfriend By Patti Labelle Eau De Parfum Spray/FN140423/3.4 oz/women/,
-publishedAt: Fri Jan 10 2020 14:59:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:08 GMT+0530 (India Standard Time),
----
-
 # [Patti Labelle Girlfriend By Patti Labelle Eau De Parfum Spray/FN140423/3.4 oz/women/](https://products.checkmycream.com/products/Patti-Labelle-Girlfriend-By-Patti-Labelle-Eau-De-Parfum-SprayFN1404233.4-ozwomen.html)
 
 ### Positive Reviews

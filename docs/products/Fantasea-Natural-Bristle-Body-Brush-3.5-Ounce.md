@@ -1,12 +1,3 @@
----
-title: Fantasea Natural Bristle Body Brush, 3.5 Ounce,
-description: Fantasea Natural Bristle Body Brush, 3.5 Ounce,
-author: Suvojit Manna,
-tags: Fantasea Natural Bristle Body Brush, 3.5 Ounce,
-publishedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
----
-
 # [Fantasea Natural Bristle Body Brush, 3.5 Ounce](https://products.checkmycream.com/products/Fantasea-Natural-Bristle-Body-Brush-3.5-Ounce.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: SkinMedica Rejuvenative Moisturizer, 2 Ounce,
-description: SkinMedica Rejuvenative Moisturizer, 2 Ounce,
-author: Suvojit Manna,
-tags: SkinMedica Rejuvenative Moisturizer, 2 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:13 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:13 GMT+0530 (India Standard Time),
----
-
 # [SkinMedica Rejuvenative Moisturizer, 2 Ounce](https://products.checkmycream.com/products/SkinMedica-Rejuvenative-Moisturizer-2-Ounce.html)
 
 ### Positive Reviews

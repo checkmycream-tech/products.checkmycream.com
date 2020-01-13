@@ -1,12 +1,3 @@
----
-title: Refaxi Gold Tone Nail Manicure Rotary Carbide File Drill Bit For Nail Drill Machine,
-description: Refaxi Gold Tone Nail Manicure Rotary Carbide File Drill Bit For Nail Drill Machine,
-author: Suvojit Manna,
-tags: Refaxi Gold Tone Nail Manicure Rotary Carbide File Drill Bit For Nail Drill Machine,
-publishedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
----
-
 # [Refaxi Gold Tone Nail Manicure Rotary Carbide File Drill Bit For Nail Drill Machine](https://products.checkmycream.com/products/Refaxi-Gold-Tone-Nail-Manicure-Rotary-Carbide-File-Drill-Bit-For-Nail-Drill-Machine.html)
 
 ### Positive Reviews

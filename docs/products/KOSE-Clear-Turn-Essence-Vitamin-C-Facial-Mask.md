@@ -1,12 +1,3 @@
----
-title: KOSE Clear Turn Essence Vitamin C Facial Mask,
-description: KOSE Clear Turn Essence Vitamin C Facial Mask,
-author: Suvojit Manna,
-tags: KOSE Clear Turn Essence Vitamin C Facial Mask,
-publishedAt: Fri Jan 10 2020 15:00:09 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:09 GMT+0530 (India Standard Time),
----
-
 # [KOSE Clear Turn Essence Vitamin C Facial Mask](https://products.checkmycream.com/products/KOSE-Clear-Turn-Essence-Vitamin-C-Facial-Mask.html)
 
 ### Positive Reviews

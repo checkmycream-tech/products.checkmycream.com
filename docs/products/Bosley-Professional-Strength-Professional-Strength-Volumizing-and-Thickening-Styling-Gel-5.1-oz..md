@@ -1,12 +1,3 @@
----
-title: Bosley Professional Strength Professional Strength Volumizing and Thickening Styling Gel, 5.1 oz.,
-description: Bosley Professional Strength Professional Strength Volumizing and Thickening Styling Gel, 5.1 oz.,
-author: Suvojit Manna,
-tags: Bosley Professional Strength Professional Strength Volumizing and Thickening Styling Gel, 5.1 oz.,
-publishedAt: Fri Jan 10 2020 14:59:45 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:45 GMT+0530 (India Standard Time),
----
-
 # [Bosley Professional Strength Professional Strength Volumizing and Thickening Styling Gel, 5.1 oz.](https://products.checkmycream.com/products/Bosley-Professional-Strength-Professional-Strength-Volumizing-and-Thickening-Styling-Gel-5.1-oz..html)
 
 ### Positive Reviews

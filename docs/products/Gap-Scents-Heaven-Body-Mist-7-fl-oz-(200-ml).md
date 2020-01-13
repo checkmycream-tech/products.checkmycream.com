@@ -1,12 +1,3 @@
----
-title: Gap Scents Heaven Body Mist 7 fl oz (200 ml),
-description: Gap Scents Heaven Body Mist 7 fl oz (200 ml),
-author: Suvojit Manna,
-tags: Gap Scents Heaven Body Mist 7 fl oz (200 ml),
-publishedAt: Fri Jan 10 2020 14:59:27 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:27 GMT+0530 (India Standard Time),
----
-
 # [Gap Scents Heaven Body Mist 7 fl oz (200 ml)](https://products.checkmycream.com/products/Gap-Scents-Heaven-Body-Mist-7-fl-oz-(200-ml).html)
 
 ### Positive Reviews

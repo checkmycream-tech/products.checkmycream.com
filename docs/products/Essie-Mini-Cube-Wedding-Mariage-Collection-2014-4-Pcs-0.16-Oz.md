@@ -1,12 +1,3 @@
----
-title: Essie Mini Cube Wedding, Mariage Collection 2014 4 Pcs 0.16 Oz,
-description: Essie Mini Cube Wedding, Mariage Collection 2014 4 Pcs 0.16 Oz,
-author: Suvojit Manna,
-tags: Essie Mini Cube Wedding, Mariage Collection 2014 4 Pcs 0.16 Oz,
-publishedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
----
-
 # [Essie Mini Cube Wedding, Mariage Collection 2014 4 Pcs 0.16 Oz](https://products.checkmycream.com/products/Essie-Mini-Cube-Wedding-Mariage-Collection-2014-4-Pcs-0.16-Oz.html)
 
 ### Positive Reviews

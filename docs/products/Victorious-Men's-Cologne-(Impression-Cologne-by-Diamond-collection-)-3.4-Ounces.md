@@ -1,12 +1,3 @@
----
-title: Victorious Men&#x27;s Cologne (Impression Cologne by Diamond collection ) 3.4 Ounces,
-description: Victorious Men&#x27;s Cologne (Impression Cologne by Diamond collection ) 3.4 Ounces,
-author: Suvojit Manna,
-tags: Victorious Men&#x27;s Cologne (Impression Cologne by Diamond collection ) 3.4 Ounces,
-publishedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
----
-
 # [Victorious Men&#x27;s Cologne (Impression Cologne by Diamond collection ) 3.4 Ounces](https://products.checkmycream.com/products/Victorious-Men&#x27;s-Cologne-(Impression-Cologne-by-Diamond-collection-)-3.4-Ounces.html)
 
 ### Positive Reviews

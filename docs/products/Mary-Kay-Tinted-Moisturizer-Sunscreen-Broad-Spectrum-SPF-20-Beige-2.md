@@ -1,12 +1,3 @@
----
-title: Mary Kay Tinted Moisturizer Sunscreen Broad Spectrum SPF 20, Beige 2,
-description: Mary Kay Tinted Moisturizer Sunscreen Broad Spectrum SPF 20, Beige 2,
-author: Suvojit Manna,
-tags: Mary Kay Tinted Moisturizer Sunscreen Broad Spectrum SPF 20, Beige 2,
-publishedAt: Fri Jan 10 2020 15:00:11 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:11 GMT+0530 (India Standard Time),
----
-
 # [Mary Kay Tinted Moisturizer Sunscreen Broad Spectrum SPF 20, Beige 2](https://products.checkmycream.com/products/Mary-Kay-Tinted-Moisturizer-Sunscreen-Broad-Spectrum-SPF-20-Beige-2.html)
 
 ### Positive Reviews

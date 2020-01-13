@@ -1,12 +1,3 @@
----
-title: Facial Soap - Oily Skin Formula - With Dish--150g/FN133617/5 oz//,
-description: Facial Soap - Oily Skin Formula - With Dish--150g/FN133617/5 oz//,
-author: Suvojit Manna,
-tags: Facial Soap - Oily Skin Formula - With Dish--150g/FN133617/5 oz//,
-publishedAt: Fri Jan 10 2020 14:59:04 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:04 GMT+0530 (India Standard Time),
----
-
 # [Facial Soap - Oily Skin Formula - With Dish--150g/FN133617/5 oz//](https://products.checkmycream.com/products/Facial-Soap-Oily-Skin-Formula-With-Dish-150gFN1336175-oz.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Wahl Professional 5-Star Series Replacement Gold Foil  7031-200  Hypo-Allergenic for Super Close Shaving,
-description: Wahl Professional 5-Star Series Replacement Gold Foil  7031-200  Hypo-Allergenic for Super Close Shaving,
-author: Suvojit Manna,
-tags: Wahl Professional 5-Star Series Replacement Gold Foil  7031-200  Hypo-Allergenic for Super Close Shaving,
-publishedAt: Fri Jan 10 2020 15:00:37 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:37 GMT+0530 (India Standard Time),
----
-
 # [Wahl Professional 5-Star Series Replacement Gold Foil  7031-200  Hypo-Allergenic for Super Close Shaving](https://products.checkmycream.com/products/Wahl-Professional-5-Star-Series-Replacement-Gold-Foil-7031-200-Hypo-Allergenic-for-Super-Close-Shaving.html)
 
 ### Positive Reviews

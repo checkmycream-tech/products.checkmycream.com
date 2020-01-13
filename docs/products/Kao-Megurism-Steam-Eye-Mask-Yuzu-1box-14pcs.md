@@ -1,12 +1,3 @@
----
-title: Kao Megurism Steam Eye Mask Yuzu, 1box, 14pcs,
-description: Kao Megurism Steam Eye Mask Yuzu, 1box, 14pcs,
-author: Suvojit Manna,
-tags: Kao Megurism Steam Eye Mask Yuzu, 1box, 14pcs,
-publishedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
----
-
 # [Kao Megurism Steam Eye Mask Yuzu, 1box, 14pcs](https://products.checkmycream.com/products/Kao-Megurism-Steam-Eye-Mask-Yuzu-1box-14pcs.html)
 
 ### Positive Reviews

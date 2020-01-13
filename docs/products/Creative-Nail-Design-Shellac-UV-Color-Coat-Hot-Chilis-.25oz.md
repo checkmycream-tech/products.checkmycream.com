@@ -1,12 +1,3 @@
----
-title: Creative Nail Design Shellac UV Color Coat Hot Chilis .25oz,
-description: Creative Nail Design Shellac UV Color Coat Hot Chilis .25oz,
-author: Suvojit Manna,
-tags: Creative Nail Design Shellac UV Color Coat Hot Chilis .25oz,
-publishedAt: Fri Jan 10 2020 15:00:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:05 GMT+0530 (India Standard Time),
----
-
 # [Creative Nail Design Shellac UV Color Coat Hot Chilis .25oz](https://products.checkmycream.com/products/Creative-Nail-Design-Shellac-UV-Color-Coat-Hot-Chilis-.25oz.html)
 
 ### Positive Reviews

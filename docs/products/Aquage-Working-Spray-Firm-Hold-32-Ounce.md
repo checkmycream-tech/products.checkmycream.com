@@ -1,12 +1,3 @@
----
-title: Aquage Working Spray Firm Hold, 32 Ounce,
-description: Aquage Working Spray Firm Hold, 32 Ounce,
-author: Suvojit Manna,
-tags: Aquage Working Spray Firm Hold, 32 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:23 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:23 GMT+0530 (India Standard Time),
----
-
 # [Aquage Working Spray Firm Hold, 32 Ounce](https://products.checkmycream.com/products/Aquage-Working-Spray-Firm-Hold-32-Ounce.html)
 
 ### Positive Reviews

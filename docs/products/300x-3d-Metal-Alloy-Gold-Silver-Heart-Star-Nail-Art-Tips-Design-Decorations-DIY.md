@@ -1,12 +1,3 @@
----
-title: 300x 3d Metal Alloy Gold Silver Heart Star Nail Art Tips Design Decorations DIY,
-description: 300x 3d Metal Alloy Gold Silver Heart Star Nail Art Tips Design Decorations DIY,
-author: Suvojit Manna,
-tags: 300x 3d Metal Alloy Gold Silver Heart Star Nail Art Tips Design Decorations DIY,
-publishedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
----
-
 # [300x 3d Metal Alloy Gold Silver Heart Star Nail Art Tips Design Decorations DIY](https://products.checkmycream.com/products/300x-3d-Metal-Alloy-Gold-Silver-Heart-Star-Nail-Art-Tips-Design-Decorations-DIY.html)
 
 ### Positive Reviews

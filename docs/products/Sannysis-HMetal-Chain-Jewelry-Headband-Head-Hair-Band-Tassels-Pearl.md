@@ -1,12 +1,3 @@
----
-title: Sannysis HMetal Chain Jewelry Headband Head Hair Band Tassels Pearl,
-description: Sannysis HMetal Chain Jewelry Headband Head Hair Band Tassels Pearl,
-author: Suvojit Manna,
-tags: Sannysis HMetal Chain Jewelry Headband Head Hair Band Tassels Pearl,
-publishedAt: Fri Jan 10 2020 15:01:06 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:06 GMT+0530 (India Standard Time),
----
-
 # [Sannysis HMetal Chain Jewelry Headband Head Hair Band Tassels Pearl](https://products.checkmycream.com/products/Sannysis-HMetal-Chain-Jewelry-Headband-Head-Hair-Band-Tassels-Pearl.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Tom Ford White Patchouli by Tom Ford for Women. Eau De Parfum Spray 3.4-Ounce,
-description: Tom Ford White Patchouli by Tom Ford for Women. Eau De Parfum Spray 3.4-Ounce,
-author: Suvojit Manna,
-tags: Tom Ford White Patchouli by Tom Ford for Women. Eau De Parfum Spray 3.4-Ounce,
-publishedAt: Fri Jan 10 2020 14:59:45 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:45 GMT+0530 (India Standard Time),
----
-
 # [Tom Ford White Patchouli by Tom Ford for Women. Eau De Parfum Spray 3.4-Ounce](https://products.checkmycream.com/products/Tom-Ford-White-Patchouli-by-Tom-Ford-for-Women.-Eau-De-Parfum-Spray-3.4-Ounce.html)
 
 ### Positive Reviews

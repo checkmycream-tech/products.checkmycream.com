@@ -1,12 +1,3 @@
----
-title: Bath Body Works Japanese Cherry Blossom 8.0 oz Triple Moisture Body Cream,
-description: Bath Body Works Japanese Cherry Blossom 8.0 oz Triple Moisture Body Cream,
-author: Suvojit Manna,
-tags: Bath Body Works Japanese Cherry Blossom 8.0 oz Triple Moisture Body Cream,
-publishedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
----
-
 # [Bath Body Works Japanese Cherry Blossom 8.0 oz Triple Moisture Body Cream](https://products.checkmycream.com/products/Bath-Body-Works-Japanese-Cherry-Blossom-8.0-oz-Triple-Moisture-Body-Cream.html)
 
 ### Positive Reviews

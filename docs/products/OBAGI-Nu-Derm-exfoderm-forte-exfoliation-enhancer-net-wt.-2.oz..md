@@ -1,12 +1,3 @@
----
-title: OBAGI Nu-Derm exfoderm forte exfoliation enhancer net wt. 2.oz.,
-description: OBAGI Nu-Derm exfoderm forte exfoliation enhancer net wt. 2.oz.,
-author: Suvojit Manna,
-tags: OBAGI Nu-Derm exfoderm forte exfoliation enhancer net wt. 2.oz.,
-publishedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
----
-
 # [OBAGI Nu-Derm exfoderm forte exfoliation enhancer net wt. 2.oz.](https://products.checkmycream.com/products/OBAGI-Nu-Derm-exfoderm-forte-exfoliation-enhancer-net-wt.-2.oz..html)
 
 ### Positive Reviews

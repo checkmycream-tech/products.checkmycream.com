@@ -1,12 +1,3 @@
----
-title: Razor Bump &amp; Ingrown Hair Cream by Alpha Mane (2 Oz),
-description: Razor Bump &amp; Ingrown Hair Cream by Alpha Mane (2 Oz),
-author: Suvojit Manna,
-tags: Razor Bump &amp; Ingrown Hair Cream by Alpha Mane (2 Oz),
-publishedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
----
-
 # [Razor Bump &amp; Ingrown Hair Cream by Alpha Mane (2 Oz)](https://products.checkmycream.com/products/Razor-Bump-and-Ingrown-Hair-Cream-by-Alpha-Mane-(2-Oz).html)
 
 ### Positive Reviews

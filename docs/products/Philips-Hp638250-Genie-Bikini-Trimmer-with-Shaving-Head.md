@@ -1,12 +1,3 @@
----
-title: Philips Hp6382/50 Genie Bikini Trimmer with Shaving Head,
-description: Philips Hp6382/50 Genie Bikini Trimmer with Shaving Head,
-author: Suvojit Manna,
-tags: Philips Hp6382/50 Genie Bikini Trimmer with Shaving Head,
-publishedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
----
-
 # [Philips Hp6382/50 Genie Bikini Trimmer with Shaving Head](https://products.checkmycream.com/products/Philips-Hp638250-Genie-Bikini-Trimmer-with-Shaving-Head.html)
 
 ### Positive Reviews

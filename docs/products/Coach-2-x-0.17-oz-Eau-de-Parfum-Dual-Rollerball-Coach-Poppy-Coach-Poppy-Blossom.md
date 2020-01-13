@@ -1,12 +1,3 @@
----
-title: Coach 2 x 0.17 oz Eau de Parfum Dual Rollerball Coach Poppy / Coach Poppy Blossom,
-description: Coach 2 x 0.17 oz Eau de Parfum Dual Rollerball Coach Poppy / Coach Poppy Blossom,
-author: Suvojit Manna,
-tags: Coach 2 x 0.17 oz Eau de Parfum Dual Rollerball Coach Poppy / Coach Poppy Blossom,
-publishedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
----
-
 # [Coach 2 x 0.17 oz Eau de Parfum Dual Rollerball Coach Poppy / Coach Poppy Blossom](https://products.checkmycream.com/products/Coach-2-x-0.17-oz-Eau-de-Parfum-Dual-Rollerball-Coach-Poppy-Coach-Poppy-Blossom.html)
 
 ### Positive Reviews

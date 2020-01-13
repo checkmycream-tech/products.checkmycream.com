@@ -1,12 +1,3 @@
----
-title: Handmade Herbal 100% Raw Goat Milk Lavender Soap (4 ounce bar),
-description: Handmade Herbal 100% Raw Goat Milk Lavender Soap (4 ounce bar),
-author: Suvojit Manna,
-tags: Handmade Herbal 100% Raw Goat Milk Lavender Soap (4 ounce bar),
-publishedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
----
-
 # [Handmade Herbal 100% Raw Goat Milk Lavender Soap (4 ounce bar)](https://products.checkmycream.com/products/Handmade-Herbal-100percent-Raw-Goat-Milk-Lavender-Soap-(4-ounce-bar).html)
 
 ### Positive Reviews

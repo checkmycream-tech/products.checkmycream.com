@@ -1,12 +1,3 @@
----
-title: X&amp;Y ANGEL Ladies Curly/Wavy Natural Long Wigs Hair Extensions Clip Claw Ponytail 10 Colors,
-description: X&amp;Y ANGEL Ladies Curly/Wavy Natural Long Wigs Hair Extensions Clip Claw Ponytail 10 Colors,
-author: Suvojit Manna,
-tags: X&amp;Y ANGEL Ladies Curly/Wavy Natural Long Wigs Hair Extensions Clip Claw Ponytail 10 Colors,
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [X&amp;Y ANGEL Ladies Curly/Wavy Natural Long Wigs Hair Extensions Clip Claw Ponytail 10 Colors](https://products.checkmycream.com/products/XandY-ANGEL-Ladies-CurlyWavy-Natural-Long-Wigs-Hair-Extensions-Clip-Claw-Ponytail-10-Colors.html)
 
 ### Positive Reviews

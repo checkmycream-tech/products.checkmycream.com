@@ -1,12 +1,3 @@
----
-title: Dial for Men Speed Foam Body Wash Foaming Gel, Active Sport, 6.8 Oz (Pack of 6),
-description: Dial for Men Speed Foam Body Wash Foaming Gel, Active Sport, 6.8 Oz (Pack of 6),
-author: Suvojit Manna,
-tags: Dial for Men Speed Foam Body Wash Foaming Gel, Active Sport, 6.8 Oz (Pack of 6),
-publishedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
----
-
 # [Dial for Men Speed Foam Body Wash Foaming Gel, Active Sport, 6.8 Oz (Pack of 6)](https://products.checkmycream.com/products/Dial-for-Men-Speed-Foam-Body-Wash-Foaming-Gel-Active-Sport-6.8-Oz-(Pack-of-6).html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: amtonseeshop Beautiful Newly Fashion Hot Warm Lace Tassel Sheer Floral Print Triangle Mantilla Scarf Shawl (White),
-description: amtonseeshop Beautiful Newly Fashion Hot Warm Lace Tassel Sheer Floral Print Triangle Mantilla Scarf Shawl (White),
-author: Suvojit Manna,
-tags: amtonseeshop Beautiful Newly Fashion Hot Warm Lace Tassel Sheer Floral Print Triangle Mantilla Scarf Shawl (White),
-publishedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
----
-
 # [amtonseeshop Beautiful Newly Fashion Hot Warm Lace Tassel Sheer Floral Print Triangle Mantilla Scarf Shawl (White)](https://products.checkmycream.com/products/amtonseeshop-Beautiful-Newly-Fashion-Hot-Warm-Lace-Tassel-Sheer-Floral-Print-Triangle-Mantilla-Scarf-Shawl-(White).html)
 
 ### Positive Reviews

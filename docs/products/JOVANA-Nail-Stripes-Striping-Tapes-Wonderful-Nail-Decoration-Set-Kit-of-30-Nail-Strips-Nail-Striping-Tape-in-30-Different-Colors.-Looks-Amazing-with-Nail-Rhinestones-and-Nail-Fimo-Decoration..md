@@ -1,12 +1,3 @@
----
-title: JOVANA Nail Stripes Striping Tapes- Wonderful Nail Decoration Set Kit of 30 Nail Strips Nail Striping Tape in 30 Different Colors. Looks Amazing with Nail Rhinestones and Nail Fimo Decoration.,
-description: JOVANA Nail Stripes Striping Tapes- Wonderful Nail Decoration Set Kit of 30 Nail Strips Nail Striping Tape in 30 Different Colors. Looks Amazing with Nail Rhinestones and Nail Fimo Decoration.,
-author: Suvojit Manna,
-tags: JOVANA Nail Stripes Striping Tapes- Wonderful Nail Decoration Set Kit of 30 Nail Strips Nail Striping Tape in 30 Different Colors. Looks Amazing with Nail Rhinestones and Nail Fimo Decoration.,
-publishedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
----
-
 # [JOVANA Nail Stripes Striping Tapes- Wonderful Nail Decoration Set Kit of 30 Nail Strips Nail Striping Tape in 30 Different Colors. Looks Amazing with Nail Rhinestones and Nail Fimo Decoration.](https://products.checkmycream.com/products/JOVANA-Nail-Stripes-Striping-Tapes-Wonderful-Nail-Decoration-Set-Kit-of-30-Nail-Strips-Nail-Striping-Tape-in-30-Different-Colors.-Looks-Amazing-with-Nail-Rhinestones-and-Nail-Fimo-Decoration..html)
 
 ### Positive Reviews

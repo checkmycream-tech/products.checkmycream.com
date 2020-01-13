@@ -1,12 +1,3 @@
----
-title: Hello Kitty Character Cute Cosmetic Portable Mirror Compact Pink Mirror,
-description: Hello Kitty Character Cute Cosmetic Portable Mirror Compact Pink Mirror,
-author: Suvojit Manna,
-tags: Hello Kitty Character Cute Cosmetic Portable Mirror Compact Pink Mirror,
-publishedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
----
-
 # [Hello Kitty Character Cute Cosmetic Portable Mirror Compact Pink Mirror](https://products.checkmycream.com/products/Hello-Kitty-Character-Cute-Cosmetic-Portable-Mirror-Compact-Pink-Mirror.html)
 
 ### Positive Reviews

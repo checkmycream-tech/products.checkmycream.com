@@ -1,12 +1,3 @@
----
-title: Cosplay Rosario + Vampire RosaVam Moka Akashiya Cross Necklace,
-description: Cosplay Rosario + Vampire RosaVam Moka Akashiya Cross Necklace,
-author: Suvojit Manna,
-tags: Cosplay Rosario + Vampire RosaVam Moka Akashiya Cross Necklace,
-publishedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
----
-
 # [Cosplay Rosario + Vampire RosaVam Moka Akashiya Cross Necklace](https://products.checkmycream.com/products/Cosplay-Rosario-+-Vampire-RosaVam-Moka-Akashiya-Cross-Necklace.html)
 
 ### Positive Reviews

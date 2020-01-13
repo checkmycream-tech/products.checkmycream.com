@@ -1,12 +1,3 @@
----
-title: (Pack of 12 Pcs) Crystal Rhinestones Hair Pins, Beautiful Hair Accessories for Every Occasion, Arrives in Gift Box,
-description: (Pack of 12 Pcs) Crystal Rhinestones Hair Pins, Beautiful Hair Accessories for Every Occasion, Arrives in Gift Box,
-author: Suvojit Manna,
-tags: (Pack of 12 Pcs) Crystal Rhinestones Hair Pins, Beautiful Hair Accessories for Every Occasion, Arrives in Gift Box,
-publishedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
----
-
 # [(Pack of 12 Pcs) Crystal Rhinestones Hair Pins, Beautiful Hair Accessories for Every Occasion, Arrives in Gift Box](https://products.checkmycream.com/products/(Pack-of-12-Pcs)-Crystal-Rhinestones-Hair-Pins-Beautiful-Hair-Accessories-for-Every-Occasion-Arrives-in-Gift-Box.html)
 
 ### Positive Reviews

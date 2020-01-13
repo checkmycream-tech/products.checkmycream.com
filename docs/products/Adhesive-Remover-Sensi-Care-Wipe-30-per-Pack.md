@@ -1,12 +1,3 @@
----
-title: Adhesive Remover Sensi-Care Wipe 30 per Pack,
-description: Adhesive Remover Sensi-Care Wipe 30 per Pack,
-author: Suvojit Manna,
-tags: Adhesive Remover Sensi-Care Wipe 30 per Pack,
-publishedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
----
-
 # [Adhesive Remover Sensi-Care Wipe 30 per Pack](https://products.checkmycream.com/products/Adhesive-Remover-Sensi-Care-Wipe-30-per-Pack.html)
 
 ### Positive Reviews

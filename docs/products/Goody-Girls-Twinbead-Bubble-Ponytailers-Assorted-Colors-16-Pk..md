@@ -1,12 +1,3 @@
----
-title: Goody Girls Twinbead Bubble Ponytailers - Assorted Colors - 16 Pk.,
-description: Goody Girls Twinbead Bubble Ponytailers - Assorted Colors - 16 Pk.,
-author: Suvojit Manna,
-tags: Goody Girls Twinbead Bubble Ponytailers - Assorted Colors - 16 Pk.,
-publishedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
----
-
 # [Goody Girls Twinbead Bubble Ponytailers - Assorted Colors - 16 Pk.](https://products.checkmycream.com/products/Goody-Girls-Twinbead-Bubble-Ponytailers-Assorted-Colors-16-Pk..html)
 
 ### Positive Reviews

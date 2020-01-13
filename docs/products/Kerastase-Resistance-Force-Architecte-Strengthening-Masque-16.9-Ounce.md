@@ -1,12 +1,3 @@
----
-title: Kerastase Resistance Force Architecte Strengthening Masque, 16.9 Ounce,
-description: Kerastase Resistance Force Architecte Strengthening Masque, 16.9 Ounce,
-author: Suvojit Manna,
-tags: Kerastase Resistance Force Architecte Strengthening Masque, 16.9 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:14 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:14 GMT+0530 (India Standard Time),
----
-
 # [Kerastase Resistance Force Architecte Strengthening Masque, 16.9 Ounce](https://products.checkmycream.com/products/Kerastase-Resistance-Force-Architecte-Strengthening-Masque-16.9-Ounce.html)
 
 ### Positive Reviews

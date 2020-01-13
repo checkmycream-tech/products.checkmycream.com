@@ -1,12 +1,3 @@
----
-title: Murad - Rapid Age Spot and Pigment Lightening Serum,
-description: Murad - Rapid Age Spot and Pigment Lightening Serum,
-author: Suvojit Manna,
-tags: Murad - Rapid Age Spot and Pigment Lightening Serum,
-publishedAt: Fri Jan 10 2020 15:00:21 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:21 GMT+0530 (India Standard Time),
----
-
 # [Murad - Rapid Age Spot and Pigment Lightening Serum](https://products.checkmycream.com/products/Murad-Rapid-Age-Spot-and-Pigment-Lightening-Serum.html)
 
 ### Positive Reviews

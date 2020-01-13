@@ -1,12 +1,3 @@
----
-title: Sannysis 1 Piece Cute Owl Design Soft TPU Case Cover for Samsung (Samsung Galaxy Note 3 N9000),
-description: Sannysis 1 Piece Cute Owl Design Soft TPU Case Cover for Samsung (Samsung Galaxy Note 3 N9000),
-author: Suvojit Manna,
-tags: Sannysis 1 Piece Cute Owl Design Soft TPU Case Cover for Samsung (Samsung Galaxy Note 3 N9000),
-publishedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
----
-
 # [Sannysis 1 Piece Cute Owl Design Soft TPU Case Cover for Samsung (Samsung Galaxy Note 3 N9000)](https://products.checkmycream.com/products/Sannysis-1-Piece-Cute-Owl-Design-Soft-TPU-Case-Cover-for-Samsung-(Samsung-Galaxy-Note-3-N9000).html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Aunt Jackie&#x27;s Haircare Set,
-description: Aunt Jackie&#x27;s Haircare Set,
-author: Suvojit Manna,
-tags: Aunt Jackie&#x27;s Haircare Set,
-publishedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
----
-
 # [Aunt Jackie&#x27;s Haircare Set](https://products.checkmycream.com/products/Aunt-Jackie&#x27;s-Haircare-Set.html)
 
 ### Positive Reviews

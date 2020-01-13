@@ -1,12 +1,3 @@
----
-title: Yardley of London Refreshing Body Spray for Women, Lily of The Valley, 2.6 Ounce,
-description: Yardley of London Refreshing Body Spray for Women, Lily of The Valley, 2.6 Ounce,
-author: Suvojit Manna,
-tags: Yardley of London Refreshing Body Spray for Women, Lily of The Valley, 2.6 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:58 GMT+0530 (India Standard Time),
----
-
 # [Yardley of London Refreshing Body Spray for Women, Lily of The Valley, 2.6 Ounce](https://products.checkmycream.com/products/Yardley-of-London-Refreshing-Body-Spray-for-Women-Lily-of-The-Valley-2.6-Ounce.html)
 
 ### Positive Reviews

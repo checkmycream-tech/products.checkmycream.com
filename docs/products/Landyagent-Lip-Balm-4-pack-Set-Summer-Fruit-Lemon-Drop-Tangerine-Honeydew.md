@@ -1,12 +1,3 @@
----
-title: Landyagent Lip Balm 4 pack Set - Summer Fruit, Lemon Drop, Tangerine, Honeydew,
-description: Landyagent Lip Balm 4 pack Set - Summer Fruit, Lemon Drop, Tangerine, Honeydew,
-author: Suvojit Manna,
-tags: Landyagent Lip Balm 4 pack Set - Summer Fruit, Lemon Drop, Tangerine, Honeydew,
-publishedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
----
-
 # [Landyagent Lip Balm 4 pack Set - Summer Fruit, Lemon Drop, Tangerine, Honeydew](https://products.checkmycream.com/products/Landyagent-Lip-Balm-4-pack-Set-Summer-Fruit-Lemon-Drop-Tangerine-Honeydew.html)
 
 ### Positive Reviews

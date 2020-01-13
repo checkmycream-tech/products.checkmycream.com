@@ -1,12 +1,3 @@
----
-title: Paris Hilton Fragrances - Passport Tokyo Spray,
-description: Paris Hilton Fragrances - Passport Tokyo Spray,
-author: Suvojit Manna,
-tags: Paris Hilton Fragrances - Passport Tokyo Spray,
-publishedAt: Fri Jan 10 2020 15:00:04 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:04 GMT+0530 (India Standard Time),
----
-
 # [Paris Hilton Fragrances - Passport Tokyo Spray](https://products.checkmycream.com/products/Paris-Hilton-Fragrances-Passport-Tokyo-Spray.html)
 
 ### Positive Reviews

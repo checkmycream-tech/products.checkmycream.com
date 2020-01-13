@@ -1,12 +1,3 @@
----
-title: Keri, Original, Softly Scented. 900 mL,
-description: Keri, Original, Softly Scented. 900 mL,
-author: Suvojit Manna,
-tags: Keri, Original, Softly Scented. 900 mL,
-publishedAt: Fri Jan 10 2020 14:59:22 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:22 GMT+0530 (India Standard Time),
----
-
 # [Keri, Original, Softly Scented. 900 mL](https://products.checkmycream.com/products/Keri-Original-Softly-Scented.-900-mL.html)
 
 ### Positive Reviews

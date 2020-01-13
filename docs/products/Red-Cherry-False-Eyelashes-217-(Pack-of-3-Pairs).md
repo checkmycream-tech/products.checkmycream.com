@@ -1,12 +1,3 @@
----
-title: Red Cherry False Eyelashes #217 (Pack of 3 Pairs),
-description: Red Cherry False Eyelashes #217 (Pack of 3 Pairs),
-author: Suvojit Manna,
-tags: Red Cherry False Eyelashes #217 (Pack of 3 Pairs),
-publishedAt: Fri Jan 10 2020 15:00:04 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:04 GMT+0530 (India Standard Time),
----
-
 # [Red Cherry False Eyelashes #217 (Pack of 3 Pairs)](https://products.checkmycream.com/products/Red-Cherry-False-Eyelashes-217-(Pack-of-3-Pairs).html)
 
 ### Positive Reviews

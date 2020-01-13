@@ -1,12 +1,3 @@
----
-title: Coppertone SPF 50 Tattoo Guard Stick 0.6 Fluid Ounce,
-description: Coppertone SPF 50 Tattoo Guard Stick 0.6 Fluid Ounce,
-author: Suvojit Manna,
-tags: Coppertone SPF 50 Tattoo Guard Stick 0.6 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
----
-
 # [Coppertone SPF 50 Tattoo Guard Stick 0.6 Fluid Ounce](https://products.checkmycream.com/products/Coppertone-SPF-50-Tattoo-Guard-Stick-0.6-Fluid-Ounce.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Millennium Mom&#x27;s Fave 7 Set BEST Tattoo Ink 1/2 oz MOMS,
-description: Millennium Mom&#x27;s Fave 7 Set BEST Tattoo Ink 1/2 oz MOMS,
-author: Suvojit Manna,
-tags: Millennium Mom&#x27;s Fave 7 Set BEST Tattoo Ink 1/2 oz MOMS,
-publishedAt: Fri Jan 10 2020 15:00:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:05 GMT+0530 (India Standard Time),
----
-
 # [Millennium Mom&#x27;s Fave 7 Set BEST Tattoo Ink 1/2 oz MOMS](https://products.checkmycream.com/products/Millennium-Mom&#x27;s-Fave-7-Set-BEST-Tattoo-Ink-12-oz-MOMS.html)
 
 ### Positive Reviews

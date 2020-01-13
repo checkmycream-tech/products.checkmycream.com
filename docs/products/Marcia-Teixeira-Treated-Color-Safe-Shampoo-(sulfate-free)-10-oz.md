@@ -1,12 +1,3 @@
----
-title: Marcia Teixeira Treated Color-Safe Shampoo (sulfate-free) - 10 oz,
-description: Marcia Teixeira Treated Color-Safe Shampoo (sulfate-free) - 10 oz,
-author: Suvojit Manna,
-tags: Marcia Teixeira Treated Color-Safe Shampoo (sulfate-free) - 10 oz,
-publishedAt: Fri Jan 10 2020 14:59:45 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:45 GMT+0530 (India Standard Time),
----
-
 # [Marcia Teixeira Treated Color-Safe Shampoo (sulfate-free) - 10 oz](https://products.checkmycream.com/products/Marcia-Teixeira-Treated-Color-Safe-Shampoo-(sulfate-free)-10-oz.html)
 
 ### Positive Reviews

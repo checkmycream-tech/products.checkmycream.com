@@ -1,12 +1,3 @@
----
-title: Nutra Luxe Lash MD, 3.0 ml,
-description: Nutra Luxe Lash MD, 3.0 ml,
-author: Suvojit Manna,
-tags: Nutra Luxe Lash MD, 3.0 ml,
-publishedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
----
-
 # [Nutra Luxe Lash MD, 3.0 ml](https://products.checkmycream.com/products/Nutra-Luxe-Lash-MD-3.0-ml.html)
 
 ### Positive Reviews

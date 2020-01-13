@@ -1,12 +1,3 @@
----
-title: 4 Pack - Traditional 10% Sulfur Soap,
-description: 4 Pack - Traditional 10% Sulfur Soap,
-author: Suvojit Manna,
-tags: 4 Pack - Traditional 10% Sulfur Soap,
-publishedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
----
-
 # [4 Pack - Traditional 10% Sulfur Soap](https://products.checkmycream.com/products/4-Pack-Traditional-10percent-Sulfur-Soap.html)
 
 ### Positive Reviews

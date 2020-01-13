@@ -1,12 +1,3 @@
----
-title: L&#x27;Oreal Paris Visible Lift Line-Minimizing and Tone-Enhancing Makeup, Normal/Dry Skin, 1.25-Fluid Ounce,
-description: L&#x27;Oreal Paris Visible Lift Line-Minimizing and Tone-Enhancing Makeup, Normal/Dry Skin, 1.25-Fluid Ounce,
-author: Suvojit Manna,
-tags: L&#x27;Oreal Paris Visible Lift Line-Minimizing and Tone-Enhancing Makeup, Normal/Dry Skin, 1.25-Fluid Ounce,
-publishedAt: Fri Jan 10 2020 14:59:29 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:29 GMT+0530 (India Standard Time),
----
-
 # [L&#x27;Oreal Paris Visible Lift Line-Minimizing and Tone-Enhancing Makeup, Normal/Dry Skin, 1.25-Fluid Ounce](https://products.checkmycream.com/products/L&#x27;Oreal-Paris-Visible-Lift-Line-Minimizing-and-Tone-Enhancing-Makeup-NormalDry-Skin-1.25-Fluid-Ounce.html)
 
 ### Positive Reviews

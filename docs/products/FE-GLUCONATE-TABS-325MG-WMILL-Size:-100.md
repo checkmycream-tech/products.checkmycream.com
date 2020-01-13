@@ -1,12 +1,3 @@
----
-title: FE GLUCONATE TABS 325MG WMILL Size: 100,
-description: FE GLUCONATE TABS 325MG WMILL Size: 100,
-author: Suvojit Manna,
-tags: FE GLUCONATE TABS 325MG WMILL Size: 100,
-publishedAt: Fri Jan 10 2020 14:59:25 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:25 GMT+0530 (India Standard Time),
----
-
 # [FE GLUCONATE TABS 325MG WMILL Size: 100](https://products.checkmycream.com/products/FE-GLUCONATE-TABS-325MG-WMILL-Size:-100.html)
 
 ### Positive Reviews

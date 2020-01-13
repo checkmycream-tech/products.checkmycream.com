@@ -1,12 +1,3 @@
----
-title: La Prairie Extrait Of Skin Caviar Firming Complex Treatment For Unisex,
-description: La Prairie Extrait Of Skin Caviar Firming Complex Treatment For Unisex,
-author: Suvojit Manna,
-tags: La Prairie Extrait Of Skin Caviar Firming Complex Treatment For Unisex,
-publishedAt: Fri Jan 10 2020 14:59:36 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:36 GMT+0530 (India Standard Time),
----
-
 # [La Prairie Extrait Of Skin Caviar Firming Complex Treatment For Unisex](https://products.checkmycream.com/products/La-Prairie-Extrait-Of-Skin-Caviar-Firming-Complex-Treatment-For-Unisex.html)
 
 ### Positive Reviews

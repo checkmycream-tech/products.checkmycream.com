@@ -1,12 +1,3 @@
----
-title: Zote Laundry Bar Soap,
-description: Zote Laundry Bar Soap,
-author: Suvojit Manna,
-tags: Zote Laundry Bar Soap,
-publishedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
----
-
 # [Zote Laundry Bar Soap](https://products.checkmycream.com/products/Zote-Laundry-Bar-Soap.html)
 
 ### Positive Reviews

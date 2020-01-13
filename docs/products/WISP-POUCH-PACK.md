@@ -1,12 +1,3 @@
----
-title: WISP POUCH PACK,
-description: WISP POUCH PACK,
-author: Suvojit Manna,
-tags: WISP POUCH PACK,
-publishedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
----
-
 # [WISP POUCH PACK](https://products.checkmycream.com/products/WISP-POUCH-PACK.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Ruby Kisses HD SET n&#x27; Forget SETTING POWDER 0.4OZ RRSP02 Banana,
-description: Ruby Kisses HD SET n&#x27; Forget SETTING POWDER 0.4OZ RRSP02 Banana,
-author: Suvojit Manna,
-tags: Ruby Kisses HD SET n&#x27; Forget SETTING POWDER 0.4OZ RRSP02 Banana,
-publishedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
----
-
 # [Ruby Kisses HD SET n&#x27; Forget SETTING POWDER 0.4OZ RRSP02 Banana](https://products.checkmycream.com/products/Ruby-Kisses-HD-SET-n&#x27;-Forget-SETTING-POWDER-0.4OZ-RRSP02-Banana.html)
 
 ### Positive Reviews

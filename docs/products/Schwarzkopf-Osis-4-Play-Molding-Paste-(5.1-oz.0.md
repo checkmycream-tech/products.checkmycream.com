@@ -1,12 +1,3 @@
----
-title: Schwarzkopf Osis 4-Play Molding Paste (5.1 oz.0,
-description: Schwarzkopf Osis 4-Play Molding Paste (5.1 oz.0,
-author: Suvojit Manna,
-tags: Schwarzkopf Osis 4-Play Molding Paste (5.1 oz.0,
-publishedAt: Fri Jan 10 2020 15:00:09 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:09 GMT+0530 (India Standard Time),
----
-
 # [Schwarzkopf Osis 4-Play Molding Paste (5.1 oz.0](https://products.checkmycream.com/products/Schwarzkopf-Osis-4-Play-Molding-Paste-(5.1-oz.0.html)
 
 ### Positive Reviews

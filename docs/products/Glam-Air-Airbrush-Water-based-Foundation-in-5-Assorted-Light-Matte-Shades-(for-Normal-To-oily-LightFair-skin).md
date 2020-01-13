@@ -1,12 +1,3 @@
----
-title: Glam Air Airbrush Water-based Foundation in 5 Assorted Light Matte Shades (for Normal To oily Light/Fair skin),
-description: Glam Air Airbrush Water-based Foundation in 5 Assorted Light Matte Shades (for Normal To oily Light/Fair skin),
-author: Suvojit Manna,
-tags: Glam Air Airbrush Water-based Foundation in 5 Assorted Light Matte Shades (for Normal To oily Light/Fair skin),
-publishedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
----
-
 # [Glam Air Airbrush Water-based Foundation in 5 Assorted Light Matte Shades (for Normal To oily Light/Fair skin)](https://products.checkmycream.com/products/Glam-Air-Airbrush-Water-based-Foundation-in-5-Assorted-Light-Matte-Shades-(for-Normal-To-oily-LightFair-skin).html)
 
 ### Positive Reviews

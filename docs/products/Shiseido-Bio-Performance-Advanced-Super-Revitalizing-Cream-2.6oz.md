@@ -1,12 +1,3 @@
----
-title: Shiseido Bio Performance Advanced Super Revitalizing Cream 2.6oz,
-description: Shiseido Bio Performance Advanced Super Revitalizing Cream 2.6oz,
-author: Suvojit Manna,
-tags: Shiseido Bio Performance Advanced Super Revitalizing Cream 2.6oz,
-publishedAt: Fri Jan 10 2020 15:00:12 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:12 GMT+0530 (India Standard Time),
----
-
 # [Shiseido Bio Performance Advanced Super Revitalizing Cream 2.6oz](https://products.checkmycream.com/products/Shiseido-Bio-Performance-Advanced-Super-Revitalizing-Cream-2.6oz.html)
 
 ### Positive Reviews

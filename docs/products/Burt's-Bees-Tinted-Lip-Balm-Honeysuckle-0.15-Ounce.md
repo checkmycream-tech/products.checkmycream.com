@@ -1,12 +1,3 @@
----
-title: Burt&#x27;s Bees Tinted Lip Balm, Honeysuckle, 0.15 Ounce,
-description: Burt&#x27;s Bees Tinted Lip Balm, Honeysuckle, 0.15 Ounce,
-author: Suvojit Manna,
-tags: Burt&#x27;s Bees Tinted Lip Balm, Honeysuckle, 0.15 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:15 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:15 GMT+0530 (India Standard Time),
----
-
 # [Burt&#x27;s Bees Tinted Lip Balm, Honeysuckle, 0.15 Ounce](https://products.checkmycream.com/products/Burt&#x27;s-Bees-Tinted-Lip-Balm-Honeysuckle-0.15-Ounce.html)
 
 ### Positive Reviews

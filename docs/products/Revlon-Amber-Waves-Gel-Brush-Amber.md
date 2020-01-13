@@ -1,12 +1,3 @@
----
-title: Revlon Amber Waves Gel Brush, Amber,
-description: Revlon Amber Waves Gel Brush, Amber,
-author: Suvojit Manna,
-tags: Revlon Amber Waves Gel Brush, Amber,
-publishedAt: Fri Jan 10 2020 15:00:18 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:18 GMT+0530 (India Standard Time),
----
-
 # [Revlon Amber Waves Gel Brush, Amber](https://products.checkmycream.com/products/Revlon-Amber-Waves-Gel-Brush-Amber.html)
 
 ### Positive Reviews

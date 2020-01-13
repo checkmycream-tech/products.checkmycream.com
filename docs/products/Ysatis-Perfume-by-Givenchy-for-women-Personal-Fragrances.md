@@ -1,12 +1,3 @@
----
-title: Ysatis Perfume by Givenchy for women Personal Fragrances,
-description: Ysatis Perfume by Givenchy for women Personal Fragrances,
-author: Suvojit Manna,
-tags: Ysatis Perfume by Givenchy for women Personal Fragrances,
-publishedAt: Fri Jan 10 2020 14:59:15 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:15 GMT+0530 (India Standard Time),
----
-
 # [Ysatis Perfume by Givenchy for women Personal Fragrances](https://products.checkmycream.com/products/Ysatis-Perfume-by-Givenchy-for-women-Personal-Fragrances.html)
 
 ### Positive Reviews

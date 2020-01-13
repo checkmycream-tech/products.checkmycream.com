@@ -1,12 +1,3 @@
----
-title: Neewer&amp;reg; Fashion Modern Women Girls Stud Flip Faux Leather Bowknot Wallet Clutch Purse Ladies&#x27; Long Handbag (Coffee),
-description: Neewer&amp;reg; Fashion Modern Women Girls Stud Flip Faux Leather Bowknot Wallet Clutch Purse Ladies&#x27; Long Handbag (Coffee),
-author: Suvojit Manna,
-tags: Neewer&amp;reg; Fashion Modern Women Girls Stud Flip Faux Leather Bowknot Wallet Clutch Purse Ladies&#x27; Long Handbag (Coffee),
-publishedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
----
-
 # [Neewer&amp;reg; Fashion Modern Women Girls Stud Flip Faux Leather Bowknot Wallet Clutch Purse Ladies&#x27; Long Handbag (Coffee)](https://products.checkmycream.com/products/Neewerandreg-Fashion-Modern-Women-Girls-Stud-Flip-Faux-Leather-Bowknot-Wallet-Clutch-Purse-Ladies&#x27;-Long-Handbag-(Coffee).html)
 
 ### Positive Reviews

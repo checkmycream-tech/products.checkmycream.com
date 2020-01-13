@@ -1,12 +1,3 @@
----
-title: Katy Perry Royal Revolution Eau de Parfum Spray for Women 3.4 fl Ounce,
-description: Katy Perry Royal Revolution Eau de Parfum Spray for Women 3.4 fl Ounce,
-author: Suvojit Manna,
-tags: Katy Perry Royal Revolution Eau de Parfum Spray for Women 3.4 fl Ounce,
-publishedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
----
-
 # [Katy Perry Royal Revolution Eau de Parfum Spray for Women 3.4 fl Ounce](https://products.checkmycream.com/products/Katy-Perry-Royal-Revolution-Eau-de-Parfum-Spray-for-Women-3.4-fl-Ounce.html)
 
 ### Positive Reviews

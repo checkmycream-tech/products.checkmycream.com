@@ -1,12 +1,3 @@
----
-title: Bath Body Works Fragrance Mist Splash Orange Sapphire,
-description: Bath Body Works Fragrance Mist Splash Orange Sapphire,
-author: Suvojit Manna,
-tags: Bath Body Works Fragrance Mist Splash Orange Sapphire,
-publishedAt: Fri Jan 10 2020 14:59:46 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:46 GMT+0530 (India Standard Time),
----
-
 # [Bath Body Works Fragrance Mist Splash Orange Sapphire](https://products.checkmycream.com/products/Bath-Body-Works-Fragrance-Mist-Splash-Orange-Sapphire.html)
 
 ### Positive Reviews

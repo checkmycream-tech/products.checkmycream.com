@@ -1,12 +1,3 @@
----
-title: SkinMedica TNS Illuminating Eye Cream  .5oz,
-description: SkinMedica TNS Illuminating Eye Cream  .5oz,
-author: Suvojit Manna,
-tags: SkinMedica TNS Illuminating Eye Cream  .5oz,
-publishedAt: Fri Jan 10 2020 14:59:36 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:36 GMT+0530 (India Standard Time),
----
-
 # [SkinMedica TNS Illuminating Eye Cream  .5oz](https://products.checkmycream.com/products/SkinMedica-TNS-Illuminating-Eye-Cream-.5oz.html)
 
 ### Positive Reviews

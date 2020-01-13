@@ -1,12 +1,3 @@
----
-title: Cellex-C Skin Hydration Complex Packs,
-description: Cellex-C Skin Hydration Complex Packs,
-author: Suvojit Manna,
-tags: Cellex-C Skin Hydration Complex Packs,
-publishedAt: Fri Jan 10 2020 14:59:09 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:09 GMT+0530 (India Standard Time),
----
-
 # [Cellex-C Skin Hydration Complex Packs](https://products.checkmycream.com/products/Cellex-C-Skin-Hydration-Complex-Packs.html)
 
 ### Positive Reviews

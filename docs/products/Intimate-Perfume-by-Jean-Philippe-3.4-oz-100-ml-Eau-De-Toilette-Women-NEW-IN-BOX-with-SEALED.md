@@ -1,12 +1,3 @@
----
-title: Intimate Perfume by Jean Philippe 3.4 oz / 100 ml Eau De Toilette Women NEW IN BOX with SEALED,
-description: Intimate Perfume by Jean Philippe 3.4 oz / 100 ml Eau De Toilette Women NEW IN BOX with SEALED,
-author: Suvojit Manna,
-tags: Intimate Perfume by Jean Philippe 3.4 oz / 100 ml Eau De Toilette Women NEW IN BOX with SEALED,
-publishedAt: Fri Jan 10 2020 15:00:15 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:15 GMT+0530 (India Standard Time),
----
-
 # [Intimate Perfume by Jean Philippe 3.4 oz / 100 ml Eau De Toilette Women NEW IN BOX with SEALED](https://products.checkmycream.com/products/Intimate-Perfume-by-Jean-Philippe-3.4-oz-100-ml-Eau-De-Toilette-Women-NEW-IN-BOX-with-SEALED.html)
 
 ### Positive Reviews

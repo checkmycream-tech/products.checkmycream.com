@@ -1,12 +1,3 @@
----
-title: Franck Olivier Passion By Franck Olivier For Women,
-description: Franck Olivier Passion By Franck Olivier For Women,
-author: Suvojit Manna,
-tags: Franck Olivier Passion By Franck Olivier For Women,
-publishedAt: Fri Jan 10 2020 14:59:17 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:17 GMT+0530 (India Standard Time),
----
-
 # [Franck Olivier Passion By Franck Olivier For Women](https://products.checkmycream.com/products/Franck-Olivier-Passion-By-Franck-Olivier-For-Women.html)
 
 ### Positive Reviews

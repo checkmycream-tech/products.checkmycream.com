@@ -1,12 +1,3 @@
----
-title: Special 1 Pack of 5 - Secura Personal Cleanser 8oz bottles,
-description: Special 1 Pack of 5 - Secura Personal Cleanser 8oz bottles,
-author: Suvojit Manna,
-tags: Special 1 Pack of 5 - Secura Personal Cleanser 8oz bottles,
-publishedAt: Fri Jan 10 2020 14:59:51 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:51 GMT+0530 (India Standard Time),
----
-
 # [Special 1 Pack of 5 - Secura Personal Cleanser 8oz bottles](https://products.checkmycream.com/products/Special-1-Pack-of-5-Secura-Personal-Cleanser-8oz-bottles.html)
 
 ### Positive Reviews

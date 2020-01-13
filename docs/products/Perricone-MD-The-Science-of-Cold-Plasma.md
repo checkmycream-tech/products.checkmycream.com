@@ -1,12 +1,3 @@
----
-title: Perricone MD The Science of Cold Plasma,
-description: Perricone MD The Science of Cold Plasma,
-author: Suvojit Manna,
-tags: Perricone MD The Science of Cold Plasma,
-publishedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
----
-
 # [Perricone MD The Science of Cold Plasma](https://products.checkmycream.com/products/Perricone-MD-The-Science-of-Cold-Plasma.html)
 
 ### Positive Reviews

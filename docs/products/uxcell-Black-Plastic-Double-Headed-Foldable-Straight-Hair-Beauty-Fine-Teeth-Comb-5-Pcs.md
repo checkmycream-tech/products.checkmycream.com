@@ -1,12 +1,3 @@
----
-title: uxcell Black Plastic Double Headed Foldable Straight Hair Beauty Fine Teeth Comb 5 Pcs,
-description: uxcell Black Plastic Double Headed Foldable Straight Hair Beauty Fine Teeth Comb 5 Pcs,
-author: Suvojit Manna,
-tags: uxcell Black Plastic Double Headed Foldable Straight Hair Beauty Fine Teeth Comb 5 Pcs,
-publishedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
----
-
 # [uxcell Black Plastic Double Headed Foldable Straight Hair Beauty Fine Teeth Comb 5 Pcs](https://products.checkmycream.com/products/uxcell-Black-Plastic-Double-Headed-Foldable-Straight-Hair-Beauty-Fine-Teeth-Comb-5-Pcs.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: It&#x27;s a 10 Ten Silk Express Miracle Silk Hair Mask, 8 Ounce,
-description: It&#x27;s a 10 Ten Silk Express Miracle Silk Hair Mask, 8 Ounce,
-author: Suvojit Manna,
-tags: It&#x27;s a 10 Ten Silk Express Miracle Silk Hair Mask, 8 Ounce,
-publishedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
----
-
 # [It&#x27;s a 10 Ten Silk Express Miracle Silk Hair Mask, 8 Ounce](https://products.checkmycream.com/products/It&#x27;s-a-10-Ten-Silk-Express-Miracle-Silk-Hair-Mask-8-Ounce.html)
 
 ### Positive Reviews

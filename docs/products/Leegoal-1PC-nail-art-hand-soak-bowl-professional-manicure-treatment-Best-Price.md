@@ -1,12 +1,3 @@
----
-title: Leegoal 1PC nail art hand soak bowl professional manicure treatment Best Price,
-description: Leegoal 1PC nail art hand soak bowl professional manicure treatment Best Price,
-author: Suvojit Manna,
-tags: Leegoal 1PC nail art hand soak bowl professional manicure treatment Best Price,
-publishedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
----
-
 # [Leegoal 1PC nail art hand soak bowl professional manicure treatment Best Price](https://products.checkmycream.com/products/Leegoal-1PC-nail-art-hand-soak-bowl-professional-manicure-treatment-Best-Price.html)
 
 ### Positive Reviews

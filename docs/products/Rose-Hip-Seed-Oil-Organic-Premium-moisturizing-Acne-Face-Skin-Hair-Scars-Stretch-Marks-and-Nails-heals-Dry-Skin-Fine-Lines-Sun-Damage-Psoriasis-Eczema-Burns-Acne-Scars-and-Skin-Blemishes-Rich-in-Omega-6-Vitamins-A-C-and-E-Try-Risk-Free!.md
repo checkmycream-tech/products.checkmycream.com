@@ -1,12 +1,3 @@
----
-title: Rose Hip Seed Oil Organic Premium-moisturizing Acne, Face, Skin, Hair, Scars, Stretch Marks, &amp; Nails-heals Dry Skin, Fine Lines, Sun Damage, Psoriasis, Eczema, Burns, Acne Scars &amp; Skin Blemishes - Rich in Omega 6, Vitamins A, C &amp; E - Try Risk Free!,
-description: Rose Hip Seed Oil Organic Premium-moisturizing Acne, Face, Skin, Hair, Scars, Stretch Marks, &amp; Nails-heals Dry Skin, Fine Lines, Sun Damage, Psoriasis, Eczema, Burns, Acne Scars &amp; Skin Blemishes - Rich in Omega 6, Vitamins A, C &amp; E - Try Risk Free!,
-author: Suvojit Manna,
-tags: Rose Hip Seed Oil Organic Premium-moisturizing Acne, Face, Skin, Hair, Scars, Stretch Marks, &amp; Nails-heals Dry Skin, Fine Lines, Sun Damage, Psoriasis, Eczema, Burns, Acne Scars &amp; Skin Blemishes - Rich in Omega 6, Vitamins A, C &amp; E - Try Risk Free!,
-publishedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
----
-
 # [Rose Hip Seed Oil Organic Premium-moisturizing Acne, Face, Skin, Hair, Scars, Stretch Marks, &amp; Nails-heals Dry Skin, Fine Lines, Sun Damage, Psoriasis, Eczema, Burns, Acne Scars &amp; Skin Blemishes - Rich in Omega 6, Vitamins A, C &amp; E - Try Risk Free!](https://products.checkmycream.com/products/Rose-Hip-Seed-Oil-Organic-Premium-moisturizing-Acne-Face-Skin-Hair-Scars-Stretch-Marks-and-Nails-heals-Dry-Skin-Fine-Lines-Sun-Damage-Psoriasis-Eczema-Burns-Acne-Scars-and-Skin-Blemishes-Rich-in-Omega-6-Vitamins-A-C-and-E-Try-Risk-Free!.html)
 
 ### Positive Reviews

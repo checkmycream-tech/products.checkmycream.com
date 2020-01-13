@@ -1,12 +1,3 @@
----
-title: Double Diamond By: Yzy 3.4 oz EDP, Women&#x27;s,
-description: Double Diamond By: Yzy 3.4 oz EDP, Women&#x27;s,
-author: Suvojit Manna,
-tags: Double Diamond By: Yzy 3.4 oz EDP, Women&#x27;s,
-publishedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
----
-
 # [Double Diamond By: Yzy 3.4 oz EDP, Women&#x27;s](https://products.checkmycream.com/products/Double-Diamond-By:-Yzy-3.4-oz-EDP-Women&#x27;s.html)
 
 ### Positive Reviews

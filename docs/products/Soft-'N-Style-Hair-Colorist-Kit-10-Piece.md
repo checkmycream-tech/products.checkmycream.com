@@ -1,12 +1,3 @@
----
-title: Soft &#x27;N Style   Hair Colorist Kit, 10 Piece,
-description: Soft &#x27;N Style   Hair Colorist Kit, 10 Piece,
-author: Suvojit Manna,
-tags: Soft &#x27;N Style   Hair Colorist Kit, 10 Piece,
-publishedAt: Fri Jan 10 2020 14:59:11 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:11 GMT+0530 (India Standard Time),
----
-
 # [Soft &#x27;N Style   Hair Colorist Kit, 10 Piece](https://products.checkmycream.com/products/Soft-&#x27;N-Style-Hair-Colorist-Kit-10-Piece.html)
 
 ### Positive Reviews

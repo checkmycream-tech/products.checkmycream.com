@@ -1,12 +1,3 @@
----
-title: Victoria&#x27;s Secret Fantasies Fragrance Mist 8.4 fl oz,
-description: Victoria&#x27;s Secret Fantasies Fragrance Mist 8.4 fl oz,
-author: Suvojit Manna,
-tags: Victoria&#x27;s Secret Fantasies Fragrance Mist 8.4 fl oz,
-publishedAt: Fri Jan 10 2020 15:00:18 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:18 GMT+0530 (India Standard Time),
----
-
 # [Victoria&#x27;s Secret Fantasies Fragrance Mist 8.4 fl oz](https://products.checkmycream.com/products/Victoria&#x27;s-Secret-Fantasies-Fragrance-Mist-8.4-fl-oz.html)
 
 ### Positive Reviews

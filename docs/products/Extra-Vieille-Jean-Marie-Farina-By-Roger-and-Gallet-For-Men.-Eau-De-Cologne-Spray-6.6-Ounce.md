@@ -1,12 +1,3 @@
----
-title: Extra Vieille Jean Marie Farina By Roger &amp; Gallet For Men. Eau De Cologne Spray, 6.6 Ounce,
-description: Extra Vieille Jean Marie Farina By Roger &amp; Gallet For Men. Eau De Cologne Spray, 6.6 Ounce,
-author: Suvojit Manna,
-tags: Extra Vieille Jean Marie Farina By Roger &amp; Gallet For Men. Eau De Cologne Spray, 6.6 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:17 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:17 GMT+0530 (India Standard Time),
----
-
 # [Extra Vieille Jean Marie Farina By Roger &amp; Gallet For Men. Eau De Cologne Spray, 6.6 Ounce](https://products.checkmycream.com/products/Extra-Vieille-Jean-Marie-Farina-By-Roger-and-Gallet-For-Men.-Eau-De-Cologne-Spray-6.6-Ounce.html)
 
 ### Positive Reviews

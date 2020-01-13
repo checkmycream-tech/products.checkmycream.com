@@ -1,12 +1,3 @@
----
-title: Wen Sweet Almond Mint Replenishing Mist 2 Oz,
-description: Wen Sweet Almond Mint Replenishing Mist 2 Oz,
-author: Suvojit Manna,
-tags: Wen Sweet Almond Mint Replenishing Mist 2 Oz,
-publishedAt: Fri Jan 10 2020 14:59:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:58 GMT+0530 (India Standard Time),
----
-
 # [Wen Sweet Almond Mint Replenishing Mist 2 Oz](https://products.checkmycream.com/products/Wen-Sweet-Almond-Mint-Replenishing-Mist-2-Oz.html)
 
 ### Positive Reviews

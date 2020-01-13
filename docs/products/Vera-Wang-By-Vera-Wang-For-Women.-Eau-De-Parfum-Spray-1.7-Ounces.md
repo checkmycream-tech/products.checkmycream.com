@@ -1,12 +1,3 @@
----
-title: Vera Wang By Vera Wang For Women. Eau De Parfum Spray 1.7 Ounces,
-description: Vera Wang By Vera Wang For Women. Eau De Parfum Spray 1.7 Ounces,
-author: Suvojit Manna,
-tags: Vera Wang By Vera Wang For Women. Eau De Parfum Spray 1.7 Ounces,
-publishedAt: Fri Jan 10 2020 14:59:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:05 GMT+0530 (India Standard Time),
----
-
 # [Vera Wang By Vera Wang For Women. Eau De Parfum Spray 1.7 Ounces](https://products.checkmycream.com/products/Vera-Wang-By-Vera-Wang-For-Women.-Eau-De-Parfum-Spray-1.7-Ounces.html)
 
 ### Positive Reviews

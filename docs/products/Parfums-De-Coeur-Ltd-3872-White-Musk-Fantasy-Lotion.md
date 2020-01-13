@@ -1,12 +1,3 @@
----
-title: Parfums De Coeur Ltd 3872 White Musk Fantasy Lotion,
-description: Parfums De Coeur Ltd 3872 White Musk Fantasy Lotion,
-author: Suvojit Manna,
-tags: Parfums De Coeur Ltd 3872 White Musk Fantasy Lotion,
-publishedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
----
-
 # [Parfums De Coeur Ltd 3872 White Musk Fantasy Lotion](https://products.checkmycream.com/products/Parfums-De-Coeur-Ltd-3872-White-Musk-Fantasy-Lotion.html)
 
 ### Positive Reviews

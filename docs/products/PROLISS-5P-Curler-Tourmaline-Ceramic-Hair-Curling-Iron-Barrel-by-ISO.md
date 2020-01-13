@@ -1,12 +1,3 @@
----
-title: PROLISS 5P Curler Tourmaline Ceramic Hair Curling Iron Barrel by ISO,
-description: PROLISS 5P Curler Tourmaline Ceramic Hair Curling Iron Barrel by ISO,
-author: Suvojit Manna,
-tags: PROLISS 5P Curler Tourmaline Ceramic Hair Curling Iron Barrel by ISO,
-publishedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
----
-
 # [PROLISS 5P Curler Tourmaline Ceramic Hair Curling Iron Barrel by ISO](https://products.checkmycream.com/products/PROLISS-5P-Curler-Tourmaline-Ceramic-Hair-Curling-Iron-Barrel-by-ISO.html)
 
 ### Positive Reviews

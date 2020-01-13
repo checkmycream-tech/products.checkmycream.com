@@ -1,12 +1,3 @@
----
-title: DaySeventh 1 Pair Crown Pearl Rhinestone Cross Lovely Retro Stud Earrings,
-description: DaySeventh 1 Pair Crown Pearl Rhinestone Cross Lovely Retro Stud Earrings,
-author: Suvojit Manna,
-tags: DaySeventh 1 Pair Crown Pearl Rhinestone Cross Lovely Retro Stud Earrings,
-publishedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
----
-
 # [DaySeventh 1 Pair Crown Pearl Rhinestone Cross Lovely Retro Stud Earrings](https://products.checkmycream.com/products/DaySeventh-1-Pair-Crown-Pearl-Rhinestone-Cross-Lovely-Retro-Stud-Earrings.html)
 
 ### Positive Reviews

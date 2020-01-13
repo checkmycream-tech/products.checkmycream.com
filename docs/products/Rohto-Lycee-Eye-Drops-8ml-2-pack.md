@@ -1,12 +1,3 @@
----
-title: Rohto Lycee Eye Drops 8ml - 2 pack,
-description: Rohto Lycee Eye Drops 8ml - 2 pack,
-author: Suvojit Manna,
-tags: Rohto Lycee Eye Drops 8ml - 2 pack,
-publishedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
----
-
 # [Rohto Lycee Eye Drops 8ml - 2 pack](https://products.checkmycream.com/products/Rohto-Lycee-Eye-Drops-8ml-2-pack.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: MAKARTT®500 Natural Duck Nail Tips Wide False Nail Tips Acrylic Nail,
-description: MAKARTT®500 Natural Duck Nail Tips Wide False Nail Tips Acrylic Nail,
-author: Suvojit Manna,
-tags: MAKARTT®500 Natural Duck Nail Tips Wide False Nail Tips Acrylic Nail,
-publishedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
----
-
 # [MAKARTT®500 Natural Duck Nail Tips Wide False Nail Tips Acrylic Nail](https://products.checkmycream.com/products/MAKARTT(r)500-Natural-Duck-Nail-Tips-Wide-False-Nail-Tips-Acrylic-Nail.html)
 
 ### Positive Reviews

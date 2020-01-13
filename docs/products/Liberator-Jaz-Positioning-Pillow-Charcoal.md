@@ -1,12 +1,3 @@
----
-title: Liberator Jaz Positioning Pillow, Charcoal,
-description: Liberator Jaz Positioning Pillow, Charcoal,
-author: Suvojit Manna,
-tags: Liberator Jaz Positioning Pillow, Charcoal,
-publishedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
----
-
 # [Liberator Jaz Positioning Pillow, Charcoal](https://products.checkmycream.com/products/Liberator-Jaz-Positioning-Pillow-Charcoal.html)
 
 ### Positive Reviews

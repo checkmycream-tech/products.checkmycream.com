@@ -1,12 +1,3 @@
----
-title: Ombre Rose Perfume by Jean Charles Brosseau for women Personal Fragrances,
-description: Ombre Rose Perfume by Jean Charles Brosseau for women Personal Fragrances,
-author: Suvojit Manna,
-tags: Ombre Rose Perfume by Jean Charles Brosseau for women Personal Fragrances,
-publishedAt: Fri Jan 10 2020 14:59:43 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:43 GMT+0530 (India Standard Time),
----
-
 # [Ombre Rose Perfume by Jean Charles Brosseau for women Personal Fragrances](https://products.checkmycream.com/products/Ombre-Rose-Perfume-by-Jean-Charles-Brosseau-for-women-Personal-Fragrances.html)
 
 ### Positive Reviews

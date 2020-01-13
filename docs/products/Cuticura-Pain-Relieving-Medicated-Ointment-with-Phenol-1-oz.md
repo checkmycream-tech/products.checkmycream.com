@@ -1,12 +1,3 @@
----
-title: Cuticura Pain Relieving Medicated Ointment with Phenol - 1 oz,
-description: Cuticura Pain Relieving Medicated Ointment with Phenol - 1 oz,
-author: Suvojit Manna,
-tags: Cuticura Pain Relieving Medicated Ointment with Phenol - 1 oz,
-publishedAt: Fri Jan 10 2020 14:58:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:58:58 GMT+0530 (India Standard Time),
----
-
 # [Cuticura Pain Relieving Medicated Ointment with Phenol - 1 oz](https://products.checkmycream.com/products/Cuticura-Pain-Relieving-Medicated-Ointment-with-Phenol-1-oz.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Wood Stem Costmetic Swab,
-description: Wood Stem Costmetic Swab,
-author: Suvojit Manna,
-tags: Wood Stem Costmetic Swab,
-publishedAt: Fri Jan 10 2020 14:59:33 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:33 GMT+0530 (India Standard Time),
----
-
 # [Wood Stem Costmetic Swab](https://products.checkmycream.com/products/Wood-Stem-Costmetic-Swab.html)
 
 ### Positive Reviews

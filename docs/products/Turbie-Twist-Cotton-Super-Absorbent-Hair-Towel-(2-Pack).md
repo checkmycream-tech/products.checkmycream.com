@@ -1,12 +1,3 @@
----
-title: Turbie Twist Cotton Super Absorbent Hair Towel (2 Pack),
-description: Turbie Twist Cotton Super Absorbent Hair Towel (2 Pack),
-author: Suvojit Manna,
-tags: Turbie Twist Cotton Super Absorbent Hair Towel (2 Pack),
-publishedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
----
-
 # [Turbie Twist Cotton Super Absorbent Hair Towel (2 Pack)](https://products.checkmycream.com/products/Turbie-Twist-Cotton-Super-Absorbent-Hair-Towel-(2-Pack).html)
 
 ### Positive Reviews

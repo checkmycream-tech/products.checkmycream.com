@@ -1,12 +1,3 @@
----
-title: Kevin Murphy Shimmer Shine, 3.4 Ounce,
-description: Kevin Murphy Shimmer Shine, 3.4 Ounce,
-author: Suvojit Manna,
-tags: Kevin Murphy Shimmer Shine, 3.4 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
----
-
 # [Kevin Murphy Shimmer Shine, 3.4 Ounce](https://products.checkmycream.com/products/Kevin-Murphy-Shimmer-Shine-3.4-Ounce.html)
 
 ### Positive Reviews

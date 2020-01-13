@@ -1,12 +1,3 @@
----
-title: Easyfashion Electrode Acupuncture Self Adhesive Pads for Digital Therapy Massager (40pcs),
-description: Easyfashion Electrode Acupuncture Self Adhesive Pads for Digital Therapy Massager (40pcs),
-author: Suvojit Manna,
-tags: Easyfashion Electrode Acupuncture Self Adhesive Pads for Digital Therapy Massager (40pcs),
-publishedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
----
-
 # [Easyfashion Electrode Acupuncture Self Adhesive Pads for Digital Therapy Massager (40pcs)](https://products.checkmycream.com/products/Easyfashion-Electrode-Acupuncture-Self-Adhesive-Pads-for-Digital-Therapy-Massager-(40pcs).html)
 
 ### Positive Reviews

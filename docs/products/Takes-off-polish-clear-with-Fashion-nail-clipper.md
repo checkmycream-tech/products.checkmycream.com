@@ -1,12 +1,3 @@
----
-title: Takes off polish clear with Fashion nail clipper,
-description: Takes off polish clear with Fashion nail clipper,
-author: Suvojit Manna,
-tags: Takes off polish clear with Fashion nail clipper,
-publishedAt: Fri Jan 10 2020 15:00:07 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:07 GMT+0530 (India Standard Time),
----
-
 # [Takes off polish clear with Fashion nail clipper](https://products.checkmycream.com/products/Takes-off-polish-clear-with-Fashion-nail-clipper.html)
 
 ### Positive Reviews

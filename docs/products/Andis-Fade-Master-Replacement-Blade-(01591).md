@@ -1,12 +1,3 @@
----
-title: Andis Fade Master Replacement Blade (01591),
-description: Andis Fade Master Replacement Blade (01591),
-author: Suvojit Manna,
-tags: Andis Fade Master Replacement Blade (01591),
-publishedAt: Fri Jan 10 2020 14:59:14 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:14 GMT+0530 (India Standard Time),
----
-
 # [Andis Fade Master Replacement Blade (01591)](https://products.checkmycream.com/products/Andis-Fade-Master-Replacement-Blade-(01591).html)
 
 ### Positive Reviews

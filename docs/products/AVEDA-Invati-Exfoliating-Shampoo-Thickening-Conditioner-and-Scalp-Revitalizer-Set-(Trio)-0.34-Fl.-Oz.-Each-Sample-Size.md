@@ -1,12 +1,3 @@
----
-title: AVEDA Invati Exfoliating Shampoo, Thickening Conditioner, and Scalp Revitalizer Set (Trio); 0.34 Fl. Oz. Each; Sample Size,
-description: AVEDA Invati Exfoliating Shampoo, Thickening Conditioner, and Scalp Revitalizer Set (Trio); 0.34 Fl. Oz. Each; Sample Size,
-author: Suvojit Manna,
-tags: AVEDA Invati Exfoliating Shampoo, Thickening Conditioner, and Scalp Revitalizer Set (Trio); 0.34 Fl. Oz. Each; Sample Size,
-publishedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
----
-
 # [AVEDA Invati Exfoliating Shampoo, Thickening Conditioner, and Scalp Revitalizer Set (Trio); 0.34 Fl. Oz. Each; Sample Size](https://products.checkmycream.com/products/AVEDA-Invati-Exfoliating-Shampoo-Thickening-Conditioner-and-Scalp-Revitalizer-Set-(Trio)-0.34-Fl.-Oz.-Each-Sample-Size.html)
 
 ### Positive Reviews

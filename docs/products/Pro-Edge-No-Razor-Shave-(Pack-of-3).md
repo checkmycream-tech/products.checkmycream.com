@@ -1,12 +1,3 @@
----
-title: Pro Edge No Razor Shave (Pack of 3),
-description: Pro Edge No Razor Shave (Pack of 3),
-author: Suvojit Manna,
-tags: Pro Edge No Razor Shave (Pack of 3),
-publishedAt: Fri Jan 10 2020 15:00:31 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:31 GMT+0530 (India Standard Time),
----
-
 # [Pro Edge No Razor Shave (Pack of 3)](https://products.checkmycream.com/products/Pro-Edge-No-Razor-Shave-(Pack-of-3).html)
 
 ### Positive Reviews

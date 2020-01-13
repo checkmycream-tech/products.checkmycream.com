@@ -1,12 +1,3 @@
----
-title: Skull Shaver Stand,
-description: Skull Shaver Stand,
-author: Suvojit Manna,
-tags: Skull Shaver Stand,
-publishedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
----
-
 # [Skull Shaver Stand](https://products.checkmycream.com/products/Skull-Shaver-Stand.html)
 
 ### Positive Reviews

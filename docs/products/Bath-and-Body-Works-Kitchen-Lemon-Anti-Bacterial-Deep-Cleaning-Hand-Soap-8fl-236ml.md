@@ -1,12 +1,3 @@
----
-title: Bath and Body Works Kitchen Lemon Anti-Bacterial Deep Cleaning Hand Soap 8fl / 236ml,
-description: Bath and Body Works Kitchen Lemon Anti-Bacterial Deep Cleaning Hand Soap 8fl / 236ml,
-author: Suvojit Manna,
-tags: Bath and Body Works Kitchen Lemon Anti-Bacterial Deep Cleaning Hand Soap 8fl / 236ml,
-publishedAt: Fri Jan 10 2020 14:59:44 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:44 GMT+0530 (India Standard Time),
----
-
 # [Bath and Body Works Kitchen Lemon Anti-Bacterial Deep Cleaning Hand Soap 8fl / 236ml](https://products.checkmycream.com/products/Bath-and-Body-Works-Kitchen-Lemon-Anti-Bacterial-Deep-Cleaning-Hand-Soap-8fl-236ml.html)
 
 ### Positive Reviews

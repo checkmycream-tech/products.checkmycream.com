@@ -1,12 +1,3 @@
----
-title: Replacement Brush Head for Body Cleansing (GENERIC) Twin Pack - by PAZ Generix,
-description: Replacement Brush Head for Body Cleansing (GENERIC) Twin Pack - by PAZ Generix,
-author: Suvojit Manna,
-tags: Replacement Brush Head for Body Cleansing (GENERIC) Twin Pack - by PAZ Generix,
-publishedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
----
-
 # [Replacement Brush Head for Body Cleansing (GENERIC) Twin Pack - by PAZ Generix](https://products.checkmycream.com/products/Replacement-Brush-Head-for-Body-Cleansing-(GENERIC)-Twin-Pack-by-PAZ-Generix.html)
 
 ### Positive Reviews

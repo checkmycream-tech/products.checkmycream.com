@@ -1,12 +1,3 @@
----
-title: Eufora Touch up Light Tinted Texturizing Dry Spray Shampoo 4.4 oz,
-description: Eufora Touch up Light Tinted Texturizing Dry Spray Shampoo 4.4 oz,
-author: Suvojit Manna,
-tags: Eufora Touch up Light Tinted Texturizing Dry Spray Shampoo 4.4 oz,
-publishedAt: Fri Jan 10 2020 15:00:38 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:38 GMT+0530 (India Standard Time),
----
-
 # [Eufora Touch up Light Tinted Texturizing Dry Spray Shampoo 4.4 oz](https://products.checkmycream.com/products/Eufora-Touch-up-Light-Tinted-Texturizing-Dry-Spray-Shampoo-4.4-oz.html)
 
 ### Positive Reviews

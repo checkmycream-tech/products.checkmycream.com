@@ -1,12 +1,3 @@
----
-title: Official- Power Swabs-Buy 2 Get 1 Free! 1 month kit,
-description: Official- Power Swabs-Buy 2 Get 1 Free! 1 month kit,
-author: Suvojit Manna,
-tags: Official- Power Swabs-Buy 2 Get 1 Free! 1 month kit,
-publishedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
----
-
 # [Official- Power Swabs-Buy 2 Get 1 Free! 1 month kit](https://products.checkmycream.com/products/Official-Power-Swabs-Buy-2-Get-1-Free!-1-month-kit.html)
 
 ### Positive Reviews

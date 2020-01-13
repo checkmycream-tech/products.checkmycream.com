@@ -1,12 +1,3 @@
----
-title: Babyliss: BabylissPro Miracurl Nano Titanium,
-description: Babyliss: BabylissPro Miracurl Nano Titanium,
-author: Suvojit Manna,
-tags: Babyliss: BabylissPro Miracurl Nano Titanium,
-publishedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
----
-
 # [Babyliss: BabylissPro Miracurl Nano Titanium](https://products.checkmycream.com/products/Babyliss:-BabylissPro-Miracurl-Nano-Titanium.html)
 
 ### Positive Reviews

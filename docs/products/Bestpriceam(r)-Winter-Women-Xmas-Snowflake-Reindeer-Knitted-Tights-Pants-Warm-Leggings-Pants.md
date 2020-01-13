@@ -1,12 +1,3 @@
----
-title: Bestpriceam® Winter Women Xmas Snowflake Reindeer Knitted Tights Pants Warm Leggings Pants,
-description: Bestpriceam® Winter Women Xmas Snowflake Reindeer Knitted Tights Pants Warm Leggings Pants,
-author: Suvojit Manna,
-tags: Bestpriceam® Winter Women Xmas Snowflake Reindeer Knitted Tights Pants Warm Leggings Pants,
-publishedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
----
-
 # [Bestpriceam® Winter Women Xmas Snowflake Reindeer Knitted Tights Pants Warm Leggings Pants](https://products.checkmycream.com/products/Bestpriceam(r)-Winter-Women-Xmas-Snowflake-Reindeer-Knitted-Tights-Pants-Warm-Leggings-Pants.html)
 
 ### Positive Reviews

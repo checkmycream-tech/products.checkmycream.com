@@ -1,12 +1,3 @@
----
-title: Oral-B Sensitive Gum Care Electric Toothbrush Replacement Brush Heads Refill,
-description: Oral-B Sensitive Gum Care Electric Toothbrush Replacement Brush Heads Refill,
-author: Suvojit Manna,
-tags: Oral-B Sensitive Gum Care Electric Toothbrush Replacement Brush Heads Refill,
-publishedAt: Fri Jan 10 2020 15:00:37 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:37 GMT+0530 (India Standard Time),
----
-
 # [Oral-B Sensitive Gum Care Electric Toothbrush Replacement Brush Heads Refill](https://products.checkmycream.com/products/Oral-B-Sensitive-Gum-Care-Electric-Toothbrush-Replacement-Brush-Heads-Refill.html)
 
 ### Positive Reviews

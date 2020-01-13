@@ -1,12 +1,3 @@
----
-title: Cutex 67021 16 Oz 100% Pure Acetone,
-description: Cutex 67021 16 Oz 100% Pure Acetone,
-author: Suvojit Manna,
-tags: Cutex 67021 16 Oz 100% Pure Acetone,
-publishedAt: Fri Jan 10 2020 15:00:20 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:20 GMT+0530 (India Standard Time),
----
-
 # [Cutex 67021 16 Oz 100% Pure Acetone](https://products.checkmycream.com/products/Cutex-67021-16-Oz-100percent-Pure-Acetone.html)
 
 ### Positive Reviews

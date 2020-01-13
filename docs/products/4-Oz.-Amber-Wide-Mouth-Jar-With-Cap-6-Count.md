@@ -1,12 +1,3 @@
----
-title: 4 Oz. Amber Wide-Mouth Jar With Cap 6 Count,
-description: 4 Oz. Amber Wide-Mouth Jar With Cap 6 Count,
-author: Suvojit Manna,
-tags: 4 Oz. Amber Wide-Mouth Jar With Cap 6 Count,
-publishedAt: Fri Jan 10 2020 14:59:17 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:17 GMT+0530 (India Standard Time),
----
-
 # [4 Oz. Amber Wide-Mouth Jar With Cap 6 Count](https://products.checkmycream.com/products/4-Oz.-Amber-Wide-Mouth-Jar-With-Cap-6-Count.html)
 
 ### Positive Reviews

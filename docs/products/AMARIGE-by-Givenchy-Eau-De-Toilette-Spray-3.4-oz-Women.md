@@ -1,12 +1,3 @@
----
-title: AMARIGE by Givenchy - Eau De Toilette Spray 3.4 oz - Women,
-description: AMARIGE by Givenchy - Eau De Toilette Spray 3.4 oz - Women,
-author: Suvojit Manna,
-tags: AMARIGE by Givenchy - Eau De Toilette Spray 3.4 oz - Women,
-publishedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
----
-
 # [AMARIGE by Givenchy - Eau De Toilette Spray 3.4 oz - Women](https://products.checkmycream.com/products/AMARIGE-by-Givenchy-Eau-De-Toilette-Spray-3.4-oz-Women.html)
 
 ### Positive Reviews

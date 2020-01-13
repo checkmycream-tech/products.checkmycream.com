@@ -1,12 +1,3 @@
----
-title: Blue Element Premium Silicone Clip Cord 6ft Long works with Mono Plug Tattoo Power Supply,
-description: Blue Element Premium Silicone Clip Cord 6ft Long works with Mono Plug Tattoo Power Supply,
-author: Suvojit Manna,
-tags: Blue Element Premium Silicone Clip Cord 6ft Long works with Mono Plug Tattoo Power Supply,
-publishedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
----
-
 # [Blue Element Premium Silicone Clip Cord 6ft Long works with Mono Plug Tattoo Power Supply](https://products.checkmycream.com/products/Blue-Element-Premium-Silicone-Clip-Cord-6ft-Long-works-with-Mono-Plug-Tattoo-Power-Supply.html)
 
 ### Positive Reviews

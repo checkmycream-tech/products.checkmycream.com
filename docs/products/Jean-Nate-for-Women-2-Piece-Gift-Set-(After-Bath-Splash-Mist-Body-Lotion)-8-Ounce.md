@@ -1,12 +1,3 @@
----
-title: Jean Nate for Women 2 Piece Gift Set (After Bath Splash Mist, Body Lotion), 8 Ounce,
-description: Jean Nate for Women 2 Piece Gift Set (After Bath Splash Mist, Body Lotion), 8 Ounce,
-author: Suvojit Manna,
-tags: Jean Nate for Women 2 Piece Gift Set (After Bath Splash Mist, Body Lotion), 8 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:44 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:44 GMT+0530 (India Standard Time),
----
-
 # [Jean Nate for Women 2 Piece Gift Set (After Bath Splash Mist, Body Lotion), 8 Ounce](https://products.checkmycream.com/products/Jean-Nate-for-Women-2-Piece-Gift-Set-(After-Bath-Splash-Mist-Body-Lotion)-8-Ounce.html)
 
 ### Positive Reviews

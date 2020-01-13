@@ -1,12 +1,3 @@
----
-title: Kemi-Oyl All Natural Hot Oil Treatment 1.25 oz.,
-description: Kemi-Oyl All Natural Hot Oil Treatment 1.25 oz.,
-author: Suvojit Manna,
-tags: Kemi-Oyl All Natural Hot Oil Treatment 1.25 oz.,
-publishedAt: Fri Jan 10 2020 15:00:06 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:06 GMT+0530 (India Standard Time),
----
-
 # [Kemi-Oyl All Natural Hot Oil Treatment 1.25 oz.](https://products.checkmycream.com/products/Kemi-Oyl-All-Natural-Hot-Oil-Treatment-1.25-oz..html)
 
 ### Positive Reviews

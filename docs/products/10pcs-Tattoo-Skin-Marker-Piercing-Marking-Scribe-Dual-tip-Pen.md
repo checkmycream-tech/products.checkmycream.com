@@ -1,12 +1,3 @@
----
-title: 10pcs Tattoo Skin Marker Piercing Marking Scribe Dual-tip Pen,
-description: 10pcs Tattoo Skin Marker Piercing Marking Scribe Dual-tip Pen,
-author: Suvojit Manna,
-tags: 10pcs Tattoo Skin Marker Piercing Marking Scribe Dual-tip Pen,
-publishedAt: Fri Jan 10 2020 15:00:15 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:15 GMT+0530 (India Standard Time),
----
-
 # [10pcs Tattoo Skin Marker Piercing Marking Scribe Dual-tip Pen](https://products.checkmycream.com/products/10pcs-Tattoo-Skin-Marker-Piercing-Marking-Scribe-Dual-tip-Pen.html)
 
 ### Positive Reviews

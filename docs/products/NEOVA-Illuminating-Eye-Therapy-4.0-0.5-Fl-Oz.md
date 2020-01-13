@@ -1,12 +1,3 @@
----
-title: NEOVA Illuminating Eye Therapy 4.0, 0.5 Fl Oz,
-description: NEOVA Illuminating Eye Therapy 4.0, 0.5 Fl Oz,
-author: Suvojit Manna,
-tags: NEOVA Illuminating Eye Therapy 4.0, 0.5 Fl Oz,
-publishedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
----
-
 # [NEOVA Illuminating Eye Therapy 4.0, 0.5 Fl Oz](https://products.checkmycream.com/products/NEOVA-Illuminating-Eye-Therapy-4.0-0.5-Fl-Oz.html)
 
 ### Positive Reviews

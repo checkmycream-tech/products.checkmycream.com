@@ -1,12 +1,3 @@
----
-title: Estone 2pcs New Fashion French Hair Braiding Tool Roller With Hook Magic Hair Twist Styling,
-description: Estone 2pcs New Fashion French Hair Braiding Tool Roller With Hook Magic Hair Twist Styling,
-author: Suvojit Manna,
-tags: Estone 2pcs New Fashion French Hair Braiding Tool Roller With Hook Magic Hair Twist Styling,
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [Estone 2pcs New Fashion French Hair Braiding Tool Roller With Hook Magic Hair Twist Styling](https://products.checkmycream.com/products/Estone-2pcs-New-Fashion-French-Hair-Braiding-Tool-Roller-With-Hook-Magic-Hair-Twist-Styling.html)
 
 ### Positive Reviews

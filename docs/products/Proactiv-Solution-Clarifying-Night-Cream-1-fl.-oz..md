@@ -1,12 +1,3 @@
----
-title: Proactiv Solution Clarifying Night Cream, 1 fl. oz.,
-description: Proactiv Solution Clarifying Night Cream, 1 fl. oz.,
-author: Suvojit Manna,
-tags: Proactiv Solution Clarifying Night Cream, 1 fl. oz.,
-publishedAt: Fri Jan 10 2020 14:59:32 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:32 GMT+0530 (India Standard Time),
----
-
 # [Proactiv Solution Clarifying Night Cream, 1 fl. oz.](https://products.checkmycream.com/products/Proactiv-Solution-Clarifying-Night-Cream-1-fl.-oz..html)
 
 ### Positive Reviews

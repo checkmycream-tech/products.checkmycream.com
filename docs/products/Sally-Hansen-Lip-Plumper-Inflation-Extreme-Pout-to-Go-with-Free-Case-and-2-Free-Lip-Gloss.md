@@ -1,12 +1,3 @@
----
-title: Sally Hansen Lip Plumper Inflation Extreme Pout to Go with Free Case &amp; 2 Free Lip Gloss,
-description: Sally Hansen Lip Plumper Inflation Extreme Pout to Go with Free Case &amp; 2 Free Lip Gloss,
-author: Suvojit Manna,
-tags: Sally Hansen Lip Plumper Inflation Extreme Pout to Go with Free Case &amp; 2 Free Lip Gloss,
-publishedAt: Fri Jan 10 2020 14:59:39 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:39 GMT+0530 (India Standard Time),
----
-
 # [Sally Hansen Lip Plumper Inflation Extreme Pout to Go with Free Case &amp; 2 Free Lip Gloss](https://products.checkmycream.com/products/Sally-Hansen-Lip-Plumper-Inflation-Extreme-Pout-to-Go-with-Free-Case-and-2-Free-Lip-Gloss.html)
 
 ### Positive Reviews

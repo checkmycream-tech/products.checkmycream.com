@@ -1,12 +1,3 @@
----
-title: Almay Line Smoothing Pressed Powder .35 fl oz (9.9 g),
-description: Almay Line Smoothing Pressed Powder .35 fl oz (9.9 g),
-author: Suvojit Manna,
-tags: Almay Line Smoothing Pressed Powder .35 fl oz (9.9 g),
-publishedAt: Fri Jan 10 2020 14:59:19 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:19 GMT+0530 (India Standard Time),
----
-
 # [Almay Line Smoothing Pressed Powder .35 fl oz (9.9 g)](https://products.checkmycream.com/products/Almay-Line-Smoothing-Pressed-Powder-.35-fl-oz-(9.9-g).html)
 
 ### Positive Reviews

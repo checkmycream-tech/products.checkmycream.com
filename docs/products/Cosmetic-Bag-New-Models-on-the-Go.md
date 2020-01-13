@@ -1,12 +1,3 @@
----
-title: Cosmetic Bag - New - Models-on-the-Go,
-description: Cosmetic Bag - New - Models-on-the-Go,
-author: Suvojit Manna,
-tags: Cosmetic Bag - New - Models-on-the-Go,
-publishedAt: Fri Jan 10 2020 15:00:45 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:45 GMT+0530 (India Standard Time),
----
-
 # [Cosmetic Bag - New - Models-on-the-Go](https://products.checkmycream.com/products/Cosmetic-Bag-New-Models-on-the-Go.html)
 
 ### Positive Reviews

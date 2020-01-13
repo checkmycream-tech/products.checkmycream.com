@@ -1,12 +1,3 @@
----
-title: NYX Body Glitter Gel 2 Piece Set,
-description: NYX Body Glitter Gel 2 Piece Set,
-author: Suvojit Manna,
-tags: NYX Body Glitter Gel 2 Piece Set,
-publishedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
----
-
 # [NYX Body Glitter Gel 2 Piece Set](https://products.checkmycream.com/products/NYX-Body-Glitter-Gel-2-Piece-Set.html)
 
 ### Positive Reviews

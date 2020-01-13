@@ -1,12 +1,3 @@
----
-title: 10g UltraNumb Anesthetic Skin Numbing Cream Numb Tattoo Laser Piercing Waxing FAST SHIPPING,
-description: 10g UltraNumb Anesthetic Skin Numbing Cream Numb Tattoo Laser Piercing Waxing FAST SHIPPING,
-author: Suvojit Manna,
-tags: 10g UltraNumb Anesthetic Skin Numbing Cream Numb Tattoo Laser Piercing Waxing FAST SHIPPING,
-publishedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
----
-
 # [10g UltraNumb Anesthetic Skin Numbing Cream Numb Tattoo Laser Piercing Waxing FAST SHIPPING](https://products.checkmycream.com/products/10g-UltraNumb-Anesthetic-Skin-Numbing-Cream-Numb-Tattoo-Laser-Piercing-Waxing-FAST-SHIPPING.html)
 
 ### Positive Reviews

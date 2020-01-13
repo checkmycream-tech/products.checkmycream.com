@@ -1,12 +1,3 @@
----
-title: David Yurman Eau de Parfum Spray,
-description: David Yurman Eau de Parfum Spray,
-author: Suvojit Manna,
-tags: David Yurman Eau de Parfum Spray,
-publishedAt: Fri Jan 10 2020 14:59:43 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:43 GMT+0530 (India Standard Time),
----
-
 # [David Yurman Eau de Parfum Spray](https://products.checkmycream.com/products/David-Yurman-Eau-de-Parfum-Spray.html)
 
 ### Positive Reviews

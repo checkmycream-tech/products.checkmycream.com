@@ -1,12 +1,3 @@
----
-title: Bare Minerals Big &amp; Bright Eyeliner Plum - Purple 0.02 oz,
-description: Bare Minerals Big &amp; Bright Eyeliner Plum - Purple 0.02 oz,
-author: Suvojit Manna,
-tags: Bare Minerals Big &amp; Bright Eyeliner Plum - Purple 0.02 oz,
-publishedAt: Fri Jan 10 2020 14:59:46 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:46 GMT+0530 (India Standard Time),
----
-
 # [Bare Minerals Big &amp; Bright Eyeliner Plum - Purple 0.02 oz](https://products.checkmycream.com/products/Bare-Minerals-Big-and-Bright-Eyeliner-Plum-Purple-0.02-oz.html)
 
 ### Positive Reviews

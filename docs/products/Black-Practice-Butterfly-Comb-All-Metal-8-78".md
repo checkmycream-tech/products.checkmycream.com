@@ -1,12 +1,3 @@
----
-title: Black Practice Butterfly Comb All Metal 8-7/8&quot;,
-description: Black Practice Butterfly Comb All Metal 8-7/8&quot;,
-author: Suvojit Manna,
-tags: Black Practice Butterfly Comb All Metal 8-7/8&quot;,
-publishedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
----
-
 # [Black Practice Butterfly Comb All Metal 8-7/8&quot;](https://products.checkmycream.com/products/Black-Practice-Butterfly-Comb-All-Metal-8-78&quot;.html)
 
 ### Positive Reviews

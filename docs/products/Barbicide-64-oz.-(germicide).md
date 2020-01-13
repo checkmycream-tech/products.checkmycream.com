@@ -1,12 +1,3 @@
----
-title: Barbicide 64 oz. (germicide),
-description: Barbicide 64 oz. (germicide),
-author: Suvojit Manna,
-tags: Barbicide 64 oz. (germicide),
-publishedAt: Fri Jan 10 2020 14:59:24 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:24 GMT+0530 (India Standard Time),
----
-
 # [Barbicide 64 oz. (germicide)](https://products.checkmycream.com/products/Barbicide-64-oz.-(germicide).html)
 
 ### Positive Reviews

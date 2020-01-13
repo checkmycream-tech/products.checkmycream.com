@@ -1,12 +1,3 @@
----
-title: New York Color Smooch Proof Lip Stain, Endless Spice, 0.1 Fluid Ounce,
-description: New York Color Smooch Proof Lip Stain, Endless Spice, 0.1 Fluid Ounce,
-author: Suvojit Manna,
-tags: New York Color Smooch Proof Lip Stain, Endless Spice, 0.1 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 15:00:17 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:17 GMT+0530 (India Standard Time),
----
-
 # [New York Color Smooch Proof Lip Stain, Endless Spice, 0.1 Fluid Ounce](https://products.checkmycream.com/products/New-York-Color-Smooch-Proof-Lip-Stain-Endless-Spice-0.1-Fluid-Ounce.html)
 
 ### Positive Reviews

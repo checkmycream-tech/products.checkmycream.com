@@ -1,12 +1,3 @@
----
-title: Uxcell Bowtie Adorn Snood Net Barrette Hairpin Bun Cover, Black, 0.06 Pound,
-description: Uxcell Bowtie Adorn Snood Net Barrette Hairpin Bun Cover, Black, 0.06 Pound,
-author: Suvojit Manna,
-tags: Uxcell Bowtie Adorn Snood Net Barrette Hairpin Bun Cover, Black, 0.06 Pound,
-publishedAt: Fri Jan 10 2020 15:00:31 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:31 GMT+0530 (India Standard Time),
----
-
 # [Uxcell Bowtie Adorn Snood Net Barrette Hairpin Bun Cover, Black, 0.06 Pound](https://products.checkmycream.com/products/Uxcell-Bowtie-Adorn-Snood-Net-Barrette-Hairpin-Bun-Cover-Black-0.06-Pound.html)
 
 ### Positive Reviews

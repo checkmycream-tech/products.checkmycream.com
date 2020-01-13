@@ -1,12 +1,3 @@
----
-title: Skin Doctors Spider Vein Cream, Vein Away Plus, 3.5 oz (100 ml),
-description: Skin Doctors Spider Vein Cream, Vein Away Plus, 3.5 oz (100 ml),
-author: Suvojit Manna,
-tags: Skin Doctors Spider Vein Cream, Vein Away Plus, 3.5 oz (100 ml),
-publishedAt: Fri Jan 10 2020 14:59:07 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:07 GMT+0530 (India Standard Time),
----
-
 # [Skin Doctors Spider Vein Cream, Vein Away Plus, 3.5 oz (100 ml)](https://products.checkmycream.com/products/Skin-Doctors-Spider-Vein-Cream-Vein-Away-Plus-3.5-oz-(100-ml).html)
 
 ### Positive Reviews

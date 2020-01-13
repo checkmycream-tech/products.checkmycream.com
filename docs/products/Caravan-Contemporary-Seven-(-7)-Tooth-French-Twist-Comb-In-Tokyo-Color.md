@@ -1,12 +1,3 @@
----
-title: Caravan Contemporary Seven ( 7) Tooth French Twist Comb In Tokyo Color,
-description: Caravan Contemporary Seven ( 7) Tooth French Twist Comb In Tokyo Color,
-author: Suvojit Manna,
-tags: Caravan Contemporary Seven ( 7) Tooth French Twist Comb In Tokyo Color,
-publishedAt: Fri Jan 10 2020 14:59:46 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:46 GMT+0530 (India Standard Time),
----
-
 # [Caravan Contemporary Seven ( 7) Tooth French Twist Comb In Tokyo Color](https://products.checkmycream.com/products/Caravan-Contemporary-Seven-(-7)-Tooth-French-Twist-Comb-In-Tokyo-Color.html)
 
 ### Positive Reviews

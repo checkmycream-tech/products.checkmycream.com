@@ -1,12 +1,3 @@
----
-title: Crest Cavity Protection Gel Toothpaste Cool Mint Gel, 6.4 oz., (Pack of 2),
-description: Crest Cavity Protection Gel Toothpaste Cool Mint Gel, 6.4 oz., (Pack of 2),
-author: Suvojit Manna,
-tags: Crest Cavity Protection Gel Toothpaste Cool Mint Gel, 6.4 oz., (Pack of 2),
-publishedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
----
-
 # [Crest Cavity Protection Gel Toothpaste Cool Mint Gel, 6.4 oz., (Pack of 2)](https://products.checkmycream.com/products/Crest-Cavity-Protection-Gel-Toothpaste-Cool-Mint-Gel-6.4-oz.-(Pack-of-2).html)
 
 ### Positive Reviews

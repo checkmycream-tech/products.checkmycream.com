@@ -1,12 +1,3 @@
----
-title: High Quality Tattoo Power Supply w/ Steel flat pedal and clip cord,
-description: High Quality Tattoo Power Supply w/ Steel flat pedal and clip cord,
-author: Suvojit Manna,
-tags: High Quality Tattoo Power Supply w/ Steel flat pedal and clip cord,
-publishedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
----
-
 # [High Quality Tattoo Power Supply w/ Steel flat pedal and clip cord](https://products.checkmycream.com/products/High-Quality-Tattoo-Power-Supply-w-Steel-flat-pedal-and-clip-cord.html)
 
 ### Positive Reviews

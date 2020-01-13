@@ -1,12 +1,3 @@
----
-title: G2Plus 100PCS Disposable Eyeliner Makeup Brush Applicator Cosmetic Eye Wands,
-description: G2Plus 100PCS Disposable Eyeliner Makeup Brush Applicator Cosmetic Eye Wands,
-author: Suvojit Manna,
-tags: G2Plus 100PCS Disposable Eyeliner Makeup Brush Applicator Cosmetic Eye Wands,
-publishedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
----
-
 # [G2Plus 100PCS Disposable Eyeliner Makeup Brush Applicator Cosmetic Eye Wands](https://products.checkmycream.com/products/G2Plus-100PCS-Disposable-Eyeliner-Makeup-Brush-Applicator-Cosmetic-Eye-Wands.html)
 
 ### Positive Reviews

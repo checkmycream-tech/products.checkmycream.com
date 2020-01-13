@@ -1,12 +1,3 @@
----
-title: Frola Cosmetics Professional 16 Pcs Makeup Brush Brushes Kit Set with Purple Case Pouch Bag,
-description: Frola Cosmetics Professional 16 Pcs Makeup Brush Brushes Kit Set with Purple Case Pouch Bag,
-author: Suvojit Manna,
-tags: Frola Cosmetics Professional 16 Pcs Makeup Brush Brushes Kit Set with Purple Case Pouch Bag,
-publishedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
----
-
 # [Frola Cosmetics Professional 16 Pcs Makeup Brush Brushes Kit Set with Purple Case Pouch Bag](https://products.checkmycream.com/products/Frola-Cosmetics-Professional-16-Pcs-Makeup-Brush-Brushes-Kit-Set-with-Purple-Case-Pouch-Bag.html)
 
 ### Positive Reviews

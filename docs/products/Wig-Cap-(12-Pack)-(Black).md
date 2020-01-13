@@ -1,12 +1,3 @@
----
-title: Wig Cap (12 Pack) (Black),
-description: Wig Cap (12 Pack) (Black),
-author: Suvojit Manna,
-tags: Wig Cap (12 Pack) (Black),
-publishedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
----
-
 # [Wig Cap (12 Pack) (Black)](https://products.checkmycream.com/products/Wig-Cap-(12-Pack)-(Black).html)
 
 ### Positive Reviews

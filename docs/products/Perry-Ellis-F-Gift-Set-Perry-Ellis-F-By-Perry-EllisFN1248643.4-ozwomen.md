@@ -1,12 +1,3 @@
----
-title: Perry Ellis F Gift Set Perry Ellis F By Perry Ellis/FN124864/3.4 oz/women/,
-description: Perry Ellis F Gift Set Perry Ellis F By Perry Ellis/FN124864/3.4 oz/women/,
-author: Suvojit Manna,
-tags: Perry Ellis F Gift Set Perry Ellis F By Perry Ellis/FN124864/3.4 oz/women/,
-publishedAt: Fri Jan 10 2020 14:59:43 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:43 GMT+0530 (India Standard Time),
----
-
 # [Perry Ellis F Gift Set Perry Ellis F By Perry Ellis/FN124864/3.4 oz/women/](https://products.checkmycream.com/products/Perry-Ellis-F-Gift-Set-Perry-Ellis-F-By-Perry-EllisFN1248643.4-ozwomen.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: The Baron Cologne for Men by LTL Fragrances,
-description: The Baron Cologne for Men by LTL Fragrances,
-author: Suvojit Manna,
-tags: The Baron Cologne for Men by LTL Fragrances,
-publishedAt: Fri Jan 10 2020 14:59:09 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:09 GMT+0530 (India Standard Time),
----
-
 # [The Baron Cologne for Men by LTL Fragrances](https://products.checkmycream.com/products/The-Baron-Cologne-for-Men-by-LTL-Fragrances.html)
 
 ### Positive Reviews

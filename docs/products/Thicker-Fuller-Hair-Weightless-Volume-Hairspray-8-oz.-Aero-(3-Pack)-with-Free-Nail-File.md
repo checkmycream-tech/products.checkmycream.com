@@ -1,12 +1,3 @@
----
-title: Thicker Fuller Hair Weightless Volume Hairspray 8 oz. Aero (3-Pack) with Free Nail File,
-description: Thicker Fuller Hair Weightless Volume Hairspray 8 oz. Aero (3-Pack) with Free Nail File,
-author: Suvojit Manna,
-tags: Thicker Fuller Hair Weightless Volume Hairspray 8 oz. Aero (3-Pack) with Free Nail File,
-publishedAt: Fri Jan 10 2020 15:00:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:02 GMT+0530 (India Standard Time),
----
-
 # [Thicker Fuller Hair Weightless Volume Hairspray 8 oz. Aero (3-Pack) with Free Nail File](https://products.checkmycream.com/products/Thicker-Fuller-Hair-Weightless-Volume-Hairspray-8-oz.-Aero-(3-Pack)-with-Free-Nail-File.html)
 
 ### Positive Reviews

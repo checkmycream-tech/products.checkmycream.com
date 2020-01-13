@@ -1,12 +1,3 @@
----
-title: Panasonic Vacuum Nose, Facial Trimmer,
-description: Panasonic Vacuum Nose, Facial Trimmer,
-author: Suvojit Manna,
-tags: Panasonic Vacuum Nose, Facial Trimmer,
-publishedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
----
-
 # [Panasonic Vacuum Nose, Facial Trimmer](https://products.checkmycream.com/products/Panasonic-Vacuum-Nose-Facial-Trimmer.html)
 
 ### Positive Reviews

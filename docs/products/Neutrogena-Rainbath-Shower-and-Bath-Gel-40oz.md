@@ -1,12 +1,3 @@
----
-title: Neutrogena Rainbath Shower and Bath Gel- 40oz,
-description: Neutrogena Rainbath Shower and Bath Gel- 40oz,
-author: Suvojit Manna,
-tags: Neutrogena Rainbath Shower and Bath Gel- 40oz,
-publishedAt: Fri Jan 10 2020 15:00:06 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:06 GMT+0530 (India Standard Time),
----
-
 # [Neutrogena Rainbath Shower and Bath Gel- 40oz](https://products.checkmycream.com/products/Neutrogena-Rainbath-Shower-and-Bath-Gel-40oz.html)
 
 ### Positive Reviews

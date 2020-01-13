@@ -1,12 +1,3 @@
----
-title: Essie Good to Go Top Coat Rapid Dry + Shine Nail Polish,
-description: Essie Good to Go Top Coat Rapid Dry + Shine Nail Polish,
-author: Suvojit Manna,
-tags: Essie Good to Go Top Coat Rapid Dry + Shine Nail Polish,
-publishedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
----
-
 # [Essie Good to Go Top Coat Rapid Dry + Shine Nail Polish](https://products.checkmycream.com/products/Essie-Good-to-Go-Top-Coat-Rapid-Dry-+-Shine-Nail-Polish.html)
 
 ### Positive Reviews

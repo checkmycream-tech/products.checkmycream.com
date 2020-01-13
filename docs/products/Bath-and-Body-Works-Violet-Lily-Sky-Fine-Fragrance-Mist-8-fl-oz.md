@@ -1,12 +1,3 @@
----
-title: Bath and Body Works Violet Lily Sky Fine Fragrance Mist 8 fl oz,
-description: Bath and Body Works Violet Lily Sky Fine Fragrance Mist 8 fl oz,
-author: Suvojit Manna,
-tags: Bath and Body Works Violet Lily Sky Fine Fragrance Mist 8 fl oz,
-publishedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
----
-
 # [Bath and Body Works Violet Lily Sky Fine Fragrance Mist 8 fl oz](https://products.checkmycream.com/products/Bath-and-Body-Works-Violet-Lily-Sky-Fine-Fragrance-Mist-8-fl-oz.html)
 
 ### Positive Reviews

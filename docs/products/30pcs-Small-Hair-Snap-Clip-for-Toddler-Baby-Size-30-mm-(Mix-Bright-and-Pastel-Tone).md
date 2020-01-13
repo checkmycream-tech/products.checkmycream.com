@@ -1,12 +1,3 @@
----
-title: 30pcs Small Hair Snap Clip for Toddler Baby Size 30 mm (Mix Bright and Pastel Tone),
-description: 30pcs Small Hair Snap Clip for Toddler Baby Size 30 mm (Mix Bright and Pastel Tone),
-author: Suvojit Manna,
-tags: 30pcs Small Hair Snap Clip for Toddler Baby Size 30 mm (Mix Bright and Pastel Tone),
-publishedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
----
-
 # [30pcs Small Hair Snap Clip for Toddler Baby Size 30 mm (Mix Bright and Pastel Tone)](https://products.checkmycream.com/products/30pcs-Small-Hair-Snap-Clip-for-Toddler-Baby-Size-30-mm-(Mix-Bright-and-Pastel-Tone).html)
 
 ### Positive Reviews

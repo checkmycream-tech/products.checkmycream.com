@@ -1,12 +1,3 @@
----
-title: Philosophy Roller Ball, Amazing Grace, 0.33 Ounce,
-description: Philosophy Roller Ball, Amazing Grace, 0.33 Ounce,
-author: Suvojit Manna,
-tags: Philosophy Roller Ball, Amazing Grace, 0.33 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:57 GMT+0530 (India Standard Time),
----
-
 # [Philosophy Roller Ball, Amazing Grace, 0.33 Ounce](https://products.checkmycream.com/products/Philosophy-Roller-Ball-Amazing-Grace-0.33-Ounce.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Neutrogena Ultra Sheer Body Mist Sunscreen,
-description: Neutrogena Ultra Sheer Body Mist Sunscreen,
-author: Suvojit Manna,
-tags: Neutrogena Ultra Sheer Body Mist Sunscreen,
-publishedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
----
-
 # [Neutrogena Ultra Sheer Body Mist Sunscreen](https://products.checkmycream.com/products/Neutrogena-Ultra-Sheer-Body-Mist-Sunscreen.html)
 
 ### Positive Reviews

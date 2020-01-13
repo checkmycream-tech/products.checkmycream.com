@@ -1,12 +1,3 @@
----
-title: bareMinerals Bareskin Pure Brightening Serum Foundation, Bare Nude, 1 fl. oz. by Bare Escentuals,
-description: bareMinerals Bareskin Pure Brightening Serum Foundation, Bare Nude, 1 fl. oz. by Bare Escentuals,
-author: Suvojit Manna,
-tags: bareMinerals Bareskin Pure Brightening Serum Foundation, Bare Nude, 1 fl. oz. by Bare Escentuals,
-publishedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
----
-
 # [bareMinerals Bareskin Pure Brightening Serum Foundation, Bare Nude, 1 fl. oz. by Bare Escentuals](https://products.checkmycream.com/products/bareMinerals-Bareskin-Pure-Brightening-Serum-Foundation-Bare-Nude-1-fl.-oz.-by-Bare-Escentuals.html)
 
 ### Positive Reviews

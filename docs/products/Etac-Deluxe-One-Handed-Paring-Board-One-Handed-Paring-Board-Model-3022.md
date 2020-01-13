@@ -1,12 +1,3 @@
----
-title: Etac Deluxe One-Handed Paring Board One-Handed Paring Board - Model 3022,
-description: Etac Deluxe One-Handed Paring Board One-Handed Paring Board - Model 3022,
-author: Suvojit Manna,
-tags: Etac Deluxe One-Handed Paring Board One-Handed Paring Board - Model 3022,
-publishedAt: Fri Jan 10 2020 14:59:36 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:36 GMT+0530 (India Standard Time),
----
-
 # [Etac Deluxe One-Handed Paring Board One-Handed Paring Board - Model 3022](https://products.checkmycream.com/products/Etac-Deluxe-One-Handed-Paring-Board-One-Handed-Paring-Board-Model-3022.html)
 
 ### Positive Reviews

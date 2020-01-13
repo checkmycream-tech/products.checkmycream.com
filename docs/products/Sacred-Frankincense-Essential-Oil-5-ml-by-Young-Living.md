@@ -1,12 +1,3 @@
----
-title: Sacred Frankincense Essential Oil - 5 ml by Young Living,
-description: Sacred Frankincense Essential Oil - 5 ml by Young Living,
-author: Suvojit Manna,
-tags: Sacred Frankincense Essential Oil - 5 ml by Young Living,
-publishedAt: Fri Jan 10 2020 14:59:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:55 GMT+0530 (India Standard Time),
----
-
 # [Sacred Frankincense Essential Oil - 5 ml by Young Living](https://products.checkmycream.com/products/Sacred-Frankincense-Essential-Oil-5-ml-by-Young-Living.html)
 
 ### Positive Reviews

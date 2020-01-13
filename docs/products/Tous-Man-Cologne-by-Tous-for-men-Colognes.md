@@ -1,12 +1,3 @@
----
-title: Tous Man Cologne by Tous for men Colognes,
-description: Tous Man Cologne by Tous for men Colognes,
-author: Suvojit Manna,
-tags: Tous Man Cologne by Tous for men Colognes,
-publishedAt: Fri Jan 10 2020 14:59:09 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:09 GMT+0530 (India Standard Time),
----
-
 # [Tous Man Cologne by Tous for men Colognes](https://products.checkmycream.com/products/Tous-Man-Cologne-by-Tous-for-men-Colognes.html)
 
 ### Positive Reviews

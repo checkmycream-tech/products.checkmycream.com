@@ -1,12 +1,3 @@
----
-title: Proliss Ionic 2000W Professional Hair Dryer Peacock,
-description: Proliss Ionic 2000W Professional Hair Dryer Peacock,
-author: Suvojit Manna,
-tags: Proliss Ionic 2000W Professional Hair Dryer Peacock,
-publishedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
----
-
 # [Proliss Ionic 2000W Professional Hair Dryer Peacock](https://products.checkmycream.com/products/Proliss-Ionic-2000W-Professional-Hair-Dryer-Peacock.html)
 
 ### Positive Reviews

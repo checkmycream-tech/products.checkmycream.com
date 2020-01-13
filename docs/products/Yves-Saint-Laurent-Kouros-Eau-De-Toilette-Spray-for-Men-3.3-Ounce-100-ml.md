@@ -1,12 +1,3 @@
----
-title: Yves Saint Laurent Kouros Eau De Toilette Spray for Men, 3.3 Ounce / 100 ml,
-description: Yves Saint Laurent Kouros Eau De Toilette Spray for Men, 3.3 Ounce / 100 ml,
-author: Suvojit Manna,
-tags: Yves Saint Laurent Kouros Eau De Toilette Spray for Men, 3.3 Ounce / 100 ml,
-publishedAt: Fri Jan 10 2020 14:59:45 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:45 GMT+0530 (India Standard Time),
----
-
 # [Yves Saint Laurent Kouros Eau De Toilette Spray for Men, 3.3 Ounce / 100 ml](https://products.checkmycream.com/products/Yves-Saint-Laurent-Kouros-Eau-De-Toilette-Spray-for-Men-3.3-Ounce-100-ml.html)
 
 ### Positive Reviews

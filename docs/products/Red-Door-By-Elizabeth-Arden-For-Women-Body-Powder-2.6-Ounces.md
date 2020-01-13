@@ -1,12 +1,3 @@
----
-title: Red Door By Elizabeth Arden For Women, Body Powder, 2.6-Ounces,
-description: Red Door By Elizabeth Arden For Women, Body Powder, 2.6-Ounces,
-author: Suvojit Manna,
-tags: Red Door By Elizabeth Arden For Women, Body Powder, 2.6-Ounces,
-publishedAt: Fri Jan 10 2020 14:59:16 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:16 GMT+0530 (India Standard Time),
----
-
 # [Red Door By Elizabeth Arden For Women, Body Powder, 2.6-Ounces](https://products.checkmycream.com/products/Red-Door-By-Elizabeth-Arden-For-Women-Body-Powder-2.6-Ounces.html)
 
 ### Positive Reviews

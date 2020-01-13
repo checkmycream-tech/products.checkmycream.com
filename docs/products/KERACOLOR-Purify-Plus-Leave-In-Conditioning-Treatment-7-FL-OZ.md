@@ -1,12 +1,3 @@
----
-title: KERACOLOR Purify Plus, Leave-In Conditioning Treatment 7 FL OZ,
-description: KERACOLOR Purify Plus, Leave-In Conditioning Treatment 7 FL OZ,
-author: Suvojit Manna,
-tags: KERACOLOR Purify Plus, Leave-In Conditioning Treatment 7 FL OZ,
-publishedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
----
-
 # [KERACOLOR Purify Plus, Leave-In Conditioning Treatment 7 FL OZ](https://products.checkmycream.com/products/KERACOLOR-Purify-Plus-Leave-In-Conditioning-Treatment-7-FL-OZ.html)
 
 ### Positive Reviews

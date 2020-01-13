@@ -1,12 +1,3 @@
----
-title: Sebastian Cellophane Clear 10.1oz,
-description: Sebastian Cellophane Clear 10.1oz,
-author: Suvojit Manna,
-tags: Sebastian Cellophane Clear 10.1oz,
-publishedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
----
-
 # [Sebastian Cellophane Clear 10.1oz](https://products.checkmycream.com/products/Sebastian-Cellophane-Clear-10.1oz.html)
 
 ### Positive Reviews

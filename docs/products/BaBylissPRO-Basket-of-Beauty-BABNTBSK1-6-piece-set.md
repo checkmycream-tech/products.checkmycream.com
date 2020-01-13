@@ -1,12 +1,3 @@
----
-title: BaBylissPRO Basket of Beauty BABNTBSK1 - 6 piece set,
-description: BaBylissPRO Basket of Beauty BABNTBSK1 - 6 piece set,
-author: Suvojit Manna,
-tags: BaBylissPRO Basket of Beauty BABNTBSK1 - 6 piece set,
-publishedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
----
-
 # [BaBylissPRO Basket of Beauty BABNTBSK1 - 6 piece set](https://products.checkmycream.com/products/BaBylissPRO-Basket-of-Beauty-BABNTBSK1-6-piece-set.html)
 
 ### Positive Reviews

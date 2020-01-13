@@ -1,12 +1,3 @@
----
-title: Aussie Anti-Frizz Cream,
-description: Aussie Anti-Frizz Cream,
-author: Suvojit Manna,
-tags: Aussie Anti-Frizz Cream,
-publishedAt: Fri Jan 10 2020 15:00:18 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:18 GMT+0530 (India Standard Time),
----
-
 # [Aussie Anti-Frizz Cream](https://products.checkmycream.com/products/Aussie-Anti-Frizz-Cream.html)
 
 ### Positive Reviews

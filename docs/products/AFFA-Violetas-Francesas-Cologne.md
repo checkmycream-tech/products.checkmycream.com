@@ -1,12 +1,3 @@
----
-title: AFFA Violetas Francesas Cologne,
-description: AFFA Violetas Francesas Cologne,
-author: Suvojit Manna,
-tags: AFFA Violetas Francesas Cologne,
-publishedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
----
-
 # [AFFA Violetas Francesas Cologne](https://products.checkmycream.com/products/AFFA-Violetas-Francesas-Cologne.html)
 
 ### Positive Reviews

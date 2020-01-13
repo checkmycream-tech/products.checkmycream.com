@@ -1,12 +1,3 @@
----
-title: Mary Kay Mini Translucent Loose Powder + Mini Brush ~ Travel Size 1.6g of Powder,
-description: Mary Kay Mini Translucent Loose Powder + Mini Brush ~ Travel Size 1.6g of Powder,
-author: Suvojit Manna,
-tags: Mary Kay Mini Translucent Loose Powder + Mini Brush ~ Travel Size 1.6g of Powder,
-publishedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
----
-
 # [Mary Kay Mini Translucent Loose Powder + Mini Brush ~ Travel Size 1.6g of Powder](https://products.checkmycream.com/products/Mary-Kay-Mini-Translucent-Loose-Powder-+-Mini-Brush-~-Travel-Size-1.6g-of-Powder.html)
 
 ### Positive Reviews

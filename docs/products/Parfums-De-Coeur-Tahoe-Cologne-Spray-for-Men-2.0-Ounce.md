@@ -1,12 +1,3 @@
----
-title: Parfums De Coeur Tahoe Cologne Spray for Men, 2.0 Ounce,
-description: Parfums De Coeur Tahoe Cologne Spray for Men, 2.0 Ounce,
-author: Suvojit Manna,
-tags: Parfums De Coeur Tahoe Cologne Spray for Men, 2.0 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:04 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:04 GMT+0530 (India Standard Time),
----
-
 # [Parfums De Coeur Tahoe Cologne Spray for Men, 2.0 Ounce](https://products.checkmycream.com/products/Parfums-De-Coeur-Tahoe-Cologne-Spray-for-Men-2.0-Ounce.html)
 
 ### Positive Reviews

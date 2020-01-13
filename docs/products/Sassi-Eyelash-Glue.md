@@ -1,12 +1,3 @@
----
-title: Sassi Eyelash Glue,
-description: Sassi Eyelash Glue,
-author: Suvojit Manna,
-tags: Sassi Eyelash Glue,
-publishedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
----
-
 # [Sassi Eyelash Glue](https://products.checkmycream.com/products/Sassi-Eyelash-Glue.html)
 
 ### Positive Reviews

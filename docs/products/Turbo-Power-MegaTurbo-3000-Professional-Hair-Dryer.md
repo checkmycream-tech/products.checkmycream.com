@@ -1,12 +1,3 @@
----
-title: Turbo Power MegaTurbo 3000 Professional Hair Dryer,
-description: Turbo Power MegaTurbo 3000 Professional Hair Dryer,
-author: Suvojit Manna,
-tags: Turbo Power MegaTurbo 3000 Professional Hair Dryer,
-publishedAt: Fri Jan 10 2020 14:59:52 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:52 GMT+0530 (India Standard Time),
----
-
 # [Turbo Power MegaTurbo 3000 Professional Hair Dryer](https://products.checkmycream.com/products/Turbo-Power-MegaTurbo-3000-Professional-Hair-Dryer.html)
 
 ### Positive Reviews

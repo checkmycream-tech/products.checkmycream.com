@@ -1,12 +1,3 @@
----
-title: Paul Mitchell Volumizing Spray for Unisex, 16.9 Ounce,
-description: Paul Mitchell Volumizing Spray for Unisex, 16.9 Ounce,
-author: Suvojit Manna,
-tags: Paul Mitchell Volumizing Spray for Unisex, 16.9 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:15 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:15 GMT+0530 (India Standard Time),
----
-
 # [Paul Mitchell Volumizing Spray for Unisex, 16.9 Ounce](https://products.checkmycream.com/products/Paul-Mitchell-Volumizing-Spray-for-Unisex-16.9-Ounce.html)
 
 ### Positive Reviews

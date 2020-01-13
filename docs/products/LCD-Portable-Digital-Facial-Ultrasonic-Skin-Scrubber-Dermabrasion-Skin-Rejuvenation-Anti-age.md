@@ -1,12 +1,3 @@
----
-title: LCD Portable Digital Facial Ultrasonic Skin Scrubber Dermabrasion Skin Rejuvenation Anti-age,
-description: LCD Portable Digital Facial Ultrasonic Skin Scrubber Dermabrasion Skin Rejuvenation Anti-age,
-author: Suvojit Manna,
-tags: LCD Portable Digital Facial Ultrasonic Skin Scrubber Dermabrasion Skin Rejuvenation Anti-age,
-publishedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
----
-
 # [LCD Portable Digital Facial Ultrasonic Skin Scrubber Dermabrasion Skin Rejuvenation Anti-age](https://products.checkmycream.com/products/LCD-Portable-Digital-Facial-Ultrasonic-Skin-Scrubber-Dermabrasion-Skin-Rejuvenation-Anti-age.html)
 
 ### Positive Reviews

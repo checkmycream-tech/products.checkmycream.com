@@ -1,12 +1,3 @@
----
-title: Redken Control Addict 28 - High Control, Strong Hairspray 11 Oz (New Packaging!),
-description: Redken Control Addict 28 - High Control, Strong Hairspray 11 Oz (New Packaging!),
-author: Suvojit Manna,
-tags: Redken Control Addict 28 - High Control, Strong Hairspray 11 Oz (New Packaging!),
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [Redken Control Addict 28 - High Control, Strong Hairspray 11 Oz (New Packaging!)](https://products.checkmycream.com/products/Redken-Control-Addict-28-High-Control-Strong-Hairspray-11-Oz-(New-Packaging!).html)
 
 ### Positive Reviews

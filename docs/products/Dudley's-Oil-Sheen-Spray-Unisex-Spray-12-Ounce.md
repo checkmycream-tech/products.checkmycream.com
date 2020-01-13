@@ -1,12 +1,3 @@
----
-title: Dudley&#x27;s Oil Sheen Spray Unisex Spray, 12 Ounce,
-description: Dudley&#x27;s Oil Sheen Spray Unisex Spray, 12 Ounce,
-author: Suvojit Manna,
-tags: Dudley&#x27;s Oil Sheen Spray Unisex Spray, 12 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:42 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:42 GMT+0530 (India Standard Time),
----
-
 # [Dudley&#x27;s Oil Sheen Spray Unisex Spray, 12 Ounce](https://products.checkmycream.com/products/Dudley&#x27;s-Oil-Sheen-Spray-Unisex-Spray-12-Ounce.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Jeunesse Instantly Ageless - 2 Vial,
-description: Jeunesse Instantly Ageless - 2 Vial,
-author: Suvojit Manna,
-tags: Jeunesse Instantly Ageless - 2 Vial,
-publishedAt: Fri Jan 10 2020 15:01:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:08 GMT+0530 (India Standard Time),
----
-
 # [Jeunesse Instantly Ageless - 2 Vial](https://products.checkmycream.com/products/Jeunesse-Instantly-Ageless-2-Vial.html)
 
 ### Positive Reviews

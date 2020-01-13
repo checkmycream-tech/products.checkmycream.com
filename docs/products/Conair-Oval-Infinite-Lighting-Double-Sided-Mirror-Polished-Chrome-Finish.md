@@ -1,12 +1,3 @@
----
-title: Conair Oval Infinite Lighting Double-Sided Mirror, Polished Chrome Finish,
-description: Conair Oval Infinite Lighting Double-Sided Mirror, Polished Chrome Finish,
-author: Suvojit Manna,
-tags: Conair Oval Infinite Lighting Double-Sided Mirror, Polished Chrome Finish,
-publishedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
----
-
 # [Conair Oval Infinite Lighting Double-Sided Mirror, Polished Chrome Finish](https://products.checkmycream.com/products/Conair-Oval-Infinite-Lighting-Double-Sided-Mirror-Polished-Chrome-Finish.html)
 
 ### Positive Reviews

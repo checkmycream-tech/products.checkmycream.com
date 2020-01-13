@@ -1,12 +1,3 @@
----
-title: Nioxin Bodifying Foam, 6.7 oz,
-description: Nioxin Bodifying Foam, 6.7 oz,
-author: Suvojit Manna,
-tags: Nioxin Bodifying Foam, 6.7 oz,
-publishedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
----
-
 # [Nioxin Bodifying Foam, 6.7 oz](https://products.checkmycream.com/products/Nioxin-Bodifying-Foam-6.7-oz.html)
 
 ### Positive Reviews

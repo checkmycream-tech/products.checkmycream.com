@@ -1,12 +1,3 @@
----
-title: Philips Norelco SH90/52 Shaver Series 9000 Replacement Head,
-description: Philips Norelco SH90/52 Shaver Series 9000 Replacement Head,
-author: Suvojit Manna,
-tags: Philips Norelco SH90/52 Shaver Series 9000 Replacement Head,
-publishedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
----
-
 # [Philips Norelco SH90/52 Shaver Series 9000 Replacement Head](https://products.checkmycream.com/products/Philips-Norelco-SH9052-Shaver-Series-9000-Replacement-Head.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Annie Snap On Rollers - Various Colors and Sizes,
-description: Annie Snap On Rollers - Various Colors and Sizes,
-author: Suvojit Manna,
-tags: Annie Snap On Rollers - Various Colors and Sizes,
-publishedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
----
-
 # [Annie Snap On Rollers - Various Colors and Sizes](https://products.checkmycream.com/products/Annie-Snap-On-Rollers-Various-Colors-and-Sizes.html)
 
 ### Positive Reviews

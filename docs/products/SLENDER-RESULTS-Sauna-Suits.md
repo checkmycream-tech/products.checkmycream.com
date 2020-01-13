@@ -1,12 +1,3 @@
----
-title: SLENDER RESULTS Sauna Suits,
-description: SLENDER RESULTS Sauna Suits,
-author: Suvojit Manna,
-tags: SLENDER RESULTS Sauna Suits,
-publishedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
----
-
 # [SLENDER RESULTS Sauna Suits](https://products.checkmycream.com/products/SLENDER-RESULTS-Sauna-Suits.html)
 
 ### Positive Reviews

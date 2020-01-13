@@ -1,12 +1,3 @@
----
-title: Abba Pure Volume Gel, 6.76-Ounce,
-description: Abba Pure Volume Gel, 6.76-Ounce,
-author: Suvojit Manna,
-tags: Abba Pure Volume Gel, 6.76-Ounce,
-publishedAt: Fri Jan 10 2020 14:59:39 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:39 GMT+0530 (India Standard Time),
----
-
 # [Abba Pure Volume Gel, 6.76-Ounce](https://products.checkmycream.com/products/Abba-Pure-Volume-Gel-6.76-Ounce.html)
 
 ### Positive Reviews

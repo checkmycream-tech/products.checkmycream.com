@@ -1,12 +1,3 @@
----
-title: Scruples White Tea Sulfate Free Restorative Shampoo 12 Ounce,
-description: Scruples White Tea Sulfate Free Restorative Shampoo 12 Ounce,
-author: Suvojit Manna,
-tags: Scruples White Tea Sulfate Free Restorative Shampoo 12 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:21 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:21 GMT+0530 (India Standard Time),
----
-
 # [Scruples White Tea Sulfate Free Restorative Shampoo 12 Ounce](https://products.checkmycream.com/products/Scruples-White-Tea-Sulfate-Free-Restorative-Shampoo-12-Ounce.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Bed Head Epic Volume Curling Wand Iron, Green Apple Handle, 1 Inch,
-description: Bed Head Epic Volume Curling Wand Iron, Green Apple Handle, 1 Inch,
-author: Suvojit Manna,
-tags: Bed Head Epic Volume Curling Wand Iron, Green Apple Handle, 1 Inch,
-publishedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
----
-
 # [Bed Head Epic Volume Curling Wand Iron, Green Apple Handle, 1 Inch](https://products.checkmycream.com/products/Bed-Head-Epic-Volume-Curling-Wand-Iron-Green-Apple-Handle-1-Inch.html)
 
 ### Positive Reviews

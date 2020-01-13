@@ -1,12 +1,3 @@
----
-title: Gold Bond Body Lotion Extra Strength,
-description: Gold Bond Body Lotion Extra Strength,
-author: Suvojit Manna,
-tags: Gold Bond Body Lotion Extra Strength,
-publishedAt: Fri Jan 10 2020 14:59:32 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:32 GMT+0530 (India Standard Time),
----
-
 # [Gold Bond Body Lotion Extra Strength](https://products.checkmycream.com/products/Gold-Bond-Body-Lotion-Extra-Strength.html)
 
 ### Positive Reviews

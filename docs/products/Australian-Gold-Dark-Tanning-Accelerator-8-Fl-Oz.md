@@ -1,12 +1,3 @@
----
-title: Australian Gold Dark Tanning Accelerator, 8 Fl Oz,
-description: Australian Gold Dark Tanning Accelerator, 8 Fl Oz,
-author: Suvojit Manna,
-tags: Australian Gold Dark Tanning Accelerator, 8 Fl Oz,
-publishedAt: Fri Jan 10 2020 15:00:10 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:10 GMT+0530 (India Standard Time),
----
-
 # [Australian Gold Dark Tanning Accelerator, 8 Fl Oz](https://products.checkmycream.com/products/Australian-Gold-Dark-Tanning-Accelerator-8-Fl-Oz.html)
 
 ### Positive Reviews

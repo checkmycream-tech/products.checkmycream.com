@@ -1,12 +1,3 @@
----
-title: Bridal Wedding Jewelry Crystal Rhinestone Pearl Duo Flowers Headband Silver #11,
-description: Bridal Wedding Jewelry Crystal Rhinestone Pearl Duo Flowers Headband Silver #11,
-author: Suvojit Manna,
-tags: Bridal Wedding Jewelry Crystal Rhinestone Pearl Duo Flowers Headband Silver #11,
-publishedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
----
-
 # [Bridal Wedding Jewelry Crystal Rhinestone Pearl Duo Flowers Headband Silver #11](https://products.checkmycream.com/products/Bridal-Wedding-Jewelry-Crystal-Rhinestone-Pearl-Duo-Flowers-Headband-Silver-11.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Michael Kors Sexy Amber Eau De Parfum Spray, 3.4 Ounce,
-description: Michael Kors Sexy Amber Eau De Parfum Spray, 3.4 Ounce,
-author: Suvojit Manna,
-tags: Michael Kors Sexy Amber Eau De Parfum Spray, 3.4 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
----
-
 # [Michael Kors Sexy Amber Eau De Parfum Spray, 3.4 Ounce](https://products.checkmycream.com/products/Michael-Kors-Sexy-Amber-Eau-De-Parfum-Spray-3.4-Ounce.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Bao Xin Smart Leather Cover for iPad/iPad mini ,Design Auto Sleep/Wakeup Feature Multi-Angle Stand,
-description: Bao Xin Smart Leather Cover for iPad/iPad mini ,Design Auto Sleep/Wakeup Feature Multi-Angle Stand,
-author: Suvojit Manna,
-tags: Bao Xin Smart Leather Cover for iPad/iPad mini ,Design Auto Sleep/Wakeup Feature Multi-Angle Stand,
-publishedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
----
-
 # [Bao Xin Smart Leather Cover for iPad/iPad mini ,Design Auto Sleep/Wakeup Feature Multi-Angle Stand](https://products.checkmycream.com/products/Bao-Xin-Smart-Leather-Cover-for-iPadiPad-mini-Design-Auto-SleepWakeup-Feature-Multi-Angle-Stand.html)
 
 ### Positive Reviews

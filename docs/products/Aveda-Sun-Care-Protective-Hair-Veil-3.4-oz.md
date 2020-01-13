@@ -1,12 +1,3 @@
----
-title: Aveda Sun Care Protective Hair Veil 3.4 oz,
-description: Aveda Sun Care Protective Hair Veil 3.4 oz,
-author: Suvojit Manna,
-tags: Aveda Sun Care Protective Hair Veil 3.4 oz,
-publishedAt: Fri Jan 10 2020 14:59:42 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:42 GMT+0530 (India Standard Time),
----
-
 # [Aveda Sun Care Protective Hair Veil 3.4 oz](https://products.checkmycream.com/products/Aveda-Sun-Care-Protective-Hair-Veil-3.4-oz.html)
 
 ### Positive Reviews

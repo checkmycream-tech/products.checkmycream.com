@@ -1,12 +1,3 @@
----
-title: Caro White Small Oil by Thierry Mugler,
-description: Caro White Small Oil by Thierry Mugler,
-author: Suvojit Manna,
-tags: Caro White Small Oil by Thierry Mugler,
-publishedAt: Fri Jan 10 2020 15:00:29 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:29 GMT+0530 (India Standard Time),
----
-
 # [Caro White Small Oil by Thierry Mugler](https://products.checkmycream.com/products/Caro-White-Small-Oil-by-Thierry-Mugler.html)
 
 ### Positive Reviews

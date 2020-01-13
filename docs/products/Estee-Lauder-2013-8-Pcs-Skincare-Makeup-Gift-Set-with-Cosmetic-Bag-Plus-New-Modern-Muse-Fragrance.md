@@ -1,12 +1,3 @@
----
-title: Estee Lauder 2013 8 Pcs Skincare Makeup Gift Set with Cosmetic Bag Plus New Modern Muse Fragrance,
-description: Estee Lauder 2013 8 Pcs Skincare Makeup Gift Set with Cosmetic Bag Plus New Modern Muse Fragrance,
-author: Suvojit Manna,
-tags: Estee Lauder 2013 8 Pcs Skincare Makeup Gift Set with Cosmetic Bag Plus New Modern Muse Fragrance,
-publishedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
----
-
 # [Estee Lauder 2013 8 Pcs Skincare Makeup Gift Set with Cosmetic Bag Plus New Modern Muse Fragrance](https://products.checkmycream.com/products/Estee-Lauder-2013-8-Pcs-Skincare-Makeup-Gift-Set-with-Cosmetic-Bag-Plus-New-Modern-Muse-Fragrance.html)
 
 ### Positive Reviews

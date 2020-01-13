@@ -1,12 +1,3 @@
----
-title: KAYSO INC Tiara Design Laser Cut Masquerade Mask,
-description: KAYSO INC Tiara Design Laser Cut Masquerade Mask,
-author: Suvojit Manna,
-tags: KAYSO INC Tiara Design Laser Cut Masquerade Mask,
-publishedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
----
-
 # [KAYSO INC Tiara Design Laser Cut Masquerade Mask](https://products.checkmycream.com/products/KAYSO-INC-Tiara-Design-Laser-Cut-Masquerade-Mask.html)
 
 ### Positive Reviews

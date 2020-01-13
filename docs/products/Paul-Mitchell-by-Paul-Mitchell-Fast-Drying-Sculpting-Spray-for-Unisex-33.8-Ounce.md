@@ -1,12 +1,3 @@
----
-title: Paul Mitchell by Paul Mitchell Fast Drying Sculpting Spray for Unisex, 33.8 Ounce,
-description: Paul Mitchell by Paul Mitchell Fast Drying Sculpting Spray for Unisex, 33.8 Ounce,
-author: Suvojit Manna,
-tags: Paul Mitchell by Paul Mitchell Fast Drying Sculpting Spray for Unisex, 33.8 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:13 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:13 GMT+0530 (India Standard Time),
----
-
 # [Paul Mitchell by Paul Mitchell Fast Drying Sculpting Spray for Unisex, 33.8 Ounce](https://products.checkmycream.com/products/Paul-Mitchell-by-Paul-Mitchell-Fast-Drying-Sculpting-Spray-for-Unisex-33.8-Ounce.html)
 
 ### Positive Reviews

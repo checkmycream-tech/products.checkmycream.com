@@ -1,12 +1,3 @@
----
-title: Joico Finishing Spray,
-description: Joico Finishing Spray,
-author: Suvojit Manna,
-tags: Joico Finishing Spray,
-publishedAt: Fri Jan 10 2020 15:00:38 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:38 GMT+0530 (India Standard Time),
----
-
 # [Joico Finishing Spray](https://products.checkmycream.com/products/Joico-Finishing-Spray.html)
 
 ### Positive Reviews

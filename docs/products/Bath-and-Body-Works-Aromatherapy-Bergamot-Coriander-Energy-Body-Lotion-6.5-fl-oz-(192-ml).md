@@ -1,12 +1,3 @@
----
-title: Bath &amp; Body Works Aromatherapy Bergamot Coriander Energy Body Lotion 6.5 fl oz (192 ml),
-description: Bath &amp; Body Works Aromatherapy Bergamot Coriander Energy Body Lotion 6.5 fl oz (192 ml),
-author: Suvojit Manna,
-tags: Bath &amp; Body Works Aromatherapy Bergamot Coriander Energy Body Lotion 6.5 fl oz (192 ml),
-publishedAt: Fri Jan 10 2020 14:59:43 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:43 GMT+0530 (India Standard Time),
----
-
 # [Bath &amp; Body Works Aromatherapy Bergamot Coriander Energy Body Lotion 6.5 fl oz (192 ml)](https://products.checkmycream.com/products/Bath-and-Body-Works-Aromatherapy-Bergamot-Coriander-Energy-Body-Lotion-6.5-fl-oz-(192-ml).html)
 
 ### Positive Reviews

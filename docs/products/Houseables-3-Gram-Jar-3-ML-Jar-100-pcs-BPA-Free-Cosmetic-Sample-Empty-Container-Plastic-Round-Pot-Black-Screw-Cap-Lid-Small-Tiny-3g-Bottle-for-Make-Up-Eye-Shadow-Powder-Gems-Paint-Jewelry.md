@@ -1,12 +1,3 @@
----
-title: Houseables 3 Gram Jar, 3 ML Jar, 100 pcs, BPA Free, Cosmetic Sample Empty Container, Plastic, Round Pot Black Screw Cap Lid, Small Tiny 3g Bottle, for Make Up, Eye Shadow, Powder, Gems, Paint, Jewelry,
-description: Houseables 3 Gram Jar, 3 ML Jar, 100 pcs, BPA Free, Cosmetic Sample Empty Container, Plastic, Round Pot Black Screw Cap Lid, Small Tiny 3g Bottle, for Make Up, Eye Shadow, Powder, Gems, Paint, Jewelry,
-author: Suvojit Manna,
-tags: Houseables 3 Gram Jar, 3 ML Jar, 100 pcs, BPA Free, Cosmetic Sample Empty Container, Plastic, Round Pot Black Screw Cap Lid, Small Tiny 3g Bottle, for Make Up, Eye Shadow, Powder, Gems, Paint, Jewelry,
-publishedAt: Fri Jan 10 2020 15:01:07 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:07 GMT+0530 (India Standard Time),
----
-
 # [Houseables 3 Gram Jar, 3 ML Jar, 100 pcs, BPA Free, Cosmetic Sample Empty Container, Plastic, Round Pot Black Screw Cap Lid, Small Tiny 3g Bottle, for Make Up, Eye Shadow, Powder, Gems, Paint, Jewelry](https://products.checkmycream.com/products/Houseables-3-Gram-Jar-3-ML-Jar-100-pcs-BPA-Free-Cosmetic-Sample-Empty-Container-Plastic-Round-Pot-Black-Screw-Cap-Lid-Small-Tiny-3g-Bottle-for-Make-Up-Eye-Shadow-Powder-Gems-Paint-Jewelry.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: ORGANIC HANDMADE SOAP GIFT SET - ALL NATURAL ♥♥ PERFECT MOTHER&#x27;S DAY GIFT ♥♥ Made w/ Pure Aromatherapy Grade Essential Oils - 3 Full Size Bars - Comes Wrapped in Cellophane w/ Satin Bow &amp; Floral Embellishment,
-description: ORGANIC HANDMADE SOAP GIFT SET - ALL NATURAL ♥♥ PERFECT MOTHER&#x27;S DAY GIFT ♥♥ Made w/ Pure Aromatherapy Grade Essential Oils - 3 Full Size Bars - Comes Wrapped in Cellophane w/ Satin Bow &amp; Floral Embellishment,
-author: Suvojit Manna,
-tags: ORGANIC HANDMADE SOAP GIFT SET - ALL NATURAL ♥♥ PERFECT MOTHER&#x27;S DAY GIFT ♥♥ Made w/ Pure Aromatherapy Grade Essential Oils - 3 Full Size Bars - Comes Wrapped in Cellophane w/ Satin Bow &amp; Floral Embellishment,
-publishedAt: Fri Jan 10 2020 15:01:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:05 GMT+0530 (India Standard Time),
----
-
 # [ORGANIC HANDMADE SOAP GIFT SET - ALL NATURAL ♥♥ PERFECT MOTHER&#x27;S DAY GIFT ♥♥ Made w/ Pure Aromatherapy Grade Essential Oils - 3 Full Size Bars - Comes Wrapped in Cellophane w/ Satin Bow &amp; Floral Embellishment](https://products.checkmycream.com/products/ORGANIC-HANDMADE-SOAP-GIFT-SET-ALL-NATURAL-lovelove-PERFECT-MOTHER&#x27;S-DAY-GIFT-lovelove-Made-w-Pure-Aromatherapy-Grade-Essential-Oils-3-Full-Size-Bars-Comes-Wrapped-in-Cellophane-w-Satin-Bow-and-Floral-Embellishment.html)
 
 ### Positive Reviews

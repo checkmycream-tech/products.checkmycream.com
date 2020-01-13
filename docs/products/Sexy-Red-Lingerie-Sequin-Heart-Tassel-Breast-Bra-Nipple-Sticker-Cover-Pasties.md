@@ -1,12 +1,3 @@
----
-title: Sexy Red Lingerie Sequin Heart Tassel Breast Bra Nipple Sticker Cover Pasties,
-description: Sexy Red Lingerie Sequin Heart Tassel Breast Bra Nipple Sticker Cover Pasties,
-author: Suvojit Manna,
-tags: Sexy Red Lingerie Sequin Heart Tassel Breast Bra Nipple Sticker Cover Pasties,
-publishedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
----
-
 # [Sexy Red Lingerie Sequin Heart Tassel Breast Bra Nipple Sticker Cover Pasties](https://products.checkmycream.com/products/Sexy-Red-Lingerie-Sequin-Heart-Tassel-Breast-Bra-Nipple-Sticker-Cover-Pasties.html)
 
 ### Positive Reviews

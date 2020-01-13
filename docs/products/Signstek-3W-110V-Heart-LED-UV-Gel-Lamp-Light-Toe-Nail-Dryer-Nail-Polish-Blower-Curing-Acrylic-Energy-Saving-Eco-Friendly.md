@@ -1,12 +1,3 @@
----
-title: Signstek 3W 110V Heart LED UV Gel Lamp Light Toe Nail Dryer Nail Polish Blower Curing Acrylic Energy-Saving Eco-Friendly,
-description: Signstek 3W 110V Heart LED UV Gel Lamp Light Toe Nail Dryer Nail Polish Blower Curing Acrylic Energy-Saving Eco-Friendly,
-author: Suvojit Manna,
-tags: Signstek 3W 110V Heart LED UV Gel Lamp Light Toe Nail Dryer Nail Polish Blower Curing Acrylic Energy-Saving Eco-Friendly,
-publishedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
----
-
 # [Signstek 3W 110V Heart LED UV Gel Lamp Light Toe Nail Dryer Nail Polish Blower Curing Acrylic Energy-Saving Eco-Friendly](https://products.checkmycream.com/products/Signstek-3W-110V-Heart-LED-UV-Gel-Lamp-Light-Toe-Nail-Dryer-Nail-Polish-Blower-Curing-Acrylic-Energy-Saving-Eco-Friendly.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Bath Body Works Lilac Blossom Wallflowers Refill 2 Bulbs,
-description: Bath Body Works Lilac Blossom Wallflowers Refill 2 Bulbs,
-author: Suvojit Manna,
-tags: Bath Body Works Lilac Blossom Wallflowers Refill 2 Bulbs,
-publishedAt: Fri Jan 10 2020 15:00:06 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:06 GMT+0530 (India Standard Time),
----
-
 # [Bath Body Works Lilac Blossom Wallflowers Refill 2 Bulbs](https://products.checkmycream.com/products/Bath-Body-Works-Lilac-Blossom-Wallflowers-Refill-2-Bulbs.html)
 
 ### Positive Reviews

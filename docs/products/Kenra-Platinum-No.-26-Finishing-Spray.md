@@ -1,12 +1,3 @@
----
-title: Kenra Platinum No. 26 Finishing Spray,
-description: Kenra Platinum No. 26 Finishing Spray,
-author: Suvojit Manna,
-tags: Kenra Platinum No. 26 Finishing Spray,
-publishedAt: Fri Jan 10 2020 14:59:46 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:46 GMT+0530 (India Standard Time),
----
-
 # [Kenra Platinum No. 26 Finishing Spray](https://products.checkmycream.com/products/Kenra-Platinum-No.-26-Finishing-Spray.html)
 
 ### Positive Reviews

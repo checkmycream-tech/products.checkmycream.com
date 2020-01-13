@@ -1,12 +1,3 @@
----
-title: 4 in 1 Roll on Refillable Depilatory Wax Heater Waxing Hair Removal Kit Tools Machine with 100 PCS Paper Strip , Honey Lavender Taste 100g Wax , 110v Us Plug,
-description: 4 in 1 Roll on Refillable Depilatory Wax Heater Waxing Hair Removal Kit Tools Machine with 100 PCS Paper Strip , Honey Lavender Taste 100g Wax , 110v Us Plug,
-author: Suvojit Manna,
-tags: 4 in 1 Roll on Refillable Depilatory Wax Heater Waxing Hair Removal Kit Tools Machine with 100 PCS Paper Strip , Honey Lavender Taste 100g Wax , 110v Us Plug,
-publishedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
----
-
 # [4 in 1 Roll on Refillable Depilatory Wax Heater Waxing Hair Removal Kit Tools Machine with 100 PCS Paper Strip , Honey Lavender Taste 100g Wax , 110v Us Plug](https://products.checkmycream.com/products/4-in-1-Roll-on-Refillable-Depilatory-Wax-Heater-Waxing-Hair-Removal-Kit-Tools-Machine-with-100-PCS-Paper-Strip-Honey-Lavender-Taste-100g-Wax-110v-Us-Plug.html)
 
 ### Positive Reviews

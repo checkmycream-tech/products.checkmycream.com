@@ -1,12 +1,3 @@
----
-title: Mite S Pack - Sulphur Wash, Cream, Ointments &amp; Essential Oils,
-description: Mite S Pack - Sulphur Wash, Cream, Ointments &amp; Essential Oils,
-author: Suvojit Manna,
-tags: Mite S Pack - Sulphur Wash, Cream, Ointments &amp; Essential Oils,
-publishedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
----
-
 # [Mite S Pack - Sulphur Wash, Cream, Ointments &amp; Essential Oils](https://products.checkmycream.com/products/Mite-S-Pack-Sulphur-Wash-Cream-Ointments-and-Essential-Oils.html)
 
 ### Positive Reviews

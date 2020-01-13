@@ -1,12 +1,3 @@
----
-title: Marc Jacons Daisy Luminous Body Lotion 5 ounce,
-description: Marc Jacons Daisy Luminous Body Lotion 5 ounce,
-author: Suvojit Manna,
-tags: Marc Jacons Daisy Luminous Body Lotion 5 ounce,
-publishedAt: Fri Jan 10 2020 14:59:29 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:29 GMT+0530 (India Standard Time),
----
-
 # [Marc Jacons Daisy Luminous Body Lotion 5 ounce](https://products.checkmycream.com/products/Marc-Jacons-Daisy-Luminous-Body-Lotion-5-ounce.html)
 
 ### Positive Reviews

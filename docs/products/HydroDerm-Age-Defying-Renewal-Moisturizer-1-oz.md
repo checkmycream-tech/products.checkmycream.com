@@ -1,12 +1,3 @@
----
-title: HydroDerm Age-Defying Renewal Moisturizer 1 oz,
-description: HydroDerm Age-Defying Renewal Moisturizer 1 oz,
-author: Suvojit Manna,
-tags: HydroDerm Age-Defying Renewal Moisturizer 1 oz,
-publishedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
----
-
 # [HydroDerm Age-Defying Renewal Moisturizer 1 oz](https://products.checkmycream.com/products/HydroDerm-Age-Defying-Renewal-Moisturizer-1-oz.html)
 
 ### Positive Reviews

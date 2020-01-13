@@ -1,12 +1,3 @@
----
-title: Village Naturals Therapy Aches &amp; Pains Tension Relief Mineral Bath Soak 20 Oz (3-pack),
-description: Village Naturals Therapy Aches &amp; Pains Tension Relief Mineral Bath Soak 20 Oz (3-pack),
-author: Suvojit Manna,
-tags: Village Naturals Therapy Aches &amp; Pains Tension Relief Mineral Bath Soak 20 Oz (3-pack),
-publishedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
----
-
 # [Village Naturals Therapy Aches &amp; Pains Tension Relief Mineral Bath Soak 20 Oz (3-pack)](https://products.checkmycream.com/products/Village-Naturals-Therapy-Aches-and-Pains-Tension-Relief-Mineral-Bath-Soak-20-Oz-(3-pack).html)
 
 ### Positive Reviews

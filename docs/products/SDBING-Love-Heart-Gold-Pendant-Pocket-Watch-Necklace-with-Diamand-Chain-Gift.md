@@ -1,12 +1,3 @@
----
-title: SDBING Love Heart Gold Pendant Pocket Watch Necklace with Diamand Chain Gift,
-description: SDBING Love Heart Gold Pendant Pocket Watch Necklace with Diamand Chain Gift,
-author: Suvojit Manna,
-tags: SDBING Love Heart Gold Pendant Pocket Watch Necklace with Diamand Chain Gift,
-publishedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
----
-
 # [SDBING Love Heart Gold Pendant Pocket Watch Necklace with Diamand Chain Gift](https://products.checkmycream.com/products/SDBING-Love-Heart-Gold-Pendant-Pocket-Watch-Necklace-with-Diamand-Chain-Gift.html)
 
 ### Positive Reviews

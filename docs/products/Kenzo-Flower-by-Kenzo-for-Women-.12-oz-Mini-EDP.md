@@ -1,12 +1,3 @@
----
-title: Kenzo Flower by Kenzo for Women, .12 oz Mini EDP,
-description: Kenzo Flower by Kenzo for Women, .12 oz Mini EDP,
-author: Suvojit Manna,
-tags: Kenzo Flower by Kenzo for Women, .12 oz Mini EDP,
-publishedAt: Fri Jan 10 2020 14:59:14 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:14 GMT+0530 (India Standard Time),
----
-
 # [Kenzo Flower by Kenzo for Women, .12 oz Mini EDP](https://products.checkmycream.com/products/Kenzo-Flower-by-Kenzo-for-Women-.12-oz-Mini-EDP.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: TOM&#x27;S OF MAINE Toothpaste Tartar Control/Whitening Peppermint 1 OZ,
-description: TOM&#x27;S OF MAINE Toothpaste Tartar Control/Whitening Peppermint 1 OZ,
-author: Suvojit Manna,
-tags: TOM&#x27;S OF MAINE Toothpaste Tartar Control/Whitening Peppermint 1 OZ,
-publishedAt: Fri Jan 10 2020 14:59:11 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:11 GMT+0530 (India Standard Time),
----
-
 # [TOM&#x27;S OF MAINE Toothpaste Tartar Control/Whitening Peppermint 1 OZ](https://products.checkmycream.com/products/TOM&#x27;S-OF-MAINE-Toothpaste-Tartar-ControlWhitening-Peppermint-1-OZ.html)
 
 ### Positive Reviews

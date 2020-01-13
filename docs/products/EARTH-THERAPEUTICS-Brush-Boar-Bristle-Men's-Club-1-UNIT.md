@@ -1,12 +1,3 @@
----
-title: EARTH THERAPEUTICS Brush Boar Bristle - Men&#x27;s Club 1 UNIT,
-description: EARTH THERAPEUTICS Brush Boar Bristle - Men&#x27;s Club 1 UNIT,
-author: Suvojit Manna,
-tags: EARTH THERAPEUTICS Brush Boar Bristle - Men&#x27;s Club 1 UNIT,
-publishedAt: Fri Jan 10 2020 14:59:14 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:14 GMT+0530 (India Standard Time),
----
-
 # [EARTH THERAPEUTICS Brush Boar Bristle - Men&#x27;s Club 1 UNIT](https://products.checkmycream.com/products/EARTH-THERAPEUTICS-Brush-Boar-Bristle-Men&#x27;s-Club-1-UNIT.html)
 
 ### Positive Reviews

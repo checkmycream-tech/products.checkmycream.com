@@ -1,12 +1,3 @@
----
-title: Revlon Finishing Spray for Synthetic Hair 8oz,
-description: Revlon Finishing Spray for Synthetic Hair 8oz,
-author: Suvojit Manna,
-tags: Revlon Finishing Spray for Synthetic Hair 8oz,
-publishedAt: Fri Jan 10 2020 15:00:07 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:07 GMT+0530 (India Standard Time),
----
-
 # [Revlon Finishing Spray for Synthetic Hair 8oz](https://products.checkmycream.com/products/Revlon-Finishing-Spray-for-Synthetic-Hair-8oz.html)
 
 ### Positive Reviews

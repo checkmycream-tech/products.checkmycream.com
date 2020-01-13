@@ -1,12 +1,3 @@
----
-title: Sealike Bohemia Stylish Crystal Rhinestone Beaded Elastic Headband Hair Band for Girls with Stylus,
-description: Sealike Bohemia Stylish Crystal Rhinestone Beaded Elastic Headband Hair Band for Girls with Stylus,
-author: Suvojit Manna,
-tags: Sealike Bohemia Stylish Crystal Rhinestone Beaded Elastic Headband Hair Band for Girls with Stylus,
-publishedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
----
-
 # [Sealike Bohemia Stylish Crystal Rhinestone Beaded Elastic Headband Hair Band for Girls with Stylus](https://products.checkmycream.com/products/Sealike-Bohemia-Stylish-Crystal-Rhinestone-Beaded-Elastic-Headband-Hair-Band-for-Girls-with-Stylus.html)
 
 ### Positive Reviews

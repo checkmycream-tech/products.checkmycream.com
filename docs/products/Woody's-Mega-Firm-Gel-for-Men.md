@@ -1,12 +1,3 @@
----
-title: Woody&#x27;s Mega Firm Gel for Men,
-description: Woody&#x27;s Mega Firm Gel for Men,
-author: Suvojit Manna,
-tags: Woody&#x27;s Mega Firm Gel for Men,
-publishedAt: Fri Jan 10 2020 14:59:48 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:48 GMT+0530 (India Standard Time),
----
-
 # [Woody&#x27;s Mega Firm Gel for Men](https://products.checkmycream.com/products/Woody&#x27;s-Mega-Firm-Gel-for-Men.html)
 
 ### Positive Reviews

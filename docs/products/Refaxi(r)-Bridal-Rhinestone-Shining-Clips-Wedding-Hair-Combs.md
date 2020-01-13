@@ -1,12 +1,3 @@
----
-title: Refaxi® Bridal Rhinestone Shining Clips Wedding Hair Combs,
-description: Refaxi® Bridal Rhinestone Shining Clips Wedding Hair Combs,
-author: Suvojit Manna,
-tags: Refaxi® Bridal Rhinestone Shining Clips Wedding Hair Combs,
-publishedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
----
-
 # [Refaxi® Bridal Rhinestone Shining Clips Wedding Hair Combs](https://products.checkmycream.com/products/Refaxi(r)-Bridal-Rhinestone-Shining-Clips-Wedding-Hair-Combs.html)
 
 ### Positive Reviews

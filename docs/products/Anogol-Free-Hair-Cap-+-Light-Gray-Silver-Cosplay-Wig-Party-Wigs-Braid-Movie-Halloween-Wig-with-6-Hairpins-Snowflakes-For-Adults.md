@@ -1,12 +1,3 @@
----
-title: Anogol Free Hair Cap + Light Gray Silver Cosplay Wig Party Wigs Braid Movie Halloween Wig with 6 Hairpins Snowflakes For Adults,
-description: Anogol Free Hair Cap + Light Gray Silver Cosplay Wig Party Wigs Braid Movie Halloween Wig with 6 Hairpins Snowflakes For Adults,
-author: Suvojit Manna,
-tags: Anogol Free Hair Cap + Light Gray Silver Cosplay Wig Party Wigs Braid Movie Halloween Wig with 6 Hairpins Snowflakes For Adults,
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [Anogol Free Hair Cap + Light Gray Silver Cosplay Wig Party Wigs Braid Movie Halloween Wig with 6 Hairpins Snowflakes For Adults](https://products.checkmycream.com/products/Anogol-Free-Hair-Cap-+-Light-Gray-Silver-Cosplay-Wig-Party-Wigs-Braid-Movie-Halloween-Wig-with-6-Hairpins-Snowflakes-For-Adults.html)
 
 ### Positive Reviews

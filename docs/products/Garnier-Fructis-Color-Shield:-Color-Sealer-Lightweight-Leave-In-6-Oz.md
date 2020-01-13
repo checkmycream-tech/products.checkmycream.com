@@ -1,12 +1,3 @@
----
-title: Garnier Fructis Color Shield: Color Sealer Lightweight Leave-In 6 Oz,
-description: Garnier Fructis Color Shield: Color Sealer Lightweight Leave-In 6 Oz,
-author: Suvojit Manna,
-tags: Garnier Fructis Color Shield: Color Sealer Lightweight Leave-In 6 Oz,
-publishedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
----
-
 # [Garnier Fructis Color Shield: Color Sealer Lightweight Leave-In 6 Oz](https://products.checkmycream.com/products/Garnier-Fructis-Color-Shield:-Color-Sealer-Lightweight-Leave-In-6-Oz.html)
 
 ### Positive Reviews

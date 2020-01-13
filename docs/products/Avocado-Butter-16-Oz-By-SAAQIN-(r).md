@@ -1,12 +1,3 @@
----
-title: Avocado Butter - 16 Oz By SAAQIN ®,
-description: Avocado Butter - 16 Oz By SAAQIN ®,
-author: Suvojit Manna,
-tags: Avocado Butter - 16 Oz By SAAQIN ®,
-publishedAt: Fri Jan 10 2020 14:59:48 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:48 GMT+0530 (India Standard Time),
----
-
 # [Avocado Butter - 16 Oz By SAAQIN ®](https://products.checkmycream.com/products/Avocado-Butter-16-Oz-By-SAAQIN-(r).html)
 
 ### Positive Reviews

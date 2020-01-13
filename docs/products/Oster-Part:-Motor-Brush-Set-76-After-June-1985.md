@@ -1,12 +1,3 @@
----
-title: Oster Part: Motor Brush Set 76 After June 1985,
-description: Oster Part: Motor Brush Set 76 After June 1985,
-author: Suvojit Manna,
-tags: Oster Part: Motor Brush Set 76 After June 1985,
-publishedAt: Fri Jan 10 2020 14:59:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:00 GMT+0530 (India Standard Time),
----
-
 # [Oster Part: Motor Brush Set 76 After June 1985](https://products.checkmycream.com/products/Oster-Part:-Motor-Brush-Set-76-After-June-1985.html)
 
 ### Positive Reviews

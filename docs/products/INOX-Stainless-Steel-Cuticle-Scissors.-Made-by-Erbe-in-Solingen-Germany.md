@@ -1,12 +1,3 @@
----
-title: INOX Stainless Steel Cuticle Scissors. Made by Erbe in Solingen, Germany,
-description: INOX Stainless Steel Cuticle Scissors. Made by Erbe in Solingen, Germany,
-author: Suvojit Manna,
-tags: INOX Stainless Steel Cuticle Scissors. Made by Erbe in Solingen, Germany,
-publishedAt: Fri Jan 10 2020 14:59:54 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:54 GMT+0530 (India Standard Time),
----
-
 # [INOX Stainless Steel Cuticle Scissors. Made by Erbe in Solingen, Germany](https://products.checkmycream.com/products/INOX-Stainless-Steel-Cuticle-Scissors.-Made-by-Erbe-in-Solingen-Germany.html)
 
 ### Positive Reviews

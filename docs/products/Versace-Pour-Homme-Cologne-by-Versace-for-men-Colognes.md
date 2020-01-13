@@ -1,12 +1,3 @@
----
-title: Versace Pour Homme Cologne by Versace for men Colognes,
-description: Versace Pour Homme Cologne by Versace for men Colognes,
-author: Suvojit Manna,
-tags: Versace Pour Homme Cologne by Versace for men Colognes,
-publishedAt: Fri Jan 10 2020 14:59:32 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:32 GMT+0530 (India Standard Time),
----
-
 # [Versace Pour Homme Cologne by Versace for men Colognes](https://products.checkmycream.com/products/Versace-Pour-Homme-Cologne-by-Versace-for-men-Colognes.html)
 
 ### Positive Reviews

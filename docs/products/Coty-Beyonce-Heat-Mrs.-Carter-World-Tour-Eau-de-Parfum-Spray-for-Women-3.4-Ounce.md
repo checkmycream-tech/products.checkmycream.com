@@ -1,12 +1,3 @@
----
-title: Coty Beyonce Heat Mrs. Carter World Tour Eau de Parfum Spray for Women, 3.4 Ounce,
-description: Coty Beyonce Heat Mrs. Carter World Tour Eau de Parfum Spray for Women, 3.4 Ounce,
-author: Suvojit Manna,
-tags: Coty Beyonce Heat Mrs. Carter World Tour Eau de Parfum Spray for Women, 3.4 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
----
-
 # [Coty Beyonce Heat Mrs. Carter World Tour Eau de Parfum Spray for Women, 3.4 Ounce](https://products.checkmycream.com/products/Coty-Beyonce-Heat-Mrs.-Carter-World-Tour-Eau-de-Parfum-Spray-for-Women-3.4-Ounce.html)
 
 ### Positive Reviews

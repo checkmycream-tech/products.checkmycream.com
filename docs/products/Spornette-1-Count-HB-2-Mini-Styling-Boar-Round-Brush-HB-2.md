@@ -1,12 +1,3 @@
----
-title: Spornette 1 Count HB-2 Mini Styling Boar Round Brush HB-2,
-description: Spornette 1 Count HB-2 Mini Styling Boar Round Brush HB-2,
-author: Suvojit Manna,
-tags: Spornette 1 Count HB-2 Mini Styling Boar Round Brush HB-2,
-publishedAt: Fri Jan 10 2020 14:59:24 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:24 GMT+0530 (India Standard Time),
----
-
 # [Spornette 1 Count HB-2 Mini Styling Boar Round Brush HB-2](https://products.checkmycream.com/products/Spornette-1-Count-HB-2-Mini-Styling-Boar-Round-Brush-HB-2.html)
 
 ### Positive Reviews

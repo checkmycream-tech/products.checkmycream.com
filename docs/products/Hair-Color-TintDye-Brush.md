@@ -1,12 +1,3 @@
----
-title: Hair Color Tint/Dye Brush,
-description: Hair Color Tint/Dye Brush,
-author: Suvojit Manna,
-tags: Hair Color Tint/Dye Brush,
-publishedAt: Fri Jan 10 2020 14:59:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:02 GMT+0530 (India Standard Time),
----
-
 # [Hair Color Tint/Dye Brush](https://products.checkmycream.com/products/Hair-Color-TintDye-Brush.html)
 
 ### Positive Reviews

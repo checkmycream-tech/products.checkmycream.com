@@ -1,12 +1,3 @@
----
-title: Protein 29 Conditioning Hair Groom Clear Gel 3 oz,
-description: Protein 29 Conditioning Hair Groom Clear Gel 3 oz,
-author: Suvojit Manna,
-tags: Protein 29 Conditioning Hair Groom Clear Gel 3 oz,
-publishedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
----
-
 # [Protein 29 Conditioning Hair Groom Clear Gel 3 oz](https://products.checkmycream.com/products/Protein-29-Conditioning-Hair-Groom-Clear-Gel-3-oz.html)
 
 ### Positive Reviews

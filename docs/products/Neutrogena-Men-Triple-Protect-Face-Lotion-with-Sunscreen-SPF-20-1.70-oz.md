@@ -1,12 +1,3 @@
----
-title: Neutrogena Men Triple Protect Face Lotion with Sunscreen SPF 20 1.70 oz,
-description: Neutrogena Men Triple Protect Face Lotion with Sunscreen SPF 20 1.70 oz,
-author: Suvojit Manna,
-tags: Neutrogena Men Triple Protect Face Lotion with Sunscreen SPF 20 1.70 oz,
-publishedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
----
-
 # [Neutrogena Men Triple Protect Face Lotion with Sunscreen SPF 20 1.70 oz](https://products.checkmycream.com/products/Neutrogena-Men-Triple-Protect-Face-Lotion-with-Sunscreen-SPF-20-1.70-oz.html)
 
 ### Positive Reviews

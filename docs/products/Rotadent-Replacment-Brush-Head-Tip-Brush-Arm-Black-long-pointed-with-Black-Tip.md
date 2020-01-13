@@ -1,12 +1,3 @@
----
-title: Rotadent Replacment Brush Head Tip Brush Arm Black long pointed with Black Tip,
-description: Rotadent Replacment Brush Head Tip Brush Arm Black long pointed with Black Tip,
-author: Suvojit Manna,
-tags: Rotadent Replacment Brush Head Tip Brush Arm Black long pointed with Black Tip,
-publishedAt: Fri Jan 10 2020 14:59:21 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:21 GMT+0530 (India Standard Time),
----
-
 # [Rotadent Replacment Brush Head Tip Brush Arm Black long pointed with Black Tip](https://products.checkmycream.com/products/Rotadent-Replacment-Brush-Head-Tip-Brush-Arm-Black-long-pointed-with-Black-Tip.html)
 
 ### Positive Reviews

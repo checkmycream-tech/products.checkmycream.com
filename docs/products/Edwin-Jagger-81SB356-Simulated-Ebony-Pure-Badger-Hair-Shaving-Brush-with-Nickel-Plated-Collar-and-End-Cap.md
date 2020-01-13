@@ -1,12 +1,3 @@
----
-title: Edwin Jagger 81SB356 Simulated Ebony Pure Badger Hair Shaving Brush with Nickel Plated Collar and End Cap,
-description: Edwin Jagger 81SB356 Simulated Ebony Pure Badger Hair Shaving Brush with Nickel Plated Collar and End Cap,
-author: Suvojit Manna,
-tags: Edwin Jagger 81SB356 Simulated Ebony Pure Badger Hair Shaving Brush with Nickel Plated Collar and End Cap,
-publishedAt: Fri Jan 10 2020 14:59:36 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:36 GMT+0530 (India Standard Time),
----
-
 # [Edwin Jagger 81SB356 Simulated Ebony Pure Badger Hair Shaving Brush with Nickel Plated Collar and End Cap](https://products.checkmycream.com/products/Edwin-Jagger-81SB356-Simulated-Ebony-Pure-Badger-Hair-Shaving-Brush-with-Nickel-Plated-Collar-and-End-Cap.html)
 
 ### Positive Reviews

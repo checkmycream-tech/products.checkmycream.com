@@ -1,12 +1,3 @@
----
-title: Festival Boho Hippy Hair Head Band/ Rose Crown/hair Accessory/corsage/red,
-description: Festival Boho Hippy Hair Head Band/ Rose Crown/hair Accessory/corsage/red,
-author: Suvojit Manna,
-tags: Festival Boho Hippy Hair Head Band/ Rose Crown/hair Accessory/corsage/red,
-publishedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
----
-
 # [Festival Boho Hippy Hair Head Band/ Rose Crown/hair Accessory/corsage/red](https://products.checkmycream.com/products/Festival-Boho-Hippy-Hair-Head-Band-Rose-Crownhair-Accessorycorsagered.html)
 
 ### Positive Reviews

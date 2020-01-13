@@ -1,12 +1,3 @@
----
-title: 1PCS SOAK BOWL TRAY NAIL ART WASH SOAKERS Manicure Treatment remover box,
-description: 1PCS SOAK BOWL TRAY NAIL ART WASH SOAKERS Manicure Treatment remover box,
-author: Suvojit Manna,
-tags: 1PCS SOAK BOWL TRAY NAIL ART WASH SOAKERS Manicure Treatment remover box,
-publishedAt: Fri Jan 10 2020 15:00:29 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:29 GMT+0530 (India Standard Time),
----
-
 # [1PCS SOAK BOWL TRAY NAIL ART WASH SOAKERS Manicure Treatment remover box](https://products.checkmycream.com/products/1PCS-SOAK-BOWL-TRAY-NAIL-ART-WASH-SOAKERS-Manicure-Treatment-remover-box.html)
 
 ### Positive Reviews

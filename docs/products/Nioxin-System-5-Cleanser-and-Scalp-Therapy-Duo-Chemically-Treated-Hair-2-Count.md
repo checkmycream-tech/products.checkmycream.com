@@ -1,12 +1,3 @@
----
-title: Nioxin System 5 Cleanser and Scalp Therapy Duo, Chemically Treated Hair, 2 Count,
-description: Nioxin System 5 Cleanser and Scalp Therapy Duo, Chemically Treated Hair, 2 Count,
-author: Suvojit Manna,
-tags: Nioxin System 5 Cleanser and Scalp Therapy Duo, Chemically Treated Hair, 2 Count,
-publishedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
----
-
 # [Nioxin System 5 Cleanser and Scalp Therapy Duo, Chemically Treated Hair, 2 Count](https://products.checkmycream.com/products/Nioxin-System-5-Cleanser-and-Scalp-Therapy-Duo-Chemically-Treated-Hair-2-Count.html)
 
 ### Positive Reviews

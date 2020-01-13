@@ -1,12 +1,3 @@
----
-title: L&#x27;oreal Colour Riche Lipstick, Mulberry 710, 2 Ea,
-description: L&#x27;oreal Colour Riche Lipstick, Mulberry 710, 2 Ea,
-author: Suvojit Manna,
-tags: L&#x27;oreal Colour Riche Lipstick, Mulberry 710, 2 Ea,
-publishedAt: Fri Jan 10 2020 15:00:20 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:20 GMT+0530 (India Standard Time),
----
-
 # [L&#x27;oreal Colour Riche Lipstick, Mulberry 710, 2 Ea](https://products.checkmycream.com/products/L&#x27;oreal-Colour-Riche-Lipstick-Mulberry-710-2-Ea.html)
 
 ### Positive Reviews

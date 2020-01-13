@@ -1,12 +1,3 @@
----
-title: Estee Lauder Estee Lauder White Linen EDP Perfume,
-description: Estee Lauder Estee Lauder White Linen EDP Perfume,
-author: Suvojit Manna,
-tags: Estee Lauder Estee Lauder White Linen EDP Perfume,
-publishedAt: Fri Jan 10 2020 14:59:09 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:09 GMT+0530 (India Standard Time),
----
-
 # [Estee Lauder Estee Lauder White Linen EDP Perfume](https://products.checkmycream.com/products/Estee-Lauder-Estee-Lauder-White-Linen-EDP-Perfume.html)
 
 ### Positive Reviews

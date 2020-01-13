@@ -1,12 +1,3 @@
----
-title: Mixed 40pcs 3/4&quot; Grip Disposable Tattoo Combo Tubes --RL, RS, M1,
-description: Mixed 40pcs 3/4&quot; Grip Disposable Tattoo Combo Tubes --RL, RS, M1,
-author: Suvojit Manna,
-tags: Mixed 40pcs 3/4&quot; Grip Disposable Tattoo Combo Tubes --RL, RS, M1,
-publishedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
----
-
 # [Mixed 40pcs 3/4&quot; Grip Disposable Tattoo Combo Tubes --RL, RS, M1](https://products.checkmycream.com/products/Mixed-40pcs-34&quot;-Grip-Disposable-Tattoo-Combo-Tubes-RL-RS-M1.html)
 
 ### Positive Reviews

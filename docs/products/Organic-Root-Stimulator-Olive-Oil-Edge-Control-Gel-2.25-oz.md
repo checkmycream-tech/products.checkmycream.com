@@ -1,12 +1,3 @@
----
-title: Organic Root Stimulator Olive Oil Edge Control Gel, 2.25 oz,
-description: Organic Root Stimulator Olive Oil Edge Control Gel, 2.25 oz,
-author: Suvojit Manna,
-tags: Organic Root Stimulator Olive Oil Edge Control Gel, 2.25 oz,
-publishedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
----
-
 # [Organic Root Stimulator Olive Oil Edge Control Gel, 2.25 oz](https://products.checkmycream.com/products/Organic-Root-Stimulator-Olive-Oil-Edge-Control-Gel-2.25-oz.html)
 
 ### Positive Reviews

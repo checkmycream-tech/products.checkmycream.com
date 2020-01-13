@@ -1,12 +1,3 @@
----
-title: Shiseido White Lucent Intensive Spot Targeting Serum plus - 30ml-1oz,
-description: Shiseido White Lucent Intensive Spot Targeting Serum plus - 30ml-1oz,
-author: Suvojit Manna,
-tags: Shiseido White Lucent Intensive Spot Targeting Serum plus - 30ml-1oz,
-publishedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
----
-
 # [Shiseido White Lucent Intensive Spot Targeting Serum plus - 30ml-1oz](https://products.checkmycream.com/products/Shiseido-White-Lucent-Intensive-Spot-Targeting-Serum-plus-30ml-1oz.html)
 
 ### Positive Reviews

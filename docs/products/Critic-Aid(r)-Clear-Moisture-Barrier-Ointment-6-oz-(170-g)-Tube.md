@@ -1,12 +1,3 @@
----
-title: Critic-Aid® Clear Moisture Barrier Ointment - 6 oz (170 g) Tube,
-description: Critic-Aid® Clear Moisture Barrier Ointment - 6 oz (170 g) Tube,
-author: Suvojit Manna,
-tags: Critic-Aid® Clear Moisture Barrier Ointment - 6 oz (170 g) Tube,
-publishedAt: Fri Jan 10 2020 14:59:46 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:46 GMT+0530 (India Standard Time),
----
-
 # [Critic-Aid® Clear Moisture Barrier Ointment - 6 oz (170 g) Tube](https://products.checkmycream.com/products/Critic-Aid(r)-Clear-Moisture-Barrier-Ointment-6-oz-(170-g)-Tube.html)
 
 ### Positive Reviews

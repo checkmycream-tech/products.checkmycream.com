@@ -1,12 +1,3 @@
----
-title: Kiloline Professional Heat Resistant Glove for Hair Styling Heat Blocking for Curling, Flat Iron and Curling Wand Suitable for Left and Right Hands,
-description: Kiloline Professional Heat Resistant Glove for Hair Styling Heat Blocking for Curling, Flat Iron and Curling Wand Suitable for Left and Right Hands,
-author: Suvojit Manna,
-tags: Kiloline Professional Heat Resistant Glove for Hair Styling Heat Blocking for Curling, Flat Iron and Curling Wand Suitable for Left and Right Hands,
-publishedAt: Fri Jan 10 2020 15:01:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:08 GMT+0530 (India Standard Time),
----
-
 # [Kiloline Professional Heat Resistant Glove for Hair Styling Heat Blocking for Curling, Flat Iron and Curling Wand Suitable for Left and Right Hands](https://products.checkmycream.com/products/Kiloline-Professional-Heat-Resistant-Glove-for-Hair-Styling-Heat-Blocking-for-Curling-Flat-Iron-and-Curling-Wand-Suitable-for-Left-and-Right-Hands.html)
 
 ### Positive Reviews

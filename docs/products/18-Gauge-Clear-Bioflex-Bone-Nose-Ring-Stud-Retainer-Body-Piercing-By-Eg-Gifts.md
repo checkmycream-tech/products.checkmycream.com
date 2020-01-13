@@ -1,12 +1,3 @@
----
-title: 18 Gauge Clear Bioflex Bone Nose Ring Stud Retainer Body Piercing By Eg Gifts,
-description: 18 Gauge Clear Bioflex Bone Nose Ring Stud Retainer Body Piercing By Eg Gifts,
-author: Suvojit Manna,
-tags: 18 Gauge Clear Bioflex Bone Nose Ring Stud Retainer Body Piercing By Eg Gifts,
-publishedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
----
-
 # [18 Gauge Clear Bioflex Bone Nose Ring Stud Retainer Body Piercing By Eg Gifts](https://products.checkmycream.com/products/18-Gauge-Clear-Bioflex-Bone-Nose-Ring-Stud-Retainer-Body-Piercing-By-Eg-Gifts.html)
 
 ### Positive Reviews

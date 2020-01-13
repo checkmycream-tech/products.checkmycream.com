@@ -1,12 +1,3 @@
----
-title: Oppo Foam Toe Separator &amp; Retractor [6021] 6 Pack,
-description: Oppo Foam Toe Separator &amp; Retractor [6021] 6 Pack,
-author: Suvojit Manna,
-tags: Oppo Foam Toe Separator &amp; Retractor [6021] 6 Pack,
-publishedAt: Fri Jan 10 2020 14:59:30 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:30 GMT+0530 (India Standard Time),
----
-
 # [Oppo Foam Toe Separator &amp; Retractor [6021] 6 Pack](https://products.checkmycream.com/products/Oppo-Foam-Toe-Separator-and-Retractor-6021-6-Pack.html)
 
 ### Positive Reviews

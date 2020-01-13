@@ -1,12 +1,3 @@
----
-title: Batiste Dry Shampoo Original Clean &amp; Classic,
-description: Batiste Dry Shampoo Original Clean &amp; Classic,
-author: Suvojit Manna,
-tags: Batiste Dry Shampoo Original Clean &amp; Classic,
-publishedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
----
-
 # [Batiste Dry Shampoo Original Clean &amp; Classic](https://products.checkmycream.com/products/Batiste-Dry-Shampoo-Original-Clean-and-Classic.html)
 
 ### Positive Reviews

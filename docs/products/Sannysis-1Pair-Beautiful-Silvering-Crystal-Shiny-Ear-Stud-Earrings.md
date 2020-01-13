@@ -1,12 +1,3 @@
----
-title: Sannysis 1Pair Beautiful Silvering Crystal Shiny Ear Stud Earrings,
-description: Sannysis 1Pair Beautiful Silvering Crystal Shiny Ear Stud Earrings,
-author: Suvojit Manna,
-tags: Sannysis 1Pair Beautiful Silvering Crystal Shiny Ear Stud Earrings,
-publishedAt: Fri Jan 10 2020 15:01:04 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:04 GMT+0530 (India Standard Time),
----
-
 # [Sannysis 1Pair Beautiful Silvering Crystal Shiny Ear Stud Earrings](https://products.checkmycream.com/products/Sannysis-1Pair-Beautiful-Silvering-Crystal-Shiny-Ear-Stud-Earrings.html)
 
 ### Positive Reviews

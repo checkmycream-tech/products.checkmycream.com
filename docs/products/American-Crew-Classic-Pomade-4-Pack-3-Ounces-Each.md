@@ -1,12 +1,3 @@
----
-title: American Crew Classic Pomade 4 Pack 3 Ounces Each,
-description: American Crew Classic Pomade 4 Pack 3 Ounces Each,
-author: Suvojit Manna,
-tags: American Crew Classic Pomade 4 Pack 3 Ounces Each,
-publishedAt: Fri Jan 10 2020 14:59:47 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:47 GMT+0530 (India Standard Time),
----
-
 # [American Crew Classic Pomade 4 Pack 3 Ounces Each](https://products.checkmycream.com/products/American-Crew-Classic-Pomade-4-Pack-3-Ounces-Each.html)
 
 ### Positive Reviews

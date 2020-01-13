@@ -1,12 +1,3 @@
----
-title: Vanicream Lite Lotion, Pump, 16 Ounce,
-description: Vanicream Lite Lotion, Pump, 16 Ounce,
-author: Suvojit Manna,
-tags: Vanicream Lite Lotion, Pump, 16 Ounce,
-publishedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
----
-
 # [Vanicream Lite Lotion, Pump, 16 Ounce](https://products.checkmycream.com/products/Vanicream-Lite-Lotion-Pump-16-Ounce.html)
 
 ### Positive Reviews

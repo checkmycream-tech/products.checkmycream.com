@@ -1,12 +1,3 @@
----
-title: Avlon Keracare Edge Tamer, 2.3 Ounce,
-description: Avlon Keracare Edge Tamer, 2.3 Ounce,
-author: Suvojit Manna,
-tags: Avlon Keracare Edge Tamer, 2.3 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
----
-
 # [Avlon Keracare Edge Tamer, 2.3 Ounce](https://products.checkmycream.com/products/Avlon-Keracare-Edge-Tamer-2.3-Ounce.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Ardell Lash Grip Adhesive Clear, 0.25 Ounce,
-description: Ardell Lash Grip Adhesive Clear, 0.25 Ounce,
-author: Suvojit Manna,
-tags: Ardell Lash Grip Adhesive Clear, 0.25 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:13 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:13 GMT+0530 (India Standard Time),
----
-
 # [Ardell Lash Grip Adhesive Clear, 0.25 Ounce](https://products.checkmycream.com/products/Ardell-Lash-Grip-Adhesive-Clear-0.25-Ounce.html)
 
 ### Positive Reviews

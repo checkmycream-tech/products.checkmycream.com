@@ -1,12 +1,3 @@
----
-title: Coty Airspun Loose Powder, Fragrance Free Luminous Translucent, 2.3 Ounce,
-description: Coty Airspun Loose Powder, Fragrance Free Luminous Translucent, 2.3 Ounce,
-author: Suvojit Manna,
-tags: Coty Airspun Loose Powder, Fragrance Free Luminous Translucent, 2.3 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:12 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:12 GMT+0530 (India Standard Time),
----
-
 # [Coty Airspun Loose Powder, Fragrance Free Luminous Translucent, 2.3 Ounce](https://products.checkmycream.com/products/Coty-Airspun-Loose-Powder-Fragrance-Free-Luminous-Translucent-2.3-Ounce.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Diane Foam,
-description: Diane Foam,
-author: Suvojit Manna,
-tags: Diane Foam,
-publishedAt: Fri Jan 10 2020 14:59:59 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:59 GMT+0530 (India Standard Time),
----
-
 # [Diane Foam](https://products.checkmycream.com/products/Diane-Foam.html)
 
 ### Positive Reviews

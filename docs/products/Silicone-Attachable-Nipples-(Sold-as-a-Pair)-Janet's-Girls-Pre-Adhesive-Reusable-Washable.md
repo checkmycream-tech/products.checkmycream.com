@@ -1,12 +1,3 @@
----
-title: Silicone Attachable Nipples (Sold as a Pair) - Janet&#x27;s Girls - Pre Adhesive, Reusable, Washable,
-description: Silicone Attachable Nipples (Sold as a Pair) - Janet&#x27;s Girls - Pre Adhesive, Reusable, Washable,
-author: Suvojit Manna,
-tags: Silicone Attachable Nipples (Sold as a Pair) - Janet&#x27;s Girls - Pre Adhesive, Reusable, Washable,
-publishedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
----
-
 # [Silicone Attachable Nipples (Sold as a Pair) - Janet&#x27;s Girls - Pre Adhesive, Reusable, Washable](https://products.checkmycream.com/products/Silicone-Attachable-Nipples-(Sold-as-a-Pair)-Janet&#x27;s-Girls-Pre-Adhesive-Reusable-Washable.html)
 
 ### Positive Reviews

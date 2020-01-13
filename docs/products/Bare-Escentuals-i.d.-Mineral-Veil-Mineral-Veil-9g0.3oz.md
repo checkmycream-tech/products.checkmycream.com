@@ -1,12 +1,3 @@
----
-title: Bare Escentuals i.d. Mineral Veil - Mineral Veil 9g/0.3oz,
-description: Bare Escentuals i.d. Mineral Veil - Mineral Veil 9g/0.3oz,
-author: Suvojit Manna,
-tags: Bare Escentuals i.d. Mineral Veil - Mineral Veil 9g/0.3oz,
-publishedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
----
-
 # [Bare Escentuals i.d. Mineral Veil - Mineral Veil 9g/0.3oz](https://products.checkmycream.com/products/Bare-Escentuals-i.d.-Mineral-Veil-Mineral-Veil-9g0.3oz.html)
 
 ### Positive Reviews

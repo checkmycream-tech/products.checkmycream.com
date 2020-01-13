@@ -1,12 +1,3 @@
----
-title: kilofly Girls Elastic Hair Band Value Pack [Set of 18], Alice in Wonderland,
-description: kilofly Girls Elastic Hair Band Value Pack [Set of 18], Alice in Wonderland,
-author: Suvojit Manna,
-tags: kilofly Girls Elastic Hair Band Value Pack [Set of 18], Alice in Wonderland,
-publishedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
----
-
 # [kilofly Girls Elastic Hair Band Value Pack [Set of 18], Alice in Wonderland](https://products.checkmycream.com/products/kilofly-Girls-Elastic-Hair-Band-Value-Pack-Set-of-18-Alice-in-Wonderland.html)
 
 ### Positive Reviews

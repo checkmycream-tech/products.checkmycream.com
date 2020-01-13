@@ -1,12 +1,3 @@
----
-title: Sally Hansen Extra Strength Nail Polish Remover,
-description: Sally Hansen Extra Strength Nail Polish Remover,
-author: Suvojit Manna,
-tags: Sally Hansen Extra Strength Nail Polish Remover,
-publishedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
----
-
 # [Sally Hansen Extra Strength Nail Polish Remover](https://products.checkmycream.com/products/Sally-Hansen-Extra-Strength-Nail-Polish-Remover.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Roberto Cavalli by Roberto Cavalli for Women - 2.5 Ounce EDP Spray,
-description: Roberto Cavalli by Roberto Cavalli for Women - 2.5 Ounce EDP Spray,
-author: Suvojit Manna,
-tags: Roberto Cavalli by Roberto Cavalli for Women - 2.5 Ounce EDP Spray,
-publishedAt: Fri Jan 10 2020 14:59:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:05 GMT+0530 (India Standard Time),
----
-
 # [Roberto Cavalli by Roberto Cavalli for Women - 2.5 Ounce EDP Spray](https://products.checkmycream.com/products/Roberto-Cavalli-by-Roberto-Cavalli-for-Women-2.5-Ounce-EDP-Spray.html)
 
 ### Positive Reviews

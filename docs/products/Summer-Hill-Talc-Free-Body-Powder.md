@@ -1,12 +1,3 @@
----
-title: Summer Hill - Talc-Free Body Powder,
-description: Summer Hill - Talc-Free Body Powder,
-author: Suvojit Manna,
-tags: Summer Hill - Talc-Free Body Powder,
-publishedAt: Fri Jan 10 2020 14:59:13 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:13 GMT+0530 (India Standard Time),
----
-
 # [Summer Hill - Talc-Free Body Powder](https://products.checkmycream.com/products/Summer-Hill-Talc-Free-Body-Powder.html)
 
 ### Positive Reviews

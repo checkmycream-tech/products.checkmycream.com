@@ -1,12 +1,3 @@
----
-title: Victoria&#x27;s Secret Bombshell in Paradise NEW Luxurious Body Mist 8.4 Fl Oz,
-description: Victoria&#x27;s Secret Bombshell in Paradise NEW Luxurious Body Mist 8.4 Fl Oz,
-author: Suvojit Manna,
-tags: Victoria&#x27;s Secret Bombshell in Paradise NEW Luxurious Body Mist 8.4 Fl Oz,
-publishedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
----
-
 # [Victoria&#x27;s Secret Bombshell in Paradise NEW Luxurious Body Mist 8.4 Fl Oz](https://products.checkmycream.com/products/Victoria&#x27;s-Secret-Bombshell-in-Paradise-NEW-Luxurious-Body-Mist-8.4-Fl-Oz.html)
 
 ### Positive Reviews

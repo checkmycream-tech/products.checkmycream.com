@@ -1,12 +1,3 @@
----
-title: Andis  Snap-On Blade Attachment Comb, 1/16 Inch,
-description: Andis  Snap-On Blade Attachment Comb, 1/16 Inch,
-author: Suvojit Manna,
-tags: Andis  Snap-On Blade Attachment Comb, 1/16 Inch,
-publishedAt: Fri Jan 10 2020 14:59:52 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:52 GMT+0530 (India Standard Time),
----
-
 # [Andis  Snap-On Blade Attachment Comb, 1/16 Inch](https://products.checkmycream.com/products/Andis-Snap-On-Blade-Attachment-Comb-116-Inch.html)
 
 ### Positive Reviews

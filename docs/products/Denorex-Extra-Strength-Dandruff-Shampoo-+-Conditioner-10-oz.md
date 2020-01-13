@@ -1,12 +1,3 @@
----
-title: Denorex Extra Strength Dandruff Shampoo + Conditioner 10 oz,
-description: Denorex Extra Strength Dandruff Shampoo + Conditioner 10 oz,
-author: Suvojit Manna,
-tags: Denorex Extra Strength Dandruff Shampoo + Conditioner 10 oz,
-publishedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
----
-
 # [Denorex Extra Strength Dandruff Shampoo + Conditioner 10 oz](https://products.checkmycream.com/products/Denorex-Extra-Strength-Dandruff-Shampoo-+-Conditioner-10-oz.html)
 
 ### Positive Reviews

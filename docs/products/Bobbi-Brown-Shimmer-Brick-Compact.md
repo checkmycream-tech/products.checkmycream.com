@@ -1,12 +1,3 @@
----
-title: Bobbi Brown Shimmer Brick Compact,
-description: Bobbi Brown Shimmer Brick Compact,
-author: Suvojit Manna,
-tags: Bobbi Brown Shimmer Brick Compact,
-publishedAt: Fri Jan 10 2020 14:59:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:03 GMT+0530 (India Standard Time),
----
-
 # [Bobbi Brown Shimmer Brick Compact](https://products.checkmycream.com/products/Bobbi-Brown-Shimmer-Brick-Compact.html)
 
 ### Positive Reviews

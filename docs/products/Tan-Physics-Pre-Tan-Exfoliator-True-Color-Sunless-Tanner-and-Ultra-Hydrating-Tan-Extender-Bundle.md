@@ -1,12 +1,3 @@
----
-title: Tan Physics Pre-Tan Exfoliator, True Color Sunless Tanner, &amp; Ultra-Hydrating Tan Extender Bundle,
-description: Tan Physics Pre-Tan Exfoliator, True Color Sunless Tanner, &amp; Ultra-Hydrating Tan Extender Bundle,
-author: Suvojit Manna,
-tags: Tan Physics Pre-Tan Exfoliator, True Color Sunless Tanner, &amp; Ultra-Hydrating Tan Extender Bundle,
-publishedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
----
-
 # [Tan Physics Pre-Tan Exfoliator, True Color Sunless Tanner, &amp; Ultra-Hydrating Tan Extender Bundle](https://products.checkmycream.com/products/Tan-Physics-Pre-Tan-Exfoliator-True-Color-Sunless-Tanner-and-Ultra-Hydrating-Tan-Extender-Bundle.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Barr Co Fine Oatmeal Cream in a Tube 3.4 oz,
-description: Barr Co Fine Oatmeal Cream in a Tube 3.4 oz,
-author: Suvojit Manna,
-tags: Barr Co Fine Oatmeal Cream in a Tube 3.4 oz,
-publishedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
----
-
 # [Barr Co Fine Oatmeal Cream in a Tube 3.4 oz](https://products.checkmycream.com/products/Barr-Co-Fine-Oatmeal-Cream-in-a-Tube-3.4-oz.html)
 
 ### Positive Reviews

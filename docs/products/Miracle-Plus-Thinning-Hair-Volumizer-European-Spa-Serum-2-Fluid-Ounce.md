@@ -1,12 +1,3 @@
----
-title: Miracle Plus Thinning Hair Volumizer European Spa Serum, 2 Fluid Ounce,
-description: Miracle Plus Thinning Hair Volumizer European Spa Serum, 2 Fluid Ounce,
-author: Suvojit Manna,
-tags: Miracle Plus Thinning Hair Volumizer European Spa Serum, 2 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 15:00:32 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:32 GMT+0530 (India Standard Time),
----
-
 # [Miracle Plus Thinning Hair Volumizer European Spa Serum, 2 Fluid Ounce](https://products.checkmycream.com/products/Miracle-Plus-Thinning-Hair-Volumizer-European-Spa-Serum-2-Fluid-Ounce.html)
 
 ### Positive Reviews

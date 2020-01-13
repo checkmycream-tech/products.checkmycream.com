@@ -1,12 +1,3 @@
----
-title: Grip &amp; Tip Nail Polish Holder by Miles Kimball,
-description: Grip &amp; Tip Nail Polish Holder by Miles Kimball,
-author: Suvojit Manna,
-tags: Grip &amp; Tip Nail Polish Holder by Miles Kimball,
-publishedAt: Fri Jan 10 2020 14:59:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:56 GMT+0530 (India Standard Time),
----
-
 # [Grip &amp; Tip Nail Polish Holder by Miles Kimball](https://products.checkmycream.com/products/Grip-and-Tip-Nail-Polish-Holder-by-Miles-Kimball.html)
 
 ### Positive Reviews

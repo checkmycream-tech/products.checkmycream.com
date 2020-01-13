@@ -1,12 +1,3 @@
----
-title: Comic Messenger Bag Cartoon Backpack 2d Drawing 3d Jump Canvas Crossbody Bag,
-description: Comic Messenger Bag Cartoon Backpack 2d Drawing 3d Jump Canvas Crossbody Bag,
-author: Suvojit Manna,
-tags: Comic Messenger Bag Cartoon Backpack 2d Drawing 3d Jump Canvas Crossbody Bag,
-publishedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
----
-
 # [Comic Messenger Bag Cartoon Backpack 2d Drawing 3d Jump Canvas Crossbody Bag](https://products.checkmycream.com/products/Comic-Messenger-Bag-Cartoon-Backpack-2d-Drawing-3d-Jump-Canvas-Crossbody-Bag.html)
 
 ### Positive Reviews

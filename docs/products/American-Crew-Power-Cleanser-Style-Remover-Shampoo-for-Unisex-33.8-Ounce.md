@@ -1,12 +1,3 @@
----
-title: American Crew Power Cleanser Style Remover Shampoo for Unisex, 33.8 Ounce,
-description: American Crew Power Cleanser Style Remover Shampoo for Unisex, 33.8 Ounce,
-author: Suvojit Manna,
-tags: American Crew Power Cleanser Style Remover Shampoo for Unisex, 33.8 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
----
-
 # [American Crew Power Cleanser Style Remover Shampoo for Unisex, 33.8 Ounce](https://products.checkmycream.com/products/American-Crew-Power-Cleanser-Style-Remover-Shampoo-for-Unisex-33.8-Ounce.html)
 
 ### Positive Reviews

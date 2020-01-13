@@ -1,12 +1,3 @@
----
-title: Ckeyin Powerful Rechargeable Electric Washable Foot Spa Smoother /Pedicure Kit /Foot Care Kit /Callus Skin Dead Skin Remover / grinding foot control - Original Retail Package，perfect sweet gift for Christmas,
-description: Ckeyin Powerful Rechargeable Electric Washable Foot Spa Smoother /Pedicure Kit /Foot Care Kit /Callus Skin Dead Skin Remover / grinding foot control - Original Retail Package，perfect sweet gift for Christmas,
-author: Suvojit Manna,
-tags: Ckeyin Powerful Rechargeable Electric Washable Foot Spa Smoother /Pedicure Kit /Foot Care Kit /Callus Skin Dead Skin Remover / grinding foot control - Original Retail Package，perfect sweet gift for Christmas,
-publishedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
----
-
 # [Ckeyin Powerful Rechargeable Electric Washable Foot Spa Smoother /Pedicure Kit /Foot Care Kit /Callus Skin Dead Skin Remover / grinding foot control - Original Retail Package，perfect sweet gift for Christmas](https://products.checkmycream.com/products/Ckeyin-Powerful-Rechargeable-Electric-Washable-Foot-Spa-Smoother-Pedicure-Kit-Foot-Care-Kit-Callus-Skin-Dead-Skin-Remover-grinding-foot-control-Original-Retail-Packageperfect-sweet-gift-for-Christmas.html)
 
 ### Positive Reviews

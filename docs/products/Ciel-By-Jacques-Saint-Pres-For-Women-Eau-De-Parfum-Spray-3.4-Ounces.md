@@ -1,12 +1,3 @@
----
-title: Ciel By Jacques Saint Pres For Women Eau De Parfum Spray, 3.4-Ounces,
-description: Ciel By Jacques Saint Pres For Women Eau De Parfum Spray, 3.4-Ounces,
-author: Suvojit Manna,
-tags: Ciel By Jacques Saint Pres For Women Eau De Parfum Spray, 3.4-Ounces,
-publishedAt: Fri Jan 10 2020 14:59:17 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:17 GMT+0530 (India Standard Time),
----
-
 # [Ciel By Jacques Saint Pres For Women Eau De Parfum Spray, 3.4-Ounces](https://products.checkmycream.com/products/Ciel-By-Jacques-Saint-Pres-For-Women-Eau-De-Parfum-Spray-3.4-Ounces.html)
 
 ### Positive Reviews

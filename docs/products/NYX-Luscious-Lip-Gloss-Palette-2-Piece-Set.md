@@ -1,12 +1,3 @@
----
-title: NYX Luscious Lip Gloss Palette 2 Piece Set,
-description: NYX Luscious Lip Gloss Palette 2 Piece Set,
-author: Suvojit Manna,
-tags: NYX Luscious Lip Gloss Palette 2 Piece Set,
-publishedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
----
-
 # [NYX Luscious Lip Gloss Palette 2 Piece Set](https://products.checkmycream.com/products/NYX-Luscious-Lip-Gloss-Palette-2-Piece-Set.html)
 
 ### Positive Reviews

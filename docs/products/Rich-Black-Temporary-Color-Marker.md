@@ -1,12 +1,3 @@
----
-title: Rich Black Temporary Color Marker,
-description: Rich Black Temporary Color Marker,
-author: Suvojit Manna,
-tags: Rich Black Temporary Color Marker,
-publishedAt: Fri Jan 10 2020 14:59:45 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:45 GMT+0530 (India Standard Time),
----
-
 # [Rich Black Temporary Color Marker](https://products.checkmycream.com/products/Rich-Black-Temporary-Color-Marker.html)
 
 ### Positive Reviews

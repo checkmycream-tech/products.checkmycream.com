@@ -1,12 +1,3 @@
----
-title: Curve Appeal Perfume By Liz Claiborne For Women,
-description: Curve Appeal Perfume By Liz Claiborne For Women,
-author: Suvojit Manna,
-tags: Curve Appeal Perfume By Liz Claiborne For Women,
-publishedAt: Fri Jan 10 2020 15:00:17 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:17 GMT+0530 (India Standard Time),
----
-
 # [Curve Appeal Perfume By Liz Claiborne For Women](https://products.checkmycream.com/products/Curve-Appeal-Perfume-By-Liz-Claiborne-For-Women.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Hot Spa Replacement Paraffin Wax 61551LV,
-description: Hot Spa Replacement Paraffin Wax 61551LV,
-author: Suvojit Manna,
-tags: Hot Spa Replacement Paraffin Wax 61551LV,
-publishedAt: Fri Jan 10 2020 14:59:09 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:09 GMT+0530 (India Standard Time),
----
-
 # [Hot Spa Replacement Paraffin Wax 61551LV](https://products.checkmycream.com/products/Hot-Spa-Replacement-Paraffin-Wax-61551LV.html)
 
 ### Positive Reviews

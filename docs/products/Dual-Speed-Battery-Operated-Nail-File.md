@@ -1,12 +1,3 @@
----
-title: Dual Speed Battery Operated Nail File,
-description: Dual Speed Battery Operated Nail File,
-author: Suvojit Manna,
-tags: Dual Speed Battery Operated Nail File,
-publishedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
----
-
 # [Dual Speed Battery Operated Nail File](https://products.checkmycream.com/products/Dual-Speed-Battery-Operated-Nail-File.html)
 
 ### Positive Reviews

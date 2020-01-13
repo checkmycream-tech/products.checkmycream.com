@@ -1,12 +1,3 @@
----
-title: Estee Lauder Perfectionist CP+R Wrinkle Lifting Serum 3*0.24oz (total 0.72 oz/21 ml)(new!!!),
-description: Estee Lauder Perfectionist CP+R Wrinkle Lifting Serum 3*0.24oz (total 0.72 oz/21 ml)(new!!!),
-author: Suvojit Manna,
-tags: Estee Lauder Perfectionist CP+R Wrinkle Lifting Serum 3*0.24oz (total 0.72 oz/21 ml)(new!!!),
-publishedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
----
-
 # [Estee Lauder Perfectionist CP+R Wrinkle Lifting Serum 3*0.24oz (total 0.72 oz/21 ml)(new!!!)](https://products.checkmycream.com/products/Estee-Lauder-Perfectionist-CP+R-Wrinkle-Lifting-Serum-3*0.24oz-(total-0.72-oz21-ml)(new!!!).html)
 
 ### Positive Reviews

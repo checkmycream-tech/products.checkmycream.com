@@ -1,12 +1,3 @@
----
-title: Ammonium Lactate Lotion 12%C-P , Fliptop - (400grams/14oz),
-description: Ammonium Lactate Lotion 12%C-P , Fliptop - (400grams/14oz),
-author: Suvojit Manna,
-tags: Ammonium Lactate Lotion 12%C-P , Fliptop - (400grams/14oz),
-publishedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
----
-
 # [Ammonium Lactate Lotion 12%C-P , Fliptop - (400grams/14oz)](https://products.checkmycream.com/products/Ammonium-Lactate-Lotion-12percentC-P-Fliptop-(400grams14oz).html)
 
 ### Positive Reviews

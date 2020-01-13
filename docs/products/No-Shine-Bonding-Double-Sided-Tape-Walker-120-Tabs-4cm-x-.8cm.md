@@ -1,12 +1,3 @@
----
-title: No Shine Bonding Double Sided Tape Walker 120 Tabs 4cm x .8cm,
-description: No Shine Bonding Double Sided Tape Walker 120 Tabs 4cm x .8cm,
-author: Suvojit Manna,
-tags: No Shine Bonding Double Sided Tape Walker 120 Tabs 4cm x .8cm,
-publishedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
----
-
 # [No Shine Bonding Double Sided Tape Walker 120 Tabs 4cm x .8cm](https://products.checkmycream.com/products/No-Shine-Bonding-Double-Sided-Tape-Walker-120-Tabs-4cm-x-.8cm.html)
 
 ### Positive Reviews

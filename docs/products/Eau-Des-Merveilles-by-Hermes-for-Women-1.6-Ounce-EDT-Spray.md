@@ -1,12 +1,3 @@
----
-title: Eau Des Merveilles by Hermes for Women - 1.6 Ounce EDT Spray,
-description: Eau Des Merveilles by Hermes for Women - 1.6 Ounce EDT Spray,
-author: Suvojit Manna,
-tags: Eau Des Merveilles by Hermes for Women - 1.6 Ounce EDT Spray,
-publishedAt: Fri Jan 10 2020 14:59:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:05 GMT+0530 (India Standard Time),
----
-
 # [Eau Des Merveilles by Hermes for Women - 1.6 Ounce EDT Spray](https://products.checkmycream.com/products/Eau-Des-Merveilles-by-Hermes-for-Women-1.6-Ounce-EDT-Spray.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Opi Nail Polish Aphrodite&#x27;s Pink Nightie NLG01,
-description: Opi Nail Polish Aphrodite&#x27;s Pink Nightie NLG01,
-author: Suvojit Manna,
-tags: Opi Nail Polish Aphrodite&#x27;s Pink Nightie NLG01,
-publishedAt: Fri Jan 10 2020 14:59:23 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:23 GMT+0530 (India Standard Time),
----
-
 # [Opi Nail Polish Aphrodite&#x27;s Pink Nightie NLG01](https://products.checkmycream.com/products/Opi-Nail-Polish-Aphrodite&#x27;s-Pink-Nightie-NLG01.html)
 
 ### Positive Reviews

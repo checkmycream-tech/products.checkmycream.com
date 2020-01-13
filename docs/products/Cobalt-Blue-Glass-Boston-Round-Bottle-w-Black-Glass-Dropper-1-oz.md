@@ -1,12 +1,3 @@
----
-title: Cobalt Blue Glass Boston Round Bottle w/ Black Glass Dropper 1 oz,
-description: Cobalt Blue Glass Boston Round Bottle w/ Black Glass Dropper 1 oz,
-author: Suvojit Manna,
-tags: Cobalt Blue Glass Boston Round Bottle w/ Black Glass Dropper 1 oz,
-publishedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
----
-
 # [Cobalt Blue Glass Boston Round Bottle w/ Black Glass Dropper 1 oz](https://products.checkmycream.com/products/Cobalt-Blue-Glass-Boston-Round-Bottle-w-Black-Glass-Dropper-1-oz.html)
 
 ### Positive Reviews

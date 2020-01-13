@@ -1,12 +1,3 @@
----
-title: Professional Cosmetic Brush Set Beauty Makeup Kit + PU Leather Pouch,
-description: Professional Cosmetic Brush Set Beauty Makeup Kit + PU Leather Pouch,
-author: Suvojit Manna,
-tags: Professional Cosmetic Brush Set Beauty Makeup Kit + PU Leather Pouch,
-publishedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
----
-
 # [Professional Cosmetic Brush Set Beauty Makeup Kit + PU Leather Pouch](https://products.checkmycream.com/products/Professional-Cosmetic-Brush-Set-Beauty-Makeup-Kit-+-PU-Leather-Pouch.html)
 
 ### Positive Reviews

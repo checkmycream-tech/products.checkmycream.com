@@ -1,12 +1,3 @@
----
-title: Extra Virgin Siberian Pine Nut Oil 3.4 fl oz/100 ml,
-description: Extra Virgin Siberian Pine Nut Oil 3.4 fl oz/100 ml,
-author: Suvojit Manna,
-tags: Extra Virgin Siberian Pine Nut Oil 3.4 fl oz/100 ml,
-publishedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
----
-
 # [Extra Virgin Siberian Pine Nut Oil 3.4 fl oz/100 ml](https://products.checkmycream.com/products/Extra-Virgin-Siberian-Pine-Nut-Oil-3.4-fl-oz100-ml.html)
 
 ### Positive Reviews

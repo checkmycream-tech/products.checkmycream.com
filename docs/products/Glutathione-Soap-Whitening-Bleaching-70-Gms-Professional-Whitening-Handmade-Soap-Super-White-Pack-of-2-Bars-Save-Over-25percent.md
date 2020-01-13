@@ -1,12 +1,3 @@
----
-title: Glutathione Soap Whitening Bleaching 70 Gms Professional Whitening Handmade Soap Super White Pack of 2 Bars Save Over 25%,
-description: Glutathione Soap Whitening Bleaching 70 Gms Professional Whitening Handmade Soap Super White Pack of 2 Bars Save Over 25%,
-author: Suvojit Manna,
-tags: Glutathione Soap Whitening Bleaching 70 Gms Professional Whitening Handmade Soap Super White Pack of 2 Bars Save Over 25%,
-publishedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
----
-
 # [Glutathione Soap Whitening Bleaching 70 Gms Professional Whitening Handmade Soap Super White Pack of 2 Bars Save Over 25%](https://products.checkmycream.com/products/Glutathione-Soap-Whitening-Bleaching-70-Gms-Professional-Whitening-Handmade-Soap-Super-White-Pack-of-2-Bars-Save-Over-25percent.html)
 
 ### Positive Reviews

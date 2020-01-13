@@ -1,12 +1,3 @@
----
-title: 5 Sheets Fashion Body Art Stickers Removable Waterproof Temporary Tattoo - Patten Type: Wings, Letters, Cats, Totem, Cardiogram Hot - FZPSZH01001 by Sophiababywang,
-description: 5 Sheets Fashion Body Art Stickers Removable Waterproof Temporary Tattoo - Patten Type: Wings, Letters, Cats, Totem, Cardiogram Hot - FZPSZH01001 by Sophiababywang,
-author: Suvojit Manna,
-tags: 5 Sheets Fashion Body Art Stickers Removable Waterproof Temporary Tattoo - Patten Type: Wings, Letters, Cats, Totem, Cardiogram Hot - FZPSZH01001 by Sophiababywang,
-publishedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
----
-
 # [5 Sheets Fashion Body Art Stickers Removable Waterproof Temporary Tattoo - Patten Type: Wings, Letters, Cats, Totem, Cardiogram Hot - FZPSZH01001 by Sophiababywang](https://products.checkmycream.com/products/5-Sheets-Fashion-Body-Art-Stickers-Removable-Waterproof-Temporary-Tattoo-Patten-Type:-Wings-Letters-Cats-Totem-Cardiogram-Hot-FZPSZH01001-by-Sophiababywang.html)
 
 ### Positive Reviews

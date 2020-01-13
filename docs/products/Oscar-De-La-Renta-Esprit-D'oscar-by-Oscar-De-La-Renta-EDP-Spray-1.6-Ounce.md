@@ -1,12 +1,3 @@
----
-title: Oscar De La Renta Esprit D&#x27;oscar by Oscar De La Renta EDP Spray, 1.6 Ounce,
-description: Oscar De La Renta Esprit D&#x27;oscar by Oscar De La Renta EDP Spray, 1.6 Ounce,
-author: Suvojit Manna,
-tags: Oscar De La Renta Esprit D&#x27;oscar by Oscar De La Renta EDP Spray, 1.6 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:06 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:06 GMT+0530 (India Standard Time),
----
-
 # [Oscar De La Renta Esprit D&#x27;oscar by Oscar De La Renta EDP Spray, 1.6 Ounce](https://products.checkmycream.com/products/Oscar-De-La-Renta-Esprit-D&#x27;oscar-by-Oscar-De-La-Renta-EDP-Spray-1.6-Ounce.html)
 
 ### Positive Reviews

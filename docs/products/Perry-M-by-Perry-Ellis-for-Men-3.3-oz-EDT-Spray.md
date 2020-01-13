@@ -1,12 +1,3 @@
----
-title: Perry M by Perry Ellis for Men - 3.3 oz EDT Spray,
-description: Perry M by Perry Ellis for Men - 3.3 oz EDT Spray,
-author: Suvojit Manna,
-tags: Perry M by Perry Ellis for Men - 3.3 oz EDT Spray,
-publishedAt: Fri Jan 10 2020 14:59:14 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:14 GMT+0530 (India Standard Time),
----
-
 # [Perry M by Perry Ellis for Men - 3.3 oz EDT Spray](https://products.checkmycream.com/products/Perry-M-by-Perry-Ellis-for-Men-3.3-oz-EDT-Spray.html)
 
 ### Positive Reviews

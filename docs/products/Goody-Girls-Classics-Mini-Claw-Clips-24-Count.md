@@ -1,12 +1,3 @@
----
-title: Goody Girls Classics Mini Claw Clips, 24 Count,
-description: Goody Girls Classics Mini Claw Clips, 24 Count,
-author: Suvojit Manna,
-tags: Goody Girls Classics Mini Claw Clips, 24 Count,
-publishedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
----
-
 # [Goody Girls Classics Mini Claw Clips, 24 Count](https://products.checkmycream.com/products/Goody-Girls-Classics-Mini-Claw-Clips-24-Count.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Hempz Spun Sugar &amp; Vanilla Bean Herbal Body Moisturizer, 17ounce,
-description: Hempz Spun Sugar &amp; Vanilla Bean Herbal Body Moisturizer, 17ounce,
-author: Suvojit Manna,
-tags: Hempz Spun Sugar &amp; Vanilla Bean Herbal Body Moisturizer, 17ounce,
-publishedAt: Fri Jan 10 2020 15:01:06 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:06 GMT+0530 (India Standard Time),
----
-
 # [Hempz Spun Sugar &amp; Vanilla Bean Herbal Body Moisturizer, 17ounce](https://products.checkmycream.com/products/Hempz-Spun-Sugar-and-Vanilla-Bean-Herbal-Body-Moisturizer-17ounce.html)
 
 ### Positive Reviews

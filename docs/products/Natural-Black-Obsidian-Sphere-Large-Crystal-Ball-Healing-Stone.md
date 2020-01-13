@@ -1,12 +1,3 @@
----
-title: Natural Black Obsidian Sphere Large Crystal Ball Healing Stone,
-description: Natural Black Obsidian Sphere Large Crystal Ball Healing Stone,
-author: Suvojit Manna,
-tags: Natural Black Obsidian Sphere Large Crystal Ball Healing Stone,
-publishedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
----
-
 # [Natural Black Obsidian Sphere Large Crystal Ball Healing Stone](https://products.checkmycream.com/products/Natural-Black-Obsidian-Sphere-Large-Crystal-Ball-Healing-Stone.html)
 
 ### Positive Reviews

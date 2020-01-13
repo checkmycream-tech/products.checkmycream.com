@@ -1,12 +1,3 @@
----
-title: Andis Cord for T-Outliner Clippers,
-description: Andis Cord for T-Outliner Clippers,
-author: Suvojit Manna,
-tags: Andis Cord for T-Outliner Clippers,
-publishedAt: Fri Jan 10 2020 14:59:29 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:29 GMT+0530 (India Standard Time),
----
-
 # [Andis Cord for T-Outliner Clippers](https://products.checkmycream.com/products/Andis-Cord-for-T-Outliner-Clippers.html)
 
 ### Positive Reviews

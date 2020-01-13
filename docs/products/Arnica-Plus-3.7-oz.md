@@ -1,12 +1,3 @@
----
-title: Arnica Plus - 3.7 oz,
-description: Arnica Plus - 3.7 oz,
-author: Suvojit Manna,
-tags: Arnica Plus - 3.7 oz,
-publishedAt: Fri Jan 10 2020 14:59:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:03 GMT+0530 (India Standard Time),
----
-
 # [Arnica Plus - 3.7 oz](https://products.checkmycream.com/products/Arnica-Plus-3.7-oz.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Banyan Botanicals Ayurvedic Tongue Cleaner Scraper - Stainless Steel - Tridoshic - Made in the USA - Reduces toxin buildup and bacteria on the tongue,
-description: Banyan Botanicals Ayurvedic Tongue Cleaner Scraper - Stainless Steel - Tridoshic - Made in the USA - Reduces toxin buildup and bacteria on the tongue,
-author: Suvojit Manna,
-tags: Banyan Botanicals Ayurvedic Tongue Cleaner Scraper - Stainless Steel - Tridoshic - Made in the USA - Reduces toxin buildup and bacteria on the tongue,
-publishedAt: Fri Jan 10 2020 14:59:13 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:13 GMT+0530 (India Standard Time),
----
-
 # [Banyan Botanicals Ayurvedic Tongue Cleaner Scraper - Stainless Steel - Tridoshic - Made in the USA - Reduces toxin buildup and bacteria on the tongue](https://products.checkmycream.com/products/Banyan-Botanicals-Ayurvedic-Tongue-Cleaner-Scraper-Stainless-Steel-Tridoshic-Made-in-the-USA-Reduces-toxin-buildup-and-bacteria-on-the-tongue.html)
 
 ### Positive Reviews

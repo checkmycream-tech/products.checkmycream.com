@@ -1,12 +1,3 @@
----
-title: 3 in 1 Upper Lower Lash Mascara Applicator Guide Eyelash Comb B0228,
-description: 3 in 1 Upper Lower Lash Mascara Applicator Guide Eyelash Comb B0228,
-author: Suvojit Manna,
-tags: 3 in 1 Upper Lower Lash Mascara Applicator Guide Eyelash Comb B0228,
-publishedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
----
-
 # [3 in 1 Upper Lower Lash Mascara Applicator Guide Eyelash Comb B0228](https://products.checkmycream.com/products/3-in-1-Upper-Lower-Lash-Mascara-Applicator-Guide-Eyelash-Comb-B0228.html)
 
 ### Positive Reviews

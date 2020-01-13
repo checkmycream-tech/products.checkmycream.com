@@ -1,12 +1,3 @@
----
-title: Arbonne Arbonne FC5 Mattifying Powder, 0.25 Ounce,
-description: Arbonne Arbonne FC5 Mattifying Powder, 0.25 Ounce,
-author: Suvojit Manna,
-tags: Arbonne Arbonne FC5 Mattifying Powder, 0.25 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:32 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:32 GMT+0530 (India Standard Time),
----
-
 # [Arbonne Arbonne FC5 Mattifying Powder, 0.25 Ounce](https://products.checkmycream.com/products/Arbonne-Arbonne-FC5-Mattifying-Powder-0.25-Ounce.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Clinique Face Cream SPF 50 with Solar Smart, 1.7 Ounce,
-description: Clinique Face Cream SPF 50 with Solar Smart, 1.7 Ounce,
-author: Suvojit Manna,
-tags: Clinique Face Cream SPF 50 with Solar Smart, 1.7 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:38 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:38 GMT+0530 (India Standard Time),
----
-
 # [Clinique Face Cream SPF 50 with Solar Smart, 1.7 Ounce](https://products.checkmycream.com/products/Clinique-Face-Cream-SPF-50-with-Solar-Smart-1.7-Ounce.html)
 
 ### Positive Reviews

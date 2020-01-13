@@ -1,12 +1,3 @@
----
-title: Bon Jovi&#x27;s Unplugged For Her Eau de Parfum Spray 1.7 fl oz.,
-description: Bon Jovi&#x27;s Unplugged For Her Eau de Parfum Spray 1.7 fl oz.,
-author: Suvojit Manna,
-tags: Bon Jovi&#x27;s Unplugged For Her Eau de Parfum Spray 1.7 fl oz.,
-publishedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
----
-
 # [Bon Jovi&#x27;s Unplugged For Her Eau de Parfum Spray 1.7 fl oz.](https://products.checkmycream.com/products/Bon-Jovi&#x27;s-Unplugged-For-Her-Eau-de-Parfum-Spray-1.7-fl-oz..html)
 
 ### Positive Reviews

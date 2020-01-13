@@ -1,12 +1,3 @@
----
-title: Bestpriceam (Tm) Fashion Women Bang Bang Multilayer Pendant Chain Statement Necklace,
-description: Bestpriceam (Tm) Fashion Women Bang Bang Multilayer Pendant Chain Statement Necklace,
-author: Suvojit Manna,
-tags: Bestpriceam (Tm) Fashion Women Bang Bang Multilayer Pendant Chain Statement Necklace,
-publishedAt: Fri Jan 10 2020 15:01:07 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:07 GMT+0530 (India Standard Time),
----
-
 # [Bestpriceam (Tm) Fashion Women Bang Bang Multilayer Pendant Chain Statement Necklace](https://products.checkmycream.com/products/Bestpriceam-(Tm)-Fashion-Women-Bang-Bang-Multilayer-Pendant-Chain-Statement-Necklace.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Seacret Moisturizing Face Cream for Normal to Dry Skin 1.7 Oz Blue Box with Minerals From the Dead Sea Paraben Free,
-description: Seacret Moisturizing Face Cream for Normal to Dry Skin 1.7 Oz Blue Box with Minerals From the Dead Sea Paraben Free,
-author: Suvojit Manna,
-tags: Seacret Moisturizing Face Cream for Normal to Dry Skin 1.7 Oz Blue Box with Minerals From the Dead Sea Paraben Free,
-publishedAt: Fri Jan 10 2020 14:59:44 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:44 GMT+0530 (India Standard Time),
----
-
 # [Seacret Moisturizing Face Cream for Normal to Dry Skin 1.7 Oz Blue Box with Minerals From the Dead Sea Paraben Free](https://products.checkmycream.com/products/Seacret-Moisturizing-Face-Cream-for-Normal-to-Dry-Skin-1.7-Oz-Blue-Box-with-Minerals-From-the-Dead-Sea-Paraben-Free.html)
 
 ### Positive Reviews

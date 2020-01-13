@@ -1,12 +1,3 @@
----
-title: Eveline Slim Extreme 3D Intensive Treatment for Firming Cellulite Serum, 8.8 Fluid Ounce,
-description: Eveline Slim Extreme 3D Intensive Treatment for Firming Cellulite Serum, 8.8 Fluid Ounce,
-author: Suvojit Manna,
-tags: Eveline Slim Extreme 3D Intensive Treatment for Firming Cellulite Serum, 8.8 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [Eveline Slim Extreme 3D Intensive Treatment for Firming Cellulite Serum, 8.8 Fluid Ounce](https://products.checkmycream.com/products/Eveline-Slim-Extreme-3D-Intensive-Treatment-for-Firming-Cellulite-Serum-8.8-Fluid-Ounce.html)
 
 ### Positive Reviews

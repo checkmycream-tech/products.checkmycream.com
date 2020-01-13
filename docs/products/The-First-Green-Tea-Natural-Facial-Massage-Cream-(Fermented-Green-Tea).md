@@ -1,12 +1,3 @@
----
-title: The First Green Tea Natural Facial Massage Cream (Fermented Green Tea),
-description: The First Green Tea Natural Facial Massage Cream (Fermented Green Tea),
-author: Suvojit Manna,
-tags: The First Green Tea Natural Facial Massage Cream (Fermented Green Tea),
-publishedAt: Fri Jan 10 2020 15:00:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:01 GMT+0530 (India Standard Time),
----
-
 # [The First Green Tea Natural Facial Massage Cream (Fermented Green Tea)](https://products.checkmycream.com/products/The-First-Green-Tea-Natural-Facial-Massage-Cream-(Fermented-Green-Tea).html)
 
 ### Positive Reviews

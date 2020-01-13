@@ -1,12 +1,3 @@
----
-title: Hot Chili Body Slimming Gel Cream By Yilibalo (85ml),
-description: Hot Chili Body Slimming Gel Cream By Yilibalo (85ml),
-author: Suvojit Manna,
-tags: Hot Chili Body Slimming Gel Cream By Yilibalo (85ml),
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [Hot Chili Body Slimming Gel Cream By Yilibalo (85ml)](https://products.checkmycream.com/products/Hot-Chili-Body-Slimming-Gel-Cream-By-Yilibalo-(85ml).html)
 
 ### Positive Reviews

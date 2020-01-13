@@ -1,12 +1,3 @@
----
-title: NYX PROFESSIONAL MAKEUP Soft Matte Lip Cream,
-description: NYX PROFESSIONAL MAKEUP Soft Matte Lip Cream,
-author: Suvojit Manna,
-tags: NYX PROFESSIONAL MAKEUP Soft Matte Lip Cream,
-publishedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
----
-
 # [NYX PROFESSIONAL MAKEUP Soft Matte Lip Cream](https://products.checkmycream.com/products/NYX-PROFESSIONAL-MAKEUP-Soft-Matte-Lip-Cream.html)
 
 ### Positive Reviews

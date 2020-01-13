@@ -1,12 +1,3 @@
----
-title: Mary Kay TimeWise Luminous Wear Liquid Foundation, Beige 2,
-description: Mary Kay TimeWise Luminous Wear Liquid Foundation, Beige 2,
-author: Suvojit Manna,
-tags: Mary Kay TimeWise Luminous Wear Liquid Foundation, Beige 2,
-publishedAt: Fri Jan 10 2020 15:00:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:08 GMT+0530 (India Standard Time),
----
-
 # [Mary Kay TimeWise Luminous Wear Liquid Foundation, Beige 2](https://products.checkmycream.com/products/Mary-Kay-TimeWise-Luminous-Wear-Liquid-Foundation-Beige-2.html)
 
 ### Positive Reviews

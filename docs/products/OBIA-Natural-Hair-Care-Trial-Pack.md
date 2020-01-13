@@ -1,12 +1,3 @@
----
-title: OBIA Natural Hair Care Trial Pack,
-description: OBIA Natural Hair Care Trial Pack,
-author: Suvojit Manna,
-tags: OBIA Natural Hair Care Trial Pack,
-publishedAt: Fri Jan 10 2020 15:00:38 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:38 GMT+0530 (India Standard Time),
----
-
 # [OBIA Natural Hair Care Trial Pack](https://products.checkmycream.com/products/OBIA-Natural-Hair-Care-Trial-Pack.html)
 
 ### Positive Reviews

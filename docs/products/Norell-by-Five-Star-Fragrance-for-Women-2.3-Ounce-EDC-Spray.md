@@ -1,12 +1,3 @@
----
-title: Norell by Five Star Fragrance for Women - 2.3 Ounce EDC Spray,
-description: Norell by Five Star Fragrance for Women - 2.3 Ounce EDC Spray,
-author: Suvojit Manna,
-tags: Norell by Five Star Fragrance for Women - 2.3 Ounce EDC Spray,
-publishedAt: Fri Jan 10 2020 14:59:24 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:24 GMT+0530 (India Standard Time),
----
-
 # [Norell by Five Star Fragrance for Women - 2.3 Ounce EDC Spray](https://products.checkmycream.com/products/Norell-by-Five-Star-Fragrance-for-Women-2.3-Ounce-EDC-Spray.html)
 
 ### Positive Reviews

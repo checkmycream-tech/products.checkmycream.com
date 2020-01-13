@@ -1,12 +1,3 @@
----
-title: Nespresso: Decaffeinato Lungo, 20 Count,
-description: Nespresso: Decaffeinato Lungo, 20 Count,
-author: Suvojit Manna,
-tags: Nespresso: Decaffeinato Lungo, 20 Count,
-publishedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
----
-
 # [Nespresso: Decaffeinato Lungo, 20 Count](https://products.checkmycream.com/products/Nespresso:-Decaffeinato-Lungo-20-Count.html)
 
 ### Positive Reviews

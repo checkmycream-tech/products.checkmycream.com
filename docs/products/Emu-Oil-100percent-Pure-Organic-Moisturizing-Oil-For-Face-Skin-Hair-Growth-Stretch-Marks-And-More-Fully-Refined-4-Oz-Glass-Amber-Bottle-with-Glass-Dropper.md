@@ -1,12 +1,3 @@
----
-title: Emu Oil 100% Pure Organic Moisturizing Oil For Face Skin Hair Growth Stretch Marks And More Fully Refined 4 Oz Glass Amber Bottle with Glass Dropper,
-description: Emu Oil 100% Pure Organic Moisturizing Oil For Face Skin Hair Growth Stretch Marks And More Fully Refined 4 Oz Glass Amber Bottle with Glass Dropper,
-author: Suvojit Manna,
-tags: Emu Oil 100% Pure Organic Moisturizing Oil For Face Skin Hair Growth Stretch Marks And More Fully Refined 4 Oz Glass Amber Bottle with Glass Dropper,
-publishedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
----
-
 # [Emu Oil 100% Pure Organic Moisturizing Oil For Face Skin Hair Growth Stretch Marks And More Fully Refined 4 Oz Glass Amber Bottle with Glass Dropper](https://products.checkmycream.com/products/Emu-Oil-100percent-Pure-Organic-Moisturizing-Oil-For-Face-Skin-Hair-Growth-Stretch-Marks-And-More-Fully-Refined-4-Oz-Glass-Amber-Bottle-with-Glass-Dropper.html)
 
 ### Positive Reviews

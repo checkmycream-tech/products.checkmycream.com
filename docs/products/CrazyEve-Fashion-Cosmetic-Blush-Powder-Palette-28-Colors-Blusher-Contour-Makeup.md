@@ -1,12 +1,3 @@
----
-title: CrazyEve Fashion Cosmetic Blush Powder Palette 28 Colors Blusher Contour Makeup,
-description: CrazyEve Fashion Cosmetic Blush Powder Palette 28 Colors Blusher Contour Makeup,
-author: Suvojit Manna,
-tags: CrazyEve Fashion Cosmetic Blush Powder Palette 28 Colors Blusher Contour Makeup,
-publishedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
----
-
 # [CrazyEve Fashion Cosmetic Blush Powder Palette 28 Colors Blusher Contour Makeup](https://products.checkmycream.com/products/CrazyEve-Fashion-Cosmetic-Blush-Powder-Palette-28-Colors-Blusher-Contour-Makeup.html)
 
 ### Positive Reviews

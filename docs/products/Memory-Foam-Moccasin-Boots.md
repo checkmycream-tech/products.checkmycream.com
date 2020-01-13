@@ -1,12 +1,3 @@
----
-title: Memory Foam Moccasin Boots,
-description: Memory Foam Moccasin Boots,
-author: Suvojit Manna,
-tags: Memory Foam Moccasin Boots,
-publishedAt: Fri Jan 10 2020 15:00:37 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:37 GMT+0530 (India Standard Time),
----
-
 # [Memory Foam Moccasin Boots](https://products.checkmycream.com/products/Memory-Foam-Moccasin-Boots.html)
 
 ### Positive Reviews

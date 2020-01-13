@@ -1,12 +1,3 @@
----
-title: Revlon Box Files Nail Files, 6 count,
-description: Revlon Box Files Nail Files, 6 count,
-author: Suvojit Manna,
-tags: Revlon Box Files Nail Files, 6 count,
-publishedAt: Fri Jan 10 2020 15:00:16 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:16 GMT+0530 (India Standard Time),
----
-
 # [Revlon Box Files Nail Files, 6 count](https://products.checkmycream.com/products/Revlon-Box-Files-Nail-Files-6-count.html)
 
 ### Positive Reviews

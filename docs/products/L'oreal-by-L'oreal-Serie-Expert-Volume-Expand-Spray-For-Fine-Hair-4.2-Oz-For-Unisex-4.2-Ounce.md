@@ -1,12 +1,3 @@
----
-title: L&#x27;oreal by L&#x27;oreal Serie Expert Volume Expand Spray For Fine Hair 4.2 Oz For Unisex, 4.2 Ounce,
-description: L&#x27;oreal by L&#x27;oreal Serie Expert Volume Expand Spray For Fine Hair 4.2 Oz For Unisex, 4.2 Ounce,
-author: Suvojit Manna,
-tags: L&#x27;oreal by L&#x27;oreal Serie Expert Volume Expand Spray For Fine Hair 4.2 Oz For Unisex, 4.2 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:21 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:21 GMT+0530 (India Standard Time),
----
-
 # [L&#x27;oreal by L&#x27;oreal Serie Expert Volume Expand Spray For Fine Hair 4.2 Oz For Unisex, 4.2 Ounce](https://products.checkmycream.com/products/L&#x27;oreal-by-L&#x27;oreal-Serie-Expert-Volume-Expand-Spray-For-Fine-Hair-4.2-Oz-For-Unisex-4.2-Ounce.html)
 
 ### Positive Reviews

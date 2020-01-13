@@ -1,12 +1,3 @@
----
-title: [SecretKey] Snow White Pack &amp; Cream &amp; Lotion &amp; Gel,
-description: [SecretKey] Snow White Pack &amp; Cream &amp; Lotion &amp; Gel,
-author: Suvojit Manna,
-tags: [SecretKey] Snow White Pack &amp; Cream &amp; Lotion &amp; Gel,
-publishedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
----
-
 # [[SecretKey] Snow White Pack &amp; Cream &amp; Lotion &amp; Gel](https://products.checkmycream.com/products/SecretKey-Snow-White-Pack-and-Cream-and-Lotion-and-Gel.html)
 
 ### Positive Reviews

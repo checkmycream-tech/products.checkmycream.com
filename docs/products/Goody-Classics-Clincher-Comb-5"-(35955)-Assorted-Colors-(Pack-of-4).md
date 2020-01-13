@@ -1,12 +1,3 @@
----
-title: Goody Classics Clincher Comb, 5&quot; (35955) Assorted Colors (Pack of 4),
-description: Goody Classics Clincher Comb, 5&quot; (35955) Assorted Colors (Pack of 4),
-author: Suvojit Manna,
-tags: Goody Classics Clincher Comb, 5&quot; (35955) Assorted Colors (Pack of 4),
-publishedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
----
-
 # [Goody Classics Clincher Comb, 5&quot; (35955) Assorted Colors (Pack of 4)](https://products.checkmycream.com/products/Goody-Classics-Clincher-Comb-5&quot;-(35955)-Assorted-Colors-(Pack-of-4).html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Noxzema Bikini Shavers &amp; Trim, 3 ea,
-description: Noxzema Bikini Shavers &amp; Trim, 3 ea,
-author: Suvojit Manna,
-tags: Noxzema Bikini Shavers &amp; Trim, 3 ea,
-publishedAt: Fri Jan 10 2020 15:00:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:03 GMT+0530 (India Standard Time),
----
-
 # [Noxzema Bikini Shavers &amp; Trim, 3 ea](https://products.checkmycream.com/products/Noxzema-Bikini-Shavers-and-Trim-3-ea.html)
 
 ### Positive Reviews

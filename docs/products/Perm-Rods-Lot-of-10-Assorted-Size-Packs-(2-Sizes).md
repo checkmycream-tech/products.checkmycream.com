@@ -1,12 +1,3 @@
----
-title: Perm Rods Lot of 10 Assorted Size Packs (2 Sizes),
-description: Perm Rods Lot of 10 Assorted Size Packs (2 Sizes),
-author: Suvojit Manna,
-tags: Perm Rods Lot of 10 Assorted Size Packs (2 Sizes),
-publishedAt: Fri Jan 10 2020 14:59:44 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:44 GMT+0530 (India Standard Time),
----
-
 # [Perm Rods Lot of 10 Assorted Size Packs (2 Sizes)](https://products.checkmycream.com/products/Perm-Rods-Lot-of-10-Assorted-Size-Packs-(2-Sizes).html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: CoverGirl Eye Enhancers 1 Kit Shadow, Knock Out Pink 460, 0.09 Ounce Pan,
-description: CoverGirl Eye Enhancers 1 Kit Shadow, Knock Out Pink 460, 0.09 Ounce Pan,
-author: Suvojit Manna,
-tags: CoverGirl Eye Enhancers 1 Kit Shadow, Knock Out Pink 460, 0.09 Ounce Pan,
-publishedAt: Fri Jan 10 2020 14:59:30 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:30 GMT+0530 (India Standard Time),
----
-
 # [CoverGirl Eye Enhancers 1 Kit Shadow, Knock Out Pink 460, 0.09 Ounce Pan](https://products.checkmycream.com/products/CoverGirl-Eye-Enhancers-1-Kit-Shadow-Knock-Out-Pink-460-0.09-Ounce-Pan.html)
 
 ### Positive Reviews

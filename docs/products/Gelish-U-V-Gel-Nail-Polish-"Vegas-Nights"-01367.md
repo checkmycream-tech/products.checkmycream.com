@@ -1,12 +1,3 @@
----
-title: Gelish U V Gel Nail Polish &quot;Vegas Nights&quot; #01367,
-description: Gelish U V Gel Nail Polish &quot;Vegas Nights&quot; #01367,
-author: Suvojit Manna,
-tags: Gelish U V Gel Nail Polish &quot;Vegas Nights&quot; #01367,
-publishedAt: Fri Jan 10 2020 15:00:15 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:15 GMT+0530 (India Standard Time),
----
-
 # [Gelish U V Gel Nail Polish &quot;Vegas Nights&quot; #01367](https://products.checkmycream.com/products/Gelish-U-V-Gel-Nail-Polish-&quot;Vegas-Nights&quot;-01367.html)
 
 ### Positive Reviews

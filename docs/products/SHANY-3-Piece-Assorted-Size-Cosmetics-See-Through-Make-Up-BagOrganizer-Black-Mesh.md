@@ -1,12 +1,3 @@
----
-title: SHANY 3 Piece Assorted Size Cosmetics See Through Make Up Bag/Organizer, Black Mesh,
-description: SHANY 3 Piece Assorted Size Cosmetics See Through Make Up Bag/Organizer, Black Mesh,
-author: Suvojit Manna,
-tags: SHANY 3 Piece Assorted Size Cosmetics See Through Make Up Bag/Organizer, Black Mesh,
-publishedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
----
-
 # [SHANY 3 Piece Assorted Size Cosmetics See Through Make Up Bag/Organizer, Black Mesh](https://products.checkmycream.com/products/SHANY-3-Piece-Assorted-Size-Cosmetics-See-Through-Make-Up-BagOrganizer-Black-Mesh.html)
 
 ### Positive Reviews

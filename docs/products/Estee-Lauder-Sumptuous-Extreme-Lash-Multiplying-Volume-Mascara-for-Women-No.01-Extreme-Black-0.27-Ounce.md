@@ -1,12 +1,3 @@
----
-title: Estee Lauder Sumptuous Extreme Lash Multiplying Volume Mascara for Women, No.01 Extreme Black, 0.27 Ounce,
-description: Estee Lauder Sumptuous Extreme Lash Multiplying Volume Mascara for Women, No.01 Extreme Black, 0.27 Ounce,
-author: Suvojit Manna,
-tags: Estee Lauder Sumptuous Extreme Lash Multiplying Volume Mascara for Women, No.01 Extreme Black, 0.27 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:01 GMT+0530 (India Standard Time),
----
-
 # [Estee Lauder Sumptuous Extreme Lash Multiplying Volume Mascara for Women, No.01 Extreme Black, 0.27 Ounce](https://products.checkmycream.com/products/Estee-Lauder-Sumptuous-Extreme-Lash-Multiplying-Volume-Mascara-for-Women-No.01-Extreme-Black-0.27-Ounce.html)
 
 ### Positive Reviews

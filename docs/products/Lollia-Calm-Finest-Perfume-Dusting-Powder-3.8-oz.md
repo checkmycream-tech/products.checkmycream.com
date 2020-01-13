@@ -1,12 +1,3 @@
----
-title: Lollia Calm Finest Perfume Dusting Powder 3.8 oz,
-description: Lollia Calm Finest Perfume Dusting Powder 3.8 oz,
-author: Suvojit Manna,
-tags: Lollia Calm Finest Perfume Dusting Powder 3.8 oz,
-publishedAt: Fri Jan 10 2020 15:00:10 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:10 GMT+0530 (India Standard Time),
----
-
 # [Lollia Calm Finest Perfume Dusting Powder 3.8 oz](https://products.checkmycream.com/products/Lollia-Calm-Finest-Perfume-Dusting-Powder-3.8-oz.html)
 
 ### Positive Reviews

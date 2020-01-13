@@ -1,12 +1,3 @@
----
-title: IBD Just Gel Nail Polish 0.5 Ounces,
-description: IBD Just Gel Nail Polish 0.5 Ounces,
-author: Suvojit Manna,
-tags: IBD Just Gel Nail Polish 0.5 Ounces,
-publishedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
----
-
 # [IBD Just Gel Nail Polish 0.5 Ounces](https://products.checkmycream.com/products/IBD-Just-Gel-Nail-Polish-0.5-Ounces.html)
 
 ### Positive Reviews

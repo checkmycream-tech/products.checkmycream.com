@@ -1,12 +1,3 @@
----
-title: DICKINSON BRANDS, HAZELET WITCH HAZEL PAD 60 CT EA 1,
-description: DICKINSON BRANDS, HAZELET WITCH HAZEL PAD 60 CT EA 1,
-author: Suvojit Manna,
-tags: DICKINSON BRANDS, HAZELET WITCH HAZEL PAD 60 CT EA 1,
-publishedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
----
-
 # [DICKINSON BRANDS, HAZELET WITCH HAZEL PAD 60 CT EA 1](https://products.checkmycream.com/products/DICKINSON-BRANDS-HAZELET-WITCH-HAZEL-PAD-60-CT-EA-1.html)
 
 ### Positive Reviews

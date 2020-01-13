@@ -1,12 +1,3 @@
----
-title: Lady Mitchum Dry Roll-On Antiperspirant &amp; Deodorant, Powder Fresh 1.5 fl oz (44 ml),
-description: Lady Mitchum Dry Roll-On Antiperspirant &amp; Deodorant, Powder Fresh 1.5 fl oz (44 ml),
-author: Suvojit Manna,
-tags: Lady Mitchum Dry Roll-On Antiperspirant &amp; Deodorant, Powder Fresh 1.5 fl oz (44 ml),
-publishedAt: Fri Jan 10 2020 14:58:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:58:58 GMT+0530 (India Standard Time),
----
-
 # [Lady Mitchum Dry Roll-On Antiperspirant &amp; Deodorant, Powder Fresh 1.5 fl oz (44 ml)](https://products.checkmycream.com/products/Lady-Mitchum-Dry-Roll-On-Antiperspirant-and-Deodorant-Powder-Fresh-1.5-fl-oz-(44-ml).html)
 
 ### Positive Reviews

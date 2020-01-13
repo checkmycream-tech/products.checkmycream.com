@@ -1,12 +1,3 @@
----
-title: Maui Babe - Browning Lotion,
-description: Maui Babe - Browning Lotion,
-author: Suvojit Manna,
-tags: Maui Babe - Browning Lotion,
-publishedAt: Fri Jan 10 2020 14:59:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:02 GMT+0530 (India Standard Time),
----
-
 # [Maui Babe - Browning Lotion](https://products.checkmycream.com/products/Maui-Babe-Browning-Lotion.html)
 
 ### Positive Reviews

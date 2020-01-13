@@ -1,12 +1,3 @@
----
-title: Eyelash Extension Lint Free Microbrushes X4 Tubes (400 Pcs),
-description: Eyelash Extension Lint Free Microbrushes X4 Tubes (400 Pcs),
-author: Suvojit Manna,
-tags: Eyelash Extension Lint Free Microbrushes X4 Tubes (400 Pcs),
-publishedAt: Fri Jan 10 2020 15:00:10 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:10 GMT+0530 (India Standard Time),
----
-
 # [Eyelash Extension Lint Free Microbrushes X4 Tubes (400 Pcs)](https://products.checkmycream.com/products/Eyelash-Extension-Lint-Free-Microbrushes-X4-Tubes-(400-Pcs).html)
 
 ### Positive Reviews

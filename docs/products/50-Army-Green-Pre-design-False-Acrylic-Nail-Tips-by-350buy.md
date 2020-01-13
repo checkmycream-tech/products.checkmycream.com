@@ -1,12 +1,3 @@
----
-title: 50 Army Green Pre-design False Acrylic Nail Tips by 350buy,
-description: 50 Army Green Pre-design False Acrylic Nail Tips by 350buy,
-author: Suvojit Manna,
-tags: 50 Army Green Pre-design False Acrylic Nail Tips by 350buy,
-publishedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
----
-
 # [50 Army Green Pre-design False Acrylic Nail Tips by 350buy](https://products.checkmycream.com/products/50-Army-Green-Pre-design-False-Acrylic-Nail-Tips-by-350buy.html)
 
 ### Positive Reviews

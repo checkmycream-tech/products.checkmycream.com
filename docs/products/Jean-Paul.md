@@ -1,12 +1,3 @@
----
-title: Jean Paul,
-description: Jean Paul,
-author: Suvojit Manna,
-tags: Jean Paul,
-publishedAt: Fri Jan 10 2020 15:00:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:05 GMT+0530 (India Standard Time),
----
-
 # [Jean Paul](https://products.checkmycream.com/products/Jean-Paul.html)
 
 ### Positive Reviews

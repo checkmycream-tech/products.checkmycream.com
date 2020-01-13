@@ -1,12 +1,3 @@
----
-title: Evercare Large Surface Lint Pic-Up Refill # 06937-006,
-description: Evercare Large Surface Lint Pic-Up Refill # 06937-006,
-author: Suvojit Manna,
-tags: Evercare Large Surface Lint Pic-Up Refill # 06937-006,
-publishedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
----
-
 # [Evercare Large Surface Lint Pic-Up Refill # 06937-006](https://products.checkmycream.com/products/Evercare-Large-Surface-Lint-Pic-Up-Refill-06937-006.html)
 
 ### Positive Reviews

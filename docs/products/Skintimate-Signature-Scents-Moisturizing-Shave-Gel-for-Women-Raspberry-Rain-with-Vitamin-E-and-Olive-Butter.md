@@ -1,12 +1,3 @@
----
-title: Skintimate Signature Scents Moisturizing Shave Gel for Women Raspberry Rain with Vitamin E and Olive Butter,
-description: Skintimate Signature Scents Moisturizing Shave Gel for Women Raspberry Rain with Vitamin E and Olive Butter,
-author: Suvojit Manna,
-tags: Skintimate Signature Scents Moisturizing Shave Gel for Women Raspberry Rain with Vitamin E and Olive Butter,
-publishedAt: Fri Jan 10 2020 15:00:37 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:37 GMT+0530 (India Standard Time),
----
-
 # [Skintimate Signature Scents Moisturizing Shave Gel for Women Raspberry Rain with Vitamin E and Olive Butter](https://products.checkmycream.com/products/Skintimate-Signature-Scents-Moisturizing-Shave-Gel-for-Women-Raspberry-Rain-with-Vitamin-E-and-Olive-Butter.html)
 
 ### Positive Reviews

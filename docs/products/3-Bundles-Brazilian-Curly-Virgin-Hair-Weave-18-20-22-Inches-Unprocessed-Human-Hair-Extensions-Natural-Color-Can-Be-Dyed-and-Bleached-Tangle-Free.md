@@ -1,12 +1,3 @@
----
-title: 3 Bundles Brazilian Curly Virgin Hair Weave 18 20 22 Inches Unprocessed Human Hair Extensions Natural Color Can Be Dyed and Bleached Tangle Free,
-description: 3 Bundles Brazilian Curly Virgin Hair Weave 18 20 22 Inches Unprocessed Human Hair Extensions Natural Color Can Be Dyed and Bleached Tangle Free,
-author: Suvojit Manna,
-tags: 3 Bundles Brazilian Curly Virgin Hair Weave 18 20 22 Inches Unprocessed Human Hair Extensions Natural Color Can Be Dyed and Bleached Tangle Free,
-publishedAt: Fri Jan 10 2020 15:01:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:08 GMT+0530 (India Standard Time),
----
-
 # [3 Bundles Brazilian Curly Virgin Hair Weave 18 20 22 Inches Unprocessed Human Hair Extensions Natural Color Can Be Dyed and Bleached Tangle Free](https://products.checkmycream.com/products/3-Bundles-Brazilian-Curly-Virgin-Hair-Weave-18-20-22-Inches-Unprocessed-Human-Hair-Extensions-Natural-Color-Can-Be-Dyed-and-Bleached-Tangle-Free.html)
 
 ### Positive Reviews

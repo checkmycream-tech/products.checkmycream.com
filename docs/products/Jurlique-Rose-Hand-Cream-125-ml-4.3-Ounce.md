@@ -1,12 +1,3 @@
----
-title: Jurlique Rose Hand Cream, 125 ml / 4.3 Ounce,
-description: Jurlique Rose Hand Cream, 125 ml / 4.3 Ounce,
-author: Suvojit Manna,
-tags: Jurlique Rose Hand Cream, 125 ml / 4.3 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:25 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:25 GMT+0530 (India Standard Time),
----
-
 # [Jurlique Rose Hand Cream, 125 ml / 4.3 Ounce](https://products.checkmycream.com/products/Jurlique-Rose-Hand-Cream-125-ml-4.3-Ounce.html)
 
 ### Positive Reviews

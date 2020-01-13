@@ -1,12 +1,3 @@
----
-title: Coppertone Sport Sunscreen, SPF 100+, 4 oz.,
-description: Coppertone Sport Sunscreen, SPF 100+, 4 oz.,
-author: Suvojit Manna,
-tags: Coppertone Sport Sunscreen, SPF 100+, 4 oz.,
-publishedAt: Fri Jan 10 2020 15:00:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:05 GMT+0530 (India Standard Time),
----
-
 # [Coppertone Sport Sunscreen, SPF 100+, 4 oz.](https://products.checkmycream.com/products/Coppertone-Sport-Sunscreen-SPF-100+-4-oz..html)
 
 ### Positive Reviews

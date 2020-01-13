@@ -1,12 +1,3 @@
----
-title: CoverGirl Eye Enhancers 4 Kit Shadow, Blossoms 257, 0.19 Ounce Package,
-description: CoverGirl Eye Enhancers 4 Kit Shadow, Blossoms 257, 0.19 Ounce Package,
-author: Suvojit Manna,
-tags: CoverGirl Eye Enhancers 4 Kit Shadow, Blossoms 257, 0.19 Ounce Package,
-publishedAt: Fri Jan 10 2020 14:59:32 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:32 GMT+0530 (India Standard Time),
----
-
 # [CoverGirl Eye Enhancers 4 Kit Shadow, Blossoms 257, 0.19 Ounce Package](https://products.checkmycream.com/products/CoverGirl-Eye-Enhancers-4-Kit-Shadow-Blossoms-257-0.19-Ounce-Package.html)
 
 ### Positive Reviews

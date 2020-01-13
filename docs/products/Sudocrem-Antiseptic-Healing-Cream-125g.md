@@ -1,12 +1,3 @@
----
-title: Sudocrem Antiseptic Healing Cream 125g,
-description: Sudocrem Antiseptic Healing Cream 125g,
-author: Suvojit Manna,
-tags: Sudocrem Antiseptic Healing Cream 125g,
-publishedAt: Fri Jan 10 2020 15:00:38 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:38 GMT+0530 (India Standard Time),
----
-
 # [Sudocrem Antiseptic Healing Cream 125g](https://products.checkmycream.com/products/Sudocrem-Antiseptic-Healing-Cream-125g.html)
 
 ### Positive Reviews

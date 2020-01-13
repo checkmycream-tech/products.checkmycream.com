@@ -1,12 +1,3 @@
----
-title: Wavebuilder Wave Cap, 2 Count,
-description: Wavebuilder Wave Cap, 2 Count,
-author: Suvojit Manna,
-tags: Wavebuilder Wave Cap, 2 Count,
-publishedAt: Fri Jan 10 2020 14:59:30 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:30 GMT+0530 (India Standard Time),
----
-
 # [Wavebuilder Wave Cap, 2 Count](https://products.checkmycream.com/products/Wavebuilder-Wave-Cap-2-Count.html)
 
 ### Positive Reviews

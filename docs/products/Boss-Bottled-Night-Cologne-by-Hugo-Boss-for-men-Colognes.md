@@ -1,12 +1,3 @@
----
-title: Boss Bottled Night Cologne by Hugo Boss for men Colognes,
-description: Boss Bottled Night Cologne by Hugo Boss for men Colognes,
-author: Suvojit Manna,
-tags: Boss Bottled Night Cologne by Hugo Boss for men Colognes,
-publishedAt: Fri Jan 10 2020 15:00:12 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:12 GMT+0530 (India Standard Time),
----
-
 # [Boss Bottled Night Cologne by Hugo Boss for men Colognes](https://products.checkmycream.com/products/Boss-Bottled-Night-Cologne-by-Hugo-Boss-for-men-Colognes.html)
 
 ### Positive Reviews

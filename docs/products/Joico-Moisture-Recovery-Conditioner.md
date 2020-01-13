@@ -1,12 +1,3 @@
----
-title: Joico Moisture Recovery Conditioner,
-description: Joico Moisture Recovery Conditioner,
-author: Suvojit Manna,
-tags: Joico Moisture Recovery Conditioner,
-publishedAt: Fri Jan 10 2020 15:00:38 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:38 GMT+0530 (India Standard Time),
----
-
 # [Joico Moisture Recovery Conditioner](https://products.checkmycream.com/products/Joico-Moisture-Recovery-Conditioner.html)
 
 ### Positive Reviews

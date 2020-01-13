@@ -1,12 +1,3 @@
----
-title: Raines Rain Bonnet With Visor Adult, Colors May Vary,
-description: Raines Rain Bonnet With Visor Adult, Colors May Vary,
-author: Suvojit Manna,
-tags: Raines Rain Bonnet With Visor Adult, Colors May Vary,
-publishedAt: Fri Jan 10 2020 14:59:21 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:21 GMT+0530 (India Standard Time),
----
-
 # [Raines Rain Bonnet With Visor Adult, Colors May Vary](https://products.checkmycream.com/products/Raines-Rain-Bonnet-With-Visor-Adult-Colors-May-Vary.html)
 
 ### Positive Reviews

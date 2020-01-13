@@ -1,12 +1,3 @@
----
-title: Joico JoiGel Firm Styling Gel Hair Styling Creams,
-description: Joico JoiGel Firm Styling Gel Hair Styling Creams,
-author: Suvojit Manna,
-tags: Joico JoiGel Firm Styling Gel Hair Styling Creams,
-publishedAt: Fri Jan 10 2020 14:59:10 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:10 GMT+0530 (India Standard Time),
----
-
 # [Joico JoiGel Firm Styling Gel Hair Styling Creams](https://products.checkmycream.com/products/Joico-JoiGel-Firm-Styling-Gel-Hair-Styling-Creams.html)
 
 ### Positive Reviews

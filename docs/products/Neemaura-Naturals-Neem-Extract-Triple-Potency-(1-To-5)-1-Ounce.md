@@ -1,12 +1,3 @@
----
-title: Neemaura Naturals Neem Extract Triple Potency (1 To 5) 1 Ounce,
-description: Neemaura Naturals Neem Extract Triple Potency (1 To 5) 1 Ounce,
-author: Suvojit Manna,
-tags: Neemaura Naturals Neem Extract Triple Potency (1 To 5) 1 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:00 GMT+0530 (India Standard Time),
----
-
 # [Neemaura Naturals Neem Extract Triple Potency (1 To 5) 1 Ounce](https://products.checkmycream.com/products/Neemaura-Naturals-Neem-Extract-Triple-Potency-(1-To-5)-1-Ounce.html)
 
 ### Positive Reviews

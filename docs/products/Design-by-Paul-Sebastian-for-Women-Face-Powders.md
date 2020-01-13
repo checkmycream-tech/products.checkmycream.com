@@ -1,12 +1,3 @@
----
-title: Design by Paul Sebastian for Women Face Powders,
-description: Design by Paul Sebastian for Women Face Powders,
-author: Suvojit Manna,
-tags: Design by Paul Sebastian for Women Face Powders,
-publishedAt: Fri Jan 10 2020 14:59:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:05 GMT+0530 (India Standard Time),
----
-
 # [Design by Paul Sebastian for Women Face Powders](https://products.checkmycream.com/products/Design-by-Paul-Sebastian-for-Women-Face-Powders.html)
 
 ### Positive Reviews

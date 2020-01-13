@@ -1,12 +1,3 @@
----
-title: Brand New Avon Far Away Eau de Parfum Spray by Jubujub [Beauty],
-description: Brand New Avon Far Away Eau de Parfum Spray by Jubujub [Beauty],
-author: Suvojit Manna,
-tags: Brand New Avon Far Away Eau de Parfum Spray by Jubujub [Beauty],
-publishedAt: Fri Jan 10 2020 14:59:21 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:21 GMT+0530 (India Standard Time),
----
-
 # [Brand New Avon Far Away Eau de Parfum Spray by Jubujub [Beauty]](https://products.checkmycream.com/products/Brand-New-Avon-Far-Away-Eau-de-Parfum-Spray-by-Jubujub-Beauty.html)
 
 ### Positive Reviews

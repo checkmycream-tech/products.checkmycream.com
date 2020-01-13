@@ -1,12 +1,3 @@
----
-title: Mary KAY Elige Perfume for Women - Full Size - New Boxed Discounted Expire 2015,
-description: Mary KAY Elige Perfume for Women - Full Size - New Boxed Discounted Expire 2015,
-author: Suvojit Manna,
-tags: Mary KAY Elige Perfume for Women - Full Size - New Boxed Discounted Expire 2015,
-publishedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
----
-
 # [Mary KAY Elige Perfume for Women - Full Size - New Boxed Discounted Expire 2015](https://products.checkmycream.com/products/Mary-KAY-Elige-Perfume-for-Women-Full-Size-New-Boxed-Discounted-Expire-2015.html)
 
 ### Positive Reviews

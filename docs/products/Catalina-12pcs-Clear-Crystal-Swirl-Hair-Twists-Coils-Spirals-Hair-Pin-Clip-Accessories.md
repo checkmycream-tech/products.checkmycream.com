@@ -1,12 +1,3 @@
----
-title: Catalina 12pcs Clear Crystal Swirl Hair Twists Coils Spirals Hair Pin Clip Accessories,
-description: Catalina 12pcs Clear Crystal Swirl Hair Twists Coils Spirals Hair Pin Clip Accessories,
-author: Suvojit Manna,
-tags: Catalina 12pcs Clear Crystal Swirl Hair Twists Coils Spirals Hair Pin Clip Accessories,
-publishedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
----
-
 # [Catalina 12pcs Clear Crystal Swirl Hair Twists Coils Spirals Hair Pin Clip Accessories](https://products.checkmycream.com/products/Catalina-12pcs-Clear-Crystal-Swirl-Hair-Twists-Coils-Spirals-Hair-Pin-Clip-Accessories.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Ms. Manicure Pretty in Pink Manicure Set; Wood Cuticle Sticks, Cuticle Pusher, Cuticle Trimmer, Sapphire File, Nail Clipper, Salon Board, and 3-way buffer; Seven Tools For a Perfect Set of Nails,
-description: Ms. Manicure Pretty in Pink Manicure Set; Wood Cuticle Sticks, Cuticle Pusher, Cuticle Trimmer, Sapphire File, Nail Clipper, Salon Board, and 3-way buffer; Seven Tools For a Perfect Set of Nails,
-author: Suvojit Manna,
-tags: Ms. Manicure Pretty in Pink Manicure Set; Wood Cuticle Sticks, Cuticle Pusher, Cuticle Trimmer, Sapphire File, Nail Clipper, Salon Board, and 3-way buffer; Seven Tools For a Perfect Set of Nails,
-publishedAt: Fri Jan 10 2020 15:00:09 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:09 GMT+0530 (India Standard Time),
----
-
 # [Ms. Manicure Pretty in Pink Manicure Set; Wood Cuticle Sticks, Cuticle Pusher, Cuticle Trimmer, Sapphire File, Nail Clipper, Salon Board, and 3-way buffer; Seven Tools For a Perfect Set of Nails](https://products.checkmycream.com/products/Ms.-Manicure-Pretty-in-Pink-Manicure-Set-Wood-Cuticle-Sticks-Cuticle-Pusher-Cuticle-Trimmer-Sapphire-File-Nail-Clipper-Salon-Board-and-3-way-buffer-Seven-Tools-For-a-Perfect-Set-of-Nails.html)
 
 ### Positive Reviews

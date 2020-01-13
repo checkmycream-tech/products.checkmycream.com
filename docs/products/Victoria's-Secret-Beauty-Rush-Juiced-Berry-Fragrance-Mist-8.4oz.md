@@ -1,12 +1,3 @@
----
-title: Victoria&#x27;s Secret Beauty Rush Juiced Berry Fragrance Mist 8.4oz,
-description: Victoria&#x27;s Secret Beauty Rush Juiced Berry Fragrance Mist 8.4oz,
-author: Suvojit Manna,
-tags: Victoria&#x27;s Secret Beauty Rush Juiced Berry Fragrance Mist 8.4oz,
-publishedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
----
-
 # [Victoria&#x27;s Secret Beauty Rush Juiced Berry Fragrance Mist 8.4oz](https://products.checkmycream.com/products/Victoria&#x27;s-Secret-Beauty-Rush-Juiced-Berry-Fragrance-Mist-8.4oz.html)
 
 ### Positive Reviews

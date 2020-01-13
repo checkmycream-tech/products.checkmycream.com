@@ -1,12 +1,3 @@
----
-title: Vitality Digize 5ml Young Living Essential Oils,
-description: Vitality Digize 5ml Young Living Essential Oils,
-author: Suvojit Manna,
-tags: Vitality Digize 5ml Young Living Essential Oils,
-publishedAt: Fri Jan 10 2020 14:59:39 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:39 GMT+0530 (India Standard Time),
----
-
 # [Vitality Digize 5ml Young Living Essential Oils](https://products.checkmycream.com/products/Vitality-Digize-5ml-Young-Living-Essential-Oils.html)
 
 ### Positive Reviews

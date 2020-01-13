@@ -1,12 +1,3 @@
----
-title: Tan Asz U CABANA QUEEN 100X Golden Shimmer Bronzer - 13.5 oz. by Brown Sugar,
-description: Tan Asz U CABANA QUEEN 100X Golden Shimmer Bronzer - 13.5 oz. by Brown Sugar,
-author: Suvojit Manna,
-tags: Tan Asz U CABANA QUEEN 100X Golden Shimmer Bronzer - 13.5 oz. by Brown Sugar,
-publishedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
----
-
 # [Tan Asz U CABANA QUEEN 100X Golden Shimmer Bronzer - 13.5 oz. by Brown Sugar](https://products.checkmycream.com/products/Tan-Asz-U-CABANA-QUEEN-100X-Golden-Shimmer-Bronzer-13.5-oz.-by-Brown-Sugar.html)
 
 ### Positive Reviews

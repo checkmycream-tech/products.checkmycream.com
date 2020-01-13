@@ -1,12 +1,3 @@
----
-title: 360 Gold Emerald Green Caesar Soft 100% Boar Bristles,
-description: 360 Gold Emerald Green Caesar Soft 100% Boar Bristles,
-author: Suvojit Manna,
-tags: 360 Gold Emerald Green Caesar Soft 100% Boar Bristles,
-publishedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
----
-
 # [360 Gold Emerald Green Caesar Soft 100% Boar Bristles](https://products.checkmycream.com/products/360-Gold-Emerald-Green-Caesar-Soft-100percent-Boar-Bristles.html)
 
 ### Positive Reviews

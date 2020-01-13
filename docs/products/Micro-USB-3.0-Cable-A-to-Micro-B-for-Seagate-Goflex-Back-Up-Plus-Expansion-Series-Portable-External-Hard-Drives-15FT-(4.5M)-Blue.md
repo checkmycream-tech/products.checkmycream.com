@@ -1,12 +1,3 @@
----
-title: Micro USB 3.0 Cable A to Micro B for Seagate Goflex, Back Up Plus, Expansion Series Portable External Hard Drives, 15FT (4.5M) [Blue],
-description: Micro USB 3.0 Cable A to Micro B for Seagate Goflex, Back Up Plus, Expansion Series Portable External Hard Drives, 15FT (4.5M) [Blue],
-author: Suvojit Manna,
-tags: Micro USB 3.0 Cable A to Micro B for Seagate Goflex, Back Up Plus, Expansion Series Portable External Hard Drives, 15FT (4.5M) [Blue],
-publishedAt: Fri Jan 10 2020 15:01:09 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:09 GMT+0530 (India Standard Time),
----
-
 # [Micro USB 3.0 Cable A to Micro B for Seagate Goflex, Back Up Plus, Expansion Series Portable External Hard Drives, 15FT (4.5M) [Blue]](https://products.checkmycream.com/products/Micro-USB-3.0-Cable-A-to-Micro-B-for-Seagate-Goflex-Back-Up-Plus-Expansion-Series-Portable-External-Hard-Drives-15FT-(4.5M)-Blue.html)
 
 ### Positive Reviews

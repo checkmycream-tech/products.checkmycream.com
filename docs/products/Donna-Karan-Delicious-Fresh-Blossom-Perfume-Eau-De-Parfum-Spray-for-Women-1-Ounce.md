@@ -1,12 +1,3 @@
----
-title: Donna Karan Delicious Fresh Blossom Perfume Eau De Parfum Spray for Women, 1 Ounce,
-description: Donna Karan Delicious Fresh Blossom Perfume Eau De Parfum Spray for Women, 1 Ounce,
-author: Suvojit Manna,
-tags: Donna Karan Delicious Fresh Blossom Perfume Eau De Parfum Spray for Women, 1 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:44 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:44 GMT+0530 (India Standard Time),
----
-
 # [Donna Karan Delicious Fresh Blossom Perfume Eau De Parfum Spray for Women, 1 Ounce](https://products.checkmycream.com/products/Donna-Karan-Delicious-Fresh-Blossom-Perfume-Eau-De-Parfum-Spray-for-Women-1-Ounce.html)
 
 ### Positive Reviews

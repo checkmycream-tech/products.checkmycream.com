@@ -1,12 +1,3 @@
----
-title: Spectrum Essentials Fish Oil Omega-3 -- 1000 mg - 250 Softgels,
-description: Spectrum Essentials Fish Oil Omega-3 -- 1000 mg - 250 Softgels,
-author: Suvojit Manna,
-tags: Spectrum Essentials Fish Oil Omega-3 -- 1000 mg - 250 Softgels,
-publishedAt: Fri Jan 10 2020 15:00:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:01 GMT+0530 (India Standard Time),
----
-
 # [Spectrum Essentials Fish Oil Omega-3 -- 1000 mg - 250 Softgels](https://products.checkmycream.com/products/Spectrum-Essentials-Fish-Oil-Omega-3-1000-mg-250-Softgels.html)
 
 ### Positive Reviews

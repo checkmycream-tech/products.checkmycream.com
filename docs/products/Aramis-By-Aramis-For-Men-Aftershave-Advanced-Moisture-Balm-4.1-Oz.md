@@ -1,12 +1,3 @@
----
-title: Aramis By Aramis For Men Aftershave Advanced Moisture Balm 4.1 Oz,
-description: Aramis By Aramis For Men Aftershave Advanced Moisture Balm 4.1 Oz,
-author: Suvojit Manna,
-tags: Aramis By Aramis For Men Aftershave Advanced Moisture Balm 4.1 Oz,
-publishedAt: Fri Jan 10 2020 14:59:43 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:43 GMT+0530 (India Standard Time),
----
-
 # [Aramis By Aramis For Men Aftershave Advanced Moisture Balm 4.1 Oz](https://products.checkmycream.com/products/Aramis-By-Aramis-For-Men-Aftershave-Advanced-Moisture-Balm-4.1-Oz.html)
 
 ### Positive Reviews

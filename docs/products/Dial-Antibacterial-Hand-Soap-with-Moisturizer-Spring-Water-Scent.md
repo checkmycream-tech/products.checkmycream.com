@@ -1,12 +1,3 @@
----
-title: Dial Antibacterial Hand Soap with Moisturizer, Spring Water Scent,
-description: Dial Antibacterial Hand Soap with Moisturizer, Spring Water Scent,
-author: Suvojit Manna,
-tags: Dial Antibacterial Hand Soap with Moisturizer, Spring Water Scent,
-publishedAt: Fri Jan 10 2020 15:00:29 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:29 GMT+0530 (India Standard Time),
----
-
 # [Dial Antibacterial Hand Soap with Moisturizer, Spring Water Scent](https://products.checkmycream.com/products/Dial-Antibacterial-Hand-Soap-with-Moisturizer-Spring-Water-Scent.html)
 
 ### Positive Reviews

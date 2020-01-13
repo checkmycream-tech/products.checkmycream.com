@@ -1,12 +1,3 @@
----
-title: SuperTape Contour Shape &quot;C&quot;,
-description: SuperTape Contour Shape &quot;C&quot;,
-author: Suvojit Manna,
-tags: SuperTape Contour Shape &quot;C&quot;,
-publishedAt: Fri Jan 10 2020 14:59:36 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:36 GMT+0530 (India Standard Time),
----
-
 # [SuperTape Contour Shape &quot;C&quot;](https://products.checkmycream.com/products/SuperTape-Contour-Shape-&quot;C&quot;.html)
 
 ### Positive Reviews

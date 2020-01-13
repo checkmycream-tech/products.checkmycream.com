@@ -1,12 +1,3 @@
----
-title: Ultrapro Tx Tooth Stain Remover Tooth Polish COOL MINT W/fluoride - Professional Strength,
-description: Ultrapro Tx Tooth Stain Remover Tooth Polish COOL MINT W/fluoride - Professional Strength,
-author: Suvojit Manna,
-tags: Ultrapro Tx Tooth Stain Remover Tooth Polish COOL MINT W/fluoride - Professional Strength,
-publishedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
----
-
 # [Ultrapro Tx Tooth Stain Remover Tooth Polish COOL MINT W/fluoride - Professional Strength](https://products.checkmycream.com/products/Ultrapro-Tx-Tooth-Stain-Remover-Tooth-Polish-COOL-MINT-Wfluoride-Professional-Strength.html)
 
 ### Positive Reviews

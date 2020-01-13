@@ -1,12 +1,3 @@
----
-title: Thymes Liquid Foaming Bath, Eucalyptus, 12.25-Ounce Bottle,
-description: Thymes Liquid Foaming Bath, Eucalyptus, 12.25-Ounce Bottle,
-author: Suvojit Manna,
-tags: Thymes Liquid Foaming Bath, Eucalyptus, 12.25-Ounce Bottle,
-publishedAt: Fri Jan 10 2020 14:59:30 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:30 GMT+0530 (India Standard Time),
----
-
 # [Thymes Liquid Foaming Bath, Eucalyptus, 12.25-Ounce Bottle](https://products.checkmycream.com/products/Thymes-Liquid-Foaming-Bath-Eucalyptus-12.25-Ounce-Bottle.html)
 
 ### Positive Reviews

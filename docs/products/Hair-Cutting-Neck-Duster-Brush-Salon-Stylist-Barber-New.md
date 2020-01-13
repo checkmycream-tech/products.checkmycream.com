@@ -1,12 +1,3 @@
----
-title: Hair Cutting Neck Duster Brush Salon Stylist Barber New,
-description: Hair Cutting Neck Duster Brush Salon Stylist Barber New,
-author: Suvojit Manna,
-tags: Hair Cutting Neck Duster Brush Salon Stylist Barber New,
-publishedAt: Fri Jan 10 2020 15:00:38 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:38 GMT+0530 (India Standard Time),
----
-
 # [Hair Cutting Neck Duster Brush Salon Stylist Barber New](https://products.checkmycream.com/products/Hair-Cutting-Neck-Duster-Brush-Salon-Stylist-Barber-New.html)
 
 ### Positive Reviews

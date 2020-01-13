@@ -1,12 +1,3 @@
----
-title: Stonewall Kitchen Hand Soap, Herbes De Provence, 16.9 Ounce,
-description: Stonewall Kitchen Hand Soap, Herbes De Provence, 16.9 Ounce,
-author: Suvojit Manna,
-tags: Stonewall Kitchen Hand Soap, Herbes De Provence, 16.9 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:36 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:36 GMT+0530 (India Standard Time),
----
-
 # [Stonewall Kitchen Hand Soap, Herbes De Provence, 16.9 Ounce](https://products.checkmycream.com/products/Stonewall-Kitchen-Hand-Soap-Herbes-De-Provence-16.9-Ounce.html)
 
 ### Positive Reviews

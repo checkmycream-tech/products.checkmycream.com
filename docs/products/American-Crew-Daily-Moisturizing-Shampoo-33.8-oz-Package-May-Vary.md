@@ -1,12 +1,3 @@
----
-title: American Crew Daily Moisturizing Shampoo 33.8 oz, Package May Vary,
-description: American Crew Daily Moisturizing Shampoo 33.8 oz, Package May Vary,
-author: Suvojit Manna,
-tags: American Crew Daily Moisturizing Shampoo 33.8 oz, Package May Vary,
-publishedAt: Fri Jan 10 2020 14:59:43 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:43 GMT+0530 (India Standard Time),
----
-
 # [American Crew Daily Moisturizing Shampoo 33.8 oz, Package May Vary](https://products.checkmycream.com/products/American-Crew-Daily-Moisturizing-Shampoo-33.8-oz-Package-May-Vary.html)
 
 ### Positive Reviews

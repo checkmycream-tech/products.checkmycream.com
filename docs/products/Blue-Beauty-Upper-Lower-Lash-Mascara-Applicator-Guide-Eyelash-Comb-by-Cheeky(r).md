@@ -1,12 +1,3 @@
----
-title: Blue Beauty Upper Lower Lash Mascara Applicator Guide Eyelash Comb by Cheeky®,
-description: Blue Beauty Upper Lower Lash Mascara Applicator Guide Eyelash Comb by Cheeky®,
-author: Suvojit Manna,
-tags: Blue Beauty Upper Lower Lash Mascara Applicator Guide Eyelash Comb by Cheeky®,
-publishedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
----
-
 # [Blue Beauty Upper Lower Lash Mascara Applicator Guide Eyelash Comb by Cheeky®](https://products.checkmycream.com/products/Blue-Beauty-Upper-Lower-Lash-Mascara-Applicator-Guide-Eyelash-Comb-by-Cheeky(r).html)
 
 ### Positive Reviews

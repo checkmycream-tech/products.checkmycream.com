@@ -1,12 +1,3 @@
----
-title: CHRISTINA DW EYELASHES SET,
-description: CHRISTINA DW EYELASHES SET,
-author: Suvojit Manna,
-tags: CHRISTINA DW EYELASHES SET,
-publishedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
----
-
 # [CHRISTINA DW EYELASHES SET](https://products.checkmycream.com/products/CHRISTINA-DW-EYELASHES-SET.html)
 
 ### Positive Reviews

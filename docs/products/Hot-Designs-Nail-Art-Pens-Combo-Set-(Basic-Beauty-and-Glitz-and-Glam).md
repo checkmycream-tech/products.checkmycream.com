@@ -1,12 +1,3 @@
----
-title: Hot Designs Nail Art Pens- Combo Set (Basic Beauty and Glitz and Glam),
-description: Hot Designs Nail Art Pens- Combo Set (Basic Beauty and Glitz and Glam),
-author: Suvojit Manna,
-tags: Hot Designs Nail Art Pens- Combo Set (Basic Beauty and Glitz and Glam),
-publishedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
----
-
 # [Hot Designs Nail Art Pens- Combo Set (Basic Beauty and Glitz and Glam)](https://products.checkmycream.com/products/Hot-Designs-Nail-Art-Pens-Combo-Set-(Basic-Beauty-and-Glitz-and-Glam).html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: REACH Dentotape Waxed Tape, Unflavored 100 Yards, (Pack of 5),
-description: REACH Dentotape Waxed Tape, Unflavored 100 Yards, (Pack of 5),
-author: Suvojit Manna,
-tags: REACH Dentotape Waxed Tape, Unflavored 100 Yards, (Pack of 5),
-publishedAt: Fri Jan 10 2020 15:00:18 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:18 GMT+0530 (India Standard Time),
----
-
 # [REACH Dentotape Waxed Tape, Unflavored 100 Yards, (Pack of 5)](https://products.checkmycream.com/products/REACH-Dentotape-Waxed-Tape-Unflavored-100-Yards-(Pack-of-5).html)
 
 ### Positive Reviews

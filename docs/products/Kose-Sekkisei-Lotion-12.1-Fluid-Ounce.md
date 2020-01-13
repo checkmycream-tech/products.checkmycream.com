@@ -1,12 +1,3 @@
----
-title: Kose Sekkisei Lotion, 12.1 Fluid Ounce,
-description: Kose Sekkisei Lotion, 12.1 Fluid Ounce,
-author: Suvojit Manna,
-tags: Kose Sekkisei Lotion, 12.1 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 14:59:32 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:32 GMT+0530 (India Standard Time),
----
-
 # [Kose Sekkisei Lotion, 12.1 Fluid Ounce](https://products.checkmycream.com/products/Kose-Sekkisei-Lotion-12.1-Fluid-Ounce.html)
 
 ### Positive Reviews

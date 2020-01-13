@@ -1,12 +1,3 @@
----
-title: Polident Dentu-Creme,
-description: Polident Dentu-Creme,
-author: Suvojit Manna,
-tags: Polident Dentu-Creme,
-publishedAt: Fri Jan 10 2020 14:59:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:55 GMT+0530 (India Standard Time),
----
-
 # [Polident Dentu-Creme](https://products.checkmycream.com/products/Polident-Dentu-Creme.html)
 
 ### Positive Reviews

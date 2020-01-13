@@ -1,12 +1,3 @@
----
-title: NYX Cosmetics Eyebrow Gel EBG05 - Black,
-description: NYX Cosmetics Eyebrow Gel EBG05 - Black,
-author: Suvojit Manna,
-tags: NYX Cosmetics Eyebrow Gel EBG05 - Black,
-publishedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
----
-
 # [NYX Cosmetics Eyebrow Gel EBG05 - Black](https://products.checkmycream.com/products/NYX-Cosmetics-Eyebrow-Gel-EBG05-Black.html)
 
 ### Positive Reviews

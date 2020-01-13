@@ -1,12 +1,3 @@
----
-title: Ceramic Flat Irons,
-description: Ceramic Flat Irons,
-author: Suvojit Manna,
-tags: Ceramic Flat Irons,
-publishedAt: Fri Jan 10 2020 15:00:10 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:10 GMT+0530 (India Standard Time),
----
-
 # [Ceramic Flat Irons](https://products.checkmycream.com/products/Ceramic-Flat-Irons.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: AXE Body Spray for Men, Kilo 4 oz,
-description: AXE Body Spray for Men, Kilo 4 oz,
-author: Suvojit Manna,
-tags: AXE Body Spray for Men, Kilo 4 oz,
-publishedAt: Fri Jan 10 2020 14:58:59 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:58:59 GMT+0530 (India Standard Time),
----
-
 # [AXE Body Spray for Men, Kilo 4 oz](https://products.checkmycream.com/products/AXE-Body-Spray-for-Men-Kilo-4-oz.html)
 
 ### Positive Reviews

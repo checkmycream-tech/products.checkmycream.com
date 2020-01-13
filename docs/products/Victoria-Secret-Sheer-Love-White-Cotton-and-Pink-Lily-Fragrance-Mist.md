@@ -1,12 +1,3 @@
----
-title: Victoria Secret Sheer Love White Cotton &amp; Pink Lily Fragrance Mist,
-description: Victoria Secret Sheer Love White Cotton &amp; Pink Lily Fragrance Mist,
-author: Suvojit Manna,
-tags: Victoria Secret Sheer Love White Cotton &amp; Pink Lily Fragrance Mist,
-publishedAt: Fri Jan 10 2020 15:00:13 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:13 GMT+0530 (India Standard Time),
----
-
 # [Victoria Secret Sheer Love White Cotton &amp; Pink Lily Fragrance Mist](https://products.checkmycream.com/products/Victoria-Secret-Sheer-Love-White-Cotton-and-Pink-Lily-Fragrance-Mist.html)
 
 ### Positive Reviews

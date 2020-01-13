@@ -1,12 +1,3 @@
----
-title: Extra Strength Pain-A-Trate Pain-Relieving Cream,
-description: Extra Strength Pain-A-Trate Pain-Relieving Cream,
-author: Suvojit Manna,
-tags: Extra Strength Pain-A-Trate Pain-Relieving Cream,
-publishedAt: Fri Jan 10 2020 15:00:16 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:16 GMT+0530 (India Standard Time),
----
-
 # [Extra Strength Pain-A-Trate Pain-Relieving Cream](https://products.checkmycream.com/products/Extra-Strength-Pain-A-Trate-Pain-Relieving-Cream.html)
 
 ### Positive Reviews

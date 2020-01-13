@@ -1,12 +1,3 @@
----
-title: SkinMedica AHA BHA Exfoliating Cleanser, 6 oz.,
-description: SkinMedica AHA BHA Exfoliating Cleanser, 6 oz.,
-author: Suvojit Manna,
-tags: SkinMedica AHA BHA Exfoliating Cleanser, 6 oz.,
-publishedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
----
-
 # [SkinMedica AHA BHA Exfoliating Cleanser, 6 oz.](https://products.checkmycream.com/products/SkinMedica-AHA-BHA-Exfoliating-Cleanser-6-oz..html)
 
 ### Positive Reviews

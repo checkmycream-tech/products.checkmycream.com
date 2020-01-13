@@ -1,12 +1,3 @@
----
-title: Clinique Brow Shaper 07 Soft Brown,
-description: Clinique Brow Shaper 07 Soft Brown,
-author: Suvojit Manna,
-tags: Clinique Brow Shaper 07 Soft Brown,
-publishedAt: Fri Jan 10 2020 14:59:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:00 GMT+0530 (India Standard Time),
----
-
 # [Clinique Brow Shaper 07 Soft Brown](https://products.checkmycream.com/products/Clinique-Brow-Shaper-07-Soft-Brown.html)
 
 ### Positive Reviews

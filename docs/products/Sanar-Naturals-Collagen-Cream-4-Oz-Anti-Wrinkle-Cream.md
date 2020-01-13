@@ -1,12 +1,3 @@
----
-title: Sanar Naturals Collagen Cream 4 Oz Anti-Wrinkle Cream,
-description: Sanar Naturals Collagen Cream 4 Oz Anti-Wrinkle Cream,
-author: Suvojit Manna,
-tags: Sanar Naturals Collagen Cream 4 Oz Anti-Wrinkle Cream,
-publishedAt: Fri Jan 10 2020 14:59:48 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:48 GMT+0530 (India Standard Time),
----
-
 # [Sanar Naturals Collagen Cream 4 Oz Anti-Wrinkle Cream](https://products.checkmycream.com/products/Sanar-Naturals-Collagen-Cream-4-Oz-Anti-Wrinkle-Cream.html)
 
 ### Positive Reviews

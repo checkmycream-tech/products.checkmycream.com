@@ -1,12 +1,3 @@
----
-title: ColorProof CrazySmooth Anti-Frizz Shampoo And Conditoner 25.4 oz,
-description: ColorProof CrazySmooth Anti-Frizz Shampoo And Conditoner 25.4 oz,
-author: Suvojit Manna,
-tags: ColorProof CrazySmooth Anti-Frizz Shampoo And Conditoner 25.4 oz,
-publishedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
----
-
 # [ColorProof CrazySmooth Anti-Frizz Shampoo And Conditoner 25.4 oz](https://products.checkmycream.com/products/ColorProof-CrazySmooth-Anti-Frizz-Shampoo-And-Conditoner-25.4-oz.html)
 
 ### Positive Reviews

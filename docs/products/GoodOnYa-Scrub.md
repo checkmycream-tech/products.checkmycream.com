@@ -1,12 +1,3 @@
----
-title: GoodOnYa - Scrub,
-description: GoodOnYa - Scrub,
-author: Suvojit Manna,
-tags: GoodOnYa - Scrub,
-publishedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
----
-
 # [GoodOnYa - Scrub](https://products.checkmycream.com/products/GoodOnYa-Scrub.html)
 
 ### Positive Reviews

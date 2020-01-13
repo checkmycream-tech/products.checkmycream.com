@@ -1,12 +1,3 @@
----
-title: Cofufu 6PCS Fluorescence Stick / Electronic LED flash Bracelet / Light-emitting bracelet,
-description: Cofufu 6PCS Fluorescence Stick / Electronic LED flash Bracelet / Light-emitting bracelet,
-author: Suvojit Manna,
-tags: Cofufu 6PCS Fluorescence Stick / Electronic LED flash Bracelet / Light-emitting bracelet,
-publishedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
----
-
 # [Cofufu 6PCS Fluorescence Stick / Electronic LED flash Bracelet / Light-emitting bracelet](https://products.checkmycream.com/products/Cofufu-6PCS-Fluorescence-Stick-Electronic-LED-flash-Bracelet-Light-emitting-bracelet.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Brazilian Blowout Anti Frizz Shampoo and Acai Deep Conditioning Masque 2 Items,
-description: Brazilian Blowout Anti Frizz Shampoo and Acai Deep Conditioning Masque 2 Items,
-author: Suvojit Manna,
-tags: Brazilian Blowout Anti Frizz Shampoo and Acai Deep Conditioning Masque 2 Items,
-publishedAt: Fri Jan 10 2020 15:00:45 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:45 GMT+0530 (India Standard Time),
----
-
 # [Brazilian Blowout Anti Frizz Shampoo and Acai Deep Conditioning Masque 2 Items](https://products.checkmycream.com/products/Brazilian-Blowout-Anti-Frizz-Shampoo-and-Acai-Deep-Conditioning-Masque-2-Items.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Lemisol Plus, Gentle Daily Cleanser, original refreshing formula - 16 oz,
-description: Lemisol Plus, Gentle Daily Cleanser, original refreshing formula - 16 oz,
-author: Suvojit Manna,
-tags: Lemisol Plus, Gentle Daily Cleanser, original refreshing formula - 16 oz,
-publishedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
----
-
 # [Lemisol Plus, Gentle Daily Cleanser, original refreshing formula - 16 oz](https://products.checkmycream.com/products/Lemisol-Plus-Gentle-Daily-Cleanser-original-refreshing-formula-16-oz.html)
 
 ### Positive Reviews

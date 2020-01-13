@@ -1,12 +1,3 @@
----
-title: 212 VIP For Women By Carolina Herrera Eau De Parfum Spray,
-description: 212 VIP For Women By Carolina Herrera Eau De Parfum Spray,
-author: Suvojit Manna,
-tags: 212 VIP For Women By Carolina Herrera Eau De Parfum Spray,
-publishedAt: Fri Jan 10 2020 15:00:12 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:12 GMT+0530 (India Standard Time),
----
-
 # [212 VIP For Women By Carolina Herrera Eau De Parfum Spray](https://products.checkmycream.com/products/212-VIP-For-Women-By-Carolina-Herrera-Eau-De-Parfum-Spray.html)
 
 ### Positive Reviews

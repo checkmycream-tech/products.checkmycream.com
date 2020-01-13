@@ -1,12 +1,3 @@
----
-title: BambooMN Brand - Combination Bamboo BackScratcher, ShoeHorn, or BackScratcher Shoehorn,
-description: BambooMN Brand - Combination Bamboo BackScratcher, ShoeHorn, or BackScratcher Shoehorn,
-author: Suvojit Manna,
-tags: BambooMN Brand - Combination Bamboo BackScratcher, ShoeHorn, or BackScratcher Shoehorn,
-publishedAt: Fri Jan 10 2020 14:59:22 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:22 GMT+0530 (India Standard Time),
----
-
 # [BambooMN Brand - Combination Bamboo BackScratcher, ShoeHorn, or BackScratcher Shoehorn](https://products.checkmycream.com/products/BambooMN-Brand-Combination-Bamboo-BackScratcher-ShoeHorn-or-BackScratcher-Shoehorn.html)
 
 ### Positive Reviews

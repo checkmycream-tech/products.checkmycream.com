@@ -1,12 +1,3 @@
----
-title: Murad Age Reform Soothing Skin and Lip Care (0.5 oz),
-description: Murad Age Reform Soothing Skin and Lip Care (0.5 oz),
-author: Suvojit Manna,
-tags: Murad Age Reform Soothing Skin and Lip Care (0.5 oz),
-publishedAt: Fri Jan 10 2020 15:00:36 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:36 GMT+0530 (India Standard Time),
----
-
 # [Murad Age Reform Soothing Skin and Lip Care (0.5 oz)](https://products.checkmycream.com/products/Murad-Age-Reform-Soothing-Skin-and-Lip-Care-(0.5-oz).html)
 
 ### Positive Reviews

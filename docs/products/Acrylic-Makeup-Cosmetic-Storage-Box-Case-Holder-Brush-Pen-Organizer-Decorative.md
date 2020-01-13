@@ -1,12 +1,3 @@
----
-title: Acrylic Makeup Cosmetic Storage Box Case Holder Brush Pen Organizer Decorative,
-description: Acrylic Makeup Cosmetic Storage Box Case Holder Brush Pen Organizer Decorative,
-author: Suvojit Manna,
-tags: Acrylic Makeup Cosmetic Storage Box Case Holder Brush Pen Organizer Decorative,
-publishedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
----
-
 # [Acrylic Makeup Cosmetic Storage Box Case Holder Brush Pen Organizer Decorative](https://products.checkmycream.com/products/Acrylic-Makeup-Cosmetic-Storage-Box-Case-Holder-Brush-Pen-Organizer-Decorative.html)
 
 ### Positive Reviews

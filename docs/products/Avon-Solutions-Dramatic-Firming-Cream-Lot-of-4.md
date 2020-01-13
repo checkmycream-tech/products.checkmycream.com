@@ -1,12 +1,3 @@
----
-title: Avon Solutions Dramatic Firming Cream Lot of 4,
-description: Avon Solutions Dramatic Firming Cream Lot of 4,
-author: Suvojit Manna,
-tags: Avon Solutions Dramatic Firming Cream Lot of 4,
-publishedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
----
-
 # [Avon Solutions Dramatic Firming Cream Lot of 4](https://products.checkmycream.com/products/Avon-Solutions-Dramatic-Firming-Cream-Lot-of-4.html)
 
 ### Positive Reviews

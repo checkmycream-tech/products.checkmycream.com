@@ -1,12 +1,3 @@
----
-title: Avene Thermal Spring Water 5.29 oz.,
-description: Avene Thermal Spring Water 5.29 oz.,
-author: Suvojit Manna,
-tags: Avene Thermal Spring Water 5.29 oz.,
-publishedAt: Fri Jan 10 2020 14:59:39 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:39 GMT+0530 (India Standard Time),
----
-
 # [Avene Thermal Spring Water 5.29 oz.](https://products.checkmycream.com/products/Avene-Thermal-Spring-Water-5.29-oz..html)
 
 ### Positive Reviews

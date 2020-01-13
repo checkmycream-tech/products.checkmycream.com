@@ -1,12 +1,3 @@
----
-title: Royal Massage 6 Quart Hot Stone Heater,
-description: Royal Massage 6 Quart Hot Stone Heater,
-author: Suvojit Manna,
-tags: Royal Massage 6 Quart Hot Stone Heater,
-publishedAt: Fri Jan 10 2020 14:59:53 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:53 GMT+0530 (India Standard Time),
----
-
 # [Royal Massage 6 Quart Hot Stone Heater](https://products.checkmycream.com/products/Royal-Massage-6-Quart-Hot-Stone-Heater.html)
 
 ### Positive Reviews

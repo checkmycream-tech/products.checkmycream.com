@@ -1,12 +1,3 @@
----
-title: Daylee Naturals Exfoliating Mesh Sponge Brush,
-description: Daylee Naturals Exfoliating Mesh Sponge Brush,
-author: Suvojit Manna,
-tags: Daylee Naturals Exfoliating Mesh Sponge Brush,
-publishedAt: Fri Jan 10 2020 15:00:31 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:31 GMT+0530 (India Standard Time),
----
-
 # [Daylee Naturals Exfoliating Mesh Sponge Brush](https://products.checkmycream.com/products/Daylee-Naturals-Exfoliating-Mesh-Sponge-Brush.html)
 
 ### Positive Reviews

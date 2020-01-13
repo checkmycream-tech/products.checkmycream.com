@@ -1,12 +1,3 @@
----
-title: Attitude Apron Grill Master Apron, Black, One Size Fits Most,
-description: Attitude Apron Grill Master Apron, Black, One Size Fits Most,
-author: Suvojit Manna,
-tags: Attitude Apron Grill Master Apron, Black, One Size Fits Most,
-publishedAt: Fri Jan 10 2020 14:59:52 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:52 GMT+0530 (India Standard Time),
----
-
 # [Attitude Apron Grill Master Apron, Black, One Size Fits Most](https://products.checkmycream.com/products/Attitude-Apron-Grill-Master-Apron-Black-One-Size-Fits-Most.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: DSC Deep Sea Cosmetics Four-sided Nail Buffers TWO OF THEM !!!,
-description: DSC Deep Sea Cosmetics Four-sided Nail Buffers TWO OF THEM !!!,
-author: Suvojit Manna,
-tags: DSC Deep Sea Cosmetics Four-sided Nail Buffers TWO OF THEM !!!,
-publishedAt: Fri Jan 10 2020 15:00:15 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:15 GMT+0530 (India Standard Time),
----
-
 # [DSC Deep Sea Cosmetics Four-sided Nail Buffers TWO OF THEM !!!](https://products.checkmycream.com/products/DSC-Deep-Sea-Cosmetics-Four-sided-Nail-Buffers-TWO-OF-THEM-!!!.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Nailart NAIL TATTOO STICKER - maritim / navy / anchor - black,
-description: Nailart NAIL TATTOO STICKER - maritim / navy / anchor - black,
-author: Suvojit Manna,
-tags: Nailart NAIL TATTOO STICKER - maritim / navy / anchor - black,
-publishedAt: Fri Jan 10 2020 15:00:31 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:31 GMT+0530 (India Standard Time),
----
-
 # [Nailart NAIL TATTOO STICKER - maritim / navy / anchor - black](https://products.checkmycream.com/products/Nailart-NAIL-TATTOO-STICKER-maritim-navy-anchor-black.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Pomegranate Bath Spa Gift Set in Red Velvet Rich Box,
-description: Pomegranate Bath Spa Gift Set in Red Velvet Rich Box,
-author: Suvojit Manna,
-tags: Pomegranate Bath Spa Gift Set in Red Velvet Rich Box,
-publishedAt: Fri Jan 10 2020 15:00:14 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:14 GMT+0530 (India Standard Time),
----
-
 # [Pomegranate Bath Spa Gift Set in Red Velvet Rich Box](https://products.checkmycream.com/products/Pomegranate-Bath-Spa-Gift-Set-in-Red-Velvet-Rich-Box.html)
 
 ### Positive Reviews

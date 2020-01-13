@@ -1,12 +1,3 @@
----
-title: Beautify Professional Aluminum 10&quot; Beauty Cosmetics &amp; Makeup Train Case (Lilac),
-description: Beautify Professional Aluminum 10&quot; Beauty Cosmetics &amp; Makeup Train Case (Lilac),
-author: Suvojit Manna,
-tags: Beautify Professional Aluminum 10&quot; Beauty Cosmetics &amp; Makeup Train Case (Lilac),
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [Beautify Professional Aluminum 10&quot; Beauty Cosmetics &amp; Makeup Train Case (Lilac)](https://products.checkmycream.com/products/Beautify-Professional-Aluminum-10&quot;-Beauty-Cosmetics-and-Makeup-Train-Case-(Lilac).html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: CoverGirl Outlast Double Lip Shine, Power Pink 205, 0.2 Ounce Bottle,
-description: CoverGirl Outlast Double Lip Shine, Power Pink 205, 0.2 Ounce Bottle,
-author: Suvojit Manna,
-tags: CoverGirl Outlast Double Lip Shine, Power Pink 205, 0.2 Ounce Bottle,
-publishedAt: Fri Jan 10 2020 14:59:32 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:32 GMT+0530 (India Standard Time),
----
-
 # [CoverGirl Outlast Double Lip Shine, Power Pink 205, 0.2 Ounce Bottle](https://products.checkmycream.com/products/CoverGirl-Outlast-Double-Lip-Shine-Power-Pink-205-0.2-Ounce-Bottle.html)
 
 ### Positive Reviews

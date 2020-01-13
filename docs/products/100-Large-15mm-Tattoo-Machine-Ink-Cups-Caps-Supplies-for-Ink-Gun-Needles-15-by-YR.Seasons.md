@@ -1,12 +1,3 @@
----
-title: 100 Large 15mm Tattoo Machine Ink Cups Caps Supplies for Ink Gun Needles #15 by YR.Seasons,
-description: 100 Large 15mm Tattoo Machine Ink Cups Caps Supplies for Ink Gun Needles #15 by YR.Seasons,
-author: Suvojit Manna,
-tags: 100 Large 15mm Tattoo Machine Ink Cups Caps Supplies for Ink Gun Needles #15 by YR.Seasons,
-publishedAt: Fri Jan 10 2020 15:00:29 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:29 GMT+0530 (India Standard Time),
----
-
 # [100 Large 15mm Tattoo Machine Ink Cups Caps Supplies for Ink Gun Needles #15 by YR.Seasons](https://products.checkmycream.com/products/100-Large-15mm-Tattoo-Machine-Ink-Cups-Caps-Supplies-for-Ink-Gun-Needles-15-by-YR.Seasons.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Provocative Interlude By Elizabeth Arden For Women. Eau De Parfum Spray 3.4 oz,
-description: Provocative Interlude By Elizabeth Arden For Women. Eau De Parfum Spray 3.4 oz,
-author: Suvojit Manna,
-tags: Provocative Interlude By Elizabeth Arden For Women. Eau De Parfum Spray 3.4 oz,
-publishedAt: Fri Jan 10 2020 14:59:12 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:12 GMT+0530 (India Standard Time),
----
-
 # [Provocative Interlude By Elizabeth Arden For Women. Eau De Parfum Spray 3.4 oz](https://products.checkmycream.com/products/Provocative-Interlude-By-Elizabeth-Arden-For-Women.-Eau-De-Parfum-Spray-3.4-oz.html)
 
 ### Positive Reviews

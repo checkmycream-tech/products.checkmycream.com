@@ -1,12 +1,3 @@
----
-title: Sea Bond Denture Adhesive, 30 Count,
-description: Sea Bond Denture Adhesive, 30 Count,
-author: Suvojit Manna,
-tags: Sea Bond Denture Adhesive, 30 Count,
-publishedAt: Fri Jan 10 2020 14:59:37 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:37 GMT+0530 (India Standard Time),
----
-
 # [Sea Bond Denture Adhesive, 30 Count](https://products.checkmycream.com/products/Sea-Bond-Denture-Adhesive-30-Count.html)
 
 ### Positive Reviews

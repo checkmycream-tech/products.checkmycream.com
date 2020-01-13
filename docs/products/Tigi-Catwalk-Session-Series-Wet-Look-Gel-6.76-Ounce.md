@@ -1,12 +1,3 @@
----
-title: Tigi Catwalk Session Series Wet Look Gel, 6.76 Ounce,
-description: Tigi Catwalk Session Series Wet Look Gel, 6.76 Ounce,
-author: Suvojit Manna,
-tags: Tigi Catwalk Session Series Wet Look Gel, 6.76 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:07 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:07 GMT+0530 (India Standard Time),
----
-
 # [Tigi Catwalk Session Series Wet Look Gel, 6.76 Ounce](https://products.checkmycream.com/products/Tigi-Catwalk-Session-Series-Wet-Look-Gel-6.76-Ounce.html)
 
 ### Positive Reviews

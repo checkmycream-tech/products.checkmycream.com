@@ -1,12 +1,3 @@
----
-title: Sannysis(TM) 1PC Elegent Charming Eyeliner Gel Cream With Brush Makeup Black Waterproof Eye Liner,
-description: Sannysis(TM) 1PC Elegent Charming Eyeliner Gel Cream With Brush Makeup Black Waterproof Eye Liner,
-author: Suvojit Manna,
-tags: Sannysis(TM) 1PC Elegent Charming Eyeliner Gel Cream With Brush Makeup Black Waterproof Eye Liner,
-publishedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
----
-
 # [Sannysis(TM) 1PC Elegent Charming Eyeliner Gel Cream With Brush Makeup Black Waterproof Eye Liner](https://products.checkmycream.com/products/Sannysis(TM)-1PC-Elegent-Charming-Eyeliner-Gel-Cream-With-Brush-Makeup-Black-Waterproof-Eye-Liner.html)
 
 ### Positive Reviews

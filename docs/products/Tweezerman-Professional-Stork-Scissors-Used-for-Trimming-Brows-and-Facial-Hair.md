@@ -1,12 +1,3 @@
----
-title: Tweezerman Professional Stork Scissors Used for Trimming Brows and Facial Hair,
-description: Tweezerman Professional Stork Scissors Used for Trimming Brows and Facial Hair,
-author: Suvojit Manna,
-tags: Tweezerman Professional Stork Scissors Used for Trimming Brows and Facial Hair,
-publishedAt: Fri Jan 10 2020 14:59:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:02 GMT+0530 (India Standard Time),
----
-
 # [Tweezerman Professional Stork Scissors Used for Trimming Brows and Facial Hair](https://products.checkmycream.com/products/Tweezerman-Professional-Stork-Scissors-Used-for-Trimming-Brows-and-Facial-Hair.html)
 
 ### Positive Reviews

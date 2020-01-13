@@ -1,12 +1,3 @@
----
-title: Maybelline Great Lash Mascara - Bundle of 3 Colors - I See Blue, So Very Berry &amp; Teal Appeal,
-description: Maybelline Great Lash Mascara - Bundle of 3 Colors - I See Blue, So Very Berry &amp; Teal Appeal,
-author: Suvojit Manna,
-tags: Maybelline Great Lash Mascara - Bundle of 3 Colors - I See Blue, So Very Berry &amp; Teal Appeal,
-publishedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
----
-
 # [Maybelline Great Lash Mascara - Bundle of 3 Colors - I See Blue, So Very Berry &amp; Teal Appeal](https://products.checkmycream.com/products/Maybelline-Great-Lash-Mascara-Bundle-of-3-Colors-I-See-Blue-So-Very-Berry-and-Teal-Appeal.html)
 
 ### Positive Reviews

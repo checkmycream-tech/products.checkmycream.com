@@ -1,12 +1,3 @@
----
-title: Murad Age-Balancing Broad Spectrum SPF 30 Moisturizer, 1.7 Ounce,
-description: Murad Age-Balancing Broad Spectrum SPF 30 Moisturizer, 1.7 Ounce,
-author: Suvojit Manna,
-tags: Murad Age-Balancing Broad Spectrum SPF 30 Moisturizer, 1.7 Ounce,
-publishedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
----
-
 # [Murad Age-Balancing Broad Spectrum SPF 30 Moisturizer, 1.7 Ounce](https://products.checkmycream.com/products/Murad-Age-Balancing-Broad-Spectrum-SPF-30-Moisturizer-1.7-Ounce.html)
 
 ### Positive Reviews

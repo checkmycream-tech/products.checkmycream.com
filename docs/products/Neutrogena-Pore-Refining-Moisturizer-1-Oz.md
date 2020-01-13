@@ -1,12 +1,3 @@
----
-title: Neutrogena Pore Refining Moisturizer, 1 Oz,
-description: Neutrogena Pore Refining Moisturizer, 1 Oz,
-author: Suvojit Manna,
-tags: Neutrogena Pore Refining Moisturizer, 1 Oz,
-publishedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
----
-
 # [Neutrogena Pore Refining Moisturizer, 1 Oz](https://products.checkmycream.com/products/Neutrogena-Pore-Refining-Moisturizer-1-Oz.html)
 
 ### Positive Reviews

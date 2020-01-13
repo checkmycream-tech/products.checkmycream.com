@@ -1,12 +1,3 @@
----
-title: Unscripted by Patrick Dempsey for Avon Eau De Toilette,
-description: Unscripted by Patrick Dempsey for Avon Eau De Toilette,
-author: Suvojit Manna,
-tags: Unscripted by Patrick Dempsey for Avon Eau De Toilette,
-publishedAt: Fri Jan 10 2020 14:59:32 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:32 GMT+0530 (India Standard Time),
----
-
 # [Unscripted by Patrick Dempsey for Avon Eau De Toilette](https://products.checkmycream.com/products/Unscripted-by-Patrick-Dempsey-for-Avon-Eau-De-Toilette.html)
 
 ### Positive Reviews

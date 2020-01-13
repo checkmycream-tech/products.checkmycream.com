@@ -1,12 +1,3 @@
----
-title: Attimo Cologne By Salvatore Ferragamo For Men,
-description: Attimo Cologne By Salvatore Ferragamo For Men,
-author: Suvojit Manna,
-tags: Attimo Cologne By Salvatore Ferragamo For Men,
-publishedAt: Fri Jan 10 2020 15:00:11 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:11 GMT+0530 (India Standard Time),
----
-
 # [Attimo Cologne By Salvatore Ferragamo For Men](https://products.checkmycream.com/products/Attimo-Cologne-By-Salvatore-Ferragamo-For-Men.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Yaheetech Nail Technician Desk,
-description: Yaheetech Nail Technician Desk,
-author: Suvojit Manna,
-tags: Yaheetech Nail Technician Desk,
-publishedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
----
-
 # [Yaheetech Nail Technician Desk](https://products.checkmycream.com/products/Yaheetech-Nail-Technician-Desk.html)
 
 ### Positive Reviews

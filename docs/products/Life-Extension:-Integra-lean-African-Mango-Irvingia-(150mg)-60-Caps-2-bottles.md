@@ -1,12 +1,3 @@
----
-title: Life Extension: Integra-lean African Mango Irvingia (150mg) 60 Caps 2-bottles,
-description: Life Extension: Integra-lean African Mango Irvingia (150mg) 60 Caps 2-bottles,
-author: Suvojit Manna,
-tags: Life Extension: Integra-lean African Mango Irvingia (150mg) 60 Caps 2-bottles,
-publishedAt: Fri Jan 10 2020 15:00:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:08 GMT+0530 (India Standard Time),
----
-
 # [Life Extension: Integra-lean African Mango Irvingia (150mg) 60 Caps 2-bottles](https://products.checkmycream.com/products/Life-Extension:-Integra-lean-African-Mango-Irvingia-(150mg)-60-Caps-2-bottles.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Woolzies 100% pure eucalyptus oil,
-description: Woolzies 100% pure eucalyptus oil,
-author: Suvojit Manna,
-tags: Woolzies 100% pure eucalyptus oil,
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [Woolzies 100% pure eucalyptus oil](https://products.checkmycream.com/products/Woolzies-100percent-pure-eucalyptus-oil.html)
 
 ### Positive Reviews

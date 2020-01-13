@@ -1,12 +1,3 @@
----
-title: MAC Turquatic, 20 ml,
-description: MAC Turquatic, 20 ml,
-author: Suvojit Manna,
-tags: MAC Turquatic, 20 ml,
-publishedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
----
-
 # [MAC Turquatic, 20 ml](https://products.checkmycream.com/products/MAC-Turquatic-20-ml.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Pecksniffs Vitamin Enriched Shower Gel 33.8 Fl. Oz. From England,
-description: Pecksniffs Vitamin Enriched Shower Gel 33.8 Fl. Oz. From England,
-author: Suvojit Manna,
-tags: Pecksniffs Vitamin Enriched Shower Gel 33.8 Fl. Oz. From England,
-publishedAt: Fri Jan 10 2020 14:59:12 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:12 GMT+0530 (India Standard Time),
----
-
 # [Pecksniffs Vitamin Enriched Shower Gel 33.8 Fl. Oz. From England](https://products.checkmycream.com/products/Pecksniffs-Vitamin-Enriched-Shower-Gel-33.8-Fl.-Oz.-From-England.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Nasalcease FirstAid Nosebleeds, 0.75 Ounces Box,
-description: Nasalcease FirstAid Nosebleeds, 0.75 Ounces Box,
-author: Suvojit Manna,
-tags: Nasalcease FirstAid Nosebleeds, 0.75 Ounces Box,
-publishedAt: Fri Jan 10 2020 14:59:17 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:17 GMT+0530 (India Standard Time),
----
-
 # [Nasalcease FirstAid Nosebleeds, 0.75 Ounces Box](https://products.checkmycream.com/products/Nasalcease-FirstAid-Nosebleeds-0.75-Ounces-Box.html)
 
 ### Positive Reviews

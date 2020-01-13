@@ -1,12 +1,3 @@
----
-title: COVERGIRL Outlast All Day Two-Step Lipcolor Caramel Icing 534, 0.06 Oz, 0.07 fl oz,
-description: COVERGIRL Outlast All Day Two-Step Lipcolor Caramel Icing 534, 0.06 Oz, 0.07 fl oz,
-author: Suvojit Manna,
-tags: COVERGIRL Outlast All Day Two-Step Lipcolor Caramel Icing 534, 0.06 Oz, 0.07 fl oz,
-publishedAt: Fri Jan 10 2020 15:00:32 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:32 GMT+0530 (India Standard Time),
----
-
 # [COVERGIRL Outlast All Day Two-Step Lipcolor Caramel Icing 534, 0.06 Oz, 0.07 fl oz](https://products.checkmycream.com/products/COVERGIRL-Outlast-All-Day-Two-Step-Lipcolor-Caramel-Icing-534-0.06-Oz-0.07-fl-oz.html)
 
 ### Positive Reviews

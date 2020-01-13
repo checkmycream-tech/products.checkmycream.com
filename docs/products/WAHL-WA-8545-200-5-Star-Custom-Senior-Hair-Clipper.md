@@ -1,12 +1,3 @@
----
-title: WAHL WA-8545-200 5 Star Custom Senior Hair Clipper,
-description: WAHL WA-8545-200 5 Star Custom Senior Hair Clipper,
-author: Suvojit Manna,
-tags: WAHL WA-8545-200 5 Star Custom Senior Hair Clipper,
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [WAHL WA-8545-200 5 Star Custom Senior Hair Clipper](https://products.checkmycream.com/products/WAHL-WA-8545-200-5-Star-Custom-Senior-Hair-Clipper.html)
 
 ### Positive Reviews

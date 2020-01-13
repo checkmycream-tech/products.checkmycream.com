@@ -1,12 +1,3 @@
----
-title: The Doctor&#x27;s BrushPicks 120 Each,
-description: The Doctor&#x27;s BrushPicks 120 Each,
-author: Suvojit Manna,
-tags: The Doctor&#x27;s BrushPicks 120 Each,
-publishedAt: Fri Jan 10 2020 15:00:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:01 GMT+0530 (India Standard Time),
----
-
 # [The Doctor&#x27;s BrushPicks 120 Each](https://products.checkmycream.com/products/The-Doctor&#x27;s-BrushPicks-120-Each.html)
 
 ### Positive Reviews

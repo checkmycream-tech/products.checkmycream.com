@@ -1,12 +1,3 @@
----
-title: Sexy Hair Short Sexy Hair Quick Change Shaping Balm 1.8 oz by Sexy Hair,
-description: Sexy Hair Short Sexy Hair Quick Change Shaping Balm 1.8 oz by Sexy Hair,
-author: Suvojit Manna,
-tags: Sexy Hair Short Sexy Hair Quick Change Shaping Balm 1.8 oz by Sexy Hair,
-publishedAt: Fri Jan 10 2020 15:00:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:03 GMT+0530 (India Standard Time),
----
-
 # [Sexy Hair Short Sexy Hair Quick Change Shaping Balm 1.8 oz by Sexy Hair](https://products.checkmycream.com/products/Sexy-Hair-Short-Sexy-Hair-Quick-Change-Shaping-Balm-1.8-oz-by-Sexy-Hair.html)
 
 ### Positive Reviews

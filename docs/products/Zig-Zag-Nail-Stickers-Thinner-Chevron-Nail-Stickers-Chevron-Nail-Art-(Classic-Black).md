@@ -1,12 +1,3 @@
----
-title: Zig Zag Nail Stickers - Thinner Chevron Nail Stickers - Chevron Nail Art (Classic Black),
-description: Zig Zag Nail Stickers - Thinner Chevron Nail Stickers - Chevron Nail Art (Classic Black),
-author: Suvojit Manna,
-tags: Zig Zag Nail Stickers - Thinner Chevron Nail Stickers - Chevron Nail Art (Classic Black),
-publishedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
----
-
 # [Zig Zag Nail Stickers - Thinner Chevron Nail Stickers - Chevron Nail Art (Classic Black)](https://products.checkmycream.com/products/Zig-Zag-Nail-Stickers-Thinner-Chevron-Nail-Stickers-Chevron-Nail-Art-(Classic-Black).html)
 
 ### Positive Reviews

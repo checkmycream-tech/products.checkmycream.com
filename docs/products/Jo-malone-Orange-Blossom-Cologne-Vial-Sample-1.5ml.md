@@ -1,12 +1,3 @@
----
-title: Jo malone Orange Blossom Cologne Vial Sample 1.5ml,
-description: Jo malone Orange Blossom Cologne Vial Sample 1.5ml,
-author: Suvojit Manna,
-tags: Jo malone Orange Blossom Cologne Vial Sample 1.5ml,
-publishedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
----
-
 # [Jo malone Orange Blossom Cologne Vial Sample 1.5ml](https://products.checkmycream.com/products/Jo-malone-Orange-Blossom-Cologne-Vial-Sample-1.5ml.html)
 
 ### Positive Reviews

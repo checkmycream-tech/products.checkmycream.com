@@ -1,12 +1,3 @@
----
-title: BeautiControl Brown Sugar Eau De Toilette 1.7 oz,
-description: BeautiControl Brown Sugar Eau De Toilette 1.7 oz,
-author: Suvojit Manna,
-tags: BeautiControl Brown Sugar Eau De Toilette 1.7 oz,
-publishedAt: Fri Jan 10 2020 15:00:36 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:36 GMT+0530 (India Standard Time),
----
-
 # [BeautiControl Brown Sugar Eau De Toilette 1.7 oz](https://products.checkmycream.com/products/BeautiControl-Brown-Sugar-Eau-De-Toilette-1.7-oz.html)
 
 ### Positive Reviews

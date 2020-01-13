@@ -1,12 +1,3 @@
----
-title: ACT Braces Care Ant-Cavity Fluoride Mouthwash, Clean Mint, 18 Ounce,
-description: ACT Braces Care Ant-Cavity Fluoride Mouthwash, Clean Mint, 18 Ounce,
-author: Suvojit Manna,
-tags: ACT Braces Care Ant-Cavity Fluoride Mouthwash, Clean Mint, 18 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
----
-
 # [ACT Braces Care Ant-Cavity Fluoride Mouthwash, Clean Mint, 18 Ounce](https://products.checkmycream.com/products/ACT-Braces-Care-Ant-Cavity-Fluoride-Mouthwash-Clean-Mint-18-Ounce.html)
 
 ### Positive Reviews

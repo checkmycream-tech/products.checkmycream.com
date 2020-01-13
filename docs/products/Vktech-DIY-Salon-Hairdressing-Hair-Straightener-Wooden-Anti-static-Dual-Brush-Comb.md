@@ -1,12 +1,3 @@
----
-title: Vktech DIY Salon Hairdressing Hair Straightener Wooden Anti-static Dual-Brush Comb,
-description: Vktech DIY Salon Hairdressing Hair Straightener Wooden Anti-static Dual-Brush Comb,
-author: Suvojit Manna,
-tags: Vktech DIY Salon Hairdressing Hair Straightener Wooden Anti-static Dual-Brush Comb,
-publishedAt: Fri Jan 10 2020 15:00:45 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:45 GMT+0530 (India Standard Time),
----
-
 # [Vktech DIY Salon Hairdressing Hair Straightener Wooden Anti-static Dual-Brush Comb](https://products.checkmycream.com/products/Vktech-DIY-Salon-Hairdressing-Hair-Straightener-Wooden-Anti-static-Dual-Brush-Comb.html)
 
 ### Positive Reviews

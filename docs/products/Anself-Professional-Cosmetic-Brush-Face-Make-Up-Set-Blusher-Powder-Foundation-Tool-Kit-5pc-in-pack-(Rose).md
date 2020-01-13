@@ -1,12 +1,3 @@
----
-title: Anself Professional Cosmetic Brush Face Make Up Set Blusher Powder Foundation Tool Kit 5pc in pack (Rose),
-description: Anself Professional Cosmetic Brush Face Make Up Set Blusher Powder Foundation Tool Kit 5pc in pack (Rose),
-author: Suvojit Manna,
-tags: Anself Professional Cosmetic Brush Face Make Up Set Blusher Powder Foundation Tool Kit 5pc in pack (Rose),
-publishedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
----
-
 # [Anself Professional Cosmetic Brush Face Make Up Set Blusher Powder Foundation Tool Kit 5pc in pack (Rose)](https://products.checkmycream.com/products/Anself-Professional-Cosmetic-Brush-Face-Make-Up-Set-Blusher-Powder-Foundation-Tool-Kit-5pc-in-pack-(Rose).html)
 
 ### Positive Reviews

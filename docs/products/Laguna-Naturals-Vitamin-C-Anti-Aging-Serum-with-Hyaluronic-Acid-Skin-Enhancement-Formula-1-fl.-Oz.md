@@ -1,12 +1,3 @@
----
-title: Laguna Naturals Vitamin C Anti Aging Serum with Hyaluronic Acid, Skin Enhancement Formula, 1 fl. Oz,
-description: Laguna Naturals Vitamin C Anti Aging Serum with Hyaluronic Acid, Skin Enhancement Formula, 1 fl. Oz,
-author: Suvojit Manna,
-tags: Laguna Naturals Vitamin C Anti Aging Serum with Hyaluronic Acid, Skin Enhancement Formula, 1 fl. Oz,
-publishedAt: Fri Jan 10 2020 15:01:07 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:07 GMT+0530 (India Standard Time),
----
-
 # [Laguna Naturals Vitamin C Anti Aging Serum with Hyaluronic Acid, Skin Enhancement Formula, 1 fl. Oz](https://products.checkmycream.com/products/Laguna-Naturals-Vitamin-C-Anti-Aging-Serum-with-Hyaluronic-Acid-Skin-Enhancement-Formula-1-fl.-Oz.html)
 
 ### Positive Reviews

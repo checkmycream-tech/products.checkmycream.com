@@ -1,12 +1,3 @@
----
-title: TRESemme 24 Hour Body Finishing Spray, 7.7 Ounce Bottle,
-description: TRESemme 24 Hour Body Finishing Spray, 7.7 Ounce Bottle,
-author: Suvojit Manna,
-tags: TRESemme 24 Hour Body Finishing Spray, 7.7 Ounce Bottle,
-publishedAt: Fri Jan 10 2020 14:59:34 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:34 GMT+0530 (India Standard Time),
----
-
 # [TRESemme 24 Hour Body Finishing Spray, 7.7 Ounce Bottle](https://products.checkmycream.com/products/TRESemme-24-Hour-Body-Finishing-Spray-7.7-Ounce-Bottle.html)
 
 ### Positive Reviews

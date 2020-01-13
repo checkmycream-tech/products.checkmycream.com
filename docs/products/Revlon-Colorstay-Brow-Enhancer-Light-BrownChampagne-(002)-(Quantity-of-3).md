@@ -1,12 +1,3 @@
----
-title: Revlon Colorstay Brow Enhancer, Light Brown/Champagne (002) (Quantity of 3),
-description: Revlon Colorstay Brow Enhancer, Light Brown/Champagne (002) (Quantity of 3),
-author: Suvojit Manna,
-tags: Revlon Colorstay Brow Enhancer, Light Brown/Champagne (002) (Quantity of 3),
-publishedAt: Fri Jan 10 2020 15:00:30 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:30 GMT+0530 (India Standard Time),
----
-
 # [Revlon Colorstay Brow Enhancer, Light Brown/Champagne (002) (Quantity of 3)](https://products.checkmycream.com/products/Revlon-Colorstay-Brow-Enhancer-Light-BrownChampagne-(002)-(Quantity-of-3).html)
 
 ### Positive Reviews

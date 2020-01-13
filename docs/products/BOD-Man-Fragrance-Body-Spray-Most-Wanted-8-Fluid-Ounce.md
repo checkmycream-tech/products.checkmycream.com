@@ -1,12 +1,3 @@
----
-title: BOD Man Fragrance Body Spray, Most Wanted, 8 Fluid Ounce,
-description: BOD Man Fragrance Body Spray, Most Wanted, 8 Fluid Ounce,
-author: Suvojit Manna,
-tags: BOD Man Fragrance Body Spray, Most Wanted, 8 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 15:00:36 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:36 GMT+0530 (India Standard Time),
----
-
 # [BOD Man Fragrance Body Spray, Most Wanted, 8 Fluid Ounce](https://products.checkmycream.com/products/BOD-Man-Fragrance-Body-Spray-Most-Wanted-8-Fluid-Ounce.html)
 
 ### Positive Reviews

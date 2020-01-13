@@ -1,12 +1,3 @@
----
-title: OPI Nail Polish Peanuts Mini Collection,
-description: OPI Nail Polish Peanuts Mini Collection,
-author: Suvojit Manna,
-tags: OPI Nail Polish Peanuts Mini Collection,
-publishedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
----
-
 # [OPI Nail Polish Peanuts Mini Collection](https://products.checkmycream.com/products/OPI-Nail-Polish-Peanuts-Mini-Collection.html)
 
 ### Positive Reviews

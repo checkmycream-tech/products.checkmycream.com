@@ -1,12 +1,3 @@
----
-title: Fractionated Coconut Oil 16 oz. Base Carrier for Aromatherapy, Essential Oils or Massage use,
-description: Fractionated Coconut Oil 16 oz. Base Carrier for Aromatherapy, Essential Oils or Massage use,
-author: Suvojit Manna,
-tags: Fractionated Coconut Oil 16 oz. Base Carrier for Aromatherapy, Essential Oils or Massage use,
-publishedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
----
-
 # [Fractionated Coconut Oil 16 oz. Base Carrier for Aromatherapy, Essential Oils or Massage use](https://products.checkmycream.com/products/Fractionated-Coconut-Oil-16-oz.-Base-Carrier-for-Aromatherapy-Essential-Oils-or-Massage-use.html)
 
 ### Positive Reviews

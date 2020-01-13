@@ -1,12 +1,3 @@
----
-title: SDBING Fashion Secrets Spa Gel Booties Pink,
-description: SDBING Fashion Secrets Spa Gel Booties Pink,
-author: Suvojit Manna,
-tags: SDBING Fashion Secrets Spa Gel Booties Pink,
-publishedAt: Fri Jan 10 2020 15:00:18 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:18 GMT+0530 (India Standard Time),
----
-
 # [SDBING Fashion Secrets Spa Gel Booties Pink](https://products.checkmycream.com/products/SDBING-Fashion-Secrets-Spa-Gel-Booties-Pink.html)
 
 ### Positive Reviews

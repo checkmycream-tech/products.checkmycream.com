@@ -1,12 +1,3 @@
----
-title: Grisi Mother of Pearl Face Cream Lightening, 3.8 oz,
-description: Grisi Mother of Pearl Face Cream Lightening, 3.8 oz,
-author: Suvojit Manna,
-tags: Grisi Mother of Pearl Face Cream Lightening, 3.8 oz,
-publishedAt: Fri Jan 10 2020 14:59:32 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:32 GMT+0530 (India Standard Time),
----
-
 # [Grisi Mother of Pearl Face Cream Lightening, 3.8 oz](https://products.checkmycream.com/products/Grisi-Mother-of-Pearl-Face-Cream-Lightening-3.8-oz.html)
 
 ### Positive Reviews

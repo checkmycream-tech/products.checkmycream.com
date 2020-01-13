@@ -1,12 +1,3 @@
----
-title: Travel Folding Hair Brush Mirror Pocket Purse Car Camping Compact 2.5&quot; Gift 1Pc,
-description: Travel Folding Hair Brush Mirror Pocket Purse Car Camping Compact 2.5&quot; Gift 1Pc,
-author: Suvojit Manna,
-tags: Travel Folding Hair Brush Mirror Pocket Purse Car Camping Compact 2.5&quot; Gift 1Pc,
-publishedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
----
-
 # [Travel Folding Hair Brush Mirror Pocket Purse Car Camping Compact 2.5&quot; Gift 1Pc](https://products.checkmycream.com/products/Travel-Folding-Hair-Brush-Mirror-Pocket-Purse-Car-Camping-Compact-2.5&quot;-Gift-1Pc.html)
 
 ### Positive Reviews

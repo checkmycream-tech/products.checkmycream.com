@@ -1,12 +1,3 @@
----
-title: Victoria&#x27;s Secret Midnight Mimosa Mist Splash 8.4,
-description: Victoria&#x27;s Secret Midnight Mimosa Mist Splash 8.4,
-author: Suvojit Manna,
-tags: Victoria&#x27;s Secret Midnight Mimosa Mist Splash 8.4,
-publishedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
----
-
 # [Victoria&#x27;s Secret Midnight Mimosa Mist Splash 8.4](https://products.checkmycream.com/products/Victoria&#x27;s-Secret-Midnight-Mimosa-Mist-Splash-8.4.html)
 
 ### Positive Reviews

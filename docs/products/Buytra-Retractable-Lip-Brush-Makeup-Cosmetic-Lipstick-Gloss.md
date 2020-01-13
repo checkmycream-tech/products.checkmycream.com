@@ -1,12 +1,3 @@
----
-title: Buytra Retractable Lip Brush Makeup Cosmetic Lipstick Gloss,
-description: Buytra Retractable Lip Brush Makeup Cosmetic Lipstick Gloss,
-author: Suvojit Manna,
-tags: Buytra Retractable Lip Brush Makeup Cosmetic Lipstick Gloss,
-publishedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
----
-
 # [Buytra Retractable Lip Brush Makeup Cosmetic Lipstick Gloss](https://products.checkmycream.com/products/Buytra-Retractable-Lip-Brush-Makeup-Cosmetic-Lipstick-Gloss.html)
 
 ### Positive Reviews

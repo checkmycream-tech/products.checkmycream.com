@@ -1,12 +1,3 @@
----
-title: Dermalogica Multi Active Toner,
-description: Dermalogica Multi Active Toner,
-author: Suvojit Manna,
-tags: Dermalogica Multi Active Toner,
-publishedAt: Fri Jan 10 2020 14:59:22 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:22 GMT+0530 (India Standard Time),
----
-
 # [Dermalogica Multi Active Toner](https://products.checkmycream.com/products/Dermalogica-Multi-Active-Toner.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Reach Dentotape Extra Wide Waxed Tape, 100 Yards,
-description: Reach Dentotape Extra Wide Waxed Tape, 100 Yards,
-author: Suvojit Manna,
-tags: Reach Dentotape Extra Wide Waxed Tape, 100 Yards,
-publishedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
----
-
 # [Reach Dentotape Extra Wide Waxed Tape, 100 Yards](https://products.checkmycream.com/products/Reach-Dentotape-Extra-Wide-Waxed-Tape-100-Yards.html)
 
 ### Positive Reviews

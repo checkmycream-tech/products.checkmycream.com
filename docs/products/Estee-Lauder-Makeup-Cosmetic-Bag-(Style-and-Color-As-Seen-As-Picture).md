@@ -1,12 +1,3 @@
----
-title: Estée Lauder Makeup Cosmetic Bag (Style and Color As Seen As Picture),
-description: Estée Lauder Makeup Cosmetic Bag (Style and Color As Seen As Picture),
-author: Suvojit Manna,
-tags: Estée Lauder Makeup Cosmetic Bag (Style and Color As Seen As Picture),
-publishedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
----
-
 # [Estée Lauder Makeup Cosmetic Bag (Style and Color As Seen As Picture)](https://products.checkmycream.com/products/Estee-Lauder-Makeup-Cosmetic-Bag-(Style-and-Color-As-Seen-As-Picture).html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Hydroderm Anti-Wrinkle Serum,
-description: Hydroderm Anti-Wrinkle Serum,
-author: Suvojit Manna,
-tags: Hydroderm Anti-Wrinkle Serum,
-publishedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
----
-
 # [Hydroderm Anti-Wrinkle Serum](https://products.checkmycream.com/products/Hydroderm-Anti-Wrinkle-Serum.html)
 
 ### Positive Reviews

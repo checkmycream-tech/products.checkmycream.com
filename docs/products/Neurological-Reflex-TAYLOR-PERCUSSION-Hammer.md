@@ -1,12 +1,3 @@
----
-title: Neurological Reflex TAYLOR PERCUSSION Hammer,
-description: Neurological Reflex TAYLOR PERCUSSION Hammer,
-author: Suvojit Manna,
-tags: Neurological Reflex TAYLOR PERCUSSION Hammer,
-publishedAt: Fri Jan 10 2020 14:59:10 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:10 GMT+0530 (India Standard Time),
----
-
 # [Neurological Reflex TAYLOR PERCUSSION Hammer](https://products.checkmycream.com/products/Neurological-Reflex-TAYLOR-PERCUSSION-Hammer.html)
 
 ### Positive Reviews

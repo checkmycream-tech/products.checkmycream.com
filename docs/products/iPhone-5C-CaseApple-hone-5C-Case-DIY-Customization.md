@@ -1,12 +1,3 @@
----
-title: iPhone 5C Case,Apple hone 5C Case [DIY Customization],
-description: iPhone 5C Case,Apple hone 5C Case [DIY Customization],
-author: Suvojit Manna,
-tags: iPhone 5C Case,Apple hone 5C Case [DIY Customization],
-publishedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
----
-
 # [iPhone 5C Case,Apple hone 5C Case [DIY Customization]](https://products.checkmycream.com/products/iPhone-5C-CaseApple-hone-5C-Case-DIY-Customization.html)
 
 ### Positive Reviews

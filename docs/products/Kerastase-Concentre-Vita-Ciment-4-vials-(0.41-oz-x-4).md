@@ -1,12 +1,3 @@
----
-title: Kerastase Concentre Vita Ciment 4 vials (0.41 oz x 4),
-description: Kerastase Concentre Vita Ciment 4 vials (0.41 oz x 4),
-author: Suvojit Manna,
-tags: Kerastase Concentre Vita Ciment 4 vials (0.41 oz x 4),
-publishedAt: Fri Jan 10 2020 14:59:34 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:34 GMT+0530 (India Standard Time),
----
-
 # [Kerastase Concentre Vita Ciment 4 vials (0.41 oz x 4)](https://products.checkmycream.com/products/Kerastase-Concentre-Vita-Ciment-4-vials-(0.41-oz-x-4).html)
 
 ### Positive Reviews

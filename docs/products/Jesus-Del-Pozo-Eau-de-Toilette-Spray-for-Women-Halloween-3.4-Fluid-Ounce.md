@@ -1,12 +1,3 @@
----
-title: Jesus Del Pozo Eau de Toilette Spray for Women, Halloween, 3.4 Fluid Ounce,
-description: Jesus Del Pozo Eau de Toilette Spray for Women, Halloween, 3.4 Fluid Ounce,
-author: Suvojit Manna,
-tags: Jesus Del Pozo Eau de Toilette Spray for Women, Halloween, 3.4 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 14:59:22 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:22 GMT+0530 (India Standard Time),
----
-
 # [Jesus Del Pozo Eau de Toilette Spray for Women, Halloween, 3.4 Fluid Ounce](https://products.checkmycream.com/products/Jesus-Del-Pozo-Eau-de-Toilette-Spray-for-Women-Halloween-3.4-Fluid-Ounce.html)
 
 ### Positive Reviews

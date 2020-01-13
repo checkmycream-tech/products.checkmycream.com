@@ -1,12 +1,3 @@
----
-title: Aokin Women Scoop Neck Long Sleeve Tunics with Unbalanced Hem Blouse Tee Top,
-description: Aokin Women Scoop Neck Long Sleeve Tunics with Unbalanced Hem Blouse Tee Top,
-author: Suvojit Manna,
-tags: Aokin Women Scoop Neck Long Sleeve Tunics with Unbalanced Hem Blouse Tee Top,
-publishedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
----
-
 # [Aokin Women Scoop Neck Long Sleeve Tunics with Unbalanced Hem Blouse Tee Top](https://products.checkmycream.com/products/Aokin-Women-Scoop-Neck-Long-Sleeve-Tunics-with-Unbalanced-Hem-Blouse-Tee-Top.html)
 
 ### Positive Reviews

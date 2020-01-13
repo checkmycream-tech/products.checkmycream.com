@@ -1,12 +1,3 @@
----
-title: Love&#x27;s Fresh Lemon All Over Body Spray 2.5 Oz 74 Ml for Women,
-description: Love&#x27;s Fresh Lemon All Over Body Spray 2.5 Oz 74 Ml for Women,
-author: Suvojit Manna,
-tags: Love&#x27;s Fresh Lemon All Over Body Spray 2.5 Oz 74 Ml for Women,
-publishedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
----
-
 # [Love&#x27;s Fresh Lemon All Over Body Spray 2.5 Oz 74 Ml for Women](https://products.checkmycream.com/products/Love&#x27;s-Fresh-Lemon-All-Over-Body-Spray-2.5-Oz-74-Ml-for-Women.html)
 
 ### Positive Reviews

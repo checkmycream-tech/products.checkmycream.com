@@ -1,12 +1,3 @@
----
-title: HeadBlade Sport Scalp Razor,
-description: HeadBlade Sport Scalp Razor,
-author: Suvojit Manna,
-tags: HeadBlade Sport Scalp Razor,
-publishedAt: Fri Jan 10 2020 14:59:34 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:34 GMT+0530 (India Standard Time),
----
-
 # [HeadBlade Sport Scalp Razor](https://products.checkmycream.com/products/HeadBlade-Sport-Scalp-Razor.html)
 
 ### Positive Reviews

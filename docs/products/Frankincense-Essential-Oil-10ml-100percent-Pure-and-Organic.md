@@ -1,12 +1,3 @@
----
-title: Frankincense Essential Oil - 10ml - 100% Pure and Organic,
-description: Frankincense Essential Oil - 10ml - 100% Pure and Organic,
-author: Suvojit Manna,
-tags: Frankincense Essential Oil - 10ml - 100% Pure and Organic,
-publishedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
----
-
 # [Frankincense Essential Oil - 10ml - 100% Pure and Organic](https://products.checkmycream.com/products/Frankincense-Essential-Oil-10ml-100percent-Pure-and-Organic.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Kenra Volume Spray #25,
-description: Kenra Volume Spray #25,
-author: Suvojit Manna,
-tags: Kenra Volume Spray #25,
-publishedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
----
-
 # [Kenra Volume Spray #25](https://products.checkmycream.com/products/Kenra-Volume-Spray-25.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: 50 Pairs- Eyelash Extension Lint Free Under Eye Gel Pad Patches by eyebeautiful,
-description: 50 Pairs- Eyelash Extension Lint Free Under Eye Gel Pad Patches by eyebeautiful,
-author: Suvojit Manna,
-tags: 50 Pairs- Eyelash Extension Lint Free Under Eye Gel Pad Patches by eyebeautiful,
-publishedAt: Fri Jan 10 2020 15:00:23 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:23 GMT+0530 (India Standard Time),
----
-
 # [50 Pairs- Eyelash Extension Lint Free Under Eye Gel Pad Patches by eyebeautiful](https://products.checkmycream.com/products/50-Pairs-Eyelash-Extension-Lint-Free-Under-Eye-Gel-Pad-Patches-by-eyebeautiful.html)
 
 ### Positive Reviews

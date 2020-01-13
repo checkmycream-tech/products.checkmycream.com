@@ -1,12 +1,3 @@
----
-title: GREY FLANNEL by Geoffrey Beene for Men,
-description: GREY FLANNEL by Geoffrey Beene for Men,
-author: Suvojit Manna,
-tags: GREY FLANNEL by Geoffrey Beene for Men,
-publishedAt: Fri Jan 10 2020 14:59:17 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:17 GMT+0530 (India Standard Time),
----
-
 # [GREY FLANNEL by Geoffrey Beene for Men](https://products.checkmycream.com/products/GREY-FLANNEL-by-Geoffrey-Beene-for-Men.html)
 
 ### Positive Reviews

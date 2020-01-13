@@ -1,12 +1,3 @@
----
-title: Pureology Strength Cure Restorative Masque, 5.2 Ounce,
-description: Pureology Strength Cure Restorative Masque, 5.2 Ounce,
-author: Suvojit Manna,
-tags: Pureology Strength Cure Restorative Masque, 5.2 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [Pureology Strength Cure Restorative Masque, 5.2 Ounce](https://products.checkmycream.com/products/Pureology-Strength-Cure-Restorative-Masque-5.2-Ounce.html)
 
 ### Positive Reviews

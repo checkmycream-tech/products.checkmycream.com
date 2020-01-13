@@ -1,12 +1,3 @@
----
-title: Set of 2 - New Series / Version Vivo Per Lei Intensive Eye Treatment Cream &amp; Eye Serum, 1 Fl Oz. Each,
-description: Set of 2 - New Series / Version Vivo Per Lei Intensive Eye Treatment Cream &amp; Eye Serum, 1 Fl Oz. Each,
-author: Suvojit Manna,
-tags: Set of 2 - New Series / Version Vivo Per Lei Intensive Eye Treatment Cream &amp; Eye Serum, 1 Fl Oz. Each,
-publishedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
----
-
 # [Set of 2 - New Series / Version Vivo Per Lei Intensive Eye Treatment Cream &amp; Eye Serum, 1 Fl Oz. Each](https://products.checkmycream.com/products/Set-of-2-New-Series-Version-Vivo-Per-Lei-Intensive-Eye-Treatment-Cream-and-Eye-Serum-1-Fl-Oz.-Each.html)
 
 ### Positive Reviews

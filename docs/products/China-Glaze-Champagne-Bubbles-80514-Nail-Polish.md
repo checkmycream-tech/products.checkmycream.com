@@ -1,12 +1,3 @@
----
-title: China Glaze Champagne Bubbles 80514 Nail Polish,
-description: China Glaze Champagne Bubbles 80514 Nail Polish,
-author: Suvojit Manna,
-tags: China Glaze Champagne Bubbles 80514 Nail Polish,
-publishedAt: Fri Jan 10 2020 15:00:13 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:13 GMT+0530 (India Standard Time),
----
-
 # [China Glaze Champagne Bubbles 80514 Nail Polish](https://products.checkmycream.com/products/China-Glaze-Champagne-Bubbles-80514-Nail-Polish.html)
 
 ### Positive Reviews

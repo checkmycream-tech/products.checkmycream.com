@@ -1,12 +1,3 @@
----
-title: Listerine Antiseptic Mouthwash Original Flavor 1.5 Liter Bottle (Pack of 2),
-description: Listerine Antiseptic Mouthwash Original Flavor 1.5 Liter Bottle (Pack of 2),
-author: Suvojit Manna,
-tags: Listerine Antiseptic Mouthwash Original Flavor 1.5 Liter Bottle (Pack of 2),
-publishedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
----
-
 # [Listerine Antiseptic Mouthwash Original Flavor 1.5 Liter Bottle (Pack of 2)](https://products.checkmycream.com/products/Listerine-Antiseptic-Mouthwash-Original-Flavor-1.5-Liter-Bottle-(Pack-of-2).html)
 
 ### Positive Reviews

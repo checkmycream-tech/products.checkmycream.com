@@ -1,12 +1,3 @@
----
-title: AVANI Purifying Mud Facial Mask, 1.7 fl. oz.,
-description: AVANI Purifying Mud Facial Mask, 1.7 fl. oz.,
-author: Suvojit Manna,
-tags: AVANI Purifying Mud Facial Mask, 1.7 fl. oz.,
-publishedAt: Fri Jan 10 2020 14:59:44 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:44 GMT+0530 (India Standard Time),
----
-
 # [AVANI Purifying Mud Facial Mask, 1.7 fl. oz.](https://products.checkmycream.com/products/AVANI-Purifying-Mud-Facial-Mask-1.7-fl.-oz..html)
 
 ### Positive Reviews

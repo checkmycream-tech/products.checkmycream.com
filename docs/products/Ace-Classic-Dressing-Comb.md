@@ -1,12 +1,3 @@
----
-title: Ace Classic Dressing Comb,
-description: Ace Classic Dressing Comb,
-author: Suvojit Manna,
-tags: Ace Classic Dressing Comb,
-publishedAt: Fri Jan 10 2020 15:00:14 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:14 GMT+0530 (India Standard Time),
----
-
 # [Ace Classic Dressing Comb](https://products.checkmycream.com/products/Ace-Classic-Dressing-Comb.html)
 
 ### Positive Reviews

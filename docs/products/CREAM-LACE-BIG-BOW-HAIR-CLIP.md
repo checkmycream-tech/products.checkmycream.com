@@ -1,12 +1,3 @@
----
-title: CREAM LACE BIG BOW HAIR CLIP,
-description: CREAM LACE BIG BOW HAIR CLIP,
-author: Suvojit Manna,
-tags: CREAM LACE BIG BOW HAIR CLIP,
-publishedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
----
-
 # [CREAM LACE BIG BOW HAIR CLIP](https://products.checkmycream.com/products/CREAM-LACE-BIG-BOW-HAIR-CLIP.html)
 
 ### Positive Reviews

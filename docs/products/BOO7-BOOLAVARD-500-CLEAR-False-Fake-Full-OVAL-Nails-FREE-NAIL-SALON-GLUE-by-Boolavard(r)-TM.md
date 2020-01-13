@@ -1,12 +1,3 @@
----
-title: BOO7 - BOOLAVARD 500 CLEAR False Fake Full OVAL Nails - FREE NAIL SALON GLUE by Boolavard® TM,
-description: BOO7 - BOOLAVARD 500 CLEAR False Fake Full OVAL Nails - FREE NAIL SALON GLUE by Boolavard® TM,
-author: Suvojit Manna,
-tags: BOO7 - BOOLAVARD 500 CLEAR False Fake Full OVAL Nails - FREE NAIL SALON GLUE by Boolavard® TM,
-publishedAt: Fri Jan 10 2020 15:00:45 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:45 GMT+0530 (India Standard Time),
----
-
 # [BOO7 - BOOLAVARD 500 CLEAR False Fake Full OVAL Nails - FREE NAIL SALON GLUE by Boolavard® TM](https://products.checkmycream.com/products/BOO7-BOOLAVARD-500-CLEAR-False-Fake-Full-OVAL-Nails-FREE-NAIL-SALON-GLUE-by-Boolavard(r)-TM.html)
 
 ### Positive Reviews

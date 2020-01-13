@@ -1,12 +1,3 @@
----
-title: SC Tiara Comb With Three-Crystal Center 57235 by SparklyCrystal,
-description: SC Tiara Comb With Three-Crystal Center 57235 by SparklyCrystal,
-author: Suvojit Manna,
-tags: SC Tiara Comb With Three-Crystal Center 57235 by SparklyCrystal,
-publishedAt: Fri Jan 10 2020 14:59:17 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:17 GMT+0530 (India Standard Time),
----
-
 # [SC Tiara Comb With Three-Crystal Center 57235 by SparklyCrystal](https://products.checkmycream.com/products/SC-Tiara-Comb-With-Three-Crystal-Center-57235-by-SparklyCrystal.html)
 
 ### Positive Reviews

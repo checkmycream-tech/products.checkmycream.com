@@ -1,12 +1,3 @@
----
-title: Essie After School Boy Blazer 846,
-description: Essie After School Boy Blazer 846,
-author: Suvojit Manna,
-tags: Essie After School Boy Blazer 846,
-publishedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
----
-
 # [Essie After School Boy Blazer 846](https://products.checkmycream.com/products/Essie-After-School-Boy-Blazer-846.html)
 
 ### Positive Reviews

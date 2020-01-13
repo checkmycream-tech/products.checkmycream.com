@@ -1,12 +1,3 @@
----
-title: PUEEN Starter 10pc Stainless Steel Manicure &amp; Pedicure Kit, Travel &amp; Grooming Set, Personal Care Tools in Silver Zebra Print Case-BH000013,
-description: PUEEN Starter 10pc Stainless Steel Manicure &amp; Pedicure Kit, Travel &amp; Grooming Set, Personal Care Tools in Silver Zebra Print Case-BH000013,
-author: Suvojit Manna,
-tags: PUEEN Starter 10pc Stainless Steel Manicure &amp; Pedicure Kit, Travel &amp; Grooming Set, Personal Care Tools in Silver Zebra Print Case-BH000013,
-publishedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
----
-
 # [PUEEN Starter 10pc Stainless Steel Manicure &amp; Pedicure Kit, Travel &amp; Grooming Set, Personal Care Tools in Silver Zebra Print Case-BH000013](https://products.checkmycream.com/products/PUEEN-Starter-10pc-Stainless-Steel-Manicure-and-Pedicure-Kit-Travel-and-Grooming-Set-Personal-Care-Tools-in-Silver-Zebra-Print-Case-BH000013.html)
 
 ### Positive Reviews

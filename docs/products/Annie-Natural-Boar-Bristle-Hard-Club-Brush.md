@@ -1,12 +1,3 @@
----
-title: Annie Natural Boar Bristle Hard Club Brush,
-description: Annie Natural Boar Bristle Hard Club Brush,
-author: Suvojit Manna,
-tags: Annie Natural Boar Bristle Hard Club Brush,
-publishedAt: Fri Jan 10 2020 14:59:16 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:16 GMT+0530 (India Standard Time),
----
-
 # [Annie Natural Boar Bristle Hard Club Brush](https://products.checkmycream.com/products/Annie-Natural-Boar-Bristle-Hard-Club-Brush.html)
 
 ### Positive Reviews

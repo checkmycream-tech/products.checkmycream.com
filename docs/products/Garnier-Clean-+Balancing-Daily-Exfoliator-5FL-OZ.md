@@ -1,12 +1,3 @@
----
-title: Garnier Clean +Balancing Daily Exfoliator 5FL OZ,
-description: Garnier Clean +Balancing Daily Exfoliator 5FL OZ,
-author: Suvojit Manna,
-tags: Garnier Clean +Balancing Daily Exfoliator 5FL OZ,
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [Garnier Clean +Balancing Daily Exfoliator 5FL OZ](https://products.checkmycream.com/products/Garnier-Clean-+Balancing-Daily-Exfoliator-5FL-OZ.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: PedEgg Pro Pedicure Foot File with Handle 1 ea, Assorted Color/Design,
-description: PedEgg Pro Pedicure Foot File with Handle 1 ea, Assorted Color/Design,
-author: Suvojit Manna,
-tags: PedEgg Pro Pedicure Foot File with Handle 1 ea, Assorted Color/Design,
-publishedAt: Fri Jan 10 2020 14:59:30 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:30 GMT+0530 (India Standard Time),
----
-
 # [PedEgg Pro Pedicure Foot File with Handle 1 ea, Assorted Color/Design](https://products.checkmycream.com/products/PedEgg-Pro-Pedicure-Foot-File-with-Handle-1-ea-Assorted-ColorDesign.html)
 
 ### Positive Reviews

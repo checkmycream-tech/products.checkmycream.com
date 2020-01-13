@@ -1,12 +1,3 @@
----
-title: e.l.f. 48 Piece Beauty Book Eye Makeup Palette, Cool, 1.1 Ounce,
-description: e.l.f. 48 Piece Beauty Book Eye Makeup Palette, Cool, 1.1 Ounce,
-author: Suvojit Manna,
-tags: e.l.f. 48 Piece Beauty Book Eye Makeup Palette, Cool, 1.1 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
----
-
 # [e.l.f. 48 Piece Beauty Book Eye Makeup Palette, Cool, 1.1 Ounce](https://products.checkmycream.com/products/e.l.f.-48-Piece-Beauty-Book-Eye-Makeup-Palette-Cool-1.1-Ounce.html)
 
 ### Positive Reviews

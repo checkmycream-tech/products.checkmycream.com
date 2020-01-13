@@ -1,12 +1,3 @@
----
-title: Batiste Dry Shampoo 1.6 oz. (PACK OF 3),
-description: Batiste Dry Shampoo 1.6 oz. (PACK OF 3),
-author: Suvojit Manna,
-tags: Batiste Dry Shampoo 1.6 oz. (PACK OF 3),
-publishedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
----
-
 # [Batiste Dry Shampoo 1.6 oz. (PACK OF 3)](https://products.checkmycream.com/products/Batiste-Dry-Shampoo-1.6-oz.-(PACK-OF-3).html)
 
 ### Positive Reviews

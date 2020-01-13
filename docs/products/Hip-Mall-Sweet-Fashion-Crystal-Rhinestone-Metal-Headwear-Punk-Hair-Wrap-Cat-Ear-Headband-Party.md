@@ -1,12 +1,3 @@
----
-title: Hip Mall Sweet Fashion Crystal Rhinestone Metal Headwear Punk Hair Wrap Cat Ear Headband Party,
-description: Hip Mall Sweet Fashion Crystal Rhinestone Metal Headwear Punk Hair Wrap Cat Ear Headband Party,
-author: Suvojit Manna,
-tags: Hip Mall Sweet Fashion Crystal Rhinestone Metal Headwear Punk Hair Wrap Cat Ear Headband Party,
-publishedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
----
-
 # [Hip Mall Sweet Fashion Crystal Rhinestone Metal Headwear Punk Hair Wrap Cat Ear Headband Party](https://products.checkmycream.com/products/Hip-Mall-Sweet-Fashion-Crystal-Rhinestone-Metal-Headwear-Punk-Hair-Wrap-Cat-Ear-Headband-Party.html)
 
 ### Positive Reviews

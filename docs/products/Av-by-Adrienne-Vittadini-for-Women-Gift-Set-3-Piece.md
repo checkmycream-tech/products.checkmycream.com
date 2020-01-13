@@ -1,12 +1,3 @@
----
-title: Av by Adrienne Vittadini for Women Gift Set, 3 Piece,
-description: Av by Adrienne Vittadini for Women Gift Set, 3 Piece,
-author: Suvojit Manna,
-tags: Av by Adrienne Vittadini for Women Gift Set, 3 Piece,
-publishedAt: Fri Jan 10 2020 15:00:13 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:13 GMT+0530 (India Standard Time),
----
-
 # [Av by Adrienne Vittadini for Women Gift Set, 3 Piece](https://products.checkmycream.com/products/Av-by-Adrienne-Vittadini-for-Women-Gift-Set-3-Piece.html)
 
 ### Positive Reviews

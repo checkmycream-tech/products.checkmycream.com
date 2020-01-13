@@ -1,12 +1,3 @@
----
-title: CeraVe Facial Cleanser,
-description: CeraVe Facial Cleanser,
-author: Suvojit Manna,
-tags: CeraVe Facial Cleanser,
-publishedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
----
-
 # [CeraVe Facial Cleanser](https://products.checkmycream.com/products/CeraVe-Facial-Cleanser.html)
 
 ### Positive Reviews

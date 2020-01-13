@@ -1,12 +1,3 @@
----
-title: Peter Thomas Roth Un-wrinkle Volumizing Lip Treatment .15 Oz,
-description: Peter Thomas Roth Un-wrinkle Volumizing Lip Treatment .15 Oz,
-author: Suvojit Manna,
-tags: Peter Thomas Roth Un-wrinkle Volumizing Lip Treatment .15 Oz,
-publishedAt: Fri Jan 10 2020 15:00:17 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:17 GMT+0530 (India Standard Time),
----
-
 # [Peter Thomas Roth Un-wrinkle Volumizing Lip Treatment .15 Oz](https://products.checkmycream.com/products/Peter-Thomas-Roth-Un-wrinkle-Volumizing-Lip-Treatment-.15-Oz.html)
 
 ### Positive Reviews

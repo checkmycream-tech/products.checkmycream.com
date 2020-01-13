@@ -1,12 +1,3 @@
----
-title: CHOP MALL® Fashion Anchor Faith Owl Infinity Wings Owl Strands Suede Rope Bracelet Gift,
-description: CHOP MALL® Fashion Anchor Faith Owl Infinity Wings Owl Strands Suede Rope Bracelet Gift,
-author: Suvojit Manna,
-tags: CHOP MALL® Fashion Anchor Faith Owl Infinity Wings Owl Strands Suede Rope Bracelet Gift,
-publishedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
----
-
 # [CHOP MALL® Fashion Anchor Faith Owl Infinity Wings Owl Strands Suede Rope Bracelet Gift](https://products.checkmycream.com/products/CHOP-MALL(r)-Fashion-Anchor-Faith-Owl-Infinity-Wings-Owl-Strands-Suede-Rope-Bracelet-Gift.html)
 
 ### Positive Reviews

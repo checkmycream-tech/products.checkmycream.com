@@ -1,12 +1,3 @@
----
-title: STIM-U-DENT Thin Plaque Removers, Mint, 320 ea by EMERSON HEALTHCARE,
-description: STIM-U-DENT Thin Plaque Removers, Mint, 320 ea by EMERSON HEALTHCARE,
-author: Suvojit Manna,
-tags: STIM-U-DENT Thin Plaque Removers, Mint, 320 ea by EMERSON HEALTHCARE,
-publishedAt: Fri Jan 10 2020 15:00:20 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:20 GMT+0530 (India Standard Time),
----
-
 # [STIM-U-DENT Thin Plaque Removers, Mint, 320 ea by EMERSON HEALTHCARE](https://products.checkmycream.com/products/STIM-U-DENT-Thin-Plaque-Removers-Mint-320-ea-by-EMERSON-HEALTHCARE.html)
 
 ### Positive Reviews

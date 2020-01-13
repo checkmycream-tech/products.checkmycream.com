@@ -1,12 +1,3 @@
----
-title: Goody - Girls Asstd Elastics, No Metal Ouchless,
-description: Goody - Girls Asstd Elastics, No Metal Ouchless,
-author: Suvojit Manna,
-tags: Goody - Girls Asstd Elastics, No Metal Ouchless,
-publishedAt: Fri Jan 10 2020 15:00:38 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:38 GMT+0530 (India Standard Time),
----
-
 # [Goody - Girls Asstd Elastics, No Metal Ouchless](https://products.checkmycream.com/products/Goody-Girls-Asstd-Elastics-No-Metal-Ouchless.html)
 
 ### Positive Reviews

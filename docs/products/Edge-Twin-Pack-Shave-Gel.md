@@ -1,12 +1,3 @@
----
-title: Edge Twin Pack Shave Gel,
-description: Edge Twin Pack Shave Gel,
-author: Suvojit Manna,
-tags: Edge Twin Pack Shave Gel,
-publishedAt: Fri Jan 10 2020 15:00:37 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:37 GMT+0530 (India Standard Time),
----
-
 # [Edge Twin Pack Shave Gel](https://products.checkmycream.com/products/Edge-Twin-Pack-Shave-Gel.html)
 
 ### Positive Reviews

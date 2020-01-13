@@ -1,12 +1,3 @@
----
-title: Natures Tears EyeMist Quadpack - Dry Eye Solution,
-description: Natures Tears EyeMist Quadpack - Dry Eye Solution,
-author: Suvojit Manna,
-tags: Natures Tears EyeMist Quadpack - Dry Eye Solution,
-publishedAt: Fri Jan 10 2020 15:00:13 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:13 GMT+0530 (India Standard Time),
----
-
 # [Natures Tears EyeMist Quadpack - Dry Eye Solution](https://products.checkmycream.com/products/Natures-Tears-EyeMist-Quadpack-Dry-Eye-Solution.html)
 
 ### Positive Reviews

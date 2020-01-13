@@ -1,12 +1,3 @@
----
-title: 4Life Transfer Factor Belle Vie by 4Life - 60 ct/bottle,
-description: 4Life Transfer Factor Belle Vie by 4Life - 60 ct/bottle,
-author: Suvojit Manna,
-tags: 4Life Transfer Factor Belle Vie by 4Life - 60 ct/bottle,
-publishedAt: Fri Jan 10 2020 14:59:09 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:09 GMT+0530 (India Standard Time),
----
-
 # [4Life Transfer Factor Belle Vie by 4Life - 60 ct/bottle](https://products.checkmycream.com/products/4Life-Transfer-Factor-Belle-Vie-by-4Life-60-ctbottle.html)
 
 ### Positive Reviews

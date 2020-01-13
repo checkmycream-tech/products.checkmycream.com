@@ -1,12 +1,3 @@
----
-title: Nail Art 3d 40 Pieces Mix Hot Pink Kitty/Bow for Nails, Cellphones 1.3cm*.9cm,
-description: Nail Art 3d 40 Pieces Mix Hot Pink Kitty/Bow for Nails, Cellphones 1.3cm*.9cm,
-author: Suvojit Manna,
-tags: Nail Art 3d 40 Pieces Mix Hot Pink Kitty/Bow for Nails, Cellphones 1.3cm*.9cm,
-publishedAt: Fri Jan 10 2020 15:00:20 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:20 GMT+0530 (India Standard Time),
----
-
 # [Nail Art 3d 40 Pieces Mix Hot Pink Kitty/Bow for Nails, Cellphones 1.3cm*.9cm](https://products.checkmycream.com/products/Nail-Art-3d-40-Pieces-Mix-Hot-Pink-KittyBow-for-Nails-Cellphones-1.3cm*.9cm.html)
 
 ### Positive Reviews

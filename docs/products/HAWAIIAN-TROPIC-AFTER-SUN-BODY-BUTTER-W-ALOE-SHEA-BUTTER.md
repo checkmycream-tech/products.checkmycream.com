@@ -1,12 +1,3 @@
----
-title: HAWAIIAN TROPIC AFTER SUN BODY BUTTER W/ ALOE SHEA BUTTER,
-description: HAWAIIAN TROPIC AFTER SUN BODY BUTTER W/ ALOE SHEA BUTTER,
-author: Suvojit Manna,
-tags: HAWAIIAN TROPIC AFTER SUN BODY BUTTER W/ ALOE SHEA BUTTER,
-publishedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
----
-
 # [HAWAIIAN TROPIC AFTER SUN BODY BUTTER W/ ALOE SHEA BUTTER](https://products.checkmycream.com/products/HAWAIIAN-TROPIC-AFTER-SUN-BODY-BUTTER-W-ALOE-SHEA-BUTTER.html)
 
 ### Positive Reviews

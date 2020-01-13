@@ -1,12 +1,3 @@
----
-title: Britney Spears Fantasy Twist Eau de Parfum Spray,
-description: Britney Spears Fantasy Twist Eau de Parfum Spray,
-author: Suvojit Manna,
-tags: Britney Spears Fantasy Twist Eau de Parfum Spray,
-publishedAt: Fri Jan 10 2020 15:00:32 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:32 GMT+0530 (India Standard Time),
----
-
 # [Britney Spears Fantasy Twist Eau de Parfum Spray](https://products.checkmycream.com/products/Britney-Spears-Fantasy-Twist-Eau-de-Parfum-Spray.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: FOONEE Beautiful Flowers Crystal Hair Clips,Purple,
-description: FOONEE Beautiful Flowers Crystal Hair Clips,Purple,
-author: Suvojit Manna,
-tags: FOONEE Beautiful Flowers Crystal Hair Clips,Purple,
-publishedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
----
-
 # [FOONEE Beautiful Flowers Crystal Hair Clips,Purple](https://products.checkmycream.com/products/FOONEE-Beautiful-Flowers-Crystal-Hair-ClipsPurple.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Bath &amp; Body Works Signature Lotion Rainkissed Leaves 8 FL OZ,
-description: Bath &amp; Body Works Signature Lotion Rainkissed Leaves 8 FL OZ,
-author: Suvojit Manna,
-tags: Bath &amp; Body Works Signature Lotion Rainkissed Leaves 8 FL OZ,
-publishedAt: Fri Jan 10 2020 14:59:37 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:37 GMT+0530 (India Standard Time),
----
-
 # [Bath &amp; Body Works Signature Lotion Rainkissed Leaves 8 FL OZ](https://products.checkmycream.com/products/Bath-and-Body-Works-Signature-Lotion-Rainkissed-Leaves-8-FL-OZ.html)
 
 ### Positive Reviews

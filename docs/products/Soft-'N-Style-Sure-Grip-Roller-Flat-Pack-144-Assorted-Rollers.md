@@ -1,12 +1,3 @@
----
-title: Soft &#x27;N Style Sure Grip Roller Flat Pack, 144 Assorted Rollers,
-description: Soft &#x27;N Style Sure Grip Roller Flat Pack, 144 Assorted Rollers,
-author: Suvojit Manna,
-tags: Soft &#x27;N Style Sure Grip Roller Flat Pack, 144 Assorted Rollers,
-publishedAt: Fri Jan 10 2020 14:59:11 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:11 GMT+0530 (India Standard Time),
----
-
 # [Soft &#x27;N Style Sure Grip Roller Flat Pack, 144 Assorted Rollers](https://products.checkmycream.com/products/Soft-&#x27;N-Style-Sure-Grip-Roller-Flat-Pack-144-Assorted-Rollers.html)
 
 ### Positive Reviews

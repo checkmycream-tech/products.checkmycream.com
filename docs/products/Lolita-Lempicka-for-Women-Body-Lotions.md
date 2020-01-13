@@ -1,12 +1,3 @@
----
-title: Lolita Lempicka for Women Body Lotions,
-description: Lolita Lempicka for Women Body Lotions,
-author: Suvojit Manna,
-tags: Lolita Lempicka for Women Body Lotions,
-publishedAt: Fri Jan 10 2020 14:59:06 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:06 GMT+0530 (India Standard Time),
----
-
 # [Lolita Lempicka for Women Body Lotions](https://products.checkmycream.com/products/Lolita-Lempicka-for-Women-Body-Lotions.html)
 
 ### Positive Reviews

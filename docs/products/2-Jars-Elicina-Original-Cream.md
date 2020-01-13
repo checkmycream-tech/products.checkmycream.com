@@ -1,12 +1,3 @@
----
-title: 2 Jars Elicina Original Cream,
-description: 2 Jars Elicina Original Cream,
-author: Suvojit Manna,
-tags: 2 Jars Elicina Original Cream,
-publishedAt: Fri Jan 10 2020 14:59:20 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:20 GMT+0530 (India Standard Time),
----
-
 # [2 Jars Elicina Original Cream](https://products.checkmycream.com/products/2-Jars-Elicina-Original-Cream.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Agadir Argan Oil Spray Treatment, 5.1 oz,
-description: Agadir Argan Oil Spray Treatment, 5.1 oz,
-author: Suvojit Manna,
-tags: Agadir Argan Oil Spray Treatment, 5.1 oz,
-publishedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
----
-
 # [Agadir Argan Oil Spray Treatment, 5.1 oz](https://products.checkmycream.com/products/Agadir-Argan-Oil-Spray-Treatment-5.1-oz.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Murad Renewing Eye Cream,
-description: Murad Renewing Eye Cream,
-author: Suvojit Manna,
-tags: Murad Renewing Eye Cream,
-publishedAt: Fri Jan 10 2020 15:00:04 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:04 GMT+0530 (India Standard Time),
----
-
 # [Murad Renewing Eye Cream](https://products.checkmycream.com/products/Murad-Renewing-Eye-Cream.html)
 
 ### Positive Reviews

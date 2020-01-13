@@ -1,12 +1,3 @@
----
-title: Giorgio Beverly Hills Giorgio Blue Women Eau De Toilette Spray, 3 Ounce,
-description: Giorgio Beverly Hills Giorgio Blue Women Eau De Toilette Spray, 3 Ounce,
-author: Suvojit Manna,
-tags: Giorgio Beverly Hills Giorgio Blue Women Eau De Toilette Spray, 3 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:32 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:32 GMT+0530 (India Standard Time),
----
-
 # [Giorgio Beverly Hills Giorgio Blue Women Eau De Toilette Spray, 3 Ounce](https://products.checkmycream.com/products/Giorgio-Beverly-Hills-Giorgio-Blue-Women-Eau-De-Toilette-Spray-3-Ounce.html)
 
 ### Positive Reviews

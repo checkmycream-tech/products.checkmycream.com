@@ -1,12 +1,3 @@
----
-title: Parson&#x27;s Scoop Plate,
-description: Parson&#x27;s Scoop Plate,
-author: Suvojit Manna,
-tags: Parson&#x27;s Scoop Plate,
-publishedAt: Fri Jan 10 2020 14:59:14 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:14 GMT+0530 (India Standard Time),
----
-
 # [Parson&#x27;s Scoop Plate](https://products.checkmycream.com/products/Parson&#x27;s-Scoop-Plate.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Surface AWAKEN Thickening Cream Volume Style Hold Strenghten 3oz (88ml),
-description: Surface AWAKEN Thickening Cream Volume Style Hold Strenghten 3oz (88ml),
-author: Suvojit Manna,
-tags: Surface AWAKEN Thickening Cream Volume Style Hold Strenghten 3oz (88ml),
-publishedAt: Fri Jan 10 2020 15:00:31 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:31 GMT+0530 (India Standard Time),
----
-
 # [Surface AWAKEN Thickening Cream Volume Style Hold Strenghten 3oz (88ml)](https://products.checkmycream.com/products/Surface-AWAKEN-Thickening-Cream-Volume-Style-Hold-Strenghten-3oz-(88ml).html)
 
 ### Positive Reviews

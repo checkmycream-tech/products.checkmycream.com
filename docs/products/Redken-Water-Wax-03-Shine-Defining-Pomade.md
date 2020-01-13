@@ -1,12 +1,3 @@
----
-title: Redken Water Wax 03 Shine Defining Pomade,
-description: Redken Water Wax 03 Shine Defining Pomade,
-author: Suvojit Manna,
-tags: Redken Water Wax 03 Shine Defining Pomade,
-publishedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
----
-
 # [Redken Water Wax 03 Shine Defining Pomade](https://products.checkmycream.com/products/Redken-Water-Wax-03-Shine-Defining-Pomade.html)
 
 ### Positive Reviews

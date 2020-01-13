@@ -1,12 +1,3 @@
----
-title: 15x Magnifying Mirror with Suction Cup Fixture,
-description: 15x Magnifying Mirror with Suction Cup Fixture,
-author: Suvojit Manna,
-tags: 15x Magnifying Mirror with Suction Cup Fixture,
-publishedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
----
-
 # [15x Magnifying Mirror with Suction Cup Fixture](https://products.checkmycream.com/products/15x-Magnifying-Mirror-with-Suction-Cup-Fixture.html)
 
 ### Positive Reviews

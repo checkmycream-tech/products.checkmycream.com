@@ -1,12 +1,3 @@
----
-title: Clinique Even Better Makeup Broad Spectrum Spf15 Evens &amp; Correct Foundation,
-description: Clinique Even Better Makeup Broad Spectrum Spf15 Evens &amp; Correct Foundation,
-author: Suvojit Manna,
-tags: Clinique Even Better Makeup Broad Spectrum Spf15 Evens &amp; Correct Foundation,
-publishedAt: Fri Jan 10 2020 14:59:39 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:39 GMT+0530 (India Standard Time),
----
-
 # [Clinique Even Better Makeup Broad Spectrum Spf15 Evens &amp; Correct Foundation](https://products.checkmycream.com/products/Clinique-Even-Better-Makeup-Broad-Spectrum-Spf15-Evens-and-Correct-Foundation.html)
 
 ### Positive Reviews

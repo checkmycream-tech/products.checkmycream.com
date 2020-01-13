@@ -1,12 +1,3 @@
----
-title: Repechage One Minute Exfoliating Mask - Face Scrub &amp; Facial Mask for Oily Skin Blemishes Blackheads &amp; Dark Spots 2.4 OZ,
-description: Repechage One Minute Exfoliating Mask - Face Scrub &amp; Facial Mask for Oily Skin Blemishes Blackheads &amp; Dark Spots 2.4 OZ,
-author: Suvojit Manna,
-tags: Repechage One Minute Exfoliating Mask - Face Scrub &amp; Facial Mask for Oily Skin Blemishes Blackheads &amp; Dark Spots 2.4 OZ,
-publishedAt: Fri Jan 10 2020 14:59:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:55 GMT+0530 (India Standard Time),
----
-
 # [Repechage One Minute Exfoliating Mask - Face Scrub &amp; Facial Mask for Oily Skin Blemishes Blackheads &amp; Dark Spots 2.4 OZ](https://products.checkmycream.com/products/Repechage-One-Minute-Exfoliating-Mask-Face-Scrub-and-Facial-Mask-for-Oily-Skin-Blemishes-Blackheads-and-Dark-Spots-2.4-OZ.html)
 
 ### Positive Reviews

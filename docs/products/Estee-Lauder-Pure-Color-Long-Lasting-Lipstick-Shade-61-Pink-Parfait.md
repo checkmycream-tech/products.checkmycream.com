@@ -1,12 +1,3 @@
----
-title: Estee Lauder Pure Color Long Lasting Lipstick Shade - 61 Pink Parfait,
-description: Estee Lauder Pure Color Long Lasting Lipstick Shade - 61 Pink Parfait,
-author: Suvojit Manna,
-tags: Estee Lauder Pure Color Long Lasting Lipstick Shade - 61 Pink Parfait,
-publishedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
----
-
 # [Estee Lauder Pure Color Long Lasting Lipstick Shade - 61 Pink Parfait](https://products.checkmycream.com/products/Estee-Lauder-Pure-Color-Long-Lasting-Lipstick-Shade-61-Pink-Parfait.html)
 
 ### Positive Reviews

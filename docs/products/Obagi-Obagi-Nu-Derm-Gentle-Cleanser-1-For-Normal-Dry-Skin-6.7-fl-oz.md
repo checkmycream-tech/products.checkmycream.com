@@ -1,12 +1,3 @@
----
-title: Obagi Obagi Nu-Derm Gentle Cleanser 1 For Normal-Dry Skin -- 6.7 fl oz,
-description: Obagi Obagi Nu-Derm Gentle Cleanser 1 For Normal-Dry Skin -- 6.7 fl oz,
-author: Suvojit Manna,
-tags: Obagi Obagi Nu-Derm Gentle Cleanser 1 For Normal-Dry Skin -- 6.7 fl oz,
-publishedAt: Fri Jan 10 2020 14:59:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:58 GMT+0530 (India Standard Time),
----
-
 # [Obagi Obagi Nu-Derm Gentle Cleanser 1 For Normal-Dry Skin -- 6.7 fl oz](https://products.checkmycream.com/products/Obagi-Obagi-Nu-Derm-Gentle-Cleanser-1-For-Normal-Dry-Skin-6.7-fl-oz.html)
 
 ### Positive Reviews

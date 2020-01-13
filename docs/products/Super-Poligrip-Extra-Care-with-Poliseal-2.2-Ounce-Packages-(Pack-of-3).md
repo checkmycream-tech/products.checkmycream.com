@@ -1,12 +1,3 @@
----
-title: Super Poligrip Extra Care with Poliseal, 2.2-Ounce Packages (Pack of 3),
-description: Super Poligrip Extra Care with Poliseal, 2.2-Ounce Packages (Pack of 3),
-author: Suvojit Manna,
-tags: Super Poligrip Extra Care with Poliseal, 2.2-Ounce Packages (Pack of 3),
-publishedAt: Fri Jan 10 2020 14:59:46 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:46 GMT+0530 (India Standard Time),
----
-
 # [Super Poligrip Extra Care with Poliseal, 2.2-Ounce Packages (Pack of 3)](https://products.checkmycream.com/products/Super-Poligrip-Extra-Care-with-Poliseal-2.2-Ounce-Packages-(Pack-of-3).html)
 
 ### Positive Reviews

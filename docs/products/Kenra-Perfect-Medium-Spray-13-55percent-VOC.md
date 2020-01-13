@@ -1,12 +1,3 @@
----
-title: Kenra Perfect Medium Spray #13, 55% VOC,
-description: Kenra Perfect Medium Spray #13, 55% VOC,
-author: Suvojit Manna,
-tags: Kenra Perfect Medium Spray #13, 55% VOC,
-publishedAt: Fri Jan 10 2020 14:59:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:08 GMT+0530 (India Standard Time),
----
-
 # [Kenra Perfect Medium Spray #13, 55% VOC](https://products.checkmycream.com/products/Kenra-Perfect-Medium-Spray-13-55percent-VOC.html)
 
 ### Positive Reviews

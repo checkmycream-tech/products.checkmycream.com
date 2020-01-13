@@ -1,12 +1,3 @@
----
-title: Pursonic Callus Remover, Epilator and Shaver,
-description: Pursonic Callus Remover, Epilator and Shaver,
-author: Suvojit Manna,
-tags: Pursonic Callus Remover, Epilator and Shaver,
-publishedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
----
-
 # [Pursonic Callus Remover, Epilator and Shaver](https://products.checkmycream.com/products/Pursonic-Callus-Remover-Epilator-and-Shaver.html)
 
 ### Positive Reviews

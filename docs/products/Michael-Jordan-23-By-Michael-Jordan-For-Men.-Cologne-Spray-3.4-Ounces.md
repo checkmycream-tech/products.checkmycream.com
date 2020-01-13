@@ -1,12 +1,3 @@
----
-title: Michael Jordan 23 By Michael Jordan For Men. Cologne Spray 3.4 Ounces,
-description: Michael Jordan 23 By Michael Jordan For Men. Cologne Spray 3.4 Ounces,
-author: Suvojit Manna,
-tags: Michael Jordan 23 By Michael Jordan For Men. Cologne Spray 3.4 Ounces,
-publishedAt: Fri Jan 10 2020 14:59:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:08 GMT+0530 (India Standard Time),
----
-
 # [Michael Jordan 23 By Michael Jordan For Men. Cologne Spray 3.4 Ounces](https://products.checkmycream.com/products/Michael-Jordan-23-By-Michael-Jordan-For-Men.-Cologne-Spray-3.4-Ounces.html)
 
 ### Positive Reviews

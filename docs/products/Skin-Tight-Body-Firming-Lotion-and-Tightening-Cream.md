@@ -1,12 +1,3 @@
----
-title: Skin Tight Body Firming Lotion &amp; Tightening Cream,
-description: Skin Tight Body Firming Lotion &amp; Tightening Cream,
-author: Suvojit Manna,
-tags: Skin Tight Body Firming Lotion &amp; Tightening Cream,
-publishedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
----
-
 # [Skin Tight Body Firming Lotion &amp; Tightening Cream](https://products.checkmycream.com/products/Skin-Tight-Body-Firming-Lotion-and-Tightening-Cream.html)
 
 ### Positive Reviews

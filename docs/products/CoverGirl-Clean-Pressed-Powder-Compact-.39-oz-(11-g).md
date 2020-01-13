@@ -1,12 +1,3 @@
----
-title: CoverGirl Clean Pressed Powder Compact .39 oz (11 g),
-description: CoverGirl Clean Pressed Powder Compact .39 oz (11 g),
-author: Suvojit Manna,
-tags: CoverGirl Clean Pressed Powder Compact .39 oz (11 g),
-publishedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
----
-
 # [CoverGirl Clean Pressed Powder Compact .39 oz (11 g)](https://products.checkmycream.com/products/CoverGirl-Clean-Pressed-Powder-Compact-.39-oz-(11-g).html)
 
 ### Positive Reviews

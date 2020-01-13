@@ -1,12 +1,3 @@
----
-title: Lysol No Touch Refill Kitchen System, Berry, 8.5 Ounce (Pack of 3),
-description: Lysol No Touch Refill Kitchen System, Berry, 8.5 Ounce (Pack of 3),
-author: Suvojit Manna,
-tags: Lysol No Touch Refill Kitchen System, Berry, 8.5 Ounce (Pack of 3),
-publishedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
----
-
 # [Lysol No Touch Refill Kitchen System, Berry, 8.5 Ounce (Pack of 3)](https://products.checkmycream.com/products/Lysol-No-Touch-Refill-Kitchen-System-Berry-8.5-Ounce-(Pack-of-3).html)
 
 ### Positive Reviews

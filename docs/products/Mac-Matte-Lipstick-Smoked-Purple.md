@@ -1,12 +1,3 @@
----
-title: Mac Matte Lipstick, Smoked Purple,
-description: Mac Matte Lipstick, Smoked Purple,
-author: Suvojit Manna,
-tags: Mac Matte Lipstick, Smoked Purple,
-publishedAt: Fri Jan 10 2020 15:00:11 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:11 GMT+0530 (India Standard Time),
----
-
 # [Mac Matte Lipstick, Smoked Purple](https://products.checkmycream.com/products/Mac-Matte-Lipstick-Smoked-Purple.html)
 
 ### Positive Reviews

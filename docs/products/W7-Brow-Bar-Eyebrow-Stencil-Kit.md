@@ -1,12 +1,3 @@
----
-title: W7 Brow Bar Eyebrow Stencil Kit,
-description: W7 Brow Bar Eyebrow Stencil Kit,
-author: Suvojit Manna,
-tags: W7 Brow Bar Eyebrow Stencil Kit,
-publishedAt: Fri Jan 10 2020 15:00:32 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:32 GMT+0530 (India Standard Time),
----
-
 # [W7 Brow Bar Eyebrow Stencil Kit](https://products.checkmycream.com/products/W7-Brow-Bar-Eyebrow-Stencil-Kit.html)
 
 ### Positive Reviews

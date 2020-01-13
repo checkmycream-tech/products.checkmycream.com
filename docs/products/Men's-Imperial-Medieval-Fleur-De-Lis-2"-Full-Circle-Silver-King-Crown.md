@@ -1,12 +1,3 @@
----
-title: Men&#x27;s Imperial Medieval Fleur De Lis 2&quot; Full Circle Silver King Crown,
-description: Men&#x27;s Imperial Medieval Fleur De Lis 2&quot; Full Circle Silver King Crown,
-author: Suvojit Manna,
-tags: Men&#x27;s Imperial Medieval Fleur De Lis 2&quot; Full Circle Silver King Crown,
-publishedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
----
-
 # [Men&#x27;s Imperial Medieval Fleur De Lis 2&quot; Full Circle Silver King Crown](https://products.checkmycream.com/products/Men&#x27;s-Imperial-Medieval-Fleur-De-Lis-2&quot;-Full-Circle-Silver-King-Crown.html)
 
 ### Positive Reviews

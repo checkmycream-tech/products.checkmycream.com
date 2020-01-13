@@ -1,12 +1,3 @@
----
-title: Garnier Fructis Hydra Recharge Shampoo for All Hair Types, 25.4 Fluid Ounce,
-description: Garnier Fructis Hydra Recharge Shampoo for All Hair Types, 25.4 Fluid Ounce,
-author: Suvojit Manna,
-tags: Garnier Fructis Hydra Recharge Shampoo for All Hair Types, 25.4 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
----
-
 # [Garnier Fructis Hydra Recharge Shampoo for All Hair Types, 25.4 Fluid Ounce](https://products.checkmycream.com/products/Garnier-Fructis-Hydra-Recharge-Shampoo-for-All-Hair-Types-25.4-Fluid-Ounce.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: One Pair Unique Bohemia Nine Leaves Long Fashion Dangle Earrings For Girls,
-description: One Pair Unique Bohemia Nine Leaves Long Fashion Dangle Earrings For Girls,
-author: Suvojit Manna,
-tags: One Pair Unique Bohemia Nine Leaves Long Fashion Dangle Earrings For Girls,
-publishedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
----
-
 # [One Pair Unique Bohemia Nine Leaves Long Fashion Dangle Earrings For Girls](https://products.checkmycream.com/products/One-Pair-Unique-Bohemia-Nine-Leaves-Long-Fashion-Dangle-Earrings-For-Girls.html)
 
 ### Positive Reviews

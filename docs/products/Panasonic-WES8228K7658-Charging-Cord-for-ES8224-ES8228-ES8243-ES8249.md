@@ -1,12 +1,3 @@
----
-title: Panasonic WES8228K7658 Charging Cord for ES8224, ES8228, ES8243, ES8249,
-description: Panasonic WES8228K7658 Charging Cord for ES8224, ES8228, ES8243, ES8249,
-author: Suvojit Manna,
-tags: Panasonic WES8228K7658 Charging Cord for ES8224, ES8228, ES8243, ES8249,
-publishedAt: Fri Jan 10 2020 15:00:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:03 GMT+0530 (India Standard Time),
----
-
 # [Panasonic WES8228K7658 Charging Cord for ES8224, ES8228, ES8243, ES8249](https://products.checkmycream.com/products/Panasonic-WES8228K7658-Charging-Cord-for-ES8224-ES8228-ES8243-ES8249.html)
 
 ### Positive Reviews

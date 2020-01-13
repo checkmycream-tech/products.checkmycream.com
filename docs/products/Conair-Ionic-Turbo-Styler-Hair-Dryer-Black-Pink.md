@@ -1,12 +1,3 @@
----
-title: Conair Ionic Turbo Styler / Hair Dryer; Black / Pink,
-description: Conair Ionic Turbo Styler / Hair Dryer; Black / Pink,
-author: Suvojit Manna,
-tags: Conair Ionic Turbo Styler / Hair Dryer; Black / Pink,
-publishedAt: Fri Jan 10 2020 15:00:04 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:04 GMT+0530 (India Standard Time),
----
-
 # [Conair Ionic Turbo Styler / Hair Dryer; Black / Pink](https://products.checkmycream.com/products/Conair-Ionic-Turbo-Styler-Hair-Dryer-Black-Pink.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: 10 Pc Zink Color Round Jumbo Velour Powder Puff W Ribbon 4&quot; Diameter,
-description: 10 Pc Zink Color Round Jumbo Velour Powder Puff W Ribbon 4&quot; Diameter,
-author: Suvojit Manna,
-tags: 10 Pc Zink Color Round Jumbo Velour Powder Puff W Ribbon 4&quot; Diameter,
-publishedAt: Fri Jan 10 2020 15:00:06 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:06 GMT+0530 (India Standard Time),
----
-
 # [10 Pc Zink Color Round Jumbo Velour Powder Puff W Ribbon 4&quot; Diameter](https://products.checkmycream.com/products/10-Pc-Zink-Color-Round-Jumbo-Velour-Powder-Puff-W-Ribbon-4&quot;-Diameter.html)
 
 ### Positive Reviews

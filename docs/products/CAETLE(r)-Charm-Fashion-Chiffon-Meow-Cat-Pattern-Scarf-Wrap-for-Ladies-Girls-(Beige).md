@@ -1,12 +1,3 @@
----
-title: CAETLE® Charm Fashion Chiffon Meow Cat Pattern Scarf Wrap for Ladies Girls (Beige),
-description: CAETLE® Charm Fashion Chiffon Meow Cat Pattern Scarf Wrap for Ladies Girls (Beige),
-author: Suvojit Manna,
-tags: CAETLE® Charm Fashion Chiffon Meow Cat Pattern Scarf Wrap for Ladies Girls (Beige),
-publishedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
----
-
 # [CAETLE® Charm Fashion Chiffon Meow Cat Pattern Scarf Wrap for Ladies Girls (Beige)](https://products.checkmycream.com/products/CAETLE(r)-Charm-Fashion-Chiffon-Meow-Cat-Pattern-Scarf-Wrap-for-Ladies-Girls-(Beige).html)
 
 ### Positive Reviews

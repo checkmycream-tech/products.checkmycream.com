@@ -1,12 +1,3 @@
----
-title: Soft &#x27;N Style 1-3/4&quot; Pink Grip Roller (Bag of 6) (Pack of 3),
-description: Soft &#x27;N Style 1-3/4&quot; Pink Grip Roller (Bag of 6) (Pack of 3),
-author: Suvojit Manna,
-tags: Soft &#x27;N Style 1-3/4&quot; Pink Grip Roller (Bag of 6) (Pack of 3),
-publishedAt: Fri Jan 10 2020 14:59:11 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:11 GMT+0530 (India Standard Time),
----
-
 # [Soft &#x27;N Style 1-3/4&quot; Pink Grip Roller (Bag of 6) (Pack of 3)](https://products.checkmycream.com/products/Soft-&#x27;N-Style-1-34&quot;-Pink-Grip-Roller-(Bag-of-6)-(Pack-of-3).html)
 
 ### Positive Reviews

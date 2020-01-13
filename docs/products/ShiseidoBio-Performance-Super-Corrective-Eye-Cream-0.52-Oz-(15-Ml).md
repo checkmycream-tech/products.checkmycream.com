@@ -1,12 +1,3 @@
----
-title: Shiseido/Bio-Performance Super Corrective Eye Cream 0.52 Oz (15 Ml),
-description: Shiseido/Bio-Performance Super Corrective Eye Cream 0.52 Oz (15 Ml),
-author: Suvojit Manna,
-tags: Shiseido/Bio-Performance Super Corrective Eye Cream 0.52 Oz (15 Ml),
-publishedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
----
-
 # [Shiseido/Bio-Performance Super Corrective Eye Cream 0.52 Oz (15 Ml)](https://products.checkmycream.com/products/ShiseidoBio-Performance-Super-Corrective-Eye-Cream-0.52-Oz-(15-Ml).html)
 
 ### Positive Reviews

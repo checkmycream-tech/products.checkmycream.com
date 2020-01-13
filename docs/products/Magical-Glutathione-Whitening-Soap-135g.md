@@ -1,12 +1,3 @@
----
-title: Magical Glutathione Whitening Soap 135g,
-description: Magical Glutathione Whitening Soap 135g,
-author: Suvojit Manna,
-tags: Magical Glutathione Whitening Soap 135g,
-publishedAt: Fri Jan 10 2020 14:59:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:57 GMT+0530 (India Standard Time),
----
-
 # [Magical Glutathione Whitening Soap 135g](https://products.checkmycream.com/products/Magical-Glutathione-Whitening-Soap-135g.html)
 
 ### Positive Reviews

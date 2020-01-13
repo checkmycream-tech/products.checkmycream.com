@@ -1,12 +1,3 @@
----
-title: Clinique Colour Surge Shadow Duo/Trio &amp; Blush Palette - Travel Size,
-description: Clinique Colour Surge Shadow Duo/Trio &amp; Blush Palette - Travel Size,
-author: Suvojit Manna,
-tags: Clinique Colour Surge Shadow Duo/Trio &amp; Blush Palette - Travel Size,
-publishedAt: Fri Jan 10 2020 15:00:06 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:06 GMT+0530 (India Standard Time),
----
-
 # [Clinique Colour Surge Shadow Duo/Trio &amp; Blush Palette - Travel Size](https://products.checkmycream.com/products/Clinique-Colour-Surge-Shadow-DuoTrio-and-Blush-Palette-Travel-Size.html)
 
 ### Positive Reviews

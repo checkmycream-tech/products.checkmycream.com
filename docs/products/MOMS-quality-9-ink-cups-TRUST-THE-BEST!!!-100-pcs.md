@@ -1,12 +1,3 @@
----
-title: MOMS quality #9 ink cups TRUST THE BEST!!! 100 pcs,
-description: MOMS quality #9 ink cups TRUST THE BEST!!! 100 pcs,
-author: Suvojit Manna,
-tags: MOMS quality #9 ink cups TRUST THE BEST!!! 100 pcs,
-publishedAt: Fri Jan 10 2020 14:59:26 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:26 GMT+0530 (India Standard Time),
----
-
 # [MOMS quality #9 ink cups TRUST THE BEST!!! 100 pcs](https://products.checkmycream.com/products/MOMS-quality-9-ink-cups-TRUST-THE-BEST!!!-100-pcs.html)
 
 ### Positive Reviews

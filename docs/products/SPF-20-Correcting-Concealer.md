@@ -1,12 +1,3 @@
----
-title: SPF 20 Correcting Concealer,
-description: SPF 20 Correcting Concealer,
-author: Suvojit Manna,
-tags: SPF 20 Correcting Concealer,
-publishedAt: Fri Jan 10 2020 15:00:32 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:32 GMT+0530 (India Standard Time),
----
-
 # [SPF 20 Correcting Concealer](https://products.checkmycream.com/products/SPF-20-Correcting-Concealer.html)
 
 ### Positive Reviews

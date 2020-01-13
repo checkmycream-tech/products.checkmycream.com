@@ -1,12 +1,3 @@
----
-title: Cover Your Gray Root Touch-Up Light Brown/Blonde,
-description: Cover Your Gray Root Touch-Up Light Brown/Blonde,
-author: Suvojit Manna,
-tags: Cover Your Gray Root Touch-Up Light Brown/Blonde,
-publishedAt: Fri Jan 10 2020 14:59:12 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:12 GMT+0530 (India Standard Time),
----
-
 # [Cover Your Gray Root Touch-Up Light Brown/Blonde](https://products.checkmycream.com/products/Cover-Your-Gray-Root-Touch-Up-Light-BrownBlonde.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Boudoir By Vivienne Westwood For Women, Eau De Parfum Spray, 1.7-Ounce Bottle,
-description: Boudoir By Vivienne Westwood For Women, Eau De Parfum Spray, 1.7-Ounce Bottle,
-author: Suvojit Manna,
-tags: Boudoir By Vivienne Westwood For Women, Eau De Parfum Spray, 1.7-Ounce Bottle,
-publishedAt: Fri Jan 10 2020 14:59:16 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:16 GMT+0530 (India Standard Time),
----
-
 # [Boudoir By Vivienne Westwood For Women, Eau De Parfum Spray, 1.7-Ounce Bottle](https://products.checkmycream.com/products/Boudoir-By-Vivienne-Westwood-For-Women-Eau-De-Parfum-Spray-1.7-Ounce-Bottle.html)
 
 ### Positive Reviews

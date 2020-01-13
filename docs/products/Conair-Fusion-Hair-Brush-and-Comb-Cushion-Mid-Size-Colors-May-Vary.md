@@ -1,12 +1,3 @@
----
-title: Conair Fusion Hair Brush and Comb, Cushion, Mid-Size, Colors May Vary,
-description: Conair Fusion Hair Brush and Comb, Cushion, Mid-Size, Colors May Vary,
-author: Suvojit Manna,
-tags: Conair Fusion Hair Brush and Comb, Cushion, Mid-Size, Colors May Vary,
-publishedAt: Fri Jan 10 2020 14:59:45 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:45 GMT+0530 (India Standard Time),
----
-
 # [Conair Fusion Hair Brush and Comb, Cushion, Mid-Size, Colors May Vary](https://products.checkmycream.com/products/Conair-Fusion-Hair-Brush-and-Comb-Cushion-Mid-Size-Colors-May-Vary.html)
 
 ### Positive Reviews

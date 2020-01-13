@@ -1,12 +1,3 @@
----
-title: NEW Fashion Womens Ladies Medium Wavy Wave Hairpiece Remy Hair Extensions Ponytails (35cm) Stylish Curly Ponytail Extension Long Claw Clip on Layered Hair Piece Pp42,
-description: NEW Fashion Womens Ladies Medium Wavy Wave Hairpiece Remy Hair Extensions Ponytails (35cm) Stylish Curly Ponytail Extension Long Claw Clip on Layered Hair Piece Pp42,
-author: Suvojit Manna,
-tags: NEW Fashion Womens Ladies Medium Wavy Wave Hairpiece Remy Hair Extensions Ponytails (35cm) Stylish Curly Ponytail Extension Long Claw Clip on Layered Hair Piece Pp42,
-publishedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
----
-
 # [NEW Fashion Womens Ladies Medium Wavy Wave Hairpiece Remy Hair Extensions Ponytails (35cm) Stylish Curly Ponytail Extension Long Claw Clip on Layered Hair Piece Pp42](https://products.checkmycream.com/products/NEW-Fashion-Womens-Ladies-Medium-Wavy-Wave-Hairpiece-Remy-Hair-Extensions-Ponytails-(35cm)-Stylish-Curly-Ponytail-Extension-Long-Claw-Clip-on-Layered-Hair-Piece-Pp42.html)
 
 ### Positive Reviews

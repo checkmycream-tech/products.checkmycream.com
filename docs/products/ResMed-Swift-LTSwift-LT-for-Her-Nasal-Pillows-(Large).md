@@ -1,12 +1,3 @@
----
-title: ResMed Swift LT/Swift LT for Her Nasal Pillows (Large),
-description: ResMed Swift LT/Swift LT for Her Nasal Pillows (Large),
-author: Suvojit Manna,
-tags: ResMed Swift LT/Swift LT for Her Nasal Pillows (Large),
-publishedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
----
-
 # [ResMed Swift LT/Swift LT for Her Nasal Pillows (Large)](https://products.checkmycream.com/products/ResMed-Swift-LTSwift-LT-for-Her-Nasal-Pillows-(Large).html)
 
 ### Positive Reviews

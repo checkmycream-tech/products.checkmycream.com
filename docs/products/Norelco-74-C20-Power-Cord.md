@@ -1,12 +1,3 @@
----
-title: Norelco 74-C20 Power Cord,
-description: Norelco 74-C20 Power Cord,
-author: Suvojit Manna,
-tags: Norelco 74-C20 Power Cord,
-publishedAt: Fri Jan 10 2020 14:59:13 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:13 GMT+0530 (India Standard Time),
----
-
 # [Norelco 74-C20 Power Cord](https://products.checkmycream.com/products/Norelco-74-C20-Power-Cord.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Dettol Topical First Aid Antiseptic Disinfectant Liquid 750ml 25.35 oz Cleaner,
-description: Dettol Topical First Aid Antiseptic Disinfectant Liquid 750ml 25.35 oz Cleaner,
-author: Suvojit Manna,
-tags: Dettol Topical First Aid Antiseptic Disinfectant Liquid 750ml 25.35 oz Cleaner,
-publishedAt: Fri Jan 10 2020 15:00:11 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:11 GMT+0530 (India Standard Time),
----
-
 # [Dettol Topical First Aid Antiseptic Disinfectant Liquid 750ml 25.35 oz Cleaner](https://products.checkmycream.com/products/Dettol-Topical-First-Aid-Antiseptic-Disinfectant-Liquid-750ml-25.35-oz-Cleaner.html)
 
 ### Positive Reviews

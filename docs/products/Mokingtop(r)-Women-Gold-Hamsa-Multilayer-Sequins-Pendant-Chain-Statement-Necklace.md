@@ -1,12 +1,3 @@
----
-title: Mokingtop® Women Gold Hamsa Multilayer Sequins Pendant Chain Statement Necklace,
-description: Mokingtop® Women Gold Hamsa Multilayer Sequins Pendant Chain Statement Necklace,
-author: Suvojit Manna,
-tags: Mokingtop® Women Gold Hamsa Multilayer Sequins Pendant Chain Statement Necklace,
-publishedAt: Fri Jan 10 2020 15:01:04 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:04 GMT+0530 (India Standard Time),
----
-
 # [Mokingtop® Women Gold Hamsa Multilayer Sequins Pendant Chain Statement Necklace](https://products.checkmycream.com/products/Mokingtop(r)-Women-Gold-Hamsa-Multilayer-Sequins-Pendant-Chain-Statement-Necklace.html)
 
 ### Positive Reviews

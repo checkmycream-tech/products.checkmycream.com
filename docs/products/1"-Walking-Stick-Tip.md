@@ -1,12 +1,3 @@
----
-title: 1&quot; Walking Stick Tip,
-description: 1&quot; Walking Stick Tip,
-author: Suvojit Manna,
-tags: 1&quot; Walking Stick Tip,
-publishedAt: Fri Jan 10 2020 14:59:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:01 GMT+0530 (India Standard Time),
----
-
 # [1&quot; Walking Stick Tip](https://products.checkmycream.com/products/1&quot;-Walking-Stick-Tip.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Feather No.50/55 Replacement Blade,
-description: Feather No.50/55 Replacement Blade,
-author: Suvojit Manna,
-tags: Feather No.50/55 Replacement Blade,
-publishedAt: Fri Jan 10 2020 15:00:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:03 GMT+0530 (India Standard Time),
----
-
 # [Feather No.50/55 Replacement Blade](https://products.checkmycream.com/products/Feather-No.5055-Replacement-Blade.html)
 
 ### Positive Reviews

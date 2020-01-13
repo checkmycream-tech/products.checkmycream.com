@@ -1,12 +1,3 @@
----
-title: BLACK ONYX Millennium Moms 1oz Tattoo Ink 1 oz Mom&#x27;s,
-description: BLACK ONYX Millennium Moms 1oz Tattoo Ink 1 oz Mom&#x27;s,
-author: Suvojit Manna,
-tags: BLACK ONYX Millennium Moms 1oz Tattoo Ink 1 oz Mom&#x27;s,
-publishedAt: Fri Jan 10 2020 15:00:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:05 GMT+0530 (India Standard Time),
----
-
 # [BLACK ONYX Millennium Moms 1oz Tattoo Ink 1 oz Mom&#x27;s](https://products.checkmycream.com/products/BLACK-ONYX-Millennium-Moms-1oz-Tattoo-Ink-1-oz-Mom&#x27;s.html)
 
 ### Positive Reviews

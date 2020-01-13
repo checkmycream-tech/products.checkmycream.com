@@ -1,12 +1,3 @@
----
-title: Bath &amp; Body Works Pink Chiffon Gift Set - All New Daily Trion (Full-Sizes),
-description: Bath &amp; Body Works Pink Chiffon Gift Set - All New Daily Trion (Full-Sizes),
-author: Suvojit Manna,
-tags: Bath &amp; Body Works Pink Chiffon Gift Set - All New Daily Trion (Full-Sizes),
-publishedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
----
-
 # [Bath &amp; Body Works Pink Chiffon Gift Set - All New Daily Trion (Full-Sizes)](https://products.checkmycream.com/products/Bath-and-Body-Works-Pink-Chiffon-Gift-Set-All-New-Daily-Trion-(Full-Sizes).html)
 
 ### Positive Reviews

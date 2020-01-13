@@ -1,12 +1,3 @@
----
-title: Nioxin System 2,
-description: Nioxin System 2,
-author: Suvojit Manna,
-tags: Nioxin System 2,
-publishedAt: Fri Jan 10 2020 15:00:31 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:31 GMT+0530 (India Standard Time),
----
-
 # [Nioxin System 2](https://products.checkmycream.com/products/Nioxin-System-2.html)
 
 ### Positive Reviews

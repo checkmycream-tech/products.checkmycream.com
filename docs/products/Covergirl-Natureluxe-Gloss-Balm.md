@@ -1,12 +1,3 @@
----
-title: Covergirl Natureluxe Gloss Balm,
-description: Covergirl Natureluxe Gloss Balm,
-author: Suvojit Manna,
-tags: Covergirl Natureluxe Gloss Balm,
-publishedAt: Fri Jan 10 2020 14:59:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:57 GMT+0530 (India Standard Time),
----
-
 # [Covergirl Natureluxe Gloss Balm](https://products.checkmycream.com/products/Covergirl-Natureluxe-Gloss-Balm.html)
 
 ### Positive Reviews

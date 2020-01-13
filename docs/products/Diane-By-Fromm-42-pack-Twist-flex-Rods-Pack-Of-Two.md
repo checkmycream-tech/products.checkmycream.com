@@ -1,12 +1,3 @@
----
-title: Diane By Fromm 42-pack Twist-flex Rods Pack Of Two,
-description: Diane By Fromm 42-pack Twist-flex Rods Pack Of Two,
-author: Suvojit Manna,
-tags: Diane By Fromm 42-pack Twist-flex Rods Pack Of Two,
-publishedAt: Fri Jan 10 2020 15:01:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:08 GMT+0530 (India Standard Time),
----
-
 # [Diane By Fromm 42-pack Twist-flex Rods Pack Of Two](https://products.checkmycream.com/products/Diane-By-Fromm-42-pack-Twist-flex-Rods-Pack-Of-Two.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Mary Kay Eyeliner ~ Deep Brown,
-description: Mary Kay Eyeliner ~ Deep Brown,
-author: Suvojit Manna,
-tags: Mary Kay Eyeliner ~ Deep Brown,
-publishedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
----
-
 # [Mary Kay Eyeliner ~ Deep Brown](https://products.checkmycream.com/products/Mary-Kay-Eyeliner-~-Deep-Brown.html)
 
 ### Positive Reviews

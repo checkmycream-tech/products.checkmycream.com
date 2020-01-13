@@ -1,12 +1,3 @@
----
-title: VISKEY Luxury Crystal Evening Party Wedding Clutch Bag Handbag Purse Gold,
-description: VISKEY Luxury Crystal Evening Party Wedding Clutch Bag Handbag Purse Gold,
-author: Suvojit Manna,
-tags: VISKEY Luxury Crystal Evening Party Wedding Clutch Bag Handbag Purse Gold,
-publishedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
----
-
 # [VISKEY Luxury Crystal Evening Party Wedding Clutch Bag Handbag Purse Gold](https://products.checkmycream.com/products/VISKEY-Luxury-Crystal-Evening-Party-Wedding-Clutch-Bag-Handbag-Purse-Gold.html)
 
 ### Positive Reviews

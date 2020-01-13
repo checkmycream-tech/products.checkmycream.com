@@ -1,12 +1,3 @@
----
-title: Aveeno Active Naturals Stress Relief Moisturizing Lotion,
-description: Aveeno Active Naturals Stress Relief Moisturizing Lotion,
-author: Suvojit Manna,
-tags: Aveeno Active Naturals Stress Relief Moisturizing Lotion,
-publishedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
----
-
 # [Aveeno Active Naturals Stress Relief Moisturizing Lotion](https://products.checkmycream.com/products/Aveeno-Active-Naturals-Stress-Relief-Moisturizing-Lotion.html)
 
 ### Positive Reviews

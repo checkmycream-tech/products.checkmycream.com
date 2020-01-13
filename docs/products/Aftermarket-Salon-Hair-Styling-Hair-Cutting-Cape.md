@@ -1,12 +1,3 @@
----
-title: Aftermarket Salon Hair Styling Hair Cutting Cape,
-description: Aftermarket Salon Hair Styling Hair Cutting Cape,
-author: Suvojit Manna,
-tags: Aftermarket Salon Hair Styling Hair Cutting Cape,
-publishedAt: Fri Jan 10 2020 15:00:31 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:31 GMT+0530 (India Standard Time),
----
-
 # [Aftermarket Salon Hair Styling Hair Cutting Cape](https://products.checkmycream.com/products/Aftermarket-Salon-Hair-Styling-Hair-Cutting-Cape.html)
 
 ### Positive Reviews

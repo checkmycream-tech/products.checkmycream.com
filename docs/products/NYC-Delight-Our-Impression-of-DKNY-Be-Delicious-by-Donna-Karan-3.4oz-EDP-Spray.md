@@ -1,12 +1,3 @@
----
-title: NYC Delight - Our Impression of DKNY Be Delicious by Donna Karan 3.4oz EDP Spray,
-description: NYC Delight - Our Impression of DKNY Be Delicious by Donna Karan 3.4oz EDP Spray,
-author: Suvojit Manna,
-tags: NYC Delight - Our Impression of DKNY Be Delicious by Donna Karan 3.4oz EDP Spray,
-publishedAt: Fri Jan 10 2020 15:00:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:05 GMT+0530 (India Standard Time),
----
-
 # [NYC Delight - Our Impression of DKNY Be Delicious by Donna Karan 3.4oz EDP Spray](https://products.checkmycream.com/products/NYC-Delight-Our-Impression-of-DKNY-Be-Delicious-by-Donna-Karan-3.4oz-EDP-Spray.html)
 
 ### Positive Reviews

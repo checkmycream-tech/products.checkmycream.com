@@ -1,12 +1,3 @@
----
-title: Taco Yummy Pocket Wallet,
-description: Taco Yummy Pocket Wallet,
-author: Suvojit Manna,
-tags: Taco Yummy Pocket Wallet,
-publishedAt: Fri Jan 10 2020 14:59:43 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:43 GMT+0530 (India Standard Time),
----
-
 # [Taco Yummy Pocket Wallet](https://products.checkmycream.com/products/Taco-Yummy-Pocket-Wallet.html)
 
 ### Positive Reviews

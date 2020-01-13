@@ -1,12 +1,3 @@
----
-title: Lady Flexible Plastic Coil Phone Wire Hair Tie Rope Hairband Clear Gray 4 Pcs,
-description: Lady Flexible Plastic Coil Phone Wire Hair Tie Rope Hairband Clear Gray 4 Pcs,
-author: Suvojit Manna,
-tags: Lady Flexible Plastic Coil Phone Wire Hair Tie Rope Hairband Clear Gray 4 Pcs,
-publishedAt: Fri Jan 10 2020 15:00:45 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:45 GMT+0530 (India Standard Time),
----
-
 # [Lady Flexible Plastic Coil Phone Wire Hair Tie Rope Hairband Clear Gray 4 Pcs](https://products.checkmycream.com/products/Lady-Flexible-Plastic-Coil-Phone-Wire-Hair-Tie-Rope-Hairband-Clear-Gray-4-Pcs.html)
 
 ### Positive Reviews

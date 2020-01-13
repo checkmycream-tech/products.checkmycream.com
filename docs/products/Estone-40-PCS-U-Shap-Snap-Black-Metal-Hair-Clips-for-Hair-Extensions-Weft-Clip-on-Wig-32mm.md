@@ -1,12 +1,3 @@
----
-title: Estone 40 PCS U Shap Snap Black Metal Hair Clips for Hair Extensions Weft Clip-on Wig 32mm,
-description: Estone 40 PCS U Shap Snap Black Metal Hair Clips for Hair Extensions Weft Clip-on Wig 32mm,
-author: Suvojit Manna,
-tags: Estone 40 PCS U Shap Snap Black Metal Hair Clips for Hair Extensions Weft Clip-on Wig 32mm,
-publishedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
----
-
 # [Estone 40 PCS U Shap Snap Black Metal Hair Clips for Hair Extensions Weft Clip-on Wig 32mm](https://products.checkmycream.com/products/Estone-40-PCS-U-Shap-Snap-Black-Metal-Hair-Clips-for-Hair-Extensions-Weft-Clip-on-Wig-32mm.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Vktech® Fashion Jewelry Women Hollow out Flower Alloy Opening Ring,
-description: Vktech® Fashion Jewelry Women Hollow out Flower Alloy Opening Ring,
-author: Suvojit Manna,
-tags: Vktech® Fashion Jewelry Women Hollow out Flower Alloy Opening Ring,
-publishedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
----
-
 # [Vktech® Fashion Jewelry Women Hollow out Flower Alloy Opening Ring](https://products.checkmycream.com/products/Vktech(r)-Fashion-Jewelry-Women-Hollow-out-Flower-Alloy-Opening-Ring.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Nature&#x27;s Plus Tea Tree Anti-Bacterial Bar, 3.5 Ounce,
-description: Nature&#x27;s Plus Tea Tree Anti-Bacterial Bar, 3.5 Ounce,
-author: Suvojit Manna,
-tags: Nature&#x27;s Plus Tea Tree Anti-Bacterial Bar, 3.5 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:00 GMT+0530 (India Standard Time),
----
-
 # [Nature&#x27;s Plus Tea Tree Anti-Bacterial Bar, 3.5 Ounce](https://products.checkmycream.com/products/Nature&#x27;s-Plus-Tea-Tree-Anti-Bacterial-Bar-3.5-Ounce.html)
 
 ### Positive Reviews

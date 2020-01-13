@@ -1,12 +1,3 @@
----
-title: Elemis Instant Refreshing Gel 5.3 oz,
-description: Elemis Instant Refreshing Gel 5.3 oz,
-author: Suvojit Manna,
-tags: Elemis Instant Refreshing Gel 5.3 oz,
-publishedAt: Fri Jan 10 2020 14:59:24 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:24 GMT+0530 (India Standard Time),
----
-
 # [Elemis Instant Refreshing Gel 5.3 oz](https://products.checkmycream.com/products/Elemis-Instant-Refreshing-Gel-5.3-oz.html)
 
 ### Positive Reviews

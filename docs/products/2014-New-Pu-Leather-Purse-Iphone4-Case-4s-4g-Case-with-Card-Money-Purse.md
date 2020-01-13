@@ -1,12 +1,3 @@
----
-title: 2014 New Pu Leather Purse Iphone4 Case 4s 4g Case with Card Money Purse,
-description: 2014 New Pu Leather Purse Iphone4 Case 4s 4g Case with Card Money Purse,
-author: Suvojit Manna,
-tags: 2014 New Pu Leather Purse Iphone4 Case 4s 4g Case with Card Money Purse,
-publishedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
----
-
 # [2014 New Pu Leather Purse Iphone4 Case 4s 4g Case with Card Money Purse](https://products.checkmycream.com/products/2014-New-Pu-Leather-Purse-Iphone4-Case-4s-4g-Case-with-Card-Money-Purse.html)
 
 ### Positive Reviews

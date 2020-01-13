@@ -1,12 +1,3 @@
----
-title: Foil and Cutter Blade for Braun 4000 Series Flex Control &amp; Twin Control,
-description: Foil and Cutter Blade for Braun 4000 Series Flex Control &amp; Twin Control,
-author: Suvojit Manna,
-tags: Foil and Cutter Blade for Braun 4000 Series Flex Control &amp; Twin Control,
-publishedAt: Fri Jan 10 2020 14:59:25 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:25 GMT+0530 (India Standard Time),
----
-
 # [Foil and Cutter Blade for Braun 4000 Series Flex Control &amp; Twin Control](https://products.checkmycream.com/products/Foil-and-Cutter-Blade-for-Braun-4000-Series-Flex-Control-and-Twin-Control.html)
 
 ### Positive Reviews

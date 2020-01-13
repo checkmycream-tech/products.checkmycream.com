@@ -1,12 +1,3 @@
----
-title: Ace Classic Tail Comb, 8 Inches,
-description: Ace Classic Tail Comb, 8 Inches,
-author: Suvojit Manna,
-tags: Ace Classic Tail Comb, 8 Inches,
-publishedAt: Fri Jan 10 2020 15:00:11 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:11 GMT+0530 (India Standard Time),
----
-
 # [Ace Classic Tail Comb, 8 Inches](https://products.checkmycream.com/products/Ace-Classic-Tail-Comb-8-Inches.html)
 
 ### Positive Reviews

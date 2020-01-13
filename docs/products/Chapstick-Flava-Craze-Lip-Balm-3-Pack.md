@@ -1,12 +1,3 @@
----
-title: Chapstick Flava Craze Lip Balm-3 Pack,
-description: Chapstick Flava Craze Lip Balm-3 Pack,
-author: Suvojit Manna,
-tags: Chapstick Flava Craze Lip Balm-3 Pack,
-publishedAt: Fri Jan 10 2020 15:00:04 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:04 GMT+0530 (India Standard Time),
----
-
 # [Chapstick Flava Craze Lip Balm-3 Pack](https://products.checkmycream.com/products/Chapstick-Flava-Craze-Lip-Balm-3-Pack.html)
 
 ### Positive Reviews

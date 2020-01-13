@@ -1,12 +1,3 @@
----
-title: Bod Man Rock Hard by Parfums De Coeur 8 oz Body Spray for Men,
-description: Bod Man Rock Hard by Parfums De Coeur 8 oz Body Spray for Men,
-author: Suvojit Manna,
-tags: Bod Man Rock Hard by Parfums De Coeur 8 oz Body Spray for Men,
-publishedAt: Fri Jan 10 2020 14:59:12 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:12 GMT+0530 (India Standard Time),
----
-
 # [Bod Man Rock Hard by Parfums De Coeur 8 oz Body Spray for Men](https://products.checkmycream.com/products/Bod-Man-Rock-Hard-by-Parfums-De-Coeur-8-oz-Body-Spray-for-Men.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Grand Parfums 1ml Glass Perfume Sample Vials 8 x 35mm with Reclosable Zip Lock Bags (Set of 100),
-description: Grand Parfums 1ml Glass Perfume Sample Vials 8 x 35mm with Reclosable Zip Lock Bags (Set of 100),
-author: Suvojit Manna,
-tags: Grand Parfums 1ml Glass Perfume Sample Vials 8 x 35mm with Reclosable Zip Lock Bags (Set of 100),
-publishedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
----
-
 # [Grand Parfums 1ml Glass Perfume Sample Vials 8 x 35mm with Reclosable Zip Lock Bags (Set of 100)](https://products.checkmycream.com/products/Grand-Parfums-1ml-Glass-Perfume-Sample-Vials-8-x-35mm-with-Reclosable-Zip-Lock-Bags-(Set-of-100).html)
 
 ### Positive Reviews

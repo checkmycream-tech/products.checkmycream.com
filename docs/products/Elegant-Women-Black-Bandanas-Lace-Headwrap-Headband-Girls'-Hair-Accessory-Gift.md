@@ -1,12 +1,3 @@
----
-title: Elegant Women Black Bandanas Lace Headwrap Headband Girls&#x27; Hair Accessory Gift,
-description: Elegant Women Black Bandanas Lace Headwrap Headband Girls&#x27; Hair Accessory Gift,
-author: Suvojit Manna,
-tags: Elegant Women Black Bandanas Lace Headwrap Headband Girls&#x27; Hair Accessory Gift,
-publishedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
----
-
 # [Elegant Women Black Bandanas Lace Headwrap Headband Girls&#x27; Hair Accessory Gift](https://products.checkmycream.com/products/Elegant-Women-Black-Bandanas-Lace-Headwrap-Headband-Girls&#x27;-Hair-Accessory-Gift.html)
 
 ### Positive Reviews

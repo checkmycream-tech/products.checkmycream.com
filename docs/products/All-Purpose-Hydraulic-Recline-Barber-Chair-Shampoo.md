@@ -1,12 +1,3 @@
----
-title: All Purpose Hydraulic Recline Barber Chair Shampoo,
-description: All Purpose Hydraulic Recline Barber Chair Shampoo,
-author: Suvojit Manna,
-tags: All Purpose Hydraulic Recline Barber Chair Shampoo,
-publishedAt: Fri Jan 10 2020 15:00:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:08 GMT+0530 (India Standard Time),
----
-
 # [All Purpose Hydraulic Recline Barber Chair Shampoo](https://products.checkmycream.com/products/All-Purpose-Hydraulic-Recline-Barber-Chair-Shampoo.html)
 
 ### Positive Reviews

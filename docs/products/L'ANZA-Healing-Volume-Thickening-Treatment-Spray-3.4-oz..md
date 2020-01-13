@@ -1,12 +1,3 @@
----
-title: L&#x27;ANZA Healing Volume Thickening Treatment Spray, 3.4 oz.,
-description: L&#x27;ANZA Healing Volume Thickening Treatment Spray, 3.4 oz.,
-author: Suvojit Manna,
-tags: L&#x27;ANZA Healing Volume Thickening Treatment Spray, 3.4 oz.,
-publishedAt: Fri Jan 10 2020 14:59:37 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:37 GMT+0530 (India Standard Time),
----
-
 # [L&#x27;ANZA Healing Volume Thickening Treatment Spray, 3.4 oz.](https://products.checkmycream.com/products/L&#x27;ANZA-Healing-Volume-Thickening-Treatment-Spray-3.4-oz..html)
 
 ### Positive Reviews

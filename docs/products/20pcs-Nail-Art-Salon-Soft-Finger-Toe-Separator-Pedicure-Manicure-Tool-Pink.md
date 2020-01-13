@@ -1,12 +1,3 @@
----
-title: 20pcs Nail Art Salon Soft Finger Toe Separator Pedicure Manicure Tool Pink,
-description: 20pcs Nail Art Salon Soft Finger Toe Separator Pedicure Manicure Tool Pink,
-author: Suvojit Manna,
-tags: 20pcs Nail Art Salon Soft Finger Toe Separator Pedicure Manicure Tool Pink,
-publishedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
----
-
 # [20pcs Nail Art Salon Soft Finger Toe Separator Pedicure Manicure Tool Pink](https://products.checkmycream.com/products/20pcs-Nail-Art-Salon-Soft-Finger-Toe-Separator-Pedicure-Manicure-Tool-Pink.html)
 
 ### Positive Reviews

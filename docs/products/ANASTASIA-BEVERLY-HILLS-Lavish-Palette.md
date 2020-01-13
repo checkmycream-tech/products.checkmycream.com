@@ -1,12 +1,3 @@
----
-title: ANASTASIA BEVERLY HILLS - Lavish Palette,
-description: ANASTASIA BEVERLY HILLS - Lavish Palette,
-author: Suvojit Manna,
-tags: ANASTASIA BEVERLY HILLS - Lavish Palette,
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [ANASTASIA BEVERLY HILLS - Lavish Palette](https://products.checkmycream.com/products/ANASTASIA-BEVERLY-HILLS-Lavish-Palette.html)
 
 ### Positive Reviews

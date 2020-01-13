@@ -1,12 +1,3 @@
----
-title: Elemi 100% Pure Therapeutic Grade Essential Oil by Edens Garden,
-description: Elemi 100% Pure Therapeutic Grade Essential Oil by Edens Garden,
-author: Suvojit Manna,
-tags: Elemi 100% Pure Therapeutic Grade Essential Oil by Edens Garden,
-publishedAt: Fri Jan 10 2020 14:59:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:57 GMT+0530 (India Standard Time),
----
-
 # [Elemi 100% Pure Therapeutic Grade Essential Oil by Edens Garden](https://products.checkmycream.com/products/Elemi-100percent-Pure-Therapeutic-Grade-Essential-Oil-by-Edens-Garden.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Emjoi Micro-Pedi Refill Rollers (Xtreme Coarse) - Pack of 16,
-description: Emjoi Micro-Pedi Refill Rollers (Xtreme Coarse) - Pack of 16,
-author: Suvojit Manna,
-tags: Emjoi Micro-Pedi Refill Rollers (Xtreme Coarse) - Pack of 16,
-publishedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
----
-
 # [Emjoi Micro-Pedi Refill Rollers (Xtreme Coarse) - Pack of 16](https://products.checkmycream.com/products/Emjoi-Micro-Pedi-Refill-Rollers-(Xtreme-Coarse)-Pack-of-16.html)
 
 ### Positive Reviews

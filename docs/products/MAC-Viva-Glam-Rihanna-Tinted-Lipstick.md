@@ -1,12 +1,3 @@
----
-title: MAC Viva Glam Rihanna Tinted Lipstick,
-description: MAC Viva Glam Rihanna Tinted Lipstick,
-author: Suvojit Manna,
-tags: MAC Viva Glam Rihanna Tinted Lipstick,
-publishedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
----
-
 # [MAC Viva Glam Rihanna Tinted Lipstick](https://products.checkmycream.com/products/MAC-Viva-Glam-Rihanna-Tinted-Lipstick.html)
 
 ### Positive Reviews

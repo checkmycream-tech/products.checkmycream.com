@@ -1,12 +1,3 @@
----
-title: Shakira Elixir By Shakira Edt Spray/FN230585/2.7 oz/women/,
-description: Shakira Elixir By Shakira Edt Spray/FN230585/2.7 oz/women/,
-author: Suvojit Manna,
-tags: Shakira Elixir By Shakira Edt Spray/FN230585/2.7 oz/women/,
-publishedAt: Fri Jan 10 2020 15:00:22 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:22 GMT+0530 (India Standard Time),
----
-
 # [Shakira Elixir By Shakira Edt Spray/FN230585/2.7 oz/women/](https://products.checkmycream.com/products/Shakira-Elixir-By-Shakira-Edt-SprayFN2305852.7-ozwomen.html)
 
 ### Positive Reviews

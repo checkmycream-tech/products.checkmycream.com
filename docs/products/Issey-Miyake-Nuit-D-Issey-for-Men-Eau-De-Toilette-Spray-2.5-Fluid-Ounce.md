@@ -1,12 +1,3 @@
----
-title: Issey Miyake Nuit D Issey for Men Eau De Toilette Spray, 2.5 Fluid Ounce,
-description: Issey Miyake Nuit D Issey for Men Eau De Toilette Spray, 2.5 Fluid Ounce,
-author: Suvojit Manna,
-tags: Issey Miyake Nuit D Issey for Men Eau De Toilette Spray, 2.5 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
----
-
 # [Issey Miyake Nuit D Issey for Men Eau De Toilette Spray, 2.5 Fluid Ounce](https://products.checkmycream.com/products/Issey-Miyake-Nuit-D-Issey-for-Men-Eau-De-Toilette-Spray-2.5-Fluid-Ounce.html)
 
 ### Positive Reviews

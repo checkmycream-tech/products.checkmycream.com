@@ -1,12 +1,3 @@
----
-title: Gillette Fusion Proglide Manual Men&#x27;s Razor With Flexball Handle Technology With 1 Razor Blade + Proglide Sensitive Shaving Gel 2.5 Oz + Gillette Hydrator Body Wash 8.4 Oz + Gillette Deodorant 4 Oz,
-description: Gillette Fusion Proglide Manual Men&#x27;s Razor With Flexball Handle Technology With 1 Razor Blade + Proglide Sensitive Shaving Gel 2.5 Oz + Gillette Hydrator Body Wash 8.4 Oz + Gillette Deodorant 4 Oz,
-author: Suvojit Manna,
-tags: Gillette Fusion Proglide Manual Men&#x27;s Razor With Flexball Handle Technology With 1 Razor Blade + Proglide Sensitive Shaving Gel 2.5 Oz + Gillette Hydrator Body Wash 8.4 Oz + Gillette Deodorant 4 Oz,
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [Gillette Fusion Proglide Manual Men&#x27;s Razor With Flexball Handle Technology With 1 Razor Blade + Proglide Sensitive Shaving Gel 2.5 Oz + Gillette Hydrator Body Wash 8.4 Oz + Gillette Deodorant 4 Oz](https://products.checkmycream.com/products/Gillette-Fusion-Proglide-Manual-Men&#x27;s-Razor-With-Flexball-Handle-Technology-With-1-Razor-Blade-+-Proglide-Sensitive-Shaving-Gel-2.5-Oz-+-Gillette-Hydrator-Body-Wash-8.4-Oz-+-Gillette-Deodorant-4-Oz.html)
 
 ### Positive Reviews

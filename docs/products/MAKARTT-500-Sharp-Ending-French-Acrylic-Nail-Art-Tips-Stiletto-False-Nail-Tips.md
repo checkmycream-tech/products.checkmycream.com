@@ -1,12 +1,3 @@
----
-title: MAKARTT 500 Sharp Ending French Acrylic Nail Art Tips Stiletto False Nail Tips,
-description: MAKARTT 500 Sharp Ending French Acrylic Nail Art Tips Stiletto False Nail Tips,
-author: Suvojit Manna,
-tags: MAKARTT 500 Sharp Ending French Acrylic Nail Art Tips Stiletto False Nail Tips,
-publishedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
----
-
 # [MAKARTT 500 Sharp Ending French Acrylic Nail Art Tips Stiletto False Nail Tips](https://products.checkmycream.com/products/MAKARTT-500-Sharp-Ending-French-Acrylic-Nail-Art-Tips-Stiletto-False-Nail-Tips.html)
 
 ### Positive Reviews

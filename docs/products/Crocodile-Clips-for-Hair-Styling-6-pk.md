@@ -1,12 +1,3 @@
----
-title: Crocodile Clips for Hair Styling - 6 pk,
-description: Crocodile Clips for Hair Styling - 6 pk,
-author: Suvojit Manna,
-tags: Crocodile Clips for Hair Styling - 6 pk,
-publishedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
----
-
 # [Crocodile Clips for Hair Styling - 6 pk](https://products.checkmycream.com/products/Crocodile-Clips-for-Hair-Styling-6-pk.html)
 
 ### Positive Reviews

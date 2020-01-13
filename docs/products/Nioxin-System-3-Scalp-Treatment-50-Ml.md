@@ -1,12 +1,3 @@
----
-title: Nioxin System 3 Scalp Treatment, 50 Ml,
-description: Nioxin System 3 Scalp Treatment, 50 Ml,
-author: Suvojit Manna,
-tags: Nioxin System 3 Scalp Treatment, 50 Ml,
-publishedAt: Fri Jan 10 2020 15:00:10 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:10 GMT+0530 (India Standard Time),
----
-
 # [Nioxin System 3 Scalp Treatment, 50 Ml](https://products.checkmycream.com/products/Nioxin-System-3-Scalp-Treatment-50-Ml.html)
 
 ### Positive Reviews

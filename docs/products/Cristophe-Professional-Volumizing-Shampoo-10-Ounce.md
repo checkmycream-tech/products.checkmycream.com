@@ -1,12 +1,3 @@
----
-title: Cristophe Professional Volumizing Shampoo, 10 Ounce,
-description: Cristophe Professional Volumizing Shampoo, 10 Ounce,
-author: Suvojit Manna,
-tags: Cristophe Professional Volumizing Shampoo, 10 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
----
-
 # [Cristophe Professional Volumizing Shampoo, 10 Ounce](https://products.checkmycream.com/products/Cristophe-Professional-Volumizing-Shampoo-10-Ounce.html)
 
 ### Positive Reviews

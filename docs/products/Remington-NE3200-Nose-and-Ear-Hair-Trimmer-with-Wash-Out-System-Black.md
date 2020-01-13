@@ -1,12 +1,3 @@
----
-title: Remington NE3200 Nose and Ear Hair Trimmer with Wash Out System, Black,
-description: Remington NE3200 Nose and Ear Hair Trimmer with Wash Out System, Black,
-author: Suvojit Manna,
-tags: Remington NE3200 Nose and Ear Hair Trimmer with Wash Out System, Black,
-publishedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
----
-
 # [Remington NE3200 Nose and Ear Hair Trimmer with Wash Out System, Black](https://products.checkmycream.com/products/Remington-NE3200-Nose-and-Ear-Hair-Trimmer-with-Wash-Out-System-Black.html)
 
 ### Positive Reviews

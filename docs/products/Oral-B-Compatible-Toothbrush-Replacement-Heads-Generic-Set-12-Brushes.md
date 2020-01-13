@@ -1,12 +1,3 @@
----
-title: Oral B Compatible Toothbrush Replacement Heads Generic Set- 12 Brushes,
-description: Oral B Compatible Toothbrush Replacement Heads Generic Set- 12 Brushes,
-author: Suvojit Manna,
-tags: Oral B Compatible Toothbrush Replacement Heads Generic Set- 12 Brushes,
-publishedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
----
-
 # [Oral B Compatible Toothbrush Replacement Heads Generic Set- 12 Brushes](https://products.checkmycream.com/products/Oral-B-Compatible-Toothbrush-Replacement-Heads-Generic-Set-12-Brushes.html)
 
 ### Positive Reviews

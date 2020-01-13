@@ -1,12 +1,3 @@
----
-title: Obagi Nu Derm Foaming Gel Toner Exfoderm Forte Healthy Skin Protection SPF 35 FULL SIZE,
-description: Obagi Nu Derm Foaming Gel Toner Exfoderm Forte Healthy Skin Protection SPF 35 FULL SIZE,
-author: Suvojit Manna,
-tags: Obagi Nu Derm Foaming Gel Toner Exfoderm Forte Healthy Skin Protection SPF 35 FULL SIZE,
-publishedAt: Fri Jan 10 2020 15:00:12 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:12 GMT+0530 (India Standard Time),
----
-
 # [Obagi Nu Derm Foaming Gel Toner Exfoderm Forte Healthy Skin Protection SPF 35 FULL SIZE](https://products.checkmycream.com/products/Obagi-Nu-Derm-Foaming-Gel-Toner-Exfoderm-Forte-Healthy-Skin-Protection-SPF-35-FULL-SIZE.html)
 
 ### Positive Reviews

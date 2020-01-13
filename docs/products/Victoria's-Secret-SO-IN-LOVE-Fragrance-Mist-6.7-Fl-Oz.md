@@ -1,12 +1,3 @@
----
-title: Victoria&#x27;s Secret SO IN LOVE Fragrance Mist 6.7 Fl Oz,
-description: Victoria&#x27;s Secret SO IN LOVE Fragrance Mist 6.7 Fl Oz,
-author: Suvojit Manna,
-tags: Victoria&#x27;s Secret SO IN LOVE Fragrance Mist 6.7 Fl Oz,
-publishedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
----
-
 # [Victoria&#x27;s Secret SO IN LOVE Fragrance Mist 6.7 Fl Oz](https://products.checkmycream.com/products/Victoria&#x27;s-Secret-SO-IN-LOVE-Fragrance-Mist-6.7-Fl-Oz.html)
 
 ### Positive Reviews

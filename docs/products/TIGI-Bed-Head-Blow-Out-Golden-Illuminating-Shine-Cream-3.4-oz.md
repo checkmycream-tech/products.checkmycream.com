@@ -1,12 +1,3 @@
----
-title: TIGI Bed Head Blow-Out Golden Illuminating Shine Cream, 3.4 oz,
-description: TIGI Bed Head Blow-Out Golden Illuminating Shine Cream, 3.4 oz,
-author: Suvojit Manna,
-tags: TIGI Bed Head Blow-Out Golden Illuminating Shine Cream, 3.4 oz,
-publishedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
----
-
 # [TIGI Bed Head Blow-Out Golden Illuminating Shine Cream, 3.4 oz](https://products.checkmycream.com/products/TIGI-Bed-Head-Blow-Out-Golden-Illuminating-Shine-Cream-3.4-oz.html)
 
 ### Positive Reviews

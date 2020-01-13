@@ -1,12 +1,3 @@
----
-title: 12 Bottles Quimica Alemana Nail Hardener 0.47 Oz,
-description: 12 Bottles Quimica Alemana Nail Hardener 0.47 Oz,
-author: Suvojit Manna,
-tags: 12 Bottles Quimica Alemana Nail Hardener 0.47 Oz,
-publishedAt: Fri Jan 10 2020 15:00:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:05 GMT+0530 (India Standard Time),
----
-
 # [12 Bottles Quimica Alemana Nail Hardener 0.47 Oz](https://products.checkmycream.com/products/12-Bottles-Quimica-Alemana-Nail-Hardener-0.47-Oz.html)
 
 ### Positive Reviews

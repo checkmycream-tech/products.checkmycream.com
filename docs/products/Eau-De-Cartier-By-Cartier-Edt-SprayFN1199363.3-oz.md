@@ -1,12 +1,3 @@
----
-title: Eau De Cartier By Cartier Edt Spray/FN119936/3.3 oz//,
-description: Eau De Cartier By Cartier Edt Spray/FN119936/3.3 oz//,
-author: Suvojit Manna,
-tags: Eau De Cartier By Cartier Edt Spray/FN119936/3.3 oz//,
-publishedAt: Fri Jan 10 2020 14:59:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:05 GMT+0530 (India Standard Time),
----
-
 # [Eau De Cartier By Cartier Edt Spray/FN119936/3.3 oz//](https://products.checkmycream.com/products/Eau-De-Cartier-By-Cartier-Edt-SprayFN1199363.3-oz.html)
 
 ### Positive Reviews

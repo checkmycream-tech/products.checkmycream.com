@@ -1,12 +1,3 @@
----
-title: 30 Pcs Cute Love Heart Hair Snap Clip for Toddler Baby 30mm (Mix Bright and Pastel Color),
-description: 30 Pcs Cute Love Heart Hair Snap Clip for Toddler Baby 30mm (Mix Bright and Pastel Color),
-author: Suvojit Manna,
-tags: 30 Pcs Cute Love Heart Hair Snap Clip for Toddler Baby 30mm (Mix Bright and Pastel Color),
-publishedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
----
-
 # [30 Pcs Cute Love Heart Hair Snap Clip for Toddler Baby 30mm (Mix Bright and Pastel Color)](https://products.checkmycream.com/products/30-Pcs-Cute-Love-Heart-Hair-Snap-Clip-for-Toddler-Baby-30mm-(Mix-Bright-and-Pastel-Color).html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Mini Pink Salon Cushion Board Nail Files,
-description: Mini Pink Salon Cushion Board Nail Files,
-author: Suvojit Manna,
-tags: Mini Pink Salon Cushion Board Nail Files,
-publishedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
----
-
 # [Mini Pink Salon Cushion Board Nail Files](https://products.checkmycream.com/products/Mini-Pink-Salon-Cushion-Board-Nail-Files.html)
 
 ### Positive Reviews

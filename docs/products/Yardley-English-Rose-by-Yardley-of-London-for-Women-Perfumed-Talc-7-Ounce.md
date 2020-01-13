@@ -1,12 +1,3 @@
----
-title: Yardley English Rose by Yardley of London for Women Perfumed Talc, 7 Ounce,
-description: Yardley English Rose by Yardley of London for Women Perfumed Talc, 7 Ounce,
-author: Suvojit Manna,
-tags: Yardley English Rose by Yardley of London for Women Perfumed Talc, 7 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:02 GMT+0530 (India Standard Time),
----
-
 # [Yardley English Rose by Yardley of London for Women Perfumed Talc, 7 Ounce](https://products.checkmycream.com/products/Yardley-English-Rose-by-Yardley-of-London-for-Women-Perfumed-Talc-7-Ounce.html)
 
 ### Positive Reviews

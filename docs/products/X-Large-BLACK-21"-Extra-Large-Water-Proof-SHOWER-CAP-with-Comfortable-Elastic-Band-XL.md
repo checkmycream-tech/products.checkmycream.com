@@ -1,12 +1,3 @@
----
-title: X-Large BLACK 21&quot; Extra Large Water-Proof SHOWER CAP with Comfortable Elastic Band XL,
-description: X-Large BLACK 21&quot; Extra Large Water-Proof SHOWER CAP with Comfortable Elastic Band XL,
-author: Suvojit Manna,
-tags: X-Large BLACK 21&quot; Extra Large Water-Proof SHOWER CAP with Comfortable Elastic Band XL,
-publishedAt: Fri Jan 10 2020 15:00:16 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:16 GMT+0530 (India Standard Time),
----
-
 # [X-Large BLACK 21&quot; Extra Large Water-Proof SHOWER CAP with Comfortable Elastic Band XL](https://products.checkmycream.com/products/X-Large-BLACK-21&quot;-Extra-Large-Water-Proof-SHOWER-CAP-with-Comfortable-Elastic-Band-XL.html)
 
 ### Positive Reviews

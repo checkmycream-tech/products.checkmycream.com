@@ -1,12 +1,3 @@
----
-title: Ostart Pedicure Manicure Tool Acrylic False Nail Clipper Cutter - Pink,
-description: Ostart Pedicure Manicure Tool Acrylic False Nail Clipper Cutter - Pink,
-author: Suvojit Manna,
-tags: Ostart Pedicure Manicure Tool Acrylic False Nail Clipper Cutter - Pink,
-publishedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
----
-
 # [Ostart Pedicure Manicure Tool Acrylic False Nail Clipper Cutter - Pink](https://products.checkmycream.com/products/Ostart-Pedicure-Manicure-Tool-Acrylic-False-Nail-Clipper-Cutter-Pink.html)
 
 ### Positive Reviews

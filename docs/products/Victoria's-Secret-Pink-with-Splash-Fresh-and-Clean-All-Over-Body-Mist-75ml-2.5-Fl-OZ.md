@@ -1,12 +1,3 @@
----
-title: Victoria&#x27;s Secret Pink with Splash Fresh &amp; Clean All-Over Body Mist 75ml / 2.5 Fl OZ,
-description: Victoria&#x27;s Secret Pink with Splash Fresh &amp; Clean All-Over Body Mist 75ml / 2.5 Fl OZ,
-author: Suvojit Manna,
-tags: Victoria&#x27;s Secret Pink with Splash Fresh &amp; Clean All-Over Body Mist 75ml / 2.5 Fl OZ,
-publishedAt: Fri Jan 10 2020 14:59:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:57 GMT+0530 (India Standard Time),
----
-
 # [Victoria&#x27;s Secret Pink with Splash Fresh &amp; Clean All-Over Body Mist 75ml / 2.5 Fl OZ](https://products.checkmycream.com/products/Victoria&#x27;s-Secret-Pink-with-Splash-Fresh-and-Clean-All-Over-Body-Mist-75ml-2.5-Fl-OZ.html)
 
 ### Positive Reviews

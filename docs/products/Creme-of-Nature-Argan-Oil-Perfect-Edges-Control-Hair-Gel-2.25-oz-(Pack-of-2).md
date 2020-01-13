@@ -1,12 +1,3 @@
----
-title: Creme of Nature Argan Oil Perfect Edges Control Hair Gel-2.25 oz (Pack of 2),
-description: Creme of Nature Argan Oil Perfect Edges Control Hair Gel-2.25 oz (Pack of 2),
-author: Suvojit Manna,
-tags: Creme of Nature Argan Oil Perfect Edges Control Hair Gel-2.25 oz (Pack of 2),
-publishedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
----
-
 # [Creme of Nature Argan Oil Perfect Edges Control Hair Gel-2.25 oz (Pack of 2)](https://products.checkmycream.com/products/Creme-of-Nature-Argan-Oil-Perfect-Edges-Control-Hair-Gel-2.25-oz-(Pack-of-2).html)
 
 ### Positive Reviews

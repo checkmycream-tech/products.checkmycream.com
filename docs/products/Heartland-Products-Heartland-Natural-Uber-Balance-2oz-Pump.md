@@ -1,12 +1,3 @@
----
-title: Heartland Products - Heartland Natural Uber Balance - 2oz Pump,
-description: Heartland Products - Heartland Natural Uber Balance - 2oz Pump,
-author: Suvojit Manna,
-tags: Heartland Products - Heartland Natural Uber Balance - 2oz Pump,
-publishedAt: Fri Jan 10 2020 15:00:15 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:15 GMT+0530 (India Standard Time),
----
-
 # [Heartland Products - Heartland Natural Uber Balance - 2oz Pump](https://products.checkmycream.com/products/Heartland-Products-Heartland-Natural-Uber-Balance-2oz-Pump.html)
 
 ### Positive Reviews

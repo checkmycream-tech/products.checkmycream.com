@@ -1,12 +1,3 @@
----
-title: Bath and Body Works C.o. Bigelow Men&#x27;s Cologne Elixir White Nº 1585,
-description: Bath and Body Works C.o. Bigelow Men&#x27;s Cologne Elixir White Nº 1585,
-author: Suvojit Manna,
-tags: Bath and Body Works C.o. Bigelow Men&#x27;s Cologne Elixir White Nº 1585,
-publishedAt: Fri Jan 10 2020 14:59:52 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:52 GMT+0530 (India Standard Time),
----
-
 # [Bath and Body Works C.o. Bigelow Men&#x27;s Cologne Elixir White Nº 1585](https://products.checkmycream.com/products/Bath-and-Body-Works-C.o.-Bigelow-Men&#x27;s-Cologne-Elixir-White-No-1585.html)
 
 ### Positive Reviews

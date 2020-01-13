@@ -1,12 +1,3 @@
----
-title: Minoxidil 5% Extra Strength Hair Regrowth by Kirkland Siganture,
-description: Minoxidil 5% Extra Strength Hair Regrowth by Kirkland Siganture,
-author: Suvojit Manna,
-tags: Minoxidil 5% Extra Strength Hair Regrowth by Kirkland Siganture,
-publishedAt: Fri Jan 10 2020 15:00:31 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:31 GMT+0530 (India Standard Time),
----
-
 # [Minoxidil 5% Extra Strength Hair Regrowth by Kirkland Siganture](https://products.checkmycream.com/products/Minoxidil-5percent-Extra-Strength-Hair-Regrowth-by-Kirkland-Siganture.html)
 
 ### Positive Reviews

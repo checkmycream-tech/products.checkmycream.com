@@ -1,12 +1,3 @@
----
-title: Chic Petite Black Mesh Brush Bag,
-description: Chic Petite Black Mesh Brush Bag,
-author: Suvojit Manna,
-tags: Chic Petite Black Mesh Brush Bag,
-publishedAt: Fri Jan 10 2020 14:59:09 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:09 GMT+0530 (India Standard Time),
----
-
 # [Chic Petite Black Mesh Brush Bag](https://products.checkmycream.com/products/Chic-Petite-Black-Mesh-Brush-Bag.html)
 
 ### Positive Reviews

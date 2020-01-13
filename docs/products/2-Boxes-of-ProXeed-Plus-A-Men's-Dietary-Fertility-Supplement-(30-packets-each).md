@@ -1,12 +1,3 @@
----
-title: 2 Boxes of ProXeed Plus - A Men&#x27;s Dietary Fertility Supplement (30 packets each),
-description: 2 Boxes of ProXeed Plus - A Men&#x27;s Dietary Fertility Supplement (30 packets each),
-author: Suvojit Manna,
-tags: 2 Boxes of ProXeed Plus - A Men&#x27;s Dietary Fertility Supplement (30 packets each),
-publishedAt: Fri Jan 10 2020 15:00:38 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:38 GMT+0530 (India Standard Time),
----
-
 # [2 Boxes of ProXeed Plus - A Men&#x27;s Dietary Fertility Supplement (30 packets each)](https://products.checkmycream.com/products/2-Boxes-of-ProXeed-Plus-A-Men&#x27;s-Dietary-Fertility-Supplement-(30-packets-each).html)
 
 ### Positive Reviews

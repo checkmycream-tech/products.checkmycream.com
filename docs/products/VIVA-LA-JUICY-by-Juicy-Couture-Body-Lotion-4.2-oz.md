@@ -1,12 +1,3 @@
----
-title: VIVA LA JUICY by Juicy Couture Body Lotion 4.2 oz,
-description: VIVA LA JUICY by Juicy Couture Body Lotion 4.2 oz,
-author: Suvojit Manna,
-tags: VIVA LA JUICY by Juicy Couture Body Lotion 4.2 oz,
-publishedAt: Fri Jan 10 2020 14:59:39 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:39 GMT+0530 (India Standard Time),
----
-
 # [VIVA LA JUICY by Juicy Couture Body Lotion 4.2 oz](https://products.checkmycream.com/products/VIVA-LA-JUICY-by-Juicy-Couture-Body-Lotion-4.2-oz.html)
 
 ### Positive Reviews

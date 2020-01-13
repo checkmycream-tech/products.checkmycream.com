@@ -1,12 +1,3 @@
----
-title: Revita Eye Anti Aging Serum Size 15ml,
-description: Revita Eye Anti Aging Serum Size 15ml,
-author: Suvojit Manna,
-tags: Revita Eye Anti Aging Serum Size 15ml,
-publishedAt: Fri Jan 10 2020 15:01:07 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:07 GMT+0530 (India Standard Time),
----
-
 # [Revita Eye Anti Aging Serum Size 15ml](https://products.checkmycream.com/products/Revita-Eye-Anti-Aging-Serum-Size-15ml.html)
 
 ### Positive Reviews

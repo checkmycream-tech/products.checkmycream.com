@@ -1,12 +1,3 @@
----
-title: CoverGirl Outlast Lipcolor,
-description: CoverGirl Outlast Lipcolor,
-author: Suvojit Manna,
-tags: CoverGirl Outlast Lipcolor,
-publishedAt: Fri Jan 10 2020 15:00:09 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:09 GMT+0530 (India Standard Time),
----
-
 # [CoverGirl Outlast Lipcolor](https://products.checkmycream.com/products/CoverGirl-Outlast-Lipcolor.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Sensationail Invincible Gel Polish 71591 Pink Daisy by Jubujub,
-description: Sensationail Invincible Gel Polish 71591 Pink Daisy by Jubujub,
-author: Suvojit Manna,
-tags: Sensationail Invincible Gel Polish 71591 Pink Daisy by Jubujub,
-publishedAt: Fri Jan 10 2020 15:00:21 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:21 GMT+0530 (India Standard Time),
----
-
 # [Sensationail Invincible Gel Polish 71591 Pink Daisy by Jubujub](https://products.checkmycream.com/products/Sensationail-Invincible-Gel-Polish-71591-Pink-Daisy-by-Jubujub.html)
 
 ### Positive Reviews

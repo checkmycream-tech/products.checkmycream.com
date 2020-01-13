@@ -1,12 +1,3 @@
----
-title: Phytomer Expert Youth Wrinkle Correction Cream, 1.6 Ounce,
-description: Phytomer Expert Youth Wrinkle Correction Cream, 1.6 Ounce,
-author: Suvojit Manna,
-tags: Phytomer Expert Youth Wrinkle Correction Cream, 1.6 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:57 GMT+0530 (India Standard Time),
----
-
 # [Phytomer Expert Youth Wrinkle Correction Cream, 1.6 Ounce](https://products.checkmycream.com/products/Phytomer-Expert-Youth-Wrinkle-Correction-Cream-1.6-Ounce.html)
 
 ### Positive Reviews

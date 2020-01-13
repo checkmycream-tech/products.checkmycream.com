@@ -1,12 +1,3 @@
----
-title: bareMinerals Flawless Definition Mascara 10ml Espresso,
-description: bareMinerals Flawless Definition Mascara 10ml Espresso,
-author: Suvojit Manna,
-tags: bareMinerals Flawless Definition Mascara 10ml Espresso,
-publishedAt: Fri Jan 10 2020 14:59:44 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:44 GMT+0530 (India Standard Time),
----
-
 # [bareMinerals Flawless Definition Mascara 10ml Espresso](https://products.checkmycream.com/products/bareMinerals-Flawless-Definition-Mascara-10ml-Espresso.html)
 
 ### Positive Reviews

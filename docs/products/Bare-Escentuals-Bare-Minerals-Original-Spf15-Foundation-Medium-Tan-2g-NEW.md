@@ -1,12 +1,3 @@
----
-title: Bare Escentuals Bare Minerals Original Spf15 Foundation Medium Tan 2g NEW,
-description: Bare Escentuals Bare Minerals Original Spf15 Foundation Medium Tan 2g NEW,
-author: Suvojit Manna,
-tags: Bare Escentuals Bare Minerals Original Spf15 Foundation Medium Tan 2g NEW,
-publishedAt: Fri Jan 10 2020 15:00:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:08 GMT+0530 (India Standard Time),
----
-
 # [Bare Escentuals Bare Minerals Original Spf15 Foundation Medium Tan 2g NEW](https://products.checkmycream.com/products/Bare-Escentuals-Bare-Minerals-Original-Spf15-Foundation-Medium-Tan-2g-NEW.html)
 
 ### Positive Reviews

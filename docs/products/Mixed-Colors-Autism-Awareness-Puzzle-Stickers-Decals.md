@@ -1,12 +1,3 @@
----
-title: Mixed Colors Autism Awareness Puzzle Stickers Decals,
-description: Mixed Colors Autism Awareness Puzzle Stickers Decals,
-author: Suvojit Manna,
-tags: Mixed Colors Autism Awareness Puzzle Stickers Decals,
-publishedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
----
-
 # [Mixed Colors Autism Awareness Puzzle Stickers Decals](https://products.checkmycream.com/products/Mixed-Colors-Autism-Awareness-Puzzle-Stickers-Decals.html)
 
 ### Positive Reviews

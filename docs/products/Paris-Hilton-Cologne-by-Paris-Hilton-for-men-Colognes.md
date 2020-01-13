@@ -1,12 +1,3 @@
----
-title: Paris Hilton Cologne by Paris Hilton for men Colognes,
-description: Paris Hilton Cologne by Paris Hilton for men Colognes,
-author: Suvojit Manna,
-tags: Paris Hilton Cologne by Paris Hilton for men Colognes,
-publishedAt: Fri Jan 10 2020 14:59:29 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:29 GMT+0530 (India Standard Time),
----
-
 # [Paris Hilton Cologne by Paris Hilton for men Colognes](https://products.checkmycream.com/products/Paris-Hilton-Cologne-by-Paris-Hilton-for-men-Colognes.html)
 
 ### Positive Reviews

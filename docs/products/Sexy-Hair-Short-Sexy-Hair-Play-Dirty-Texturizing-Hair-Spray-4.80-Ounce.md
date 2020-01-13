@@ -1,12 +1,3 @@
----
-title: Sexy Hair Short Sexy Hair Play Dirty Texturizing Hair Spray, 4.80-Ounce,
-description: Sexy Hair Short Sexy Hair Play Dirty Texturizing Hair Spray, 4.80-Ounce,
-author: Suvojit Manna,
-tags: Sexy Hair Short Sexy Hair Play Dirty Texturizing Hair Spray, 4.80-Ounce,
-publishedAt: Fri Jan 10 2020 15:00:29 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:29 GMT+0530 (India Standard Time),
----
-
 # [Sexy Hair Short Sexy Hair Play Dirty Texturizing Hair Spray, 4.80-Ounce](https://products.checkmycream.com/products/Sexy-Hair-Short-Sexy-Hair-Play-Dirty-Texturizing-Hair-Spray-4.80-Ounce.html)
 
 ### Positive Reviews

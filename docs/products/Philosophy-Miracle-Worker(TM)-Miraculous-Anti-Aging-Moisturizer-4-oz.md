@@ -1,12 +1,3 @@
----
-title: Philosophy Miracle Worker(TM) Miraculous Anti-Aging Moisturizer 4 oz,
-description: Philosophy Miracle Worker(TM) Miraculous Anti-Aging Moisturizer 4 oz,
-author: Suvojit Manna,
-tags: Philosophy Miracle Worker(TM) Miraculous Anti-Aging Moisturizer 4 oz,
-publishedAt: Fri Jan 10 2020 15:00:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:01 GMT+0530 (India Standard Time),
----
-
 # [Philosophy Miracle Worker(TM) Miraculous Anti-Aging Moisturizer 4 oz](https://products.checkmycream.com/products/Philosophy-Miracle-Worker(TM)-Miraculous-Anti-Aging-Moisturizer-4-oz.html)
 
 ### Positive Reviews

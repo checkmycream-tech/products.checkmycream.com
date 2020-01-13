@@ -1,12 +1,3 @@
----
-title: P&amp;o 1 Pair Infant Barefoot Sock Sandals Newborn Baby Shoes Flowers Comfortable,
-description: P&amp;o 1 Pair Infant Barefoot Sock Sandals Newborn Baby Shoes Flowers Comfortable,
-author: Suvojit Manna,
-tags: P&amp;o 1 Pair Infant Barefoot Sock Sandals Newborn Baby Shoes Flowers Comfortable,
-publishedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
----
-
 # [P&amp;o 1 Pair Infant Barefoot Sock Sandals Newborn Baby Shoes Flowers Comfortable](https://products.checkmycream.com/products/Pando-1-Pair-Infant-Barefoot-Sock-Sandals-Newborn-Baby-Shoes-Flowers-Comfortable.html)
 
 ### Positive Reviews

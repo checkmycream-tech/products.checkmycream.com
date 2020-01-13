@@ -1,12 +1,3 @@
----
-title: Sheercover Mascara in Black/Brown,
-description: Sheercover Mascara in Black/Brown,
-author: Suvojit Manna,
-tags: Sheercover Mascara in Black/Brown,
-publishedAt: Fri Jan 10 2020 14:59:43 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:43 GMT+0530 (India Standard Time),
----
-
 # [Sheercover Mascara in Black/Brown](https://products.checkmycream.com/products/Sheercover-Mascara-in-BlackBrown.html)
 
 ### Positive Reviews

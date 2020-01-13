@@ -1,12 +1,3 @@
----
-title: DHC Eyelash Tonic, 0.21 Fluid Ounce,
-description: DHC Eyelash Tonic, 0.21 Fluid Ounce,
-author: Suvojit Manna,
-tags: DHC Eyelash Tonic, 0.21 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 14:59:07 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:07 GMT+0530 (India Standard Time),
----
-
 # [DHC Eyelash Tonic, 0.21 Fluid Ounce](https://products.checkmycream.com/products/DHC-Eyelash-Tonic-0.21-Fluid-Ounce.html)
 
 ### Positive Reviews

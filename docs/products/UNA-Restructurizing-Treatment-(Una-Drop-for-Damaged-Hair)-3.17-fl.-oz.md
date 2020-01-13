@@ -1,12 +1,3 @@
----
-title: UNA Restructurizing Treatment (Una Drop for Damaged Hair)-3.17 fl. oz,
-description: UNA Restructurizing Treatment (Una Drop for Damaged Hair)-3.17 fl. oz,
-author: Suvojit Manna,
-tags: UNA Restructurizing Treatment (Una Drop for Damaged Hair)-3.17 fl. oz,
-publishedAt: Fri Jan 10 2020 14:59:16 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:16 GMT+0530 (India Standard Time),
----
-
 # [UNA Restructurizing Treatment (Una Drop for Damaged Hair)-3.17 fl. oz](https://products.checkmycream.com/products/UNA-Restructurizing-Treatment-(Una-Drop-for-Damaged-Hair)-3.17-fl.-oz.html)
 
 ### Positive Reviews

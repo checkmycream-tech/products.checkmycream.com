@@ -1,12 +1,3 @@
----
-title: Jhirmack Silver Brightening 5 In 1 Miracle Leave-In Spray Treatment 8.2 oz,
-description: Jhirmack Silver Brightening 5 In 1 Miracle Leave-In Spray Treatment 8.2 oz,
-author: Suvojit Manna,
-tags: Jhirmack Silver Brightening 5 In 1 Miracle Leave-In Spray Treatment 8.2 oz,
-publishedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
----
-
 # [Jhirmack Silver Brightening 5 In 1 Miracle Leave-In Spray Treatment 8.2 oz](https://products.checkmycream.com/products/Jhirmack-Silver-Brightening-5-In-1-Miracle-Leave-In-Spray-Treatment-8.2-oz.html)
 
 ### Positive Reviews

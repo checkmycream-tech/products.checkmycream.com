@@ -1,12 +1,3 @@
----
-title: Fancy Love For Women By Jessica Simpson Body Lotion,
-description: Fancy Love For Women By Jessica Simpson Body Lotion,
-author: Suvojit Manna,
-tags: Fancy Love For Women By Jessica Simpson Body Lotion,
-publishedAt: Fri Jan 10 2020 15:00:09 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:09 GMT+0530 (India Standard Time),
----
-
 # [Fancy Love For Women By Jessica Simpson Body Lotion](https://products.checkmycream.com/products/Fancy-Love-For-Women-By-Jessica-Simpson-Body-Lotion.html)
 
 ### Positive Reviews

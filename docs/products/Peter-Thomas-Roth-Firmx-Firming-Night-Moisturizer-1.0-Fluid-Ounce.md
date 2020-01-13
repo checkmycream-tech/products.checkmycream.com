@@ -1,12 +1,3 @@
----
-title: Peter Thomas Roth Firmx Firming Night Moisturizer, 1.0 Fluid Ounce,
-description: Peter Thomas Roth Firmx Firming Night Moisturizer, 1.0 Fluid Ounce,
-author: Suvojit Manna,
-tags: Peter Thomas Roth Firmx Firming Night Moisturizer, 1.0 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 15:00:37 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:37 GMT+0530 (India Standard Time),
----
-
 # [Peter Thomas Roth Firmx Firming Night Moisturizer, 1.0 Fluid Ounce](https://products.checkmycream.com/products/Peter-Thomas-Roth-Firmx-Firming-Night-Moisturizer-1.0-Fluid-Ounce.html)
 
 ### Positive Reviews

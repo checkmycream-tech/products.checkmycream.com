@@ -1,12 +1,3 @@
----
-title: Aspire Atlantis Sub Ohm Tank 0.5ohm by Genuine Aspire,
-description: Aspire Atlantis Sub Ohm Tank 0.5ohm by Genuine Aspire,
-author: Suvojit Manna,
-tags: Aspire Atlantis Sub Ohm Tank 0.5ohm by Genuine Aspire,
-publishedAt: Fri Jan 10 2020 15:01:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:08 GMT+0530 (India Standard Time),
----
-
 # [Aspire Atlantis Sub Ohm Tank 0.5ohm by Genuine Aspire](https://products.checkmycream.com/products/Aspire-Atlantis-Sub-Ohm-Tank-0.5ohm-by-Genuine-Aspire.html)
 
 ### Positive Reviews

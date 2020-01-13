@@ -1,12 +1,3 @@
----
-title: Jose Eber Trio Multi-Barrel Curling Iron Set,
-description: Jose Eber Trio Multi-Barrel Curling Iron Set,
-author: Suvojit Manna,
-tags: Jose Eber Trio Multi-Barrel Curling Iron Set,
-publishedAt: Fri Jan 10 2020 15:00:22 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:22 GMT+0530 (India Standard Time),
----
-
 # [Jose Eber Trio Multi-Barrel Curling Iron Set](https://products.checkmycream.com/products/Jose-Eber-Trio-Multi-Barrel-Curling-Iron-Set.html)
 
 ### Positive Reviews

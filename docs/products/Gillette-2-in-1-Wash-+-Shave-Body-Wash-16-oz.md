@@ -1,12 +1,3 @@
----
-title: Gillette 2 in 1 Wash + Shave Body Wash-16 oz,
-description: Gillette 2 in 1 Wash + Shave Body Wash-16 oz,
-author: Suvojit Manna,
-tags: Gillette 2 in 1 Wash + Shave Body Wash-16 oz,
-publishedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
----
-
 # [Gillette 2 in 1 Wash + Shave Body Wash-16 oz](https://products.checkmycream.com/products/Gillette-2-in-1-Wash-+-Shave-Body-Wash-16-oz.html)
 
 ### Positive Reviews

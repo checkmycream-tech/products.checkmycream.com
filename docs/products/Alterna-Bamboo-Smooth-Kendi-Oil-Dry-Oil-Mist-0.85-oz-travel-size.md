@@ -1,12 +1,3 @@
----
-title: Alterna Bamboo Smooth Kendi Oil Dry Oil Mist, 0.85 oz travel size,
-description: Alterna Bamboo Smooth Kendi Oil Dry Oil Mist, 0.85 oz travel size,
-author: Suvojit Manna,
-tags: Alterna Bamboo Smooth Kendi Oil Dry Oil Mist, 0.85 oz travel size,
-publishedAt: Fri Jan 10 2020 15:00:17 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:17 GMT+0530 (India Standard Time),
----
-
 # [Alterna Bamboo Smooth Kendi Oil Dry Oil Mist, 0.85 oz travel size](https://products.checkmycream.com/products/Alterna-Bamboo-Smooth-Kendi-Oil-Dry-Oil-Mist-0.85-oz-travel-size.html)
 
 ### Positive Reviews

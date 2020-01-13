@@ -1,12 +1,3 @@
----
-title: GLYSOLID Skin Cream, Tube 2.54 fl oz (75 ml) - Pack of 3,
-description: GLYSOLID Skin Cream, Tube 2.54 fl oz (75 ml) - Pack of 3,
-author: Suvojit Manna,
-tags: GLYSOLID Skin Cream, Tube 2.54 fl oz (75 ml) - Pack of 3,
-publishedAt: Fri Jan 10 2020 14:59:39 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:39 GMT+0530 (India Standard Time),
----
-
 # [GLYSOLID Skin Cream, Tube 2.54 fl oz (75 ml) - Pack of 3](https://products.checkmycream.com/products/GLYSOLID-Skin-Cream-Tube-2.54-fl-oz-(75-ml)-Pack-of-3.html)
 
 ### Positive Reviews

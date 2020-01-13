@@ -1,12 +1,3 @@
----
-title: Olay Refreshing Nectarine Body Lotion 11.8 Fl Oz,
-description: Olay Refreshing Nectarine Body Lotion 11.8 Fl Oz,
-author: Suvojit Manna,
-tags: Olay Refreshing Nectarine Body Lotion 11.8 Fl Oz,
-publishedAt: Fri Jan 10 2020 15:00:38 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:38 GMT+0530 (India Standard Time),
----
-
 # [Olay Refreshing Nectarine Body Lotion 11.8 Fl Oz](https://products.checkmycream.com/products/Olay-Refreshing-Nectarine-Body-Lotion-11.8-Fl-Oz.html)
 
 ### Positive Reviews

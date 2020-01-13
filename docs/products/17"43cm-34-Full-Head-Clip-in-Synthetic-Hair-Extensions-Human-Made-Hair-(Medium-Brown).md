@@ -1,12 +1,3 @@
----
-title: 17&quot;43cm 3/4 Full Head Clip in Synthetic Hair Extensions Human Made Hair (Medium Brown),
-description: 17&quot;43cm 3/4 Full Head Clip in Synthetic Hair Extensions Human Made Hair (Medium Brown),
-author: Suvojit Manna,
-tags: 17&quot;43cm 3/4 Full Head Clip in Synthetic Hair Extensions Human Made Hair (Medium Brown),
-publishedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
----
-
 # [17&quot;43cm 3/4 Full Head Clip in Synthetic Hair Extensions Human Made Hair (Medium Brown)](https://products.checkmycream.com/products/17&quot;43cm-34-Full-Head-Clip-in-Synthetic-Hair-Extensions-Human-Made-Hair-(Medium-Brown).html)
 
 ### Positive Reviews

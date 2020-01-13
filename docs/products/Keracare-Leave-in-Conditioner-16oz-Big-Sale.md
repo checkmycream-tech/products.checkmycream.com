@@ -1,12 +1,3 @@
----
-title: Keracare Leave in Conditioner 16oz - Big Sale,
-description: Keracare Leave in Conditioner 16oz - Big Sale,
-author: Suvojit Manna,
-tags: Keracare Leave in Conditioner 16oz - Big Sale,
-publishedAt: Fri Jan 10 2020 15:00:14 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:14 GMT+0530 (India Standard Time),
----
-
 # [Keracare Leave in Conditioner 16oz - Big Sale](https://products.checkmycream.com/products/Keracare-Leave-in-Conditioner-16oz-Big-Sale.html)
 
 ### Positive Reviews

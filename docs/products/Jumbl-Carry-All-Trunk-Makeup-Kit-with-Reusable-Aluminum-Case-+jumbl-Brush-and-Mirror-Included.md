@@ -1,12 +1,3 @@
----
-title: Jumbl Carry All Trunk Makeup Kit with Reusable Aluminum Case +jumbl Brush and Mirror Included,
-description: Jumbl Carry All Trunk Makeup Kit with Reusable Aluminum Case +jumbl Brush and Mirror Included,
-author: Suvojit Manna,
-tags: Jumbl Carry All Trunk Makeup Kit with Reusable Aluminum Case +jumbl Brush and Mirror Included,
-publishedAt: Fri Jan 10 2020 15:01:04 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:04 GMT+0530 (India Standard Time),
----
-
 # [Jumbl Carry All Trunk Makeup Kit with Reusable Aluminum Case +jumbl Brush and Mirror Included](https://products.checkmycream.com/products/Jumbl-Carry-All-Trunk-Makeup-Kit-with-Reusable-Aluminum-Case-+jumbl-Brush-and-Mirror-Included.html)
 
 ### Positive Reviews

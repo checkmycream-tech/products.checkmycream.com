@@ -1,12 +1,3 @@
----
-title: PUEEN 3D Sparkle Nail Wraps Collection WILD IN LOVE - 5 Pack (18 Strips Each) Nail Wraps / Nail Strips / Nail Foils / Nail Stickers / Nail Decals / Nail Patches in New High Fashion Designs-BH000196,
-description: PUEEN 3D Sparkle Nail Wraps Collection WILD IN LOVE - 5 Pack (18 Strips Each) Nail Wraps / Nail Strips / Nail Foils / Nail Stickers / Nail Decals / Nail Patches in New High Fashion Designs-BH000196,
-author: Suvojit Manna,
-tags: PUEEN 3D Sparkle Nail Wraps Collection WILD IN LOVE - 5 Pack (18 Strips Each) Nail Wraps / Nail Strips / Nail Foils / Nail Stickers / Nail Decals / Nail Patches in New High Fashion Designs-BH000196,
-publishedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
----
-
 # [PUEEN 3D Sparkle Nail Wraps Collection WILD IN LOVE - 5 Pack (18 Strips Each) Nail Wraps / Nail Strips / Nail Foils / Nail Stickers / Nail Decals / Nail Patches in New High Fashion Designs-BH000196](https://products.checkmycream.com/products/PUEEN-3D-Sparkle-Nail-Wraps-Collection-WILD-IN-LOVE-5-Pack-(18-Strips-Each)-Nail-Wraps-Nail-Strips-Nail-Foils-Nail-Stickers-Nail-Decals-Nail-Patches-in-New-High-Fashion-Designs-BH000196.html)
 
 ### Positive Reviews

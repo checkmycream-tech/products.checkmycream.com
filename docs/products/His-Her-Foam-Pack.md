@@ -1,12 +1,3 @@
----
-title: His Her Foam Pack,
-description: His Her Foam Pack,
-author: Suvojit Manna,
-tags: His Her Foam Pack,
-publishedAt: Fri Jan 10 2020 15:00:23 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:23 GMT+0530 (India Standard Time),
----
-
 # [His Her Foam Pack](https://products.checkmycream.com/products/His-Her-Foam-Pack.html)
 
 ### Positive Reviews

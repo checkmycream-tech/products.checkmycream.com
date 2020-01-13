@@ -1,12 +1,3 @@
----
-title: Aquage Vitalizing Shampoo,
-description: Aquage Vitalizing Shampoo,
-author: Suvojit Manna,
-tags: Aquage Vitalizing Shampoo,
-publishedAt: Fri Jan 10 2020 14:59:22 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:22 GMT+0530 (India Standard Time),
----
-
 # [Aquage Vitalizing Shampoo](https://products.checkmycream.com/products/Aquage-Vitalizing-Shampoo.html)
 
 ### Positive Reviews

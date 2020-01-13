@@ -1,12 +1,3 @@
----
-title: Hypafix 2&quot; X 10 Yd (40) Tape, Each Roll,
-description: Hypafix 2&quot; X 10 Yd (40) Tape, Each Roll,
-author: Suvojit Manna,
-tags: Hypafix 2&quot; X 10 Yd (40) Tape, Each Roll,
-publishedAt: Fri Jan 10 2020 14:59:32 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:32 GMT+0530 (India Standard Time),
----
-
 # [Hypafix 2&quot; X 10 Yd (40) Tape, Each Roll](https://products.checkmycream.com/products/Hypafix-2&quot;-X-10-Yd-(40)-Tape-Each-Roll.html)
 
 ### Positive Reviews

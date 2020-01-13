@@ -1,12 +1,3 @@
----
-title: Aloe Vera Butter – Hydration of Dry Skin Caused By Eczema, Psoriasis, Rosacea, Sun Burn, Wind Burn, and General Chapping…16 Oz By SAAQIN ®,
-description: Aloe Vera Butter – Hydration of Dry Skin Caused By Eczema, Psoriasis, Rosacea, Sun Burn, Wind Burn, and General Chapping…16 Oz By SAAQIN ®,
-author: Suvojit Manna,
-tags: Aloe Vera Butter – Hydration of Dry Skin Caused By Eczema, Psoriasis, Rosacea, Sun Burn, Wind Burn, and General Chapping…16 Oz By SAAQIN ®,
-publishedAt: Fri Jan 10 2020 14:59:46 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:46 GMT+0530 (India Standard Time),
----
-
 # [Aloe Vera Butter – Hydration of Dry Skin Caused By Eczema, Psoriasis, Rosacea, Sun Burn, Wind Burn, and General Chapping…16 Oz By SAAQIN ®](https://products.checkmycream.com/products/Aloe-Vera-Butter-Hydration-of-Dry-Skin-Caused-By-Eczema-Psoriasis-Rosacea-Sun-Burn-Wind-Burn-and-General-Chapping...16-Oz-By-SAAQIN-(r).html)
 
 ### Positive Reviews

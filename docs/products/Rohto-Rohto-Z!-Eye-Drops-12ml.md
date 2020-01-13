@@ -1,12 +1,3 @@
----
-title: Rohto Rohto Z! Eye Drops 12ml,
-description: Rohto Rohto Z! Eye Drops 12ml,
-author: Suvojit Manna,
-tags: Rohto Rohto Z! Eye Drops 12ml,
-publishedAt: Fri Jan 10 2020 14:59:51 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:51 GMT+0530 (India Standard Time),
----
-
 # [Rohto Rohto Z! Eye Drops 12ml](https://products.checkmycream.com/products/Rohto-Rohto-Z!-Eye-Drops-12ml.html)
 
 ### Positive Reviews

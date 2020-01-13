@@ -1,12 +1,3 @@
----
-title: Avene Hydrance Optimal Light Protective Uv Spf20 40ml,
-description: Avene Hydrance Optimal Light Protective Uv Spf20 40ml,
-author: Suvojit Manna,
-tags: Avene Hydrance Optimal Light Protective Uv Spf20 40ml,
-publishedAt: Fri Jan 10 2020 14:59:39 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:39 GMT+0530 (India Standard Time),
----
-
 # [Avene Hydrance Optimal Light Protective Uv Spf20 40ml](https://products.checkmycream.com/products/Avene-Hydrance-Optimal-Light-Protective-Uv-Spf20-40ml.html)
 
 ### Positive Reviews

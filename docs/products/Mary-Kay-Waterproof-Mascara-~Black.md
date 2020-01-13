@@ -1,12 +1,3 @@
----
-title: Mary Kay Waterproof Mascara ~Black,
-description: Mary Kay Waterproof Mascara ~Black,
-author: Suvojit Manna,
-tags: Mary Kay Waterproof Mascara ~Black,
-publishedAt: Fri Jan 10 2020 14:59:46 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:46 GMT+0530 (India Standard Time),
----
-
 # [Mary Kay Waterproof Mascara ~Black](https://products.checkmycream.com/products/Mary-Kay-Waterproof-Mascara-~Black.html)
 
 ### Positive Reviews

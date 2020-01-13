@@ -1,12 +1,3 @@
----
-title: Parfums De Coeur Bod Man Body Heat Spray Cologne, 1.4 Ounce,
-description: Parfums De Coeur Bod Man Body Heat Spray Cologne, 1.4 Ounce,
-author: Suvojit Manna,
-tags: Parfums De Coeur Bod Man Body Heat Spray Cologne, 1.4 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:37 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:37 GMT+0530 (India Standard Time),
----
-
 # [Parfums De Coeur Bod Man Body Heat Spray Cologne, 1.4 Ounce](https://products.checkmycream.com/products/Parfums-De-Coeur-Bod-Man-Body-Heat-Spray-Cologne-1.4-Ounce.html)
 
 ### Positive Reviews

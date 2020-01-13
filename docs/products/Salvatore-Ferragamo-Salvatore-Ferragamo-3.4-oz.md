@@ -1,12 +1,3 @@
----
-title: Salvatore Ferragamo Salvatore Ferragamo - 3.4 oz,
-description: Salvatore Ferragamo Salvatore Ferragamo - 3.4 oz,
-author: Suvojit Manna,
-tags: Salvatore Ferragamo Salvatore Ferragamo - 3.4 oz,
-publishedAt: Fri Jan 10 2020 14:59:06 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:06 GMT+0530 (India Standard Time),
----
-
 # [Salvatore Ferragamo Salvatore Ferragamo - 3.4 oz](https://products.checkmycream.com/products/Salvatore-Ferragamo-Salvatore-Ferragamo-3.4-oz.html)
 
 ### Positive Reviews

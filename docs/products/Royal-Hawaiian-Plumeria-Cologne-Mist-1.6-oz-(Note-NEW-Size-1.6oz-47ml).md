@@ -1,12 +1,3 @@
----
-title: Royal Hawaiian Plumeria Cologne Mist 1.6 oz (Note NEW Size 1.6oz / 47ml),
-description: Royal Hawaiian Plumeria Cologne Mist 1.6 oz (Note NEW Size 1.6oz / 47ml),
-author: Suvojit Manna,
-tags: Royal Hawaiian Plumeria Cologne Mist 1.6 oz (Note NEW Size 1.6oz / 47ml),
-publishedAt: Fri Jan 10 2020 14:59:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:02 GMT+0530 (India Standard Time),
----
-
 # [Royal Hawaiian Plumeria Cologne Mist 1.6 oz (Note NEW Size 1.6oz / 47ml)](https://products.checkmycream.com/products/Royal-Hawaiian-Plumeria-Cologne-Mist-1.6-oz-(Note-NEW-Size-1.6oz-47ml).html)
 
 ### Positive Reviews

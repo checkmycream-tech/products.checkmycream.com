@@ -1,12 +1,3 @@
----
-title: Wella Enrich Shampoo &amp; Conditioner Fine to Normal Hair, Liter Duo 33.8 Oz,
-description: Wella Enrich Shampoo &amp; Conditioner Fine to Normal Hair, Liter Duo 33.8 Oz,
-author: Suvojit Manna,
-tags: Wella Enrich Shampoo &amp; Conditioner Fine to Normal Hair, Liter Duo 33.8 Oz,
-publishedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
----
-
 # [Wella Enrich Shampoo &amp; Conditioner Fine to Normal Hair, Liter Duo 33.8 Oz](https://products.checkmycream.com/products/Wella-Enrich-Shampoo-and-Conditioner-Fine-to-Normal-Hair-Liter-Duo-33.8-Oz.html)
 
 ### Positive Reviews

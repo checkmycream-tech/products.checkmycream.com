@@ -1,12 +1,3 @@
----
-title: Back Scrubber Bath Shower Mesh Sponge Exfoliating Body Brush Wash Nylon Puff Spa,
-description: Back Scrubber Bath Shower Mesh Sponge Exfoliating Body Brush Wash Nylon Puff Spa,
-author: Suvojit Manna,
-tags: Back Scrubber Bath Shower Mesh Sponge Exfoliating Body Brush Wash Nylon Puff Spa,
-publishedAt: Fri Jan 10 2020 15:00:22 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:22 GMT+0530 (India Standard Time),
----
-
 # [Back Scrubber Bath Shower Mesh Sponge Exfoliating Body Brush Wash Nylon Puff Spa](https://products.checkmycream.com/products/Back-Scrubber-Bath-Shower-Mesh-Sponge-Exfoliating-Body-Brush-Wash-Nylon-Puff-Spa.html)
 
 ### Positive Reviews

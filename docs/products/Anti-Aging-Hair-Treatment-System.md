@@ -1,12 +1,3 @@
----
-title: Anti Aging Hair Treatment System,
-description: Anti Aging Hair Treatment System,
-author: Suvojit Manna,
-tags: Anti Aging Hair Treatment System,
-publishedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
----
-
 # [Anti Aging Hair Treatment System](https://products.checkmycream.com/products/Anti-Aging-Hair-Treatment-System.html)
 
 ### Positive Reviews

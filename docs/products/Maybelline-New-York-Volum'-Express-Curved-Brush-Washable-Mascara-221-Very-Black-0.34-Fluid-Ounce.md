@@ -1,12 +1,3 @@
----
-title: Maybelline New York Volum&#x27; Express Curved Brush Washable Mascara, 221 Very Black, 0.34 Fluid Ounce,
-description: Maybelline New York Volum&#x27; Express Curved Brush Washable Mascara, 221 Very Black, 0.34 Fluid Ounce,
-author: Suvojit Manna,
-tags: Maybelline New York Volum&#x27; Express Curved Brush Washable Mascara, 221 Very Black, 0.34 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 14:59:21 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:21 GMT+0530 (India Standard Time),
----
-
 # [Maybelline New York Volum&#x27; Express Curved Brush Washable Mascara, 221 Very Black, 0.34 Fluid Ounce](https://products.checkmycream.com/products/Maybelline-New-York-Volum&#x27;-Express-Curved-Brush-Washable-Mascara-221-Very-Black-0.34-Fluid-Ounce.html)
 
 ### Positive Reviews

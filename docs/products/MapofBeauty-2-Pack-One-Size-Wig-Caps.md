@@ -1,12 +1,3 @@
----
-title: MapofBeauty 2 Pack One Size Wig Caps,
-description: MapofBeauty 2 Pack One Size Wig Caps,
-author: Suvojit Manna,
-tags: MapofBeauty 2 Pack One Size Wig Caps,
-publishedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
----
-
 # [MapofBeauty 2 Pack One Size Wig Caps](https://products.checkmycream.com/products/MapofBeauty-2-Pack-One-Size-Wig-Caps.html)
 
 ### Positive Reviews

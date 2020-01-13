@@ -1,12 +1,3 @@
----
-title: Tan Physics True Color Balance Pre-Tan Exfoliator 8 Oz.,
-description: Tan Physics True Color Balance Pre-Tan Exfoliator 8 Oz.,
-author: Suvojit Manna,
-tags: Tan Physics True Color Balance Pre-Tan Exfoliator 8 Oz.,
-publishedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
----
-
 # [Tan Physics True Color Balance Pre-Tan Exfoliator 8 Oz.](https://products.checkmycream.com/products/Tan-Physics-True-Color-Balance-Pre-Tan-Exfoliator-8-Oz..html)
 
 ### Positive Reviews

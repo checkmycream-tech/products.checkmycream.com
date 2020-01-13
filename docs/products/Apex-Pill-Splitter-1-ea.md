@@ -1,12 +1,3 @@
----
-title: Apex Pill Splitter 1 ea,
-description: Apex Pill Splitter 1 ea,
-author: Suvojit Manna,
-tags: Apex Pill Splitter 1 ea,
-publishedAt: Fri Jan 10 2020 14:59:09 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:09 GMT+0530 (India Standard Time),
----
-
 # [Apex Pill Splitter 1 ea](https://products.checkmycream.com/products/Apex-Pill-Splitter-1-ea.html)
 
 ### Positive Reviews

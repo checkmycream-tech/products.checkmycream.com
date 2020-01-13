@@ -1,12 +1,3 @@
----
-title: Slim Extreme 3D Moisturizing Shower Scrub-massage Anti-cellulite, 7.04 Ounce,
-description: Slim Extreme 3D Moisturizing Shower Scrub-massage Anti-cellulite, 7.04 Ounce,
-author: Suvojit Manna,
-tags: Slim Extreme 3D Moisturizing Shower Scrub-massage Anti-cellulite, 7.04 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:14 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:14 GMT+0530 (India Standard Time),
----
-
 # [Slim Extreme 3D Moisturizing Shower Scrub-massage Anti-cellulite, 7.04 Ounce](https://products.checkmycream.com/products/Slim-Extreme-3D-Moisturizing-Shower-Scrub-massage-Anti-cellulite-7.04-Ounce.html)
 
 ### Positive Reviews

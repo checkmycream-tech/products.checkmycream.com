@@ -1,12 +1,3 @@
----
-title: CND Creative Scentsations Hand &amp; Body Lotion - Mango &amp; Coconut - 8.3 oz,
-description: CND Creative Scentsations Hand &amp; Body Lotion - Mango &amp; Coconut - 8.3 oz,
-author: Suvojit Manna,
-tags: CND Creative Scentsations Hand &amp; Body Lotion - Mango &amp; Coconut - 8.3 oz,
-publishedAt: Fri Jan 10 2020 14:59:12 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:12 GMT+0530 (India Standard Time),
----
-
 # [CND Creative Scentsations Hand &amp; Body Lotion - Mango &amp; Coconut - 8.3 oz](https://products.checkmycream.com/products/CND-Creative-Scentsations-Hand-and-Body-Lotion-Mango-and-Coconut-8.3-oz.html)
 
 ### Positive Reviews

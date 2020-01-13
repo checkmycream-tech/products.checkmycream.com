@@ -1,12 +1,3 @@
----
-title: Dr. Miracle&#x27;s Style Edge Holding Gel, 2 Ounce,
-description: Dr. Miracle&#x27;s Style Edge Holding Gel, 2 Ounce,
-author: Suvojit Manna,
-tags: Dr. Miracle&#x27;s Style Edge Holding Gel, 2 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:14 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:14 GMT+0530 (India Standard Time),
----
-
 # [Dr. Miracle&#x27;s Style Edge Holding Gel, 2 Ounce](https://products.checkmycream.com/products/Dr.-Miracle&#x27;s-Style-Edge-Holding-Gel-2-Ounce.html)
 
 ### Positive Reviews

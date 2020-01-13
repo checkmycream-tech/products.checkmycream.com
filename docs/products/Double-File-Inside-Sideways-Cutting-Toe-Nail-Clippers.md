@@ -1,12 +1,3 @@
----
-title: Double File Inside Sideways Cutting Toe Nail Clippers,
-description: Double File Inside Sideways Cutting Toe Nail Clippers,
-author: Suvojit Manna,
-tags: Double File Inside Sideways Cutting Toe Nail Clippers,
-publishedAt: Fri Jan 10 2020 15:00:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:08 GMT+0530 (India Standard Time),
----
-
 # [Double File Inside Sideways Cutting Toe Nail Clippers](https://products.checkmycream.com/products/Double-File-Inside-Sideways-Cutting-Toe-Nail-Clippers.html)
 
 ### Positive Reviews

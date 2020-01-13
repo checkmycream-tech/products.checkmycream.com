@@ -1,12 +1,3 @@
----
-title: Oster Agion Hair Clipper Blade- Size 2- For Classic 76, Star-Teq, Power-Teq &amp; Power Line Clippers by Oster Professional,
-description: Oster Agion Hair Clipper Blade- Size 2- For Classic 76, Star-Teq, Power-Teq &amp; Power Line Clippers by Oster Professional,
-author: Suvojit Manna,
-tags: Oster Agion Hair Clipper Blade- Size 2- For Classic 76, Star-Teq, Power-Teq &amp; Power Line Clippers by Oster Professional,
-publishedAt: Fri Jan 10 2020 14:59:24 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:24 GMT+0530 (India Standard Time),
----
-
 # [Oster Agion Hair Clipper Blade- Size 2- For Classic 76, Star-Teq, Power-Teq &amp; Power Line Clippers by Oster Professional](https://products.checkmycream.com/products/Oster-Agion-Hair-Clipper-Blade-Size-2-For-Classic-76-Star-Teq-Power-Teq-and-Power-Line-Clippers-by-Oster-Professional.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Johnny B- Mode Styling Gel - 8oz,
-description: Johnny B- Mode Styling Gel - 8oz,
-author: Suvojit Manna,
-tags: Johnny B- Mode Styling Gel - 8oz,
-publishedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
----
-
 # [Johnny B- Mode Styling Gel - 8oz](https://products.checkmycream.com/products/Johnny-B-Mode-Styling-Gel-8oz.html)
 
 ### Positive Reviews

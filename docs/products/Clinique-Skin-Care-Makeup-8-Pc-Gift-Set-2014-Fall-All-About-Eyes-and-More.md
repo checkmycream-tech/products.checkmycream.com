@@ -1,12 +1,3 @@
----
-title: Clinique Skin Care Makeup 8 Pc Gift Set 2014 Fall All About Eyes &amp; More,
-description: Clinique Skin Care Makeup 8 Pc Gift Set 2014 Fall All About Eyes &amp; More,
-author: Suvojit Manna,
-tags: Clinique Skin Care Makeup 8 Pc Gift Set 2014 Fall All About Eyes &amp; More,
-publishedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
----
-
 # [Clinique Skin Care Makeup 8 Pc Gift Set 2014 Fall All About Eyes &amp; More](https://products.checkmycream.com/products/Clinique-Skin-Care-Makeup-8-Pc-Gift-Set-2014-Fall-All-About-Eyes-and-More.html)
 
 ### Positive Reviews

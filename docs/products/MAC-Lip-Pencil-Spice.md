@@ -1,12 +1,3 @@
----
-title: MAC Lip Pencil Spice,
-description: MAC Lip Pencil Spice,
-author: Suvojit Manna,
-tags: MAC Lip Pencil Spice,
-publishedAt: Fri Jan 10 2020 14:59:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:01 GMT+0530 (India Standard Time),
----
-
 # [MAC Lip Pencil Spice](https://products.checkmycream.com/products/MAC-Lip-Pencil-Spice.html)
 
 ### Positive Reviews

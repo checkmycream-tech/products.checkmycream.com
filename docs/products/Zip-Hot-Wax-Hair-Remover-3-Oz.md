@@ -1,12 +1,3 @@
----
-title: Zip Hot Wax Hair Remover - 3 Oz,
-description: Zip Hot Wax Hair Remover - 3 Oz,
-author: Suvojit Manna,
-tags: Zip Hot Wax Hair Remover - 3 Oz,
-publishedAt: Fri Jan 10 2020 14:59:23 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:23 GMT+0530 (India Standard Time),
----
-
 # [Zip Hot Wax Hair Remover - 3 Oz](https://products.checkmycream.com/products/Zip-Hot-Wax-Hair-Remover-3-Oz.html)
 
 ### Positive Reviews

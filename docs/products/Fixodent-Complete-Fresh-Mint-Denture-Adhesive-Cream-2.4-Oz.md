@@ -1,12 +1,3 @@
----
-title: Fixodent Complete Fresh Mint Denture Adhesive Cream 2.4 Oz,
-description: Fixodent Complete Fresh Mint Denture Adhesive Cream 2.4 Oz,
-author: Suvojit Manna,
-tags: Fixodent Complete Fresh Mint Denture Adhesive Cream 2.4 Oz,
-publishedAt: Fri Jan 10 2020 14:58:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:58:58 GMT+0530 (India Standard Time),
----
-
 # [Fixodent Complete Fresh Mint Denture Adhesive Cream 2.4 Oz](https://products.checkmycream.com/products/Fixodent-Complete-Fresh-Mint-Denture-Adhesive-Cream-2.4-Oz.html)
 
 ### Positive Reviews

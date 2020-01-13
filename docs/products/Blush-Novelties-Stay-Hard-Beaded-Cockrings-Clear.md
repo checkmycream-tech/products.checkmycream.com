@@ -1,12 +1,3 @@
----
-title: Blush Novelties Stay Hard Beaded Cockrings, Clear,
-description: Blush Novelties Stay Hard Beaded Cockrings, Clear,
-author: Suvojit Manna,
-tags: Blush Novelties Stay Hard Beaded Cockrings, Clear,
-publishedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
----
-
 # [Blush Novelties Stay Hard Beaded Cockrings, Clear](https://products.checkmycream.com/products/Blush-Novelties-Stay-Hard-Beaded-Cockrings-Clear.html)
 
 ### Positive Reviews

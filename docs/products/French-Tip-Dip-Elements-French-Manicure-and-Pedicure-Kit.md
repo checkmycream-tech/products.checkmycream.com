@@ -1,12 +1,3 @@
----
-title: French Tip Dip Elements French Manicure &amp; Pedicure Kit,
-description: French Tip Dip Elements French Manicure &amp; Pedicure Kit,
-author: Suvojit Manna,
-tags: French Tip Dip Elements French Manicure &amp; Pedicure Kit,
-publishedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
----
-
 # [French Tip Dip Elements French Manicure &amp; Pedicure Kit](https://products.checkmycream.com/products/French-Tip-Dip-Elements-French-Manicure-and-Pedicure-Kit.html)
 
 ### Positive Reviews

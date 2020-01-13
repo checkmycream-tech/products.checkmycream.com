@@ -1,12 +1,3 @@
----
-title: 144PCS Clear Rubber Bullet Clutch Earring Safety Backs,
-description: 144PCS Clear Rubber Bullet Clutch Earring Safety Backs,
-author: Suvojit Manna,
-tags: 144PCS Clear Rubber Bullet Clutch Earring Safety Backs,
-publishedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
----
-
 # [144PCS Clear Rubber Bullet Clutch Earring Safety Backs](https://products.checkmycream.com/products/144PCS-Clear-Rubber-Bullet-Clutch-Earring-Safety-Backs.html)
 
 ### Positive Reviews

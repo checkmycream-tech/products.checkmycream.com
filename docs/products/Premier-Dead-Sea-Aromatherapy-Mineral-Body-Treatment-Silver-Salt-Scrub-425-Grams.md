@@ -1,12 +1,3 @@
----
-title: Premier Dead Sea Aromatherapy Mineral Body Treatment, Silver, Salt Scrub, 425-Grams,
-description: Premier Dead Sea Aromatherapy Mineral Body Treatment, Silver, Salt Scrub, 425-Grams,
-author: Suvojit Manna,
-tags: Premier Dead Sea Aromatherapy Mineral Body Treatment, Silver, Salt Scrub, 425-Grams,
-publishedAt: Fri Jan 10 2020 15:00:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:01 GMT+0530 (India Standard Time),
----
-
 # [Premier Dead Sea Aromatherapy Mineral Body Treatment, Silver, Salt Scrub, 425-Grams](https://products.checkmycream.com/products/Premier-Dead-Sea-Aromatherapy-Mineral-Body-Treatment-Silver-Salt-Scrub-425-Grams.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Paul Mitchell Tea Tree Shaping Cream,
-description: Paul Mitchell Tea Tree Shaping Cream,
-author: Suvojit Manna,
-tags: Paul Mitchell Tea Tree Shaping Cream,
-publishedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
----
-
 # [Paul Mitchell Tea Tree Shaping Cream](https://products.checkmycream.com/products/Paul-Mitchell-Tea-Tree-Shaping-Cream.html)
 
 ### Positive Reviews

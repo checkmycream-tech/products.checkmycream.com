@@ -1,12 +1,3 @@
----
-title: Bare Escentuals Handy Buki Brush,
-description: Bare Escentuals Handy Buki Brush,
-author: Suvojit Manna,
-tags: Bare Escentuals Handy Buki Brush,
-publishedAt: Fri Jan 10 2020 14:59:51 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:51 GMT+0530 (India Standard Time),
----
-
 # [Bare Escentuals Handy Buki Brush](https://products.checkmycream.com/products/Bare-Escentuals-Handy-Buki-Brush.html)
 
 ### Positive Reviews

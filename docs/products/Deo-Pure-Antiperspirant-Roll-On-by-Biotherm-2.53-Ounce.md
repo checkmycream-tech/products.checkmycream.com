@@ -1,12 +1,3 @@
----
-title: Deo Pure Antiperspirant Roll-On by Biotherm, 2.53 Ounce,
-description: Deo Pure Antiperspirant Roll-On by Biotherm, 2.53 Ounce,
-author: Suvojit Manna,
-tags: Deo Pure Antiperspirant Roll-On by Biotherm, 2.53 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:24 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:24 GMT+0530 (India Standard Time),
----
-
 # [Deo Pure Antiperspirant Roll-On by Biotherm, 2.53 Ounce](https://products.checkmycream.com/products/Deo-Pure-Antiperspirant-Roll-On-by-Biotherm-2.53-Ounce.html)
 
 ### Positive Reviews

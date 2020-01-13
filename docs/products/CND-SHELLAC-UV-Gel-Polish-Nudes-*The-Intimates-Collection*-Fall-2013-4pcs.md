@@ -1,12 +1,3 @@
----
-title: CND SHELLAC UV Gel Polish Nudes *The Intimates Collection* Fall 2013 - 4pcs,
-description: CND SHELLAC UV Gel Polish Nudes *The Intimates Collection* Fall 2013 - 4pcs,
-author: Suvojit Manna,
-tags: CND SHELLAC UV Gel Polish Nudes *The Intimates Collection* Fall 2013 - 4pcs,
-publishedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
----
-
 # [CND SHELLAC UV Gel Polish Nudes *The Intimates Collection* Fall 2013 - 4pcs](https://products.checkmycream.com/products/CND-SHELLAC-UV-Gel-Polish-Nudes-*The-Intimates-Collection*-Fall-2013-4pcs.html)
 
 ### Positive Reviews

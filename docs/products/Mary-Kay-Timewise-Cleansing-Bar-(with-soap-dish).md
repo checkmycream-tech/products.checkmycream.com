@@ -1,12 +1,3 @@
----
-title: Mary Kay Timewise Cleansing Bar (with soap dish),
-description: Mary Kay Timewise Cleansing Bar (with soap dish),
-author: Suvojit Manna,
-tags: Mary Kay Timewise Cleansing Bar (with soap dish),
-publishedAt: Fri Jan 10 2020 14:59:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:57 GMT+0530 (India Standard Time),
----
-
 # [Mary Kay Timewise Cleansing Bar (with soap dish)](https://products.checkmycream.com/products/Mary-Kay-Timewise-Cleansing-Bar-(with-soap-dish).html)
 
 ### Positive Reviews

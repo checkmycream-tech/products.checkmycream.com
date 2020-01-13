@@ -1,12 +1,3 @@
----
-title: Style Sexy Hair Dimension Rough &amp; Ready 4 Shine 7 Hold Styling Pudding 4.4 oz (Pack of 2),
-description: Style Sexy Hair Dimension Rough &amp; Ready 4 Shine 7 Hold Styling Pudding 4.4 oz (Pack of 2),
-author: Suvojit Manna,
-tags: Style Sexy Hair Dimension Rough &amp; Ready 4 Shine 7 Hold Styling Pudding 4.4 oz (Pack of 2),
-publishedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
----
-
 # [Style Sexy Hair Dimension Rough &amp; Ready 4 Shine 7 Hold Styling Pudding 4.4 oz (Pack of 2)](https://products.checkmycream.com/products/Style-Sexy-Hair-Dimension-Rough-and-Ready-4-Shine-7-Hold-Styling-Pudding-4.4-oz-(Pack-of-2).html)
 
 ### Positive Reviews

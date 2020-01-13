@@ -1,12 +1,3 @@
----
-title: China Glaze Clay Lacquer Nail Polish HIGHLIGHT OF MY SUMMER Light Green 81328,
-description: China Glaze Clay Lacquer Nail Polish HIGHLIGHT OF MY SUMMER Light Green 81328,
-author: Suvojit Manna,
-tags: China Glaze Clay Lacquer Nail Polish HIGHLIGHT OF MY SUMMER Light Green 81328,
-publishedAt: Fri Jan 10 2020 15:00:45 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:45 GMT+0530 (India Standard Time),
----
-
 # [China Glaze Clay Lacquer Nail Polish HIGHLIGHT OF MY SUMMER Light Green 81328](https://products.checkmycream.com/products/China-Glaze-Clay-Lacquer-Nail-Polish-HIGHLIGHT-OF-MY-SUMMER-Light-Green-81328.html)
 
 ### Positive Reviews

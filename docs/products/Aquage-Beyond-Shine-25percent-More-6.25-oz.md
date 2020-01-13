@@ -1,12 +1,3 @@
----
-title: Aquage Beyond Shine 25% More 6.25 oz,
-description: Aquage Beyond Shine 25% More 6.25 oz,
-author: Suvojit Manna,
-tags: Aquage Beyond Shine 25% More 6.25 oz,
-publishedAt: Fri Jan 10 2020 14:59:25 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:25 GMT+0530 (India Standard Time),
----
-
 # [Aquage Beyond Shine 25% More 6.25 oz](https://products.checkmycream.com/products/Aquage-Beyond-Shine-25percent-More-6.25-oz.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Nad&#x27;s for Men Hair Removal,
-description: Nad&#x27;s for Men Hair Removal,
-author: Suvojit Manna,
-tags: Nad&#x27;s for Men Hair Removal,
-publishedAt: Fri Jan 10 2020 14:59:49 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:49 GMT+0530 (India Standard Time),
----
-
 # [Nad&#x27;s for Men Hair Removal](https://products.checkmycream.com/products/Nad&#x27;s-for-Men-Hair-Removal.html)
 
 ### Positive Reviews

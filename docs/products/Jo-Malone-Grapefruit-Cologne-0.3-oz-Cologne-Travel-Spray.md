@@ -1,12 +1,3 @@
----
-title: Jo Malone Grapefruit Cologne 0.3 oz Cologne Travel Spray,
-description: Jo Malone Grapefruit Cologne 0.3 oz Cologne Travel Spray,
-author: Suvojit Manna,
-tags: Jo Malone Grapefruit Cologne 0.3 oz Cologne Travel Spray,
-publishedAt: Fri Jan 10 2020 15:00:29 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:29 GMT+0530 (India Standard Time),
----
-
 # [Jo Malone Grapefruit Cologne 0.3 oz Cologne Travel Spray](https://products.checkmycream.com/products/Jo-Malone-Grapefruit-Cologne-0.3-oz-Cologne-Travel-Spray.html)
 
 ### Positive Reviews

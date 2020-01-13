@@ -1,12 +1,3 @@
----
-title: Norwex Makeup Removal Cloth Set; Three Pack,
-description: Norwex Makeup Removal Cloth Set; Three Pack,
-author: Suvojit Manna,
-tags: Norwex Makeup Removal Cloth Set; Three Pack,
-publishedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
----
-
 # [Norwex Makeup Removal Cloth Set; Three Pack](https://products.checkmycream.com/products/Norwex-Makeup-Removal-Cloth-Set-Three-Pack.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Amika Perk Up Dry Shampoo (Set of 2) - 5.3 oz Each,
-description: Amika Perk Up Dry Shampoo (Set of 2) - 5.3 oz Each,
-author: Suvojit Manna,
-tags: Amika Perk Up Dry Shampoo (Set of 2) - 5.3 oz Each,
-publishedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
----
-
 # [Amika Perk Up Dry Shampoo (Set of 2) - 5.3 oz Each](https://products.checkmycream.com/products/Amika-Perk-Up-Dry-Shampoo-(Set-of-2)-5.3-oz-Each.html)
 
 ### Positive Reviews

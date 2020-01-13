@@ -1,12 +1,3 @@
----
-title: Moringa Oil For Face 4 oz (120 ml),
-description: Moringa Oil For Face 4 oz (120 ml),
-author: Suvojit Manna,
-tags: Moringa Oil For Face 4 oz (120 ml),
-publishedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
----
-
 # [Moringa Oil For Face 4 oz (120 ml)](https://products.checkmycream.com/products/Moringa-Oil-For-Face-4-oz-(120-ml).html)
 
 ### Positive Reviews

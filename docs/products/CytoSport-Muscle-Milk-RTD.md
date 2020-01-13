@@ -1,12 +1,3 @@
----
-title: CytoSport Muscle Milk RTD,
-description: CytoSport Muscle Milk RTD,
-author: Suvojit Manna,
-tags: CytoSport Muscle Milk RTD,
-publishedAt: Fri Jan 10 2020 14:59:37 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:37 GMT+0530 (India Standard Time),
----
-
 # [CytoSport Muscle Milk RTD](https://products.checkmycream.com/products/CytoSport-Muscle-Milk-RTD.html)
 
 ### Positive Reviews

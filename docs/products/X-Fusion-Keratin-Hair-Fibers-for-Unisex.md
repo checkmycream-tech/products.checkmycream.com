@@ -1,12 +1,3 @@
----
-title: X-Fusion Keratin Hair Fibers for Unisex,
-description: X-Fusion Keratin Hair Fibers for Unisex,
-author: Suvojit Manna,
-tags: X-Fusion Keratin Hair Fibers for Unisex,
-publishedAt: Fri Jan 10 2020 15:00:18 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:18 GMT+0530 (India Standard Time),
----
-
 # [X-Fusion Keratin Hair Fibers for Unisex](https://products.checkmycream.com/products/X-Fusion-Keratin-Hair-Fibers-for-Unisex.html)
 
 ### Positive Reviews

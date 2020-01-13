@@ -1,12 +1,3 @@
----
-title: Deluxe Old-Fashioned Safety Razor,
-description: Deluxe Old-Fashioned Safety Razor,
-author: Suvojit Manna,
-tags: Deluxe Old-Fashioned Safety Razor,
-publishedAt: Fri Jan 10 2020 14:59:23 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:23 GMT+0530 (India Standard Time),
----
-
 # [Deluxe Old-Fashioned Safety Razor](https://products.checkmycream.com/products/Deluxe-Old-Fashioned-Safety-Razor.html)
 
 ### Positive Reviews

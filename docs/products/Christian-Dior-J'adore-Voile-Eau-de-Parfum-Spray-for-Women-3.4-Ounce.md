@@ -1,12 +1,3 @@
----
-title: Christian Dior J&#x27;adore Voile Eau de Parfum Spray for Women, 3.4 Ounce,
-description: Christian Dior J&#x27;adore Voile Eau de Parfum Spray for Women, 3.4 Ounce,
-author: Suvojit Manna,
-tags: Christian Dior J&#x27;adore Voile Eau de Parfum Spray for Women, 3.4 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
----
-
 # [Christian Dior J&#x27;adore Voile Eau de Parfum Spray for Women, 3.4 Ounce](https://products.checkmycream.com/products/Christian-Dior-J&#x27;adore-Voile-Eau-de-Parfum-Spray-for-Women-3.4-Ounce.html)
 
 ### Positive Reviews

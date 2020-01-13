@@ -1,12 +1,3 @@
----
-title: Prada Luna Rossa Extreme Pour Homme Eau de Parfum Spray, 3.4 Fluid Ounce,
-description: Prada Luna Rossa Extreme Pour Homme Eau de Parfum Spray, 3.4 Fluid Ounce,
-author: Suvojit Manna,
-tags: Prada Luna Rossa Extreme Pour Homme Eau de Parfum Spray, 3.4 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
----
-
 # [Prada Luna Rossa Extreme Pour Homme Eau de Parfum Spray, 3.4 Fluid Ounce](https://products.checkmycream.com/products/Prada-Luna-Rossa-Extreme-Pour-Homme-Eau-de-Parfum-Spray-3.4-Fluid-Ounce.html)
 
 ### Positive Reviews

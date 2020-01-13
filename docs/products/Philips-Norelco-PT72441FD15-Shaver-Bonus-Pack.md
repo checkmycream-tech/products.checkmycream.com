@@ -1,12 +1,3 @@
----
-title: Philips Norelco PT724/41FD15 Shaver Bonus Pack,
-description: Philips Norelco PT724/41FD15 Shaver Bonus Pack,
-author: Suvojit Manna,
-tags: Philips Norelco PT724/41FD15 Shaver Bonus Pack,
-publishedAt: Fri Jan 10 2020 15:01:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:08 GMT+0530 (India Standard Time),
----
-
 # [Philips Norelco PT724/41FD15 Shaver Bonus Pack](https://products.checkmycream.com/products/Philips-Norelco-PT72441FD15-Shaver-Bonus-Pack.html)
 
 ### Positive Reviews

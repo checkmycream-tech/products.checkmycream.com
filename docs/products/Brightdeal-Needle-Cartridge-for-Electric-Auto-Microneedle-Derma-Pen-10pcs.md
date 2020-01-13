@@ -1,12 +1,3 @@
----
-title: Brightdeal Needle Cartridge for Electric Auto Microneedle Derma Pen 10pcs,
-description: Brightdeal Needle Cartridge for Electric Auto Microneedle Derma Pen 10pcs,
-author: Suvojit Manna,
-tags: Brightdeal Needle Cartridge for Electric Auto Microneedle Derma Pen 10pcs,
-publishedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
----
-
 # [Brightdeal Needle Cartridge for Electric Auto Microneedle Derma Pen 10pcs](https://products.checkmycream.com/products/Brightdeal-Needle-Cartridge-for-Electric-Auto-Microneedle-Derma-Pen-10pcs.html)
 
 ### Positive Reviews

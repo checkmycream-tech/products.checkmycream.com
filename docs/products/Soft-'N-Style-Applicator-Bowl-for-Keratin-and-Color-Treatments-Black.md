@@ -1,12 +1,3 @@
----
-title: Soft &#x27;N Style Applicator Bowl for Keratin &amp; Color Treatments, Black,
-description: Soft &#x27;N Style Applicator Bowl for Keratin &amp; Color Treatments, Black,
-author: Suvojit Manna,
-tags: Soft &#x27;N Style Applicator Bowl for Keratin &amp; Color Treatments, Black,
-publishedAt: Fri Jan 10 2020 14:59:26 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:26 GMT+0530 (India Standard Time),
----
-
 # [Soft &#x27;N Style Applicator Bowl for Keratin &amp; Color Treatments, Black](https://products.checkmycream.com/products/Soft-&#x27;N-Style-Applicator-Bowl-for-Keratin-and-Color-Treatments-Black.html)
 
 ### Positive Reviews

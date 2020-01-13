@@ -1,12 +1,3 @@
----
-title: Bath &amp; Body Works Aromatherapy Sleep Body Lotion 6.5 Fl Oz (192 Ml),
-description: Bath &amp; Body Works Aromatherapy Sleep Body Lotion 6.5 Fl Oz (192 Ml),
-author: Suvojit Manna,
-tags: Bath &amp; Body Works Aromatherapy Sleep Body Lotion 6.5 Fl Oz (192 Ml),
-publishedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
----
-
 # [Bath &amp; Body Works Aromatherapy Sleep Body Lotion 6.5 Fl Oz (192 Ml)](https://products.checkmycream.com/products/Bath-and-Body-Works-Aromatherapy-Sleep-Body-Lotion-6.5-Fl-Oz-(192-Ml).html)
 
 ### Positive Reviews

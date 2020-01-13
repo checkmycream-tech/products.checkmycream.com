@@ -1,12 +1,3 @@
----
-title: The Body Shop Elderflower Cooling Eye Gel, 100% Vegan, 0.5 Fl. Oz.,
-description: The Body Shop Elderflower Cooling Eye Gel, 100% Vegan, 0.5 Fl. Oz.,
-author: Suvojit Manna,
-tags: The Body Shop Elderflower Cooling Eye Gel, 100% Vegan, 0.5 Fl. Oz.,
-publishedAt: Fri Jan 10 2020 14:59:23 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:23 GMT+0530 (India Standard Time),
----
-
 # [The Body Shop Elderflower Cooling Eye Gel, 100% Vegan, 0.5 Fl. Oz.](https://products.checkmycream.com/products/The-Body-Shop-Elderflower-Cooling-Eye-Gel-100percent-Vegan-0.5-Fl.-Oz..html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: CND Essentials SOLAR OIL .5 oz Nail Cuticle Conditioner Polish Treatment Salon,
-description: CND Essentials SOLAR OIL .5 oz Nail Cuticle Conditioner Polish Treatment Salon,
-author: Suvojit Manna,
-tags: CND Essentials SOLAR OIL .5 oz Nail Cuticle Conditioner Polish Treatment Salon,
-publishedAt: Fri Jan 10 2020 15:00:22 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:22 GMT+0530 (India Standard Time),
----
-
 # [CND Essentials SOLAR OIL .5 oz Nail Cuticle Conditioner Polish Treatment Salon](https://products.checkmycream.com/products/CND-Essentials-SOLAR-OIL-.5-oz-Nail-Cuticle-Conditioner-Polish-Treatment-Salon.html)
 
 ### Positive Reviews

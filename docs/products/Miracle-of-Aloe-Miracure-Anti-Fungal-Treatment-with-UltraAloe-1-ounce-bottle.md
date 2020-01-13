@@ -1,12 +1,3 @@
----
-title: Miracle of Aloe, Miracure Anti-Fungal Treatment with UltraAloe, 1 ounce bottle,
-description: Miracle of Aloe, Miracure Anti-Fungal Treatment with UltraAloe, 1 ounce bottle,
-author: Suvojit Manna,
-tags: Miracle of Aloe, Miracure Anti-Fungal Treatment with UltraAloe, 1 ounce bottle,
-publishedAt: Fri Jan 10 2020 14:59:25 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:25 GMT+0530 (India Standard Time),
----
-
 # [Miracle of Aloe, Miracure Anti-Fungal Treatment with UltraAloe, 1 ounce bottle](https://products.checkmycream.com/products/Miracle-of-Aloe-Miracure-Anti-Fungal-Treatment-with-UltraAloe-1-ounce-bottle.html)
 
 ### Positive Reviews

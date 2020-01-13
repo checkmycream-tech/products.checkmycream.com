@@ -1,12 +1,3 @@
----
-title: Ularmo® Women&#x27;s Weave Around Leather Bracelet Wrist Quartz Watch (Black),
-description: Ularmo® Women&#x27;s Weave Around Leather Bracelet Wrist Quartz Watch (Black),
-author: Suvojit Manna,
-tags: Ularmo® Women&#x27;s Weave Around Leather Bracelet Wrist Quartz Watch (Black),
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [Ularmo® Women&#x27;s Weave Around Leather Bracelet Wrist Quartz Watch (Black)](https://products.checkmycream.com/products/Ularmo(r)-Women&#x27;s-Weave-Around-Leather-Bracelet-Wrist-Quartz-Watch-(Black).html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Kerastase Vector Sprayer Treatments for Oleo Fusion, Vita Ciment, Pixelist Vials,
-description: Kerastase Vector Sprayer Treatments for Oleo Fusion, Vita Ciment, Pixelist Vials,
-author: Suvojit Manna,
-tags: Kerastase Vector Sprayer Treatments for Oleo Fusion, Vita Ciment, Pixelist Vials,
-publishedAt: Fri Jan 10 2020 14:59:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:56 GMT+0530 (India Standard Time),
----
-
 # [Kerastase Vector Sprayer Treatments for Oleo Fusion, Vita Ciment, Pixelist Vials](https://products.checkmycream.com/products/Kerastase-Vector-Sprayer-Treatments-for-Oleo-Fusion-Vita-Ciment-Pixelist-Vials.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: TOOGOO(R) 60pcs 12 Hollow Style DIY Gold Metal Sticker slices Charms Wheel Nail Art,
-description: TOOGOO(R) 60pcs 12 Hollow Style DIY Gold Metal Sticker slices Charms Wheel Nail Art,
-author: Suvojit Manna,
-tags: TOOGOO(R) 60pcs 12 Hollow Style DIY Gold Metal Sticker slices Charms Wheel Nail Art,
-publishedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
----
-
 # [TOOGOO(R) 60pcs 12 Hollow Style DIY Gold Metal Sticker slices Charms Wheel Nail Art](https://products.checkmycream.com/products/TOOGOO(R)-60pcs-12-Hollow-Style-DIY-Gold-Metal-Sticker-slices-Charms-Wheel-Nail-Art.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Nuskin Tru Face® Line Corrector (Nu Skin),
-description: Nuskin Tru Face® Line Corrector (Nu Skin),
-author: Suvojit Manna,
-tags: Nuskin Tru Face® Line Corrector (Nu Skin),
-publishedAt: Fri Jan 10 2020 14:59:36 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:36 GMT+0530 (India Standard Time),
----
-
 # [Nuskin Tru Face® Line Corrector (Nu Skin)](https://products.checkmycream.com/products/Nuskin-Tru-Face(r)-Line-Corrector-(Nu-Skin).html)
 
 ### Positive Reviews

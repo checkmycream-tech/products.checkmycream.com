@@ -1,12 +1,3 @@
----
-title: Gelish French Manicure Kit Soak Off Nail Polish Gel Top Coat Color Set Pedicure,
-description: Gelish French Manicure Kit Soak Off Nail Polish Gel Top Coat Color Set Pedicure,
-author: Suvojit Manna,
-tags: Gelish French Manicure Kit Soak Off Nail Polish Gel Top Coat Color Set Pedicure,
-publishedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
----
-
 # [Gelish French Manicure Kit Soak Off Nail Polish Gel Top Coat Color Set Pedicure](https://products.checkmycream.com/products/Gelish-French-Manicure-Kit-Soak-Off-Nail-Polish-Gel-Top-Coat-Color-Set-Pedicure.html)
 
 ### Positive Reviews

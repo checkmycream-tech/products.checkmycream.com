@@ -1,12 +1,3 @@
----
-title: Corn Huskers Lotion 7 Oz by Jubujub,
-description: Corn Huskers Lotion 7 Oz by Jubujub,
-author: Suvojit Manna,
-tags: Corn Huskers Lotion 7 Oz by Jubujub,
-publishedAt: Fri Jan 10 2020 15:00:04 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:04 GMT+0530 (India Standard Time),
----
-
 # [Corn Huskers Lotion 7 Oz by Jubujub](https://products.checkmycream.com/products/Corn-Huskers-Lotion-7-Oz-by-Jubujub.html)
 
 ### Positive Reviews

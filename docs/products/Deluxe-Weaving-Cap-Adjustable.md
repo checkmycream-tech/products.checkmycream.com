@@ -1,12 +1,3 @@
----
-title: Deluxe Weaving Cap Adjustable,
-description: Deluxe Weaving Cap Adjustable,
-author: Suvojit Manna,
-tags: Deluxe Weaving Cap Adjustable,
-publishedAt: Fri Jan 10 2020 15:00:29 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:29 GMT+0530 (India Standard Time),
----
-
 # [Deluxe Weaving Cap Adjustable](https://products.checkmycream.com/products/Deluxe-Weaving-Cap-Adjustable.html)
 
 ### Positive Reviews

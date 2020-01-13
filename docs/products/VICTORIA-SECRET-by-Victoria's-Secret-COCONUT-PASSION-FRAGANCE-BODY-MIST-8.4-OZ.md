@@ -1,12 +1,3 @@
----
-title: VICTORIA SECRET by Victoria&#x27;s Secret COCONUT PASSION FRAGANCE BODY MIST 8.4 OZ,
-description: VICTORIA SECRET by Victoria&#x27;s Secret COCONUT PASSION FRAGANCE BODY MIST 8.4 OZ,
-author: Suvojit Manna,
-tags: VICTORIA SECRET by Victoria&#x27;s Secret COCONUT PASSION FRAGANCE BODY MIST 8.4 OZ,
-publishedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
----
-
 # [VICTORIA SECRET by Victoria&#x27;s Secret COCONUT PASSION FRAGANCE BODY MIST 8.4 OZ](https://products.checkmycream.com/products/VICTORIA-SECRET-by-Victoria&#x27;s-Secret-COCONUT-PASSION-FRAGANCE-BODY-MIST-8.4-OZ.html)
 
 ### Positive Reviews

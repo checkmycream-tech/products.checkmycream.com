@@ -1,12 +1,3 @@
----
-title: Thursday Plantation Tea Tree Antiseptic Ointment -- 1.76 oz,
-description: Thursday Plantation Tea Tree Antiseptic Ointment -- 1.76 oz,
-author: Suvojit Manna,
-tags: Thursday Plantation Tea Tree Antiseptic Ointment -- 1.76 oz,
-publishedAt: Fri Jan 10 2020 15:00:12 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:12 GMT+0530 (India Standard Time),
----
-
 # [Thursday Plantation Tea Tree Antiseptic Ointment -- 1.76 oz](https://products.checkmycream.com/products/Thursday-Plantation-Tea-Tree-Antiseptic-Ointment-1.76-oz.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Nose and Ear Hair Trimmer with LED Light (Water Resistant),
-description: Nose and Ear Hair Trimmer with LED Light (Water Resistant),
-author: Suvojit Manna,
-tags: Nose and Ear Hair Trimmer with LED Light (Water Resistant),
-publishedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
----
-
 # [Nose and Ear Hair Trimmer with LED Light (Water Resistant)](https://products.checkmycream.com/products/Nose-and-Ear-Hair-Trimmer-with-LED-Light-(Water-Resistant).html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Revlon CurlStay Titanium Curling Iron, 1-1/2 inch,
-description: Revlon CurlStay Titanium Curling Iron, 1-1/2 inch,
-author: Suvojit Manna,
-tags: Revlon CurlStay Titanium Curling Iron, 1-1/2 inch,
-publishedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
----
-
 # [Revlon CurlStay Titanium Curling Iron, 1-1/2 inch](https://products.checkmycream.com/products/Revlon-CurlStay-Titanium-Curling-Iron-1-12-inch.html)
 
 ### Positive Reviews

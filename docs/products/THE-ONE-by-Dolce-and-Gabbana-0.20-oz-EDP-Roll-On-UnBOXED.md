@@ -1,12 +1,3 @@
----
-title: THE ONE by Dolce &amp; Gabbana 0.20 oz EDP Roll-On UnBOXED,
-description: THE ONE by Dolce &amp; Gabbana 0.20 oz EDP Roll-On UnBOXED,
-author: Suvojit Manna,
-tags: THE ONE by Dolce &amp; Gabbana 0.20 oz EDP Roll-On UnBOXED,
-publishedAt: Fri Jan 10 2020 15:00:30 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:30 GMT+0530 (India Standard Time),
----
-
 # [THE ONE by Dolce &amp; Gabbana 0.20 oz EDP Roll-On UnBOXED](https://products.checkmycream.com/products/THE-ONE-by-Dolce-and-Gabbana-0.20-oz-EDP-Roll-On-UnBOXED.html)
 
 ### Positive Reviews

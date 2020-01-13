@@ -1,12 +1,3 @@
----
-title: The Healing Garden Rainwater Body Mist, Uplifting Jasmine, 6.4 oz.,
-description: The Healing Garden Rainwater Body Mist, Uplifting Jasmine, 6.4 oz.,
-author: Suvojit Manna,
-tags: The Healing Garden Rainwater Body Mist, Uplifting Jasmine, 6.4 oz.,
-publishedAt: Fri Jan 10 2020 14:59:30 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:30 GMT+0530 (India Standard Time),
----
-
 # [The Healing Garden Rainwater Body Mist, Uplifting Jasmine, 6.4 oz.](https://products.checkmycream.com/products/The-Healing-Garden-Rainwater-Body-Mist-Uplifting-Jasmine-6.4-oz..html)
 
 ### Positive Reviews

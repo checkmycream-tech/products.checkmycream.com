@@ -1,12 +1,3 @@
----
-title: HAWAIIAN Tropic Dark Tanning Oil Pump SPF 6, 8 Fluid Ounce,
-description: HAWAIIAN Tropic Dark Tanning Oil Pump SPF 6, 8 Fluid Ounce,
-author: Suvojit Manna,
-tags: HAWAIIAN Tropic Dark Tanning Oil Pump SPF 6, 8 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 15:00:14 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:14 GMT+0530 (India Standard Time),
----
-
 # [HAWAIIAN Tropic Dark Tanning Oil Pump SPF 6, 8 Fluid Ounce](https://products.checkmycream.com/products/HAWAIIAN-Tropic-Dark-Tanning-Oil-Pump-SPF-6-8-Fluid-Ounce.html)
 
 ### Positive Reviews

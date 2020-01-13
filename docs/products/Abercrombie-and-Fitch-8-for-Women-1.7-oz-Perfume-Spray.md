@@ -1,12 +1,3 @@
----
-title: Abercrombie &amp; Fitch 8 for Women 1.7 oz Perfume Spray,
-description: Abercrombie &amp; Fitch 8 for Women 1.7 oz Perfume Spray,
-author: Suvojit Manna,
-tags: Abercrombie &amp; Fitch 8 for Women 1.7 oz Perfume Spray,
-publishedAt: Fri Jan 10 2020 15:00:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:08 GMT+0530 (India Standard Time),
----
-
 # [Abercrombie &amp; Fitch 8 for Women 1.7 oz Perfume Spray](https://products.checkmycream.com/products/Abercrombie-and-Fitch-8-for-Women-1.7-oz-Perfume-Spray.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Salon Pro 30 Sec Super Hair Bond Remover,
-description: Salon Pro 30 Sec Super Hair Bond Remover,
-author: Suvojit Manna,
-tags: Salon Pro 30 Sec Super Hair Bond Remover,
-publishedAt: Fri Jan 10 2020 14:59:45 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:45 GMT+0530 (India Standard Time),
----
-
 # [Salon Pro 30 Sec Super Hair Bond Remover](https://products.checkmycream.com/products/Salon-Pro-30-Sec-Super-Hair-Bond-Remover.html)
 
 ### Positive Reviews

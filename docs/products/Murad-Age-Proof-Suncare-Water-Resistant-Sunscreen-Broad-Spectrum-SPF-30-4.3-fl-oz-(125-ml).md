@@ -1,12 +1,3 @@
----
-title: Murad Age Proof Suncare, Water Resistant Sunscreen Broad Spectrum SPF 30, 4.3 fl oz (125 ml),
-description: Murad Age Proof Suncare, Water Resistant Sunscreen Broad Spectrum SPF 30, 4.3 fl oz (125 ml),
-author: Suvojit Manna,
-tags: Murad Age Proof Suncare, Water Resistant Sunscreen Broad Spectrum SPF 30, 4.3 fl oz (125 ml),
-publishedAt: Fri Jan 10 2020 14:59:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:08 GMT+0530 (India Standard Time),
----
-
 # [Murad Age Proof Suncare, Water Resistant Sunscreen Broad Spectrum SPF 30, 4.3 fl oz (125 ml)](https://products.checkmycream.com/products/Murad-Age-Proof-Suncare-Water-Resistant-Sunscreen-Broad-Spectrum-SPF-30-4.3-fl-oz-(125-ml).html)
 
 ### Positive Reviews

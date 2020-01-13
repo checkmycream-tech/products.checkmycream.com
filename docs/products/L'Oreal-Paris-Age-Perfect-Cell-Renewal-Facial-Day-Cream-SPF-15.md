@@ -1,12 +1,3 @@
----
-title: L&#x27;Oreal Paris Age Perfect Cell Renewal Facial Day Cream SPF 15,
-description: L&#x27;Oreal Paris Age Perfect Cell Renewal Facial Day Cream SPF 15,
-author: Suvojit Manna,
-tags: L&#x27;Oreal Paris Age Perfect Cell Renewal Facial Day Cream SPF 15,
-publishedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
----
-
 # [L&#x27;Oreal Paris Age Perfect Cell Renewal Facial Day Cream SPF 15](https://products.checkmycream.com/products/L&#x27;Oreal-Paris-Age-Perfect-Cell-Renewal-Facial-Day-Cream-SPF-15.html)
 
 ### Positive Reviews

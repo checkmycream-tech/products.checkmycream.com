@@ -1,12 +1,3 @@
----
-title: Dove Nutritive Therapy Nourishing Oil Care Daily Treatment Conditioner, 8 Ounce,
-description: Dove Nutritive Therapy Nourishing Oil Care Daily Treatment Conditioner, 8 Ounce,
-author: Suvojit Manna,
-tags: Dove Nutritive Therapy Nourishing Oil Care Daily Treatment Conditioner, 8 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
----
-
 # [Dove Nutritive Therapy Nourishing Oil Care Daily Treatment Conditioner, 8 Ounce](https://products.checkmycream.com/products/Dove-Nutritive-Therapy-Nourishing-Oil-Care-Daily-Treatment-Conditioner-8-Ounce.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Nailart NAIL TATTOO STICKER - blossom / ornament - black,
-description: Nailart NAIL TATTOO STICKER - blossom / ornament - black,
-author: Suvojit Manna,
-tags: Nailart NAIL TATTOO STICKER - blossom / ornament - black,
-publishedAt: Fri Jan 10 2020 15:00:13 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:13 GMT+0530 (India Standard Time),
----
-
 # [Nailart NAIL TATTOO STICKER - blossom / ornament - black](https://products.checkmycream.com/products/Nailart-NAIL-TATTOO-STICKER-blossom-ornament-black.html)
 
 ### Positive Reviews

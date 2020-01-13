@@ -1,12 +1,3 @@
----
-title: Old Spice Fresh Collection Deodorant Fiji Scent Twin Pack,
-description: Old Spice Fresh Collection Deodorant Fiji Scent Twin Pack,
-author: Suvojit Manna,
-tags: Old Spice Fresh Collection Deodorant Fiji Scent Twin Pack,
-publishedAt: Fri Jan 10 2020 15:00:18 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:18 GMT+0530 (India Standard Time),
----
-
 # [Old Spice Fresh Collection Deodorant Fiji Scent Twin Pack](https://products.checkmycream.com/products/Old-Spice-Fresh-Collection-Deodorant-Fiji-Scent-Twin-Pack.html)
 
 ### Positive Reviews

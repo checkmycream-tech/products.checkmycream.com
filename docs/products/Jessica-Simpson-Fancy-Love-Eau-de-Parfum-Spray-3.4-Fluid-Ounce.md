@@ -1,12 +1,3 @@
----
-title: Jessica Simpson Fancy Love Eau de Parfum Spray, 3.4 Fluid Ounce,
-description: Jessica Simpson Fancy Love Eau de Parfum Spray, 3.4 Fluid Ounce,
-author: Suvojit Manna,
-tags: Jessica Simpson Fancy Love Eau de Parfum Spray, 3.4 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 14:59:50 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:50 GMT+0530 (India Standard Time),
----
-
 # [Jessica Simpson Fancy Love Eau de Parfum Spray, 3.4 Fluid Ounce](https://products.checkmycream.com/products/Jessica-Simpson-Fancy-Love-Eau-de-Parfum-Spray-3.4-Fluid-Ounce.html)
 
 ### Positive Reviews

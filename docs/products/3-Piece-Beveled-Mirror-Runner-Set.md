@@ -1,12 +1,3 @@
----
-title: 3 Piece Beveled Mirror Runner Set,
-description: 3 Piece Beveled Mirror Runner Set,
-author: Suvojit Manna,
-tags: 3 Piece Beveled Mirror Runner Set,
-publishedAt: Fri Jan 10 2020 14:59:19 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:19 GMT+0530 (India Standard Time),
----
-
 # [3 Piece Beveled Mirror Runner Set](https://products.checkmycream.com/products/3-Piece-Beveled-Mirror-Runner-Set.html)
 
 ### Positive Reviews

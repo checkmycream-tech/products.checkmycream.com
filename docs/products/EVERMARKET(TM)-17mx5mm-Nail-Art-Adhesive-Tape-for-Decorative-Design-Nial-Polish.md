@@ -1,12 +1,3 @@
----
-title: EVERMARKET(TM) 17mx5mm Nail Art Adhesive Tape for Decorative Design Nial Polish,
-description: EVERMARKET(TM) 17mx5mm Nail Art Adhesive Tape for Decorative Design Nial Polish,
-author: Suvojit Manna,
-tags: EVERMARKET(TM) 17mx5mm Nail Art Adhesive Tape for Decorative Design Nial Polish,
-publishedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
----
-
 # [EVERMARKET(TM) 17mx5mm Nail Art Adhesive Tape for Decorative Design Nial Polish](https://products.checkmycream.com/products/EVERMARKET(TM)-17mx5mm-Nail-Art-Adhesive-Tape-for-Decorative-Design-Nial-Polish.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: BR Beauty Economy Salon Towels, 24 Towels per Pack,
-description: BR Beauty Economy Salon Towels, 24 Towels per Pack,
-author: Suvojit Manna,
-tags: BR Beauty Economy Salon Towels, 24 Towels per Pack,
-publishedAt: Fri Jan 10 2020 15:00:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:08 GMT+0530 (India Standard Time),
----
-
 # [BR Beauty Economy Salon Towels, 24 Towels per Pack](https://products.checkmycream.com/products/BR-Beauty-Economy-Salon-Towels-24-Towels-per-Pack.html)
 
 ### Positive Reviews

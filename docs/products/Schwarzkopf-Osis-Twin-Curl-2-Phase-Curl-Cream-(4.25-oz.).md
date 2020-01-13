@@ -1,12 +1,3 @@
----
-title: Schwarzkopf Osis Twin Curl 2-Phase Curl Cream (4.25 oz.),
-description: Schwarzkopf Osis Twin Curl 2-Phase Curl Cream (4.25 oz.),
-author: Suvojit Manna,
-tags: Schwarzkopf Osis Twin Curl 2-Phase Curl Cream (4.25 oz.),
-publishedAt: Fri Jan 10 2020 15:00:09 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:09 GMT+0530 (India Standard Time),
----
-
 # [Schwarzkopf Osis Twin Curl 2-Phase Curl Cream (4.25 oz.)](https://products.checkmycream.com/products/Schwarzkopf-Osis-Twin-Curl-2-Phase-Curl-Cream-(4.25-oz.).html)
 
 ### Positive Reviews

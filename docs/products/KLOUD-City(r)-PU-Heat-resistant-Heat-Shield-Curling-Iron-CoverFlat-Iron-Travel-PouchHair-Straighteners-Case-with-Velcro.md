@@ -1,12 +1,3 @@
----
-title: KLOUD City® PU Heat-resistant /Heat Shield Curling Iron Cover/Flat Iron Travel Pouch/Hair Straighteners Case with Velcro,
-description: KLOUD City® PU Heat-resistant /Heat Shield Curling Iron Cover/Flat Iron Travel Pouch/Hair Straighteners Case with Velcro,
-author: Suvojit Manna,
-tags: KLOUD City® PU Heat-resistant /Heat Shield Curling Iron Cover/Flat Iron Travel Pouch/Hair Straighteners Case with Velcro,
-publishedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
----
-
 # [KLOUD City® PU Heat-resistant /Heat Shield Curling Iron Cover/Flat Iron Travel Pouch/Hair Straighteners Case with Velcro](https://products.checkmycream.com/products/KLOUD-City(r)-PU-Heat-resistant-Heat-Shield-Curling-Iron-CoverFlat-Iron-Travel-PouchHair-Straighteners-Case-with-Velcro.html)
 
 ### Positive Reviews

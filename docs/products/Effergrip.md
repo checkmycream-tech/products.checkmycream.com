@@ -1,12 +1,3 @@
----
-title: Effergrip,
-description: Effergrip,
-author: Suvojit Manna,
-tags: Effergrip,
-publishedAt: Fri Jan 10 2020 15:00:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:03 GMT+0530 (India Standard Time),
----
-
 # [Effergrip](https://products.checkmycream.com/products/Effergrip.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Hot Tools Professional Flipperless Curling Wand, 1.25 Inch,
-description: Hot Tools Professional Flipperless Curling Wand, 1.25 Inch,
-author: Suvojit Manna,
-tags: Hot Tools Professional Flipperless Curling Wand, 1.25 Inch,
-publishedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
----
-
 # [Hot Tools Professional Flipperless Curling Wand, 1.25 Inch](https://products.checkmycream.com/products/Hot-Tools-Professional-Flipperless-Curling-Wand-1.25-Inch.html)
 
 ### Positive Reviews

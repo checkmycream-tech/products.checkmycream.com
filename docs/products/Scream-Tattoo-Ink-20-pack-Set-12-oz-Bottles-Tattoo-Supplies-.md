@@ -1,12 +1,3 @@
----
-title: Scream Tattoo Ink 20-pack Set 1/2-oz Bottles -Tattoo Supplies-,
-description: Scream Tattoo Ink 20-pack Set 1/2-oz Bottles -Tattoo Supplies-,
-author: Suvojit Manna,
-tags: Scream Tattoo Ink 20-pack Set 1/2-oz Bottles -Tattoo Supplies-,
-publishedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
----
-
 # [Scream Tattoo Ink 20-pack Set 1/2-oz Bottles -Tattoo Supplies-](https://products.checkmycream.com/products/Scream-Tattoo-Ink-20-pack-Set-12-oz-Bottles-Tattoo-Supplies-.html)
 
 ### Positive Reviews

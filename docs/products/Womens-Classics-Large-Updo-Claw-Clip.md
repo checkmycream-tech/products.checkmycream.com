@@ -1,12 +1,3 @@
----
-title: Womens Classics Large Updo Claw Clip,
-description: Womens Classics Large Updo Claw Clip,
-author: Suvojit Manna,
-tags: Womens Classics Large Updo Claw Clip,
-publishedAt: Fri Jan 10 2020 15:00:12 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:12 GMT+0530 (India Standard Time),
----
-
 # [Womens Classics Large Updo Claw Clip](https://products.checkmycream.com/products/Womens-Classics-Large-Updo-Claw-Clip.html)
 
 ### Positive Reviews

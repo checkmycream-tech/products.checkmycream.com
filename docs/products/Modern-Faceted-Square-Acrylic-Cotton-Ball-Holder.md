@@ -1,12 +1,3 @@
----
-title: Modern Faceted Square Acrylic Cotton Ball Holder,
-description: Modern Faceted Square Acrylic Cotton Ball Holder,
-author: Suvojit Manna,
-tags: Modern Faceted Square Acrylic Cotton Ball Holder,
-publishedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
----
-
 # [Modern Faceted Square Acrylic Cotton Ball Holder](https://products.checkmycream.com/products/Modern-Faceted-Square-Acrylic-Cotton-Ball-Holder.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: DNS Biogenesis Eye Roller-vessel Sealing System- Titanium Alloy Derma Roller This roller has the same benefits of other 540 rollers. However these allow to acces small difficult areas ESPECIALLY the face! (1.00mm),
-description: DNS Biogenesis Eye Roller-vessel Sealing System- Titanium Alloy Derma Roller This roller has the same benefits of other 540 rollers. However these allow to acces small difficult areas ESPECIALLY the face! (1.00mm),
-author: Suvojit Manna,
-tags: DNS Biogenesis Eye Roller-vessel Sealing System- Titanium Alloy Derma Roller This roller has the same benefits of other 540 rollers. However these allow to acces small difficult areas ESPECIALLY the face! (1.00mm),
-publishedAt: Fri Jan 10 2020 15:00:36 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:36 GMT+0530 (India Standard Time),
----
-
 # [DNS Biogenesis Eye Roller-vessel Sealing System- Titanium Alloy Derma Roller This roller has the same benefits of other 540 rollers. However these allow to acces small difficult areas ESPECIALLY the face! (1.00mm)](https://products.checkmycream.com/products/DNS-Biogenesis-Eye-Roller-vessel-Sealing-System-Titanium-Alloy-Derma-Roller-This-roller-has-the-same-benefits-of-other-540-rollers.-However-these-allow-to-acces-small-difficult-areas-ESPECIALLY-the-face!-(1.00mm).html)
 
 ### Positive Reviews

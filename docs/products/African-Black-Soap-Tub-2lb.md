@@ -1,12 +1,3 @@
----
-title: African Black Soap Tub 2lb,
-description: African Black Soap Tub 2lb,
-author: Suvojit Manna,
-tags: African Black Soap Tub 2lb,
-publishedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
----
-
 # [African Black Soap Tub 2lb](https://products.checkmycream.com/products/African-Black-Soap-Tub-2lb.html)
 
 ### Positive Reviews

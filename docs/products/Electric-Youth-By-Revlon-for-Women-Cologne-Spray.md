@@ -1,12 +1,3 @@
----
-title: Electric Youth By Revlon for Women Cologne Spray,
-description: Electric Youth By Revlon for Women Cologne Spray,
-author: Suvojit Manna,
-tags: Electric Youth By Revlon for Women Cologne Spray,
-publishedAt: Fri Jan 10 2020 14:59:43 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:43 GMT+0530 (India Standard Time),
----
-
 # [Electric Youth By Revlon for Women Cologne Spray](https://products.checkmycream.com/products/Electric-Youth-By-Revlon-for-Women-Cologne-Spray.html)
 
 ### Positive Reviews

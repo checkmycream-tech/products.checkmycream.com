@@ -1,12 +1,3 @@
----
-title: Meyers Soy Candle (6x7.2Oz),
-description: Meyers Soy Candle (6x7.2Oz),
-author: Suvojit Manna,
-tags: Meyers Soy Candle (6x7.2Oz),
-publishedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
----
-
 # [Meyers Soy Candle (6x7.2Oz)](https://products.checkmycream.com/products/Meyers-Soy-Candle-(6x7.2Oz).html)
 
 ### Positive Reviews

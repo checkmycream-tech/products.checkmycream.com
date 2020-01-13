@@ -1,12 +1,3 @@
----
-title: Bvlgari Mon Jasmin Noir L&#x27;eau Exquise Eau de Toilette Spray for Women,
-description: Bvlgari Mon Jasmin Noir L&#x27;eau Exquise Eau de Toilette Spray for Women,
-author: Suvojit Manna,
-tags: Bvlgari Mon Jasmin Noir L&#x27;eau Exquise Eau de Toilette Spray for Women,
-publishedAt: Fri Jan 10 2020 15:00:22 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:22 GMT+0530 (India Standard Time),
----
-
 # [Bvlgari Mon Jasmin Noir L&#x27;eau Exquise Eau de Toilette Spray for Women](https://products.checkmycream.com/products/Bvlgari-Mon-Jasmin-Noir-L&#x27;eau-Exquise-Eau-de-Toilette-Spray-for-Women.html)
 
 ### Positive Reviews

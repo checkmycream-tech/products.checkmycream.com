@@ -1,12 +1,3 @@
----
-title: Surgi Cream Brow Shapers,
-description: Surgi Cream Brow Shapers,
-author: Suvojit Manna,
-tags: Surgi Cream Brow Shapers,
-publishedAt: Fri Jan 10 2020 14:59:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:08 GMT+0530 (India Standard Time),
----
-
 # [Surgi Cream Brow Shapers](https://products.checkmycream.com/products/Surgi-Cream-Brow-Shapers.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: CLINIQUE TAKE THE DAY OFF MAKE UP REMOVER 100ml (2 x 50ml),
-description: CLINIQUE TAKE THE DAY OFF MAKE UP REMOVER 100ml (2 x 50ml),
-author: Suvojit Manna,
-tags: CLINIQUE TAKE THE DAY OFF MAKE UP REMOVER 100ml (2 x 50ml),
-publishedAt: Fri Jan 10 2020 15:00:16 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:16 GMT+0530 (India Standard Time),
----
-
 # [CLINIQUE TAKE THE DAY OFF MAKE UP REMOVER 100ml (2 x 50ml)](https://products.checkmycream.com/products/CLINIQUE-TAKE-THE-DAY-OFF-MAKE-UP-REMOVER-100ml-(2-x-50ml).html)
 
 ### Positive Reviews

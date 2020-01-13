@@ -1,12 +1,3 @@
----
-title: Milani Runway Eyes Eyeshadow- Wet/Dry - Bronze Doll,
-description: Milani Runway Eyes Eyeshadow- Wet/Dry - Bronze Doll,
-author: Suvojit Manna,
-tags: Milani Runway Eyes Eyeshadow- Wet/Dry - Bronze Doll,
-publishedAt: Fri Jan 10 2020 14:59:45 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:45 GMT+0530 (India Standard Time),
----
-
 # [Milani Runway Eyes Eyeshadow- Wet/Dry - Bronze Doll](https://products.checkmycream.com/products/Milani-Runway-Eyes-Eyeshadow-WetDry-Bronze-Doll.html)
 
 ### Positive Reviews

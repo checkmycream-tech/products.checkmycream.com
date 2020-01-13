@@ -1,12 +1,3 @@
----
-title: CITI Samsung Galaxy S5 / Galaxy Note 3 Cable Note III N9000 USB Cable Ultra Fast Charging USB 3.0 Data Cable [3 FT/1 M] [w/ Gold Plated Connector] - Super Speed 5 Gbps A Male to Micro B Mail Connector Cable,
-description: CITI Samsung Galaxy S5 / Galaxy Note 3 Cable Note III N9000 USB Cable Ultra Fast Charging USB 3.0 Data Cable [3 FT/1 M] [w/ Gold Plated Connector] - Super Speed 5 Gbps A Male to Micro B Mail Connector Cable,
-author: Suvojit Manna,
-tags: CITI Samsung Galaxy S5 / Galaxy Note 3 Cable Note III N9000 USB Cable Ultra Fast Charging USB 3.0 Data Cable [3 FT/1 M] [w/ Gold Plated Connector] - Super Speed 5 Gbps A Male to Micro B Mail Connector Cable,
-publishedAt: Fri Jan 10 2020 15:01:09 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:09 GMT+0530 (India Standard Time),
----
-
 # [CITI Samsung Galaxy S5 / Galaxy Note 3 Cable Note III N9000 USB Cable Ultra Fast Charging USB 3.0 Data Cable [3 FT/1 M] [w/ Gold Plated Connector] - Super Speed 5 Gbps A Male to Micro B Mail Connector Cable](https://products.checkmycream.com/products/CITI-Samsung-Galaxy-S5-Galaxy-Note-3-Cable-Note-III-N9000-USB-Cable-Ultra-Fast-Charging-USB-3.0-Data-Cable-3-FT1-M-w-Gold-Plated-Connector-Super-Speed-5-Gbps-A-Male-to-Micro-B-Mail-Connector-Cable.html)
 
 ### Positive Reviews

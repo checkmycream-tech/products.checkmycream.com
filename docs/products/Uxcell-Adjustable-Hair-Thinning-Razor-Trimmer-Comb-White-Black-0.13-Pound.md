@@ -1,12 +1,3 @@
----
-title: Uxcell Adjustable Hair Thinning Razor Trimmer Comb, White Black, 0.13 Pound,
-description: Uxcell Adjustable Hair Thinning Razor Trimmer Comb, White Black, 0.13 Pound,
-author: Suvojit Manna,
-tags: Uxcell Adjustable Hair Thinning Razor Trimmer Comb, White Black, 0.13 Pound,
-publishedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
----
-
 # [Uxcell Adjustable Hair Thinning Razor Trimmer Comb, White Black, 0.13 Pound](https://products.checkmycream.com/products/Uxcell-Adjustable-Hair-Thinning-Razor-Trimmer-Comb-White-Black-0.13-Pound.html)
 
 ### Positive Reviews

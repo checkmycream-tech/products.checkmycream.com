@@ -1,12 +1,3 @@
----
-title: GoldenLiving168 800pcs Round Jelly Rhinestone 4mm (16ss) 3D Acrylic Nail Art Decoration Cellphone Case (High Quality) USA SELLER! FAST SHIPPING!,
-description: GoldenLiving168 800pcs Round Jelly Rhinestone 4mm (16ss) 3D Acrylic Nail Art Decoration Cellphone Case (High Quality) USA SELLER! FAST SHIPPING!,
-author: Suvojit Manna,
-tags: GoldenLiving168 800pcs Round Jelly Rhinestone 4mm (16ss) 3D Acrylic Nail Art Decoration Cellphone Case (High Quality) USA SELLER! FAST SHIPPING!,
-publishedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
----
-
 # [GoldenLiving168 800pcs Round Jelly Rhinestone 4mm (16ss) 3D Acrylic Nail Art Decoration Cellphone Case (High Quality) USA SELLER! FAST SHIPPING!](https://products.checkmycream.com/products/GoldenLiving168-800pcs-Round-Jelly-Rhinestone-4mm-(16ss)-3D-Acrylic-Nail-Art-Decoration-Cellphone-Case-(High-Quality)-USA-SELLER!-FAST-SHIPPING!.html)
 
 ### Positive Reviews

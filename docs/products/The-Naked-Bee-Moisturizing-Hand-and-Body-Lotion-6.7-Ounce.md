@@ -1,12 +1,3 @@
----
-title: The Naked Bee Moisturizing Hand &amp; Body Lotion, 6.7 Ounce,
-description: The Naked Bee Moisturizing Hand &amp; Body Lotion, 6.7 Ounce,
-author: Suvojit Manna,
-tags: The Naked Bee Moisturizing Hand &amp; Body Lotion, 6.7 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [The Naked Bee Moisturizing Hand &amp; Body Lotion, 6.7 Ounce](https://products.checkmycream.com/products/The-Naked-Bee-Moisturizing-Hand-and-Body-Lotion-6.7-Ounce.html)
 
 ### Positive Reviews

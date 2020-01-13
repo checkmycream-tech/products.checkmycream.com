@@ -1,12 +1,3 @@
----
-title: The Body Shop Shower Gel, Pink Grapefruit, 8.4 Fluid Ounce (Packaging May Vary),
-description: The Body Shop Shower Gel, Pink Grapefruit, 8.4 Fluid Ounce (Packaging May Vary),
-author: Suvojit Manna,
-tags: The Body Shop Shower Gel, Pink Grapefruit, 8.4 Fluid Ounce (Packaging May Vary),
-publishedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
----
-
 # [The Body Shop Shower Gel, Pink Grapefruit, 8.4 Fluid Ounce (Packaging May Vary)](https://products.checkmycream.com/products/The-Body-Shop-Shower-Gel-Pink-Grapefruit-8.4-Fluid-Ounce-(Packaging-May-Vary).html)
 
 ### Positive Reviews

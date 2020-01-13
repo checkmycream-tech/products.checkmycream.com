@@ -1,12 +1,3 @@
----
-title: Stocking Donner,
-description: Stocking Donner,
-author: Suvojit Manna,
-tags: Stocking Donner,
-publishedAt: Fri Jan 10 2020 14:59:10 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:10 GMT+0530 (India Standard Time),
----
-
 # [Stocking Donner](https://products.checkmycream.com/products/Stocking-Donner.html)
 
 ### Positive Reviews

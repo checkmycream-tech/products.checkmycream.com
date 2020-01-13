@@ -1,12 +1,3 @@
----
-title: Acnefree 2 in 1 Acne Wipes, 7.2 Ounce,
-description: Acnefree 2 in 1 Acne Wipes, 7.2 Ounce,
-author: Suvojit Manna,
-tags: Acnefree 2 in 1 Acne Wipes, 7.2 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
----
-
 # [Acnefree 2 in 1 Acne Wipes, 7.2 Ounce](https://products.checkmycream.com/products/Acnefree-2-in-1-Acne-Wipes-7.2-Ounce.html)
 
 ### Positive Reviews

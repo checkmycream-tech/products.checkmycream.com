@@ -1,12 +1,3 @@
----
-title: Lot of 6 Avon Wash-off Waterproof Mascara Black,
-description: Lot of 6 Avon Wash-off Waterproof Mascara Black,
-author: Suvojit Manna,
-tags: Lot of 6 Avon Wash-off Waterproof Mascara Black,
-publishedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
----
-
 # [Lot of 6 Avon Wash-off Waterproof Mascara Black](https://products.checkmycream.com/products/Lot-of-6-Avon-Wash-off-Waterproof-Mascara-Black.html)
 
 ### Positive Reviews

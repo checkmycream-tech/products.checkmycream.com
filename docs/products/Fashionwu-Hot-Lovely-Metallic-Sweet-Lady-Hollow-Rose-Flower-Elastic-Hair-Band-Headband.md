@@ -1,12 +1,3 @@
----
-title: Fashionwu Hot Lovely Metallic Sweet Lady Hollow Rose Flower Elastic Hair Band Headband,
-description: Fashionwu Hot Lovely Metallic Sweet Lady Hollow Rose Flower Elastic Hair Band Headband,
-author: Suvojit Manna,
-tags: Fashionwu Hot Lovely Metallic Sweet Lady Hollow Rose Flower Elastic Hair Band Headband,
-publishedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
----
-
 # [Fashionwu Hot Lovely Metallic Sweet Lady Hollow Rose Flower Elastic Hair Band Headband](https://products.checkmycream.com/products/Fashionwu-Hot-Lovely-Metallic-Sweet-Lady-Hollow-Rose-Flower-Elastic-Hair-Band-Headband.html)
 
 ### Positive Reviews

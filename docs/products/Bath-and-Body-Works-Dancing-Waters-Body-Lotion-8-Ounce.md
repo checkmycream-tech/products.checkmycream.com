@@ -1,12 +1,3 @@
----
-title: Bath and Body Works Dancing Waters Body Lotion 8 Ounce,
-description: Bath and Body Works Dancing Waters Body Lotion 8 Ounce,
-author: Suvojit Manna,
-tags: Bath and Body Works Dancing Waters Body Lotion 8 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:29 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:29 GMT+0530 (India Standard Time),
----
-
 # [Bath and Body Works Dancing Waters Body Lotion 8 Ounce](https://products.checkmycream.com/products/Bath-and-Body-Works-Dancing-Waters-Body-Lotion-8-Ounce.html)
 
 ### Positive Reviews

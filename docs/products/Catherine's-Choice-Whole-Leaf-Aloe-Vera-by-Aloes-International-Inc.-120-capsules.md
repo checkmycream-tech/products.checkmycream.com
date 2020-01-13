@@ -1,12 +1,3 @@
----
-title: Catherine&#x27;s Choice Whole Leaf Aloe Vera by Aloes International, Inc. - 120 capsules,
-description: Catherine&#x27;s Choice Whole Leaf Aloe Vera by Aloes International, Inc. - 120 capsules,
-author: Suvojit Manna,
-tags: Catherine&#x27;s Choice Whole Leaf Aloe Vera by Aloes International, Inc. - 120 capsules,
-publishedAt: Fri Jan 10 2020 14:59:15 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:15 GMT+0530 (India Standard Time),
----
-
 # [Catherine&#x27;s Choice Whole Leaf Aloe Vera by Aloes International, Inc. - 120 capsules](https://products.checkmycream.com/products/Catherine&#x27;s-Choice-Whole-Leaf-Aloe-Vera-by-Aloes-International-Inc.-120-capsules.html)
 
 ### Positive Reviews

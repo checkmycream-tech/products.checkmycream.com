@@ -1,12 +1,3 @@
----
-title: Butterfly Clamps 1-dozen * Small Size: 2&quot; * Black &amp; White,
-description: Butterfly Clamps 1-dozen * Small Size: 2&quot; * Black &amp; White,
-author: Suvojit Manna,
-tags: Butterfly Clamps 1-dozen * Small Size: 2&quot; * Black &amp; White,
-publishedAt: Fri Jan 10 2020 14:59:17 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:17 GMT+0530 (India Standard Time),
----
-
 # [Butterfly Clamps 1-dozen * Small Size: 2&quot; * Black &amp; White](https://products.checkmycream.com/products/Butterfly-Clamps-1-dozen-*-Small-Size:-2&quot;-*-Black-and-White.html)
 
 ### Positive Reviews

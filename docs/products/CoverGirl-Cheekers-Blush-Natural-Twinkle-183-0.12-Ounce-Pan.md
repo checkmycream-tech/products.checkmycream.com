@@ -1,12 +1,3 @@
----
-title: CoverGirl Cheekers Blush, Natural Twinkle 183, 0.12 Ounce Pan,
-description: CoverGirl Cheekers Blush, Natural Twinkle 183, 0.12 Ounce Pan,
-author: Suvojit Manna,
-tags: CoverGirl Cheekers Blush, Natural Twinkle 183, 0.12 Ounce Pan,
-publishedAt: Fri Jan 10 2020 14:59:12 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:12 GMT+0530 (India Standard Time),
----
-
 # [CoverGirl Cheekers Blush, Natural Twinkle 183, 0.12 Ounce Pan](https://products.checkmycream.com/products/CoverGirl-Cheekers-Blush-Natural-Twinkle-183-0.12-Ounce-Pan.html)
 
 ### Positive Reviews

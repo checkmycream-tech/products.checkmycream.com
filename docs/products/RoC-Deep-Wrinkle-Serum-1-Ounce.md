@@ -1,12 +1,3 @@
----
-title: RoC Deep Wrinkle Serum, 1 Ounce,
-description: RoC Deep Wrinkle Serum, 1 Ounce,
-author: Suvojit Manna,
-tags: RoC Deep Wrinkle Serum, 1 Ounce,
-publishedAt: Fri Jan 10 2020 15:01:07 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:07 GMT+0530 (India Standard Time),
----
-
 # [RoC Deep Wrinkle Serum, 1 Ounce](https://products.checkmycream.com/products/RoC-Deep-Wrinkle-Serum-1-Ounce.html)
 
 ### Positive Reviews

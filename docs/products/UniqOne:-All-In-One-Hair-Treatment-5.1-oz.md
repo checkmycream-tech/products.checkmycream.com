@@ -1,12 +1,3 @@
----
-title: UniqOne: All In One Hair Treatment, 5.1 oz,
-description: UniqOne: All In One Hair Treatment, 5.1 oz,
-author: Suvojit Manna,
-tags: UniqOne: All In One Hair Treatment, 5.1 oz,
-publishedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
----
-
 # [UniqOne: All In One Hair Treatment, 5.1 oz](https://products.checkmycream.com/products/UniqOne:-All-In-One-Hair-Treatment-5.1-oz.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: African Ghana 100% Shea Butter 5LBS,
-description: African Ghana 100% Shea Butter 5LBS,
-author: Suvojit Manna,
-tags: African Ghana 100% Shea Butter 5LBS,
-publishedAt: Fri Jan 10 2020 15:00:36 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:36 GMT+0530 (India Standard Time),
----
-
 # [African Ghana 100% Shea Butter 5LBS](https://products.checkmycream.com/products/African-Ghana-100percent-Shea-Butter-5LBS.html)
 
 ### Positive Reviews

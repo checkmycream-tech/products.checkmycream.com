@@ -1,12 +1,3 @@
----
-title: Nails Alive 24 Hour Nail Hardener 1.19oz,
-description: Nails Alive 24 Hour Nail Hardener 1.19oz,
-author: Suvojit Manna,
-tags: Nails Alive 24 Hour Nail Hardener 1.19oz,
-publishedAt: Fri Jan 10 2020 14:59:29 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:29 GMT+0530 (India Standard Time),
----
-
 # [Nails Alive 24 Hour Nail Hardener 1.19oz](https://products.checkmycream.com/products/Nails-Alive-24-Hour-Nail-Hardener-1.19oz.html)
 
 ### Positive Reviews

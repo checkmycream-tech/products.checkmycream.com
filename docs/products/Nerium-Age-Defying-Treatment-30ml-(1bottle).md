@@ -1,12 +1,3 @@
----
-title: Nerium Age Defying Treatment 30ml (1bottle),
-description: Nerium Age Defying Treatment 30ml (1bottle),
-author: Suvojit Manna,
-tags: Nerium Age Defying Treatment 30ml (1bottle),
-publishedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
----
-
 # [Nerium Age Defying Treatment 30ml (1bottle)](https://products.checkmycream.com/products/Nerium-Age-Defying-Treatment-30ml-(1bottle).html)
 
 ### Positive Reviews

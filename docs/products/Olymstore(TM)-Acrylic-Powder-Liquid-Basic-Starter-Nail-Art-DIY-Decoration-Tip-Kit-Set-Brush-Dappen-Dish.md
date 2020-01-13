@@ -1,12 +1,3 @@
----
-title: Olymstore(TM) Acrylic Powder Liquid Basic Starter Nail Art DIY Decoration Tip Kit Set Brush Dappen Dish,
-description: Olymstore(TM) Acrylic Powder Liquid Basic Starter Nail Art DIY Decoration Tip Kit Set Brush Dappen Dish,
-author: Suvojit Manna,
-tags: Olymstore(TM) Acrylic Powder Liquid Basic Starter Nail Art DIY Decoration Tip Kit Set Brush Dappen Dish,
-publishedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
----
-
 # [Olymstore(TM) Acrylic Powder Liquid Basic Starter Nail Art DIY Decoration Tip Kit Set Brush Dappen Dish](https://products.checkmycream.com/products/Olymstore(TM)-Acrylic-Powder-Liquid-Basic-Starter-Nail-Art-DIY-Decoration-Tip-Kit-Set-Brush-Dappen-Dish.html)
 
 ### Positive Reviews

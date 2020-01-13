@@ -1,12 +1,3 @@
----
-title: Akorn Sodium Chloride 5% Ophthalmic Ointment 3. 5 gm,
-description: Akorn Sodium Chloride 5% Ophthalmic Ointment 3. 5 gm,
-author: Suvojit Manna,
-tags: Akorn Sodium Chloride 5% Ophthalmic Ointment 3. 5 gm,
-publishedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
----
-
 # [Akorn Sodium Chloride 5% Ophthalmic Ointment 3. 5 gm](https://products.checkmycream.com/products/Akorn-Sodium-Chloride-5percent-Ophthalmic-Ointment-3.-5-gm.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Five Star Sanitizer (32 oz),
-description: Five Star Sanitizer (32 oz),
-author: Suvojit Manna,
-tags: Five Star Sanitizer (32 oz),
-publishedAt: Fri Jan 10 2020 15:00:14 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:14 GMT+0530 (India Standard Time),
----
-
 # [Five Star Sanitizer (32 oz)](https://products.checkmycream.com/products/Five-Star-Sanitizer-(32-oz).html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Professional 2PCS Galaxy Star Nail Art Glue for Foil Sticker Nail Transfer Tips Decorations Adhesive White 8ml,
-description: Professional 2PCS Galaxy Star Nail Art Glue for Foil Sticker Nail Transfer Tips Decorations Adhesive White 8ml,
-author: Suvojit Manna,
-tags: Professional 2PCS Galaxy Star Nail Art Glue for Foil Sticker Nail Transfer Tips Decorations Adhesive White 8ml,
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [Professional 2PCS Galaxy Star Nail Art Glue for Foil Sticker Nail Transfer Tips Decorations Adhesive White 8ml](https://products.checkmycream.com/products/Professional-2PCS-Galaxy-Star-Nail-Art-Glue-for-Foil-Sticker-Nail-Transfer-Tips-Decorations-Adhesive-White-8ml.html)
 
 ### Positive Reviews

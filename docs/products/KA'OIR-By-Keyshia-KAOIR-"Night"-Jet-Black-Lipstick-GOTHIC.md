@@ -1,12 +1,3 @@
----
-title: KA&#x27;OIR By Keyshia KAOIR &quot;Night&quot; Jet Black Lipstick GOTHIC,
-description: KA&#x27;OIR By Keyshia KAOIR &quot;Night&quot; Jet Black Lipstick GOTHIC,
-author: Suvojit Manna,
-tags: KA&#x27;OIR By Keyshia KAOIR &quot;Night&quot; Jet Black Lipstick GOTHIC,
-publishedAt: Fri Jan 10 2020 15:00:10 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:10 GMT+0530 (India Standard Time),
----
-
 # [KA&#x27;OIR By Keyshia KAOIR &quot;Night&quot; Jet Black Lipstick GOTHIC](https://products.checkmycream.com/products/KA&#x27;OIR-By-Keyshia-KAOIR-&quot;Night&quot;-Jet-Black-Lipstick-GOTHIC.html)
 
 ### Positive Reviews

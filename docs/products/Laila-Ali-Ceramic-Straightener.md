@@ -1,12 +1,3 @@
----
-title: Laila Ali Ceramic Straightener,
-description: Laila Ali Ceramic Straightener,
-author: Suvojit Manna,
-tags: Laila Ali Ceramic Straightener,
-publishedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
----
-
 # [Laila Ali Ceramic Straightener](https://products.checkmycream.com/products/Laila-Ali-Ceramic-Straightener.html)
 
 ### Positive Reviews

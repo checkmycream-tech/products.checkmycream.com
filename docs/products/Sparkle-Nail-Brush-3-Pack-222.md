@@ -1,12 +1,3 @@
----
-title: Sparkle Nail Brush 3 Pack - 222,
-description: Sparkle Nail Brush 3 Pack - 222,
-author: Suvojit Manna,
-tags: Sparkle Nail Brush 3 Pack - 222,
-publishedAt: Fri Jan 10 2020 14:59:45 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:45 GMT+0530 (India Standard Time),
----
-
 # [Sparkle Nail Brush 3 Pack - 222](https://products.checkmycream.com/products/Sparkle-Nail-Brush-3-Pack-222.html)
 
 ### Positive Reviews

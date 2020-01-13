@@ -1,12 +1,3 @@
----
-title: Curve Crush Men by Liz Claiborne Cologne 0.18 ounce,
-description: Curve Crush Men by Liz Claiborne Cologne 0.18 ounce,
-author: Suvojit Manna,
-tags: Curve Crush Men by Liz Claiborne Cologne 0.18 ounce,
-publishedAt: Fri Jan 10 2020 14:59:14 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:14 GMT+0530 (India Standard Time),
----
-
 # [Curve Crush Men by Liz Claiborne Cologne 0.18 ounce](https://products.checkmycream.com/products/Curve-Crush-Men-by-Liz-Claiborne-Cologne-0.18-ounce.html)
 
 ### Positive Reviews

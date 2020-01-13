@@ -1,12 +1,3 @@
----
-title: Grether&#x27;s Pastilles Sugar Free Red Currant 3.75 oz,
-description: Grether&#x27;s Pastilles Sugar Free Red Currant 3.75 oz,
-author: Suvojit Manna,
-tags: Grether&#x27;s Pastilles Sugar Free Red Currant 3.75 oz,
-publishedAt: Fri Jan 10 2020 14:59:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:02 GMT+0530 (India Standard Time),
----
-
 # [Grether&#x27;s Pastilles Sugar Free Red Currant 3.75 oz](https://products.checkmycream.com/products/Grether&#x27;s-Pastilles-Sugar-Free-Red-Currant-3.75-oz.html)
 
 ### Positive Reviews

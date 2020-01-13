@@ -1,12 +1,3 @@
----
-title: OPI Hong Kong collection Lucky Lucky Lavender,
-description: OPI Hong Kong collection Lucky Lucky Lavender,
-author: Suvojit Manna,
-tags: OPI Hong Kong collection Lucky Lucky Lavender,
-publishedAt: Fri Jan 10 2020 14:59:47 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:47 GMT+0530 (India Standard Time),
----
-
 # [OPI Hong Kong collection Lucky Lucky Lavender](https://products.checkmycream.com/products/OPI-Hong-Kong-collection-Lucky-Lucky-Lavender.html)
 
 ### Positive Reviews

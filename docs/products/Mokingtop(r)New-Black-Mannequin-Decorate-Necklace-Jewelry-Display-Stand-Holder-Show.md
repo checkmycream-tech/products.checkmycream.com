@@ -1,12 +1,3 @@
----
-title: Mokingtop®New Black Mannequin Decorate Necklace Jewelry Display Stand Holder Show,
-description: Mokingtop®New Black Mannequin Decorate Necklace Jewelry Display Stand Holder Show,
-author: Suvojit Manna,
-tags: Mokingtop®New Black Mannequin Decorate Necklace Jewelry Display Stand Holder Show,
-publishedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
----
-
 # [Mokingtop®New Black Mannequin Decorate Necklace Jewelry Display Stand Holder Show](https://products.checkmycream.com/products/Mokingtop(r)New-Black-Mannequin-Decorate-Necklace-Jewelry-Display-Stand-Holder-Show.html)
 
 ### Positive Reviews

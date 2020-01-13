@@ -1,12 +1,3 @@
----
-title: Banana Republic Rosewood by Banana Republic For Women. Eau De Parfum Spray 3.4-Ounces,
-description: Banana Republic Rosewood by Banana Republic For Women. Eau De Parfum Spray 3.4-Ounces,
-author: Suvojit Manna,
-tags: Banana Republic Rosewood by Banana Republic For Women. Eau De Parfum Spray 3.4-Ounces,
-publishedAt: Fri Jan 10 2020 14:59:29 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:29 GMT+0530 (India Standard Time),
----
-
 # [Banana Republic Rosewood by Banana Republic For Women. Eau De Parfum Spray 3.4-Ounces](https://products.checkmycream.com/products/Banana-Republic-Rosewood-by-Banana-Republic-For-Women.-Eau-De-Parfum-Spray-3.4-Ounces.html)
 
 ### Positive Reviews

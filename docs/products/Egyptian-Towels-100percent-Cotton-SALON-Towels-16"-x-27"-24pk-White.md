@@ -1,12 +1,3 @@
----
-title: Egyptian Towels 100% Cotton SALON Towels 16” x 27”, 24pk White,
-description: Egyptian Towels 100% Cotton SALON Towels 16” x 27”, 24pk White,
-author: Suvojit Manna,
-tags: Egyptian Towels 100% Cotton SALON Towels 16” x 27”, 24pk White,
-publishedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
----
-
 # [Egyptian Towels 100% Cotton SALON Towels 16” x 27”, 24pk White](https://products.checkmycream.com/products/Egyptian-Towels-100percent-Cotton-SALON-Towels-16&quot;-x-27&quot;-24pk-White.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Matrix Total Results Sleek set Shampoo 10.1 and Conditioner 10.1oz &amp; Silk Wonder Oil 1oz,
-description: Matrix Total Results Sleek set Shampoo 10.1 and Conditioner 10.1oz &amp; Silk Wonder Oil 1oz,
-author: Suvojit Manna,
-tags: Matrix Total Results Sleek set Shampoo 10.1 and Conditioner 10.1oz &amp; Silk Wonder Oil 1oz,
-publishedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
----
-
 # [Matrix Total Results Sleek set Shampoo 10.1 and Conditioner 10.1oz &amp; Silk Wonder Oil 1oz](https://products.checkmycream.com/products/Matrix-Total-Results-Sleek-set-Shampoo-10.1-and-Conditioner-10.1oz-and-Silk-Wonder-Oil-1oz.html)
 
 ### Positive Reviews

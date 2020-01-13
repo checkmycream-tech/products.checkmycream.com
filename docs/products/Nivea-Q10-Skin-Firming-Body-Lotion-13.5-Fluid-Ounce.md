@@ -1,12 +1,3 @@
----
-title: Nivea Q10 Skin Firming Body Lotion , 13.5 Fluid Ounce,
-description: Nivea Q10 Skin Firming Body Lotion , 13.5 Fluid Ounce,
-author: Suvojit Manna,
-tags: Nivea Q10 Skin Firming Body Lotion , 13.5 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 15:00:12 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:12 GMT+0530 (India Standard Time),
----
-
 # [Nivea Q10 Skin Firming Body Lotion , 13.5 Fluid Ounce](https://products.checkmycream.com/products/Nivea-Q10-Skin-Firming-Body-Lotion-13.5-Fluid-Ounce.html)
 
 ### Positive Reviews

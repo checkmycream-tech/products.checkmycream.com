@@ -1,12 +1,3 @@
----
-title: Aloe Vella - 10 Ayur Skin Renewal Cream Sample Pouches - Natural Anti-Aging,
-description: Aloe Vella - 10 Ayur Skin Renewal Cream Sample Pouches - Natural Anti-Aging,
-author: Suvojit Manna,
-tags: Aloe Vella - 10 Ayur Skin Renewal Cream Sample Pouches - Natural Anti-Aging,
-publishedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
----
-
 # [Aloe Vella - 10 Ayur Skin Renewal Cream Sample Pouches - Natural Anti-Aging](https://products.checkmycream.com/products/Aloe-Vella-10-Ayur-Skin-Renewal-Cream-Sample-Pouches-Natural-Anti-Aging.html)
 
 ### Positive Reviews

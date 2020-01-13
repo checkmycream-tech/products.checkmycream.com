@@ -1,12 +1,3 @@
----
-title: Magnetic Labret Nose or Ear Stud,
-description: Magnetic Labret Nose or Ear Stud,
-author: Suvojit Manna,
-tags: Magnetic Labret Nose or Ear Stud,
-publishedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
----
-
 # [Magnetic Labret Nose or Ear Stud](https://products.checkmycream.com/products/Magnetic-Labret-Nose-or-Ear-Stud.html)
 
 ### Positive Reviews

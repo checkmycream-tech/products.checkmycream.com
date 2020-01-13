@@ -1,12 +1,3 @@
----
-title: Vintage Rtro Pink Peach Heart Angle Wing Long Sweater Chain Coating Necklace Hot,
-description: Vintage Rtro Pink Peach Heart Angle Wing Long Sweater Chain Coating Necklace Hot,
-author: Suvojit Manna,
-tags: Vintage Rtro Pink Peach Heart Angle Wing Long Sweater Chain Coating Necklace Hot,
-publishedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
----
-
 # [Vintage Rtro Pink Peach Heart Angle Wing Long Sweater Chain Coating Necklace Hot](https://products.checkmycream.com/products/Vintage-Rtro-Pink-Peach-Heart-Angle-Wing-Long-Sweater-Chain-Coating-Necklace-Hot.html)
 
 ### Positive Reviews

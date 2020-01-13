@@ -1,12 +1,3 @@
----
-title: Revitol Eye Cream 15ml [Misc.],
-description: Revitol Eye Cream 15ml [Misc.],
-author: Suvojit Manna,
-tags: Revitol Eye Cream 15ml [Misc.],
-publishedAt: Fri Jan 10 2020 15:00:10 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:10 GMT+0530 (India Standard Time),
----
-
 # [Revitol Eye Cream 15ml [Misc.]](https://products.checkmycream.com/products/Revitol-Eye-Cream-15ml-Misc..html)
 
 ### Positive Reviews

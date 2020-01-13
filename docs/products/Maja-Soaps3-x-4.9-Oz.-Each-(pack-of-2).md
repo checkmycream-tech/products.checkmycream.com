@@ -1,12 +1,3 @@
----
-title: Maja Soaps,3 x 4.9 Oz. Each (pack of 2),
-description: Maja Soaps,3 x 4.9 Oz. Each (pack of 2),
-author: Suvojit Manna,
-tags: Maja Soaps,3 x 4.9 Oz. Each (pack of 2),
-publishedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
----
-
 # [Maja Soaps,3 x 4.9 Oz. Each (pack of 2)](https://products.checkmycream.com/products/Maja-Soaps3-x-4.9-Oz.-Each-(pack-of-2).html)
 
 ### Positive Reviews

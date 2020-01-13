@@ -1,12 +1,3 @@
----
-title: TOOPOOT® Sleeping Owl Polka Dots Silicone Case For LG G2,
-description: TOOPOOT® Sleeping Owl Polka Dots Silicone Case For LG G2,
-author: Suvojit Manna,
-tags: TOOPOOT® Sleeping Owl Polka Dots Silicone Case For LG G2,
-publishedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
----
-
 # [TOOPOOT® Sleeping Owl Polka Dots Silicone Case For LG G2](https://products.checkmycream.com/products/TOOPOOT(r)-Sleeping-Owl-Polka-Dots-Silicone-Case-For-LG-G2.html)
 
 ### Positive Reviews

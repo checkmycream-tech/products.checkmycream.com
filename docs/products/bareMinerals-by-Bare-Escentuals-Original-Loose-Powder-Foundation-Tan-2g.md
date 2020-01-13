@@ -1,12 +1,3 @@
----
-title: bareMinerals by Bare Escentuals Original Loose Powder Foundation, Tan 2g,
-description: bareMinerals by Bare Escentuals Original Loose Powder Foundation, Tan 2g,
-author: Suvojit Manna,
-tags: bareMinerals by Bare Escentuals Original Loose Powder Foundation, Tan 2g,
-publishedAt: Fri Jan 10 2020 14:59:28 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:28 GMT+0530 (India Standard Time),
----
-
 # [bareMinerals by Bare Escentuals Original Loose Powder Foundation, Tan 2g](https://products.checkmycream.com/products/bareMinerals-by-Bare-Escentuals-Original-Loose-Powder-Foundation-Tan-2g.html)
 
 ### Positive Reviews

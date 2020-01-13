@@ -1,12 +1,3 @@
----
-title: Nail Art Water Butterfly Water Nail Art Decal / Tattoo / Sticker by RayLineDo,
-description: Nail Art Water Butterfly Water Nail Art Decal / Tattoo / Sticker by RayLineDo,
-author: Suvojit Manna,
-tags: Nail Art Water Butterfly Water Nail Art Decal / Tattoo / Sticker by RayLineDo,
-publishedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
----
-
 # [Nail Art Water Butterfly Water Nail Art Decal / Tattoo / Sticker by RayLineDo](https://products.checkmycream.com/products/Nail-Art-Water-Butterfly-Water-Nail-Art-Decal-Tattoo-Sticker-by-RayLineDo.html)
 
 ### Positive Reviews

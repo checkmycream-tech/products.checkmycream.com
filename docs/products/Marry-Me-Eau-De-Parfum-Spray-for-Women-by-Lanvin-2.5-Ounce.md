@@ -1,12 +1,3 @@
----
-title: Marry Me Eau De Parfum Spray for Women by Lanvin, 2.5 Ounce,
-description: Marry Me Eau De Parfum Spray for Women by Lanvin, 2.5 Ounce,
-author: Suvojit Manna,
-tags: Marry Me Eau De Parfum Spray for Women by Lanvin, 2.5 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:56 GMT+0530 (India Standard Time),
----
-
 # [Marry Me Eau De Parfum Spray for Women by Lanvin, 2.5 Ounce](https://products.checkmycream.com/products/Marry-Me-Eau-De-Parfum-Spray-for-Women-by-Lanvin-2.5-Ounce.html)
 
 ### Positive Reviews

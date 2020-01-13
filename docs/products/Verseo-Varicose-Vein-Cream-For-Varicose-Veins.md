@@ -1,12 +1,3 @@
----
-title: Verseo Varicose Vein Cream For Varicose Veins,
-description: Verseo Varicose Vein Cream For Varicose Veins,
-author: Suvojit Manna,
-tags: Verseo Varicose Vein Cream For Varicose Veins,
-publishedAt: Fri Jan 10 2020 14:59:43 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:43 GMT+0530 (India Standard Time),
----
-
 # [Verseo Varicose Vein Cream For Varicose Veins](https://products.checkmycream.com/products/Verseo-Varicose-Vein-Cream-For-Varicose-Veins.html)
 
 ### Positive Reviews

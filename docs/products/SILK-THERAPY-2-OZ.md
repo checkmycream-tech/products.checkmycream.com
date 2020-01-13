@@ -1,12 +1,3 @@
----
-title: SILK THERAPY 2 OZ,
-description: SILK THERAPY 2 OZ,
-author: Suvojit Manna,
-tags: SILK THERAPY 2 OZ,
-publishedAt: Fri Jan 10 2020 14:59:10 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:10 GMT+0530 (India Standard Time),
----
-
 # [SILK THERAPY 2 OZ](https://products.checkmycream.com/products/SILK-THERAPY-2-OZ.html)
 
 ### Positive Reviews

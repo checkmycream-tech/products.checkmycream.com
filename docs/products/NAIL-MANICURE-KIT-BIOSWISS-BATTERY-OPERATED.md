@@ -1,12 +1,3 @@
----
-title: NAIL MANICURE KIT BIOSWISS BATTERY OPERATED,
-description: NAIL MANICURE KIT BIOSWISS BATTERY OPERATED,
-author: Suvojit Manna,
-tags: NAIL MANICURE KIT BIOSWISS BATTERY OPERATED,
-publishedAt: Fri Jan 10 2020 15:00:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:03 GMT+0530 (India Standard Time),
----
-
 # [NAIL MANICURE KIT BIOSWISS BATTERY OPERATED](https://products.checkmycream.com/products/NAIL-MANICURE-KIT-BIOSWISS-BATTERY-OPERATED.html)
 
 ### Positive Reviews

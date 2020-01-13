@@ -1,12 +1,3 @@
----
-title: New White Stole Wrap Shawl Bridal Accessory Wedding Evening Party Prom Dress by Unknown,
-description: New White Stole Wrap Shawl Bridal Accessory Wedding Evening Party Prom Dress by Unknown,
-author: Suvojit Manna,
-tags: New White Stole Wrap Shawl Bridal Accessory Wedding Evening Party Prom Dress by Unknown,
-publishedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
----
-
 # [New White Stole Wrap Shawl Bridal Accessory Wedding Evening Party Prom Dress by Unknown](https://products.checkmycream.com/products/New-White-Stole-Wrap-Shawl-Bridal-Accessory-Wedding-Evening-Party-Prom-Dress-by-Unknown.html)
 
 ### Positive Reviews

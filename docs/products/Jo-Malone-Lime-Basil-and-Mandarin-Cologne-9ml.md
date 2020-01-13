@@ -1,12 +1,3 @@
----
-title: Jo Malone Lime, Basil and Mandarin Cologne 9ml,
-description: Jo Malone Lime, Basil and Mandarin Cologne 9ml,
-author: Suvojit Manna,
-tags: Jo Malone Lime, Basil and Mandarin Cologne 9ml,
-publishedAt: Fri Jan 10 2020 14:58:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:58:57 GMT+0530 (India Standard Time),
----
-
 # [Jo Malone Lime, Basil and Mandarin Cologne 9ml](https://products.checkmycream.com/products/Jo-Malone-Lime-Basil-and-Mandarin-Cologne-9ml.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: OPI Skyfall Collection -Die Another Day,
-description: OPI Skyfall Collection -Die Another Day,
-author: Suvojit Manna,
-tags: OPI Skyfall Collection -Die Another Day,
-publishedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
----
-
 # [OPI Skyfall Collection -Die Another Day](https://products.checkmycream.com/products/OPI-Skyfall-Collection-Die-Another-Day.html)
 
 ### Positive Reviews

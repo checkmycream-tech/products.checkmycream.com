@@ -1,12 +1,3 @@
----
-title: Bar Soap,
-description: Bar Soap,
-author: Suvojit Manna,
-tags: Bar Soap,
-publishedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
----
-
 # [Bar Soap](https://products.checkmycream.com/products/Bar-Soap.html)
 
 ### Positive Reviews

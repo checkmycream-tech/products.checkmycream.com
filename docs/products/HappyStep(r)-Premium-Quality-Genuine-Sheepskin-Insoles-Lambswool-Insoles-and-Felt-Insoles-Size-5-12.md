@@ -1,12 +1,3 @@
----
-title: HappyStep® Premium Quality Genuine Sheepskin Insoles, Lambswool Insoles and Felt Insoles - Size 5-12,
-description: HappyStep® Premium Quality Genuine Sheepskin Insoles, Lambswool Insoles and Felt Insoles - Size 5-12,
-author: Suvojit Manna,
-tags: HappyStep® Premium Quality Genuine Sheepskin Insoles, Lambswool Insoles and Felt Insoles - Size 5-12,
-publishedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
----
-
 # [HappyStep® Premium Quality Genuine Sheepskin Insoles, Lambswool Insoles and Felt Insoles - Size 5-12](https://products.checkmycream.com/products/HappyStep(r)-Premium-Quality-Genuine-Sheepskin-Insoles-Lambswool-Insoles-and-Felt-Insoles-Size-5-12.html)
 
 ### Positive Reviews

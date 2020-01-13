@@ -1,12 +1,3 @@
----
-title: Zoya Matte Nail Polish Velvet Limit Edition (Posh - ZP500),
-description: Zoya Matte Nail Polish Velvet Limit Edition (Posh - ZP500),
-author: Suvojit Manna,
-tags: Zoya Matte Nail Polish Velvet Limit Edition (Posh - ZP500),
-publishedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
----
-
 # [Zoya Matte Nail Polish Velvet Limit Edition (Posh - ZP500)](https://products.checkmycream.com/products/Zoya-Matte-Nail-Polish-Velvet-Limit-Edition-(Posh-ZP500).html)
 
 ### Positive Reviews

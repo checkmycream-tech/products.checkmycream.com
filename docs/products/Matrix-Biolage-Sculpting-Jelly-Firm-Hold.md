@@ -1,12 +1,3 @@
----
-title: Matrix Biolage Sculpting Jelly- Firm Hold,
-description: Matrix Biolage Sculpting Jelly- Firm Hold,
-author: Suvojit Manna,
-tags: Matrix Biolage Sculpting Jelly- Firm Hold,
-publishedAt: Fri Jan 10 2020 14:59:23 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:23 GMT+0530 (India Standard Time),
----
-
 # [Matrix Biolage Sculpting Jelly- Firm Hold](https://products.checkmycream.com/products/Matrix-Biolage-Sculpting-Jelly-Firm-Hold.html)
 
 ### Positive Reviews

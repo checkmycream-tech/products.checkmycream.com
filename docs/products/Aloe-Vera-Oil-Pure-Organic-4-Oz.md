@@ -1,12 +1,3 @@
----
-title: Aloe Vera Oil Pure Organic 4 Oz,
-description: Aloe Vera Oil Pure Organic 4 Oz,
-author: Suvojit Manna,
-tags: Aloe Vera Oil Pure Organic 4 Oz,
-publishedAt: Fri Jan 10 2020 15:00:15 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:15 GMT+0530 (India Standard Time),
----
-
 # [Aloe Vera Oil Pure Organic 4 Oz](https://products.checkmycream.com/products/Aloe-Vera-Oil-Pure-Organic-4-Oz.html)
 
 ### Positive Reviews

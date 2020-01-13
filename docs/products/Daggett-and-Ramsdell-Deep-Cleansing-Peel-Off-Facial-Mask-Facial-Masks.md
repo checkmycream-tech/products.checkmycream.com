@@ -1,12 +1,3 @@
----
-title: Daggett &amp; Ramsdell Deep Cleansing Peel Off Facial Mask Facial Masks,
-description: Daggett &amp; Ramsdell Deep Cleansing Peel Off Facial Mask Facial Masks,
-author: Suvojit Manna,
-tags: Daggett &amp; Ramsdell Deep Cleansing Peel Off Facial Mask Facial Masks,
-publishedAt: Fri Jan 10 2020 14:58:59 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:58:59 GMT+0530 (India Standard Time),
----
-
 # [Daggett &amp; Ramsdell Deep Cleansing Peel Off Facial Mask Facial Masks](https://products.checkmycream.com/products/Daggett-and-Ramsdell-Deep-Cleansing-Peel-Off-Facial-Mask-Facial-Masks.html)
 
 ### Positive Reviews

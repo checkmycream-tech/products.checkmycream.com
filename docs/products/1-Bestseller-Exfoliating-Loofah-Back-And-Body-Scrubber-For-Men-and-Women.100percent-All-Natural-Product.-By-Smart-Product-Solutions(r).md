@@ -1,12 +1,3 @@
----
-title: #1 Bestseller Exfoliating Loofah Back And Body Scrubber For Men and Women.100% All Natural Product. By Smart Product Solutions®,
-description: #1 Bestseller Exfoliating Loofah Back And Body Scrubber For Men and Women.100% All Natural Product. By Smart Product Solutions®,
-author: Suvojit Manna,
-tags: #1 Bestseller Exfoliating Loofah Back And Body Scrubber For Men and Women.100% All Natural Product. By Smart Product Solutions®,
-publishedAt: Fri Jan 10 2020 15:01:07 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:07 GMT+0530 (India Standard Time),
----
-
 # [#1 Bestseller Exfoliating Loofah Back And Body Scrubber For Men and Women.100% All Natural Product. By Smart Product Solutions®](https://products.checkmycream.com/products/1-Bestseller-Exfoliating-Loofah-Back-And-Body-Scrubber-For-Men-and-Women.100percent-All-Natural-Product.-By-Smart-Product-Solutions(r).html)
 
 ### Positive Reviews

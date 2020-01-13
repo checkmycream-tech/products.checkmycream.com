@@ -1,12 +1,3 @@
----
-title: Lady Million Paco Rabanne Eau De Parfum Spray for Women,
-description: Lady Million Paco Rabanne Eau De Parfum Spray for Women,
-author: Suvojit Manna,
-tags: Lady Million Paco Rabanne Eau De Parfum Spray for Women,
-publishedAt: Fri Jan 10 2020 14:59:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:55 GMT+0530 (India Standard Time),
----
-
 # [Lady Million Paco Rabanne Eau De Parfum Spray for Women](https://products.checkmycream.com/products/Lady-Million-Paco-Rabanne-Eau-De-Parfum-Spray-for-Women.html)
 
 ### Positive Reviews

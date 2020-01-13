@@ -1,12 +1,3 @@
----
-title: Smashbox Photo Finish Foundation SPF 20 with Dermaxyl Primer, 1 Ounce,
-description: Smashbox Photo Finish Foundation SPF 20 with Dermaxyl Primer, 1 Ounce,
-author: Suvojit Manna,
-tags: Smashbox Photo Finish Foundation SPF 20 with Dermaxyl Primer, 1 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:38 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:38 GMT+0530 (India Standard Time),
----
-
 # [Smashbox Photo Finish Foundation SPF 20 with Dermaxyl Primer, 1 Ounce](https://products.checkmycream.com/products/Smashbox-Photo-Finish-Foundation-SPF-20-with-Dermaxyl-Primer-1-Ounce.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: 8 Pieces Nose Rings Bone Screw, Nose Gem 20G comes with 1 Nose Retainer,
-description: 8 Pieces Nose Rings Bone Screw, Nose Gem 20G comes with 1 Nose Retainer,
-author: Suvojit Manna,
-tags: 8 Pieces Nose Rings Bone Screw, Nose Gem 20G comes with 1 Nose Retainer,
-publishedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
----
-
 # [8 Pieces Nose Rings Bone Screw, Nose Gem 20G comes with 1 Nose Retainer](https://products.checkmycream.com/products/8-Pieces-Nose-Rings-Bone-Screw-Nose-Gem-20G-comes-with-1-Nose-Retainer.html)
 
 ### Positive Reviews

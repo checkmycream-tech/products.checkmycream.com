@@ -1,12 +1,3 @@
----
-title: CoverGirl Outlast All Day Lipcolor, 2 Pieces 1 ea,
-description: CoverGirl Outlast All Day Lipcolor, 2 Pieces 1 ea,
-author: Suvojit Manna,
-tags: CoverGirl Outlast All Day Lipcolor, 2 Pieces 1 ea,
-publishedAt: Fri Jan 10 2020 14:59:45 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:45 GMT+0530 (India Standard Time),
----
-
 # [CoverGirl Outlast All Day Lipcolor, 2 Pieces 1 ea](https://products.checkmycream.com/products/CoverGirl-Outlast-All-Day-Lipcolor-2-Pieces-1-ea.html)
 
 ### Positive Reviews

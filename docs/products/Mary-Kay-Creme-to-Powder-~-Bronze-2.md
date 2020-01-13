@@ -1,12 +1,3 @@
----
-title: Mary Kay Creme-to-Powder ~ Bronze 2,
-description: Mary Kay Creme-to-Powder ~ Bronze 2,
-author: Suvojit Manna,
-tags: Mary Kay Creme-to-Powder ~ Bronze 2,
-publishedAt: Fri Jan 10 2020 14:59:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:55 GMT+0530 (India Standard Time),
----
-
 # [Mary Kay Creme-to-Powder ~ Bronze 2](https://products.checkmycream.com/products/Mary-Kay-Creme-to-Powder-~-Bronze-2.html)
 
 ### Positive Reviews

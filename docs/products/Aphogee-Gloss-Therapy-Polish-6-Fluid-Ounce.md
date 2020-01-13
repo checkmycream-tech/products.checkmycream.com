@@ -1,12 +1,3 @@
----
-title: Aphogee Gloss Therapy Polish, 6 Fluid Ounce,
-description: Aphogee Gloss Therapy Polish, 6 Fluid Ounce,
-author: Suvojit Manna,
-tags: Aphogee Gloss Therapy Polish, 6 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 14:59:52 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:52 GMT+0530 (India Standard Time),
----
-
 # [Aphogee Gloss Therapy Polish, 6 Fluid Ounce](https://products.checkmycream.com/products/Aphogee-Gloss-Therapy-Polish-6-Fluid-Ounce.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Physicians Formula Plump Potion Needle-Free Lip Plumping Cocktail Shade Extension, Pink Rose Potion, 0.1 Ounce,
-description: Physicians Formula Plump Potion Needle-Free Lip Plumping Cocktail Shade Extension, Pink Rose Potion, 0.1 Ounce,
-author: Suvojit Manna,
-tags: Physicians Formula Plump Potion Needle-Free Lip Plumping Cocktail Shade Extension, Pink Rose Potion, 0.1 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:06 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:06 GMT+0530 (India Standard Time),
----
-
 # [Physicians Formula Plump Potion Needle-Free Lip Plumping Cocktail Shade Extension, Pink Rose Potion, 0.1 Ounce](https://products.checkmycream.com/products/Physicians-Formula-Plump-Potion-Needle-Free-Lip-Plumping-Cocktail-Shade-Extension-Pink-Rose-Potion-0.1-Ounce.html)
 
 ### Positive Reviews

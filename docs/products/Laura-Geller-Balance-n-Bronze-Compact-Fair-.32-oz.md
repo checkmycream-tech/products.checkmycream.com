@@ -1,12 +1,3 @@
----
-title: Laura Geller Balance-n-Bronze Compact, Fair, .32 oz,
-description: Laura Geller Balance-n-Bronze Compact, Fair, .32 oz,
-author: Suvojit Manna,
-tags: Laura Geller Balance-n-Bronze Compact, Fair, .32 oz,
-publishedAt: Fri Jan 10 2020 14:59:37 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:37 GMT+0530 (India Standard Time),
----
-
 # [Laura Geller Balance-n-Bronze Compact, Fair, .32 oz](https://products.checkmycream.com/products/Laura-Geller-Balance-n-Bronze-Compact-Fair-.32-oz.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: CND Shellac French Manicure Kit Coat Color Nail Polish Gel White Pink Pedicure,
-description: CND Shellac French Manicure Kit Coat Color Nail Polish Gel White Pink Pedicure,
-author: Suvojit Manna,
-tags: CND Shellac French Manicure Kit Coat Color Nail Polish Gel White Pink Pedicure,
-publishedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
----
-
 # [CND Shellac French Manicure Kit Coat Color Nail Polish Gel White Pink Pedicure](https://products.checkmycream.com/products/CND-Shellac-French-Manicure-Kit-Coat-Color-Nail-Polish-Gel-White-Pink-Pedicure.html)
 
 ### Positive Reviews

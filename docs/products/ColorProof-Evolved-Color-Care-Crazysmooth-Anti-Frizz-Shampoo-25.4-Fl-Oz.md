@@ -1,12 +1,3 @@
----
-title: ColorProof Evolved Color Care Crazysmooth Anti-Frizz Shampoo, 25.4 Fl Oz,
-description: ColorProof Evolved Color Care Crazysmooth Anti-Frizz Shampoo, 25.4 Fl Oz,
-author: Suvojit Manna,
-tags: ColorProof Evolved Color Care Crazysmooth Anti-Frizz Shampoo, 25.4 Fl Oz,
-publishedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
----
-
 # [ColorProof Evolved Color Care Crazysmooth Anti-Frizz Shampoo, 25.4 Fl Oz](https://products.checkmycream.com/products/ColorProof-Evolved-Color-Care-Crazysmooth-Anti-Frizz-Shampoo-25.4-Fl-Oz.html)
 
 ### Positive Reviews

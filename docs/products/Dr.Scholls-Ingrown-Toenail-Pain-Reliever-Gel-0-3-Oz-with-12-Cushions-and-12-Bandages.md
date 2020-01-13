@@ -1,12 +1,3 @@
----
-title: Dr.Scholls Ingrown Toenail Pain Reliever Gel - 0 3 Oz with 12 Cushions &amp; 12 Bandages,
-description: Dr.Scholls Ingrown Toenail Pain Reliever Gel - 0 3 Oz with 12 Cushions &amp; 12 Bandages,
-author: Suvojit Manna,
-tags: Dr.Scholls Ingrown Toenail Pain Reliever Gel - 0 3 Oz with 12 Cushions &amp; 12 Bandages,
-publishedAt: Fri Jan 10 2020 14:59:11 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:11 GMT+0530 (India Standard Time),
----
-
 # [Dr.Scholls Ingrown Toenail Pain Reliever Gel - 0 3 Oz with 12 Cushions &amp; 12 Bandages](https://products.checkmycream.com/products/Dr.Scholls-Ingrown-Toenail-Pain-Reliever-Gel-0-3-Oz-with-12-Cushions-and-12-Bandages.html)
 
 ### Positive Reviews

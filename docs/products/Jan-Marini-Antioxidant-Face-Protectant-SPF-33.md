@@ -1,12 +1,3 @@
----
-title: Jan Marini Antioxidant Face Protectant SPF 33,
-description: Jan Marini Antioxidant Face Protectant SPF 33,
-author: Suvojit Manna,
-tags: Jan Marini Antioxidant Face Protectant SPF 33,
-publishedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
----
-
 # [Jan Marini Antioxidant Face Protectant SPF 33](https://products.checkmycream.com/products/Jan-Marini-Antioxidant-Face-Protectant-SPF-33.html)
 
 ### Positive Reviews

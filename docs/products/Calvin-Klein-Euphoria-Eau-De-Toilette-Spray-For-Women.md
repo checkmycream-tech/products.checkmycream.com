@@ -1,12 +1,3 @@
----
-title: Calvin Klein Euphoria Eau De Toilette Spray For Women,
-description: Calvin Klein Euphoria Eau De Toilette Spray For Women,
-author: Suvojit Manna,
-tags: Calvin Klein Euphoria Eau De Toilette Spray For Women,
-publishedAt: Fri Jan 10 2020 14:59:59 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:59 GMT+0530 (India Standard Time),
----
-
 # [Calvin Klein Euphoria Eau De Toilette Spray For Women](https://products.checkmycream.com/products/Calvin-Klein-Euphoria-Eau-De-Toilette-Spray-For-Women.html)
 
 ### Positive Reviews

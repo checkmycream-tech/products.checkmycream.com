@@ -1,12 +1,3 @@
----
-title: Super PoliGrip Denture Adhesive Cream 0.75 oz (3 pack),
-description: Super PoliGrip Denture Adhesive Cream 0.75 oz (3 pack),
-author: Suvojit Manna,
-tags: Super PoliGrip Denture Adhesive Cream 0.75 oz (3 pack),
-publishedAt: Fri Jan 10 2020 15:00:04 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:04 GMT+0530 (India Standard Time),
----
-
 # [Super PoliGrip Denture Adhesive Cream 0.75 oz (3 pack)](https://products.checkmycream.com/products/Super-PoliGrip-Denture-Adhesive-Cream-0.75-oz-(3-pack).html)
 
 ### Positive Reviews

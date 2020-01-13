@@ -1,12 +1,3 @@
----
-title: Lady Stetson By Coty For Women. Cologne Spray 1.0 Oz / 30 Ml.,
-description: Lady Stetson By Coty For Women. Cologne Spray 1.0 Oz / 30 Ml.,
-author: Suvojit Manna,
-tags: Lady Stetson By Coty For Women. Cologne Spray 1.0 Oz / 30 Ml.,
-publishedAt: Fri Jan 10 2020 14:59:32 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:32 GMT+0530 (India Standard Time),
----
-
 # [Lady Stetson By Coty For Women. Cologne Spray 1.0 Oz / 30 Ml.](https://products.checkmycream.com/products/Lady-Stetson-By-Coty-For-Women.-Cologne-Spray-1.0-Oz-30-Ml..html)
 
 ### Positive Reviews

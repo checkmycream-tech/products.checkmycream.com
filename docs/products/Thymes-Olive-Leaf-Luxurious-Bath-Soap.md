@@ -1,12 +1,3 @@
----
-title: Thymes Olive Leaf Luxurious Bath Soap,
-description: Thymes Olive Leaf Luxurious Bath Soap,
-author: Suvojit Manna,
-tags: Thymes Olive Leaf Luxurious Bath Soap,
-publishedAt: Fri Jan 10 2020 14:59:30 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:30 GMT+0530 (India Standard Time),
----
-
 # [Thymes Olive Leaf Luxurious Bath Soap](https://products.checkmycream.com/products/Thymes-Olive-Leaf-Luxurious-Bath-Soap.html)
 
 ### Positive Reviews

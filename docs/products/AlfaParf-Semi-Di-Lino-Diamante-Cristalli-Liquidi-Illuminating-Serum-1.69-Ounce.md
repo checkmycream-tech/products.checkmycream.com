@@ -1,12 +1,3 @@
----
-title: AlfaParf Semi Di Lino Diamante Cristalli Liquidi Illuminating Serum, 1.69 Ounce,
-description: AlfaParf Semi Di Lino Diamante Cristalli Liquidi Illuminating Serum, 1.69 Ounce,
-author: Suvojit Manna,
-tags: AlfaParf Semi Di Lino Diamante Cristalli Liquidi Illuminating Serum, 1.69 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:14 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:14 GMT+0530 (India Standard Time),
----
-
 # [AlfaParf Semi Di Lino Diamante Cristalli Liquidi Illuminating Serum, 1.69 Ounce](https://products.checkmycream.com/products/AlfaParf-Semi-Di-Lino-Diamante-Cristalli-Liquidi-Illuminating-Serum-1.69-Ounce.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: 12 Pack Multi Colored Swirlydo Hair Ties,
-description: 12 Pack Multi Colored Swirlydo Hair Ties,
-author: Suvojit Manna,
-tags: 12 Pack Multi Colored Swirlydo Hair Ties,
-publishedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
----
-
 # [12 Pack Multi Colored Swirlydo Hair Ties](https://products.checkmycream.com/products/12-Pack-Multi-Colored-Swirlydo-Hair-Ties.html)
 
 ### Positive Reviews

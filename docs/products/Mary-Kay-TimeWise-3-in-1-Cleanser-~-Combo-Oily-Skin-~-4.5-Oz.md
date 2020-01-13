@@ -1,12 +1,3 @@
----
-title: Mary Kay TimeWise 3-in-1 Cleanser ~ Combo - Oily Skin ~ 4.5 Oz,
-description: Mary Kay TimeWise 3-in-1 Cleanser ~ Combo - Oily Skin ~ 4.5 Oz,
-author: Suvojit Manna,
-tags: Mary Kay TimeWise 3-in-1 Cleanser ~ Combo - Oily Skin ~ 4.5 Oz,
-publishedAt: Fri Jan 10 2020 14:59:51 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:51 GMT+0530 (India Standard Time),
----
-
 # [Mary Kay TimeWise 3-in-1 Cleanser ~ Combo - Oily Skin ~ 4.5 Oz](https://products.checkmycream.com/products/Mary-Kay-TimeWise-3-in-1-Cleanser-~-Combo-Oily-Skin-~-4.5-Oz.html)
 
 ### Positive Reviews

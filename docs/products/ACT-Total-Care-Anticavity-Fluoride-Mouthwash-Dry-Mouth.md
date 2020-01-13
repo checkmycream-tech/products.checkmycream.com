@@ -1,12 +1,3 @@
----
-title: ACT Total Care Anticavity Fluoride Mouthwash Dry Mouth,
-description: ACT Total Care Anticavity Fluoride Mouthwash Dry Mouth,
-author: Suvojit Manna,
-tags: ACT Total Care Anticavity Fluoride Mouthwash Dry Mouth,
-publishedAt: Fri Jan 10 2020 15:00:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:05 GMT+0530 (India Standard Time),
----
-
 # [ACT Total Care Anticavity Fluoride Mouthwash Dry Mouth](https://products.checkmycream.com/products/ACT-Total-Care-Anticavity-Fluoride-Mouthwash-Dry-Mouth.html)
 
 ### Positive Reviews

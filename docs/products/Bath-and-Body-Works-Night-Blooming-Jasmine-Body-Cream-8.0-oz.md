@@ -1,12 +1,3 @@
----
-title: Bath &amp; Body Works Night Blooming Jasmine Body Cream 8.0 oz,
-description: Bath &amp; Body Works Night Blooming Jasmine Body Cream 8.0 oz,
-author: Suvojit Manna,
-tags: Bath &amp; Body Works Night Blooming Jasmine Body Cream 8.0 oz,
-publishedAt: Fri Jan 10 2020 14:59:16 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:16 GMT+0530 (India Standard Time),
----
-
 # [Bath &amp; Body Works Night Blooming Jasmine Body Cream 8.0 oz](https://products.checkmycream.com/products/Bath-and-Body-Works-Night-Blooming-Jasmine-Body-Cream-8.0-oz.html)
 
 ### Positive Reviews

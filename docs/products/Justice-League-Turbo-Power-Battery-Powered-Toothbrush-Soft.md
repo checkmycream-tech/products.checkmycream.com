@@ -1,12 +1,3 @@
----
-title: Justice League Turbo Power Battery Powered Toothbrush Soft,
-description: Justice League Turbo Power Battery Powered Toothbrush Soft,
-author: Suvojit Manna,
-tags: Justice League Turbo Power Battery Powered Toothbrush Soft,
-publishedAt: Fri Jan 10 2020 15:00:17 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:17 GMT+0530 (India Standard Time),
----
-
 # [Justice League Turbo Power Battery Powered Toothbrush Soft](https://products.checkmycream.com/products/Justice-League-Turbo-Power-Battery-Powered-Toothbrush-Soft.html)
 
 ### Positive Reviews

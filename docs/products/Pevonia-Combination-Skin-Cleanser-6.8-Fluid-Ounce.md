@@ -1,12 +1,3 @@
----
-title: Pevonia Combination Skin Cleanser, 6.8 Fluid Ounce,
-description: Pevonia Combination Skin Cleanser, 6.8 Fluid Ounce,
-author: Suvojit Manna,
-tags: Pevonia Combination Skin Cleanser, 6.8 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 14:59:24 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:24 GMT+0530 (India Standard Time),
----
-
 # [Pevonia Combination Skin Cleanser, 6.8 Fluid Ounce](https://products.checkmycream.com/products/Pevonia-Combination-Skin-Cleanser-6.8-Fluid-Ounce.html)
 
 ### Positive Reviews

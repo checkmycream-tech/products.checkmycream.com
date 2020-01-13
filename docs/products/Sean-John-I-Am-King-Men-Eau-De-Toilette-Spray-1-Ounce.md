@@ -1,12 +1,3 @@
----
-title: Sean John I Am King Men Eau De Toilette Spray, 1 Ounce,
-description: Sean John I Am King Men Eau De Toilette Spray, 1 Ounce,
-author: Suvojit Manna,
-tags: Sean John I Am King Men Eau De Toilette Spray, 1 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:44 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:44 GMT+0530 (India Standard Time),
----
-
 # [Sean John I Am King Men Eau De Toilette Spray, 1 Ounce](https://products.checkmycream.com/products/Sean-John-I-Am-King-Men-Eau-De-Toilette-Spray-1-Ounce.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: NYX Round Case Lipstick Lip Cream 503 Medusa,
-description: NYX Round Case Lipstick Lip Cream 503 Medusa,
-author: Suvojit Manna,
-tags: NYX Round Case Lipstick Lip Cream 503 Medusa,
-publishedAt: Fri Jan 10 2020 14:59:47 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:47 GMT+0530 (India Standard Time),
----
-
 # [NYX Round Case Lipstick Lip Cream 503 Medusa](https://products.checkmycream.com/products/NYX-Round-Case-Lipstick-Lip-Cream-503-Medusa.html)
 
 ### Positive Reviews

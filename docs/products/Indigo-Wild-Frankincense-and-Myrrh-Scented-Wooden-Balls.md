@@ -1,12 +1,3 @@
----
-title: Indigo Wild Frankincense and Myrrh Scented Wooden Balls,
-description: Indigo Wild Frankincense and Myrrh Scented Wooden Balls,
-author: Suvojit Manna,
-tags: Indigo Wild Frankincense and Myrrh Scented Wooden Balls,
-publishedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
----
-
 # [Indigo Wild Frankincense and Myrrh Scented Wooden Balls](https://products.checkmycream.com/products/Indigo-Wild-Frankincense-and-Myrrh-Scented-Wooden-Balls.html)
 
 ### Positive Reviews

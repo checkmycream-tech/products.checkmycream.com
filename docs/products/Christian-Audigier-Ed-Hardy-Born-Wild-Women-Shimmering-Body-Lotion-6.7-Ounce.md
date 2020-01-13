@@ -1,12 +1,3 @@
----
-title: Christian Audigier Ed Hardy Born Wild Women Shimmering Body Lotion, 6.7 Ounce,
-description: Christian Audigier Ed Hardy Born Wild Women Shimmering Body Lotion, 6.7 Ounce,
-author: Suvojit Manna,
-tags: Christian Audigier Ed Hardy Born Wild Women Shimmering Body Lotion, 6.7 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:09 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:09 GMT+0530 (India Standard Time),
----
-
 # [Christian Audigier Ed Hardy Born Wild Women Shimmering Body Lotion, 6.7 Ounce](https://products.checkmycream.com/products/Christian-Audigier-Ed-Hardy-Born-Wild-Women-Shimmering-Body-Lotion-6.7-Ounce.html)
 
 ### Positive Reviews

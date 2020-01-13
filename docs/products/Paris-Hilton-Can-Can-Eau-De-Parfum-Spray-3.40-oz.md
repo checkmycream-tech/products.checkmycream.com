@@ -1,12 +1,3 @@
----
-title: Paris Hilton Can Can Eau De Parfum Spray 3.40 oz,
-description: Paris Hilton Can Can Eau De Parfum Spray 3.40 oz,
-author: Suvojit Manna,
-tags: Paris Hilton Can Can Eau De Parfum Spray 3.40 oz,
-publishedAt: Fri Jan 10 2020 14:59:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:57 GMT+0530 (India Standard Time),
----
-
 # [Paris Hilton Can Can Eau De Parfum Spray 3.40 oz](https://products.checkmycream.com/products/Paris-Hilton-Can-Can-Eau-De-Parfum-Spray-3.40-oz.html)
 
 ### Positive Reviews

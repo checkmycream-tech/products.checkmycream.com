@@ -1,12 +1,3 @@
----
-title: 132 CND - VINYLUX NEGLIGEE Weekly Polish Nail Light Pink Color Manicure 0.5oz,
-description: 132 CND - VINYLUX NEGLIGEE Weekly Polish Nail Light Pink Color Manicure 0.5oz,
-author: Suvojit Manna,
-tags: 132 CND - VINYLUX NEGLIGEE Weekly Polish Nail Light Pink Color Manicure 0.5oz,
-publishedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
----
-
 # [132 CND - VINYLUX NEGLIGEE Weekly Polish Nail Light Pink Color Manicure 0.5oz](https://products.checkmycream.com/products/132-CND-VINYLUX-NEGLIGEE-Weekly-Polish-Nail-Light-Pink-Color-Manicure-0.5oz.html)
 
 ### Positive Reviews

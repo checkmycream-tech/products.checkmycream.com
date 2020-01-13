@@ -1,12 +1,3 @@
----
-title: Pecksniff&#x27;s Hand Wash and Body Lotion Set (Ginger Flower &amp; Patchouli) by Pecksniff&#x27;s England,
-description: Pecksniff&#x27;s Hand Wash and Body Lotion Set (Ginger Flower &amp; Patchouli) by Pecksniff&#x27;s England,
-author: Suvojit Manna,
-tags: Pecksniff&#x27;s Hand Wash and Body Lotion Set (Ginger Flower &amp; Patchouli) by Pecksniff&#x27;s England,
-publishedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
----
-
 # [Pecksniff&#x27;s Hand Wash and Body Lotion Set (Ginger Flower &amp; Patchouli) by Pecksniff&#x27;s England](https://products.checkmycream.com/products/Pecksniff&#x27;s-Hand-Wash-and-Body-Lotion-Set-(Ginger-Flower-and-Patchouli)-by-Pecksniff&#x27;s-England.html)
 
 ### Positive Reviews

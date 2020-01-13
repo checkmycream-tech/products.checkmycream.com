@@ -1,12 +1,3 @@
----
-title: Estee Lauder 2014 Blockbuster Luxe Color New Limited Edition. Retail Value: $350,
-description: Estee Lauder 2014 Blockbuster Luxe Color New Limited Edition. Retail Value: $350,
-author: Suvojit Manna,
-tags: Estee Lauder 2014 Blockbuster Luxe Color New Limited Edition. Retail Value: $350,
-publishedAt: Fri Jan 10 2020 15:01:04 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:04 GMT+0530 (India Standard Time),
----
-
 # [Estee Lauder 2014 Blockbuster Luxe Color New Limited Edition. Retail Value: $350](https://products.checkmycream.com/products/Estee-Lauder-2014-Blockbuster-Luxe-Color-New-Limited-Edition.-Retail-Value:-dollar350.html)
 
 ### Positive Reviews

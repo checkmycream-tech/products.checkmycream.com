@@ -1,12 +1,3 @@
----
-title: Man Bundle -&amp;quot;Fresh Balls&amp;quot; Lotion [5oz tube] + &amp;quot;Dude Wipes&amp;quot;,
-description: Man Bundle -&amp;quot;Fresh Balls&amp;quot; Lotion [5oz tube] + &amp;quot;Dude Wipes&amp;quot;,
-author: Suvojit Manna,
-tags: Man Bundle -&amp;quot;Fresh Balls&amp;quot; Lotion [5oz tube] + &amp;quot;Dude Wipes&amp;quot;,
-publishedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
----
-
 # [Man Bundle -&amp;quot;Fresh Balls&amp;quot; Lotion [5oz tube] + &amp;quot;Dude Wipes&amp;quot;](https://products.checkmycream.com/products/Man-Bundle-andquotFresh-Ballsandquot-Lotion-5oz-tube-+-andquotDude-Wipesandquot.html)
 
 ### Positive Reviews

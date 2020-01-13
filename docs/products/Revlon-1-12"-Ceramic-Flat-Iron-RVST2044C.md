@@ -1,12 +1,3 @@
----
-title: Revlon 1-1/2” Ceramic Flat Iron, RVST2044C,
-description: Revlon 1-1/2” Ceramic Flat Iron, RVST2044C,
-author: Suvojit Manna,
-tags: Revlon 1-1/2” Ceramic Flat Iron, RVST2044C,
-publishedAt: Fri Jan 10 2020 14:59:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:56 GMT+0530 (India Standard Time),
----
-
 # [Revlon 1-1/2” Ceramic Flat Iron, RVST2044C](https://products.checkmycream.com/products/Revlon-1-12&quot;-Ceramic-Flat-Iron-RVST2044C.html)
 
 ### Positive Reviews

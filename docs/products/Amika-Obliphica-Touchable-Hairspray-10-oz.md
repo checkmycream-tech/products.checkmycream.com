@@ -1,12 +1,3 @@
----
-title: Amika Obliphica Touchable Hairspray - 10 oz,
-description: Amika Obliphica Touchable Hairspray - 10 oz,
-author: Suvojit Manna,
-tags: Amika Obliphica Touchable Hairspray - 10 oz,
-publishedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
----
-
 # [Amika Obliphica Touchable Hairspray - 10 oz](https://products.checkmycream.com/products/Amika-Obliphica-Touchable-Hairspray-10-oz.html)
 
 ### Positive Reviews

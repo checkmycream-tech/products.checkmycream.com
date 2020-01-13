@@ -1,12 +1,3 @@
----
-title: Saloniture 3&#x27; x 5&#x27; Salon &amp; Barber Shop Chair Anti-Fatigue Floor Mat - Black Semi Circle - 1/2&quot; Thick,
-description: Saloniture 3&#x27; x 5&#x27; Salon &amp; Barber Shop Chair Anti-Fatigue Floor Mat - Black Semi Circle - 1/2&quot; Thick,
-author: Suvojit Manna,
-tags: Saloniture 3&#x27; x 5&#x27; Salon &amp; Barber Shop Chair Anti-Fatigue Floor Mat - Black Semi Circle - 1/2&quot; Thick,
-publishedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
----
-
 # [Saloniture 3&#x27; x 5&#x27; Salon &amp; Barber Shop Chair Anti-Fatigue Floor Mat - Black Semi Circle - 1/2&quot; Thick](https://products.checkmycream.com/products/Saloniture-3&#x27;-x-5&#x27;-Salon-and-Barber-Shop-Chair-Anti-Fatigue-Floor-Mat-Black-Semi-Circle-12&quot;-Thick.html)
 
 ### Positive Reviews

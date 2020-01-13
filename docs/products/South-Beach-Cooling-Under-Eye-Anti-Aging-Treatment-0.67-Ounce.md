@@ -1,12 +1,3 @@
----
-title: South Beach Cooling Under-Eye Anti-Aging Treatment 0.67 Ounce,
-description: South Beach Cooling Under-Eye Anti-Aging Treatment 0.67 Ounce,
-author: Suvojit Manna,
-tags: South Beach Cooling Under-Eye Anti-Aging Treatment 0.67 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
----
-
 # [South Beach Cooling Under-Eye Anti-Aging Treatment 0.67 Ounce](https://products.checkmycream.com/products/South-Beach-Cooling-Under-Eye-Anti-Aging-Treatment-0.67-Ounce.html)
 
 ### Positive Reviews

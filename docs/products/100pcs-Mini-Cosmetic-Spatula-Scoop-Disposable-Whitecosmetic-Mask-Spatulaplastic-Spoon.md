@@ -1,12 +1,3 @@
----
-title: 100pcs Mini Cosmetic Spatula Scoop Disposable White/cosmetic Mask Spatula/plastic Spoon,
-description: 100pcs Mini Cosmetic Spatula Scoop Disposable White/cosmetic Mask Spatula/plastic Spoon,
-author: Suvojit Manna,
-tags: 100pcs Mini Cosmetic Spatula Scoop Disposable White/cosmetic Mask Spatula/plastic Spoon,
-publishedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
----
-
 # [100pcs Mini Cosmetic Spatula Scoop Disposable White/cosmetic Mask Spatula/plastic Spoon](https://products.checkmycream.com/products/100pcs-Mini-Cosmetic-Spatula-Scoop-Disposable-Whitecosmetic-Mask-Spatulaplastic-Spoon.html)
 
 ### Positive Reviews

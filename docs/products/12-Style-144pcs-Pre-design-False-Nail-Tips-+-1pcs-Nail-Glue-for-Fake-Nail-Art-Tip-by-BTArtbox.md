@@ -1,12 +1,3 @@
----
-title: 12 Style 144pcs Pre-design False Nail Tips + 1pcs Nail Glue for Fake Nail Art Tip by BTArtbox,
-description: 12 Style 144pcs Pre-design False Nail Tips + 1pcs Nail Glue for Fake Nail Art Tip by BTArtbox,
-author: Suvojit Manna,
-tags: 12 Style 144pcs Pre-design False Nail Tips + 1pcs Nail Glue for Fake Nail Art Tip by BTArtbox,
-publishedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
----
-
 # [12 Style 144pcs Pre-design False Nail Tips + 1pcs Nail Glue for Fake Nail Art Tip by BTArtbox](https://products.checkmycream.com/products/12-Style-144pcs-Pre-design-False-Nail-Tips-+-1pcs-Nail-Glue-for-Fake-Nail-Art-Tip-by-BTArtbox.html)
 
 ### Positive Reviews

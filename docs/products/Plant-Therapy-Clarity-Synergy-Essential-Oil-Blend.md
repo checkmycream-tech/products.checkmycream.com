@@ -1,12 +1,3 @@
----
-title: Plant Therapy Clarity Synergy Essential Oil Blend,
-description: Plant Therapy Clarity Synergy Essential Oil Blend,
-author: Suvojit Manna,
-tags: Plant Therapy Clarity Synergy Essential Oil Blend,
-publishedAt: Fri Jan 10 2020 15:00:17 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:17 GMT+0530 (India Standard Time),
----
-
 # [Plant Therapy Clarity Synergy Essential Oil Blend](https://products.checkmycream.com/products/Plant-Therapy-Clarity-Synergy-Essential-Oil-Blend.html)
 
 ### Positive Reviews

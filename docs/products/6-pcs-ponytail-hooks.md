@@ -1,12 +1,3 @@
----
-title: 6 pcs ponytail hooks,
-description: 6 pcs ponytail hooks,
-author: Suvojit Manna,
-tags: 6 pcs ponytail hooks,
-publishedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
----
-
 # [6 pcs ponytail hooks](https://products.checkmycream.com/products/6-pcs-ponytail-hooks.html)
 
 ### Positive Reviews

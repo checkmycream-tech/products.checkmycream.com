@@ -1,12 +1,3 @@
----
-title: Guess Eau de Parfum for Women by Guess,
-description: Guess Eau de Parfum for Women by Guess,
-author: Suvojit Manna,
-tags: Guess Eau de Parfum for Women by Guess,
-publishedAt: Fri Jan 10 2020 15:00:09 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:09 GMT+0530 (India Standard Time),
----
-
 # [Guess Eau de Parfum for Women by Guess](https://products.checkmycream.com/products/Guess-Eau-de-Parfum-for-Women-by-Guess.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Victoria&#x27;s Secret Signature Pink Quilted Cosmetic Makeup Bag Case,
-description: Victoria&#x27;s Secret Signature Pink Quilted Cosmetic Makeup Bag Case,
-author: Suvojit Manna,
-tags: Victoria&#x27;s Secret Signature Pink Quilted Cosmetic Makeup Bag Case,
-publishedAt: Fri Jan 10 2020 15:00:38 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:38 GMT+0530 (India Standard Time),
----
-
 # [Victoria&#x27;s Secret Signature Pink Quilted Cosmetic Makeup Bag Case](https://products.checkmycream.com/products/Victoria&#x27;s-Secret-Signature-Pink-Quilted-Cosmetic-Makeup-Bag-Case.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: White 2.65 oz Plastic Deodorant Tubes 6 pk by Alpha Plastics [Health and Beauty],
-description: White 2.65 oz Plastic Deodorant Tubes 6 pk by Alpha Plastics [Health and Beauty],
-author: Suvojit Manna,
-tags: White 2.65 oz Plastic Deodorant Tubes 6 pk by Alpha Plastics [Health and Beauty],
-publishedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
----
-
 # [White 2.65 oz Plastic Deodorant Tubes 6 pk by Alpha Plastics [Health and Beauty]](https://products.checkmycream.com/products/White-2.65-oz-Plastic-Deodorant-Tubes-6-pk-by-Alpha-Plastics-Health-and-Beauty.html)
 
 ### Positive Reviews

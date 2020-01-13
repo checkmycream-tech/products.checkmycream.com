@@ -1,12 +1,3 @@
----
-title: Hollywood Fashion Secrets Silicone Cover-Ups Accessory (One Size Natural),
-description: Hollywood Fashion Secrets Silicone Cover-Ups Accessory (One Size Natural),
-author: Suvojit Manna,
-tags: Hollywood Fashion Secrets Silicone Cover-Ups Accessory (One Size Natural),
-publishedAt: Fri Jan 10 2020 15:00:14 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:14 GMT+0530 (India Standard Time),
----
-
 # [Hollywood Fashion Secrets Silicone Cover-Ups Accessory (One Size Natural)](https://products.checkmycream.com/products/Hollywood-Fashion-Secrets-Silicone-Cover-Ups-Accessory-(One-Size-Natural).html)
 
 ### Positive Reviews

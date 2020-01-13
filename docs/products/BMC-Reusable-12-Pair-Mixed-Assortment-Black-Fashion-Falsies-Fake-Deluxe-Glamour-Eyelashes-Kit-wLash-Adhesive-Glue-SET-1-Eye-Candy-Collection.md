@@ -1,12 +1,3 @@
----
-title: BMC Reusable 12 Pair Mixed Assortment Black Fashion Falsies Fake Deluxe Glamour Eyelashes Kit w/Lash Adhesive Glue - SET 1, Eye Candy Collection,
-description: BMC Reusable 12 Pair Mixed Assortment Black Fashion Falsies Fake Deluxe Glamour Eyelashes Kit w/Lash Adhesive Glue - SET 1, Eye Candy Collection,
-author: Suvojit Manna,
-tags: BMC Reusable 12 Pair Mixed Assortment Black Fashion Falsies Fake Deluxe Glamour Eyelashes Kit w/Lash Adhesive Glue - SET 1, Eye Candy Collection,
-publishedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
----
-
 # [BMC Reusable 12 Pair Mixed Assortment Black Fashion Falsies Fake Deluxe Glamour Eyelashes Kit w/Lash Adhesive Glue - SET 1, Eye Candy Collection](https://products.checkmycream.com/products/BMC-Reusable-12-Pair-Mixed-Assortment-Black-Fashion-Falsies-Fake-Deluxe-Glamour-Eyelashes-Kit-wLash-Adhesive-Glue-SET-1-Eye-Candy-Collection.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Pre De Provence Assorted Shea Butter Enriched Guest Soap Gift Set  - Includes Seven 25 Gram Soaps - Refresh,
-description: Pre De Provence Assorted Shea Butter Enriched Guest Soap Gift Set  - Includes Seven 25 Gram Soaps - Refresh,
-author: Suvojit Manna,
-tags: Pre De Provence Assorted Shea Butter Enriched Guest Soap Gift Set  - Includes Seven 25 Gram Soaps - Refresh,
-publishedAt: Fri Jan 10 2020 14:59:30 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:30 GMT+0530 (India Standard Time),
----
-
 # [Pre De Provence Assorted Shea Butter Enriched Guest Soap Gift Set  - Includes Seven 25 Gram Soaps - Refresh](https://products.checkmycream.com/products/Pre-De-Provence-Assorted-Shea-Butter-Enriched-Guest-Soap-Gift-Set-Includes-Seven-25-Gram-Soaps-Refresh.html)
 
 ### Positive Reviews

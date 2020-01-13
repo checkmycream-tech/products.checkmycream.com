@@ -1,12 +1,3 @@
----
-title: Betty Dain Tough Love Shampoo Cape, Velcro Closure, 1 Pound,
-description: Betty Dain Tough Love Shampoo Cape, Velcro Closure, 1 Pound,
-author: Suvojit Manna,
-tags: Betty Dain Tough Love Shampoo Cape, Velcro Closure, 1 Pound,
-publishedAt: Fri Jan 10 2020 14:59:52 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:52 GMT+0530 (India Standard Time),
----
-
 # [Betty Dain Tough Love Shampoo Cape, Velcro Closure, 1 Pound](https://products.checkmycream.com/products/Betty-Dain-Tough-Love-Shampoo-Cape-Velcro-Closure-1-Pound.html)
 
 ### Positive Reviews

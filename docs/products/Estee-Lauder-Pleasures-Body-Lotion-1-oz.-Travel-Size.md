@@ -1,12 +1,3 @@
----
-title: Estee Lauder Pleasures Body Lotion 1 oz. Travel Size,
-description: Estee Lauder Pleasures Body Lotion 1 oz. Travel Size,
-author: Suvojit Manna,
-tags: Estee Lauder Pleasures Body Lotion 1 oz. Travel Size,
-publishedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
----
-
 # [Estee Lauder Pleasures Body Lotion 1 oz. Travel Size](https://products.checkmycream.com/products/Estee-Lauder-Pleasures-Body-Lotion-1-oz.-Travel-Size.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: 10-28 inch 100% RAW Virgin Brazilian Remy Human Hair Extensions Wavy Weave Weft Bundle #1B,
-description: 10-28 inch 100% RAW Virgin Brazilian Remy Human Hair Extensions Wavy Weave Weft Bundle #1B,
-author: Suvojit Manna,
-tags: 10-28 inch 100% RAW Virgin Brazilian Remy Human Hair Extensions Wavy Weave Weft Bundle #1B,
-publishedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
----
-
 # [10-28 inch 100% RAW Virgin Brazilian Remy Human Hair Extensions Wavy Weave Weft Bundle #1B](https://products.checkmycream.com/products/10-28-inch-100percent-RAW-Virgin-Brazilian-Remy-Human-Hair-Extensions-Wavy-Weave-Weft-Bundle-1B.html)
 
 ### Positive Reviews

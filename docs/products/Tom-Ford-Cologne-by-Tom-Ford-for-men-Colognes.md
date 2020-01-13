@@ -1,12 +1,3 @@
----
-title: Tom Ford Cologne by Tom Ford for men Colognes,
-description: Tom Ford Cologne by Tom Ford for men Colognes,
-author: Suvojit Manna,
-tags: Tom Ford Cologne by Tom Ford for men Colognes,
-publishedAt: Fri Jan 10 2020 14:59:33 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:33 GMT+0530 (India Standard Time),
----
-
 # [Tom Ford Cologne by Tom Ford for men Colognes](https://products.checkmycream.com/products/Tom-Ford-Cologne-by-Tom-Ford-for-men-Colognes.html)
 
 ### Positive Reviews

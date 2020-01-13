@@ -1,12 +1,3 @@
----
-title: deborah lippmann Cuticle Remover, 0.5 oz.,
-description: deborah lippmann Cuticle Remover, 0.5 oz.,
-author: Suvojit Manna,
-tags: deborah lippmann Cuticle Remover, 0.5 oz.,
-publishedAt: Fri Jan 10 2020 14:59:26 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:26 GMT+0530 (India Standard Time),
----
-
 # [deborah lippmann Cuticle Remover, 0.5 oz.](https://products.checkmycream.com/products/deborah-lippmann-Cuticle-Remover-0.5-oz..html)
 
 ### Positive Reviews

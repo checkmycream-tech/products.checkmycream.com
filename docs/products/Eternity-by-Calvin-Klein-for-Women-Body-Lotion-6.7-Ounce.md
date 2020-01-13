@@ -1,12 +1,3 @@
----
-title: Eternity by Calvin Klein for Women, Body Lotion, 6.7 Ounce,
-description: Eternity by Calvin Klein for Women, Body Lotion, 6.7 Ounce,
-author: Suvojit Manna,
-tags: Eternity by Calvin Klein for Women, Body Lotion, 6.7 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:05 GMT+0530 (India Standard Time),
----
-
 # [Eternity by Calvin Klein for Women, Body Lotion, 6.7 Ounce](https://products.checkmycream.com/products/Eternity-by-Calvin-Klein-for-Women-Body-Lotion-6.7-Ounce.html)
 
 ### Positive Reviews

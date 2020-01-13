@@ -1,12 +1,3 @@
----
-title: Suave 24 Hour Protection Anti-Perspirant Deodorant Spray Powder 4 oz,
-description: Suave 24 Hour Protection Anti-Perspirant Deodorant Spray Powder 4 oz,
-author: Suvojit Manna,
-tags: Suave 24 Hour Protection Anti-Perspirant Deodorant Spray Powder 4 oz,
-publishedAt: Fri Jan 10 2020 14:59:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:08 GMT+0530 (India Standard Time),
----
-
 # [Suave 24 Hour Protection Anti-Perspirant Deodorant Spray Powder 4 oz](https://products.checkmycream.com/products/Suave-24-Hour-Protection-Anti-Perspirant-Deodorant-Spray-Powder-4-oz.html)
 
 ### Positive Reviews

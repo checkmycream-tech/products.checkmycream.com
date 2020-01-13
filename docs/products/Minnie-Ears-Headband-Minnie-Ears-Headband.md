@@ -1,12 +1,3 @@
----
-title: Minnie Ears Headband Minnie Ears Headband,
-description: Minnie Ears Headband Minnie Ears Headband,
-author: Suvojit Manna,
-tags: Minnie Ears Headband Minnie Ears Headband,
-publishedAt: Fri Jan 10 2020 15:00:37 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:37 GMT+0530 (India Standard Time),
----
-
 # [Minnie Ears Headband Minnie Ears Headband](https://products.checkmycream.com/products/Minnie-Ears-Headband-Minnie-Ears-Headband.html)
 
 ### Positive Reviews

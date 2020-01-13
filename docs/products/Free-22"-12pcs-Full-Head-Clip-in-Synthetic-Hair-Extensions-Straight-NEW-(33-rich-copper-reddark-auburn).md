@@ -1,12 +1,3 @@
----
-title: Free 22&quot; 12pcs Full Head Clip in Synthetic Hair Extensions Straight NEW (#33-rich copper red/dark auburn),
-description: Free 22&quot; 12pcs Full Head Clip in Synthetic Hair Extensions Straight NEW (#33-rich copper red/dark auburn),
-author: Suvojit Manna,
-tags: Free 22&quot; 12pcs Full Head Clip in Synthetic Hair Extensions Straight NEW (#33-rich copper red/dark auburn),
-publishedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
----
-
 # [Free 22&quot; 12pcs Full Head Clip in Synthetic Hair Extensions Straight NEW (#33-rich copper red/dark auburn)](https://products.checkmycream.com/products/Free-22&quot;-12pcs-Full-Head-Clip-in-Synthetic-Hair-Extensions-Straight-NEW-(33-rich-copper-reddark-auburn).html)
 
 ### Positive Reviews

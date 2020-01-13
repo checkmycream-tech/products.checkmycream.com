@@ -1,12 +1,3 @@
----
-title: Riverrun Perfume Atomizer, Glass Bottle, Silver Sprayer 60ml 2 oz,
-description: Riverrun Perfume Atomizer, Glass Bottle, Silver Sprayer 60ml 2 oz,
-author: Suvojit Manna,
-tags: Riverrun Perfume Atomizer, Glass Bottle, Silver Sprayer 60ml 2 oz,
-publishedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
----
-
 # [Riverrun Perfume Atomizer, Glass Bottle, Silver Sprayer 60ml 2 oz](https://products.checkmycream.com/products/Riverrun-Perfume-Atomizer-Glass-Bottle-Silver-Sprayer-60ml-2-oz.html)
 
 ### Positive Reviews

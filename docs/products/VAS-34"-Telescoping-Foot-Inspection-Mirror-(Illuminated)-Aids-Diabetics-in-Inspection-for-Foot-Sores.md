@@ -1,12 +1,3 @@
----
-title: VAS 34&quot; Telescoping Foot Inspection Mirror (Illuminated) - Aids Diabetics in Inspection for Foot Sores,
-description: VAS 34&quot; Telescoping Foot Inspection Mirror (Illuminated) - Aids Diabetics in Inspection for Foot Sores,
-author: Suvojit Manna,
-tags: VAS 34&quot; Telescoping Foot Inspection Mirror (Illuminated) - Aids Diabetics in Inspection for Foot Sores,
-publishedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
----
-
 # [VAS 34&quot; Telescoping Foot Inspection Mirror (Illuminated) - Aids Diabetics in Inspection for Foot Sores](https://products.checkmycream.com/products/VAS-34&quot;-Telescoping-Foot-Inspection-Mirror-(Illuminated)-Aids-Diabetics-in-Inspection-for-Foot-Sores.html)
 
 ### Positive Reviews

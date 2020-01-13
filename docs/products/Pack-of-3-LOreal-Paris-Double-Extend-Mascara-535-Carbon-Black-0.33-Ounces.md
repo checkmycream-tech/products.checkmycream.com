@@ -1,12 +1,3 @@
----
-title: Pack of 3 LOreal Paris Double Extend Mascara, 535 Carbon Black, 0.33 Ounces,
-description: Pack of 3 LOreal Paris Double Extend Mascara, 535 Carbon Black, 0.33 Ounces,
-author: Suvojit Manna,
-tags: Pack of 3 LOreal Paris Double Extend Mascara, 535 Carbon Black, 0.33 Ounces,
-publishedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
----
-
 # [Pack of 3 LOreal Paris Double Extend Mascara, 535 Carbon Black, 0.33 Ounces](https://products.checkmycream.com/products/Pack-of-3-LOreal-Paris-Double-Extend-Mascara-535-Carbon-Black-0.33-Ounces.html)
 
 ### Positive Reviews

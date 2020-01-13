@@ -1,12 +1,3 @@
----
-title: ZELLIES XYLITOL MINTS COOL MINT- 1 bottle of 250 mints,
-description: ZELLIES XYLITOL MINTS COOL MINT- 1 bottle of 250 mints,
-author: Suvojit Manna,
-tags: ZELLIES XYLITOL MINTS COOL MINT- 1 bottle of 250 mints,
-publishedAt: Fri Jan 10 2020 15:00:11 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:11 GMT+0530 (India Standard Time),
----
-
 # [ZELLIES XYLITOL MINTS COOL MINT- 1 bottle of 250 mints](https://products.checkmycream.com/products/ZELLIES-XYLITOL-MINTS-COOL-MINT-1-bottle-of-250-mints.html)
 
 ### Positive Reviews

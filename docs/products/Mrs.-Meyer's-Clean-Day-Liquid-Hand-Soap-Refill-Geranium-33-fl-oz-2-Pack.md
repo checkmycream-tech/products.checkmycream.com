@@ -1,12 +1,3 @@
----
-title: Mrs. Meyer&#x27;s Clean Day Liquid Hand Soap Refill, Geranium, 33 fl oz - 2 Pack,
-description: Mrs. Meyer&#x27;s Clean Day Liquid Hand Soap Refill, Geranium, 33 fl oz - 2 Pack,
-author: Suvojit Manna,
-tags: Mrs. Meyer&#x27;s Clean Day Liquid Hand Soap Refill, Geranium, 33 fl oz - 2 Pack,
-publishedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
----
-
 # [Mrs. Meyer&#x27;s Clean Day Liquid Hand Soap Refill, Geranium, 33 fl oz - 2 Pack](https://products.checkmycream.com/products/Mrs.-Meyer&#x27;s-Clean-Day-Liquid-Hand-Soap-Refill-Geranium-33-fl-oz-2-Pack.html)
 
 ### Positive Reviews

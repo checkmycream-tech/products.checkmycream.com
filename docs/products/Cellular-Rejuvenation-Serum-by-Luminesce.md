@@ -1,12 +1,3 @@
----
-title: Cellular Rejuvenation Serum by Luminesce,
-description: Cellular Rejuvenation Serum by Luminesce,
-author: Suvojit Manna,
-tags: Cellular Rejuvenation Serum by Luminesce,
-publishedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
----
-
 # [Cellular Rejuvenation Serum by Luminesce](https://products.checkmycream.com/products/Cellular-Rejuvenation-Serum-by-Luminesce.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: My Secret Correctives Root Touch-Up Spray 2 oz - Medium Brown,
-description: My Secret Correctives Root Touch-Up Spray 2 oz - Medium Brown,
-author: Suvojit Manna,
-tags: My Secret Correctives Root Touch-Up Spray 2 oz - Medium Brown,
-publishedAt: Fri Jan 10 2020 15:00:21 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:21 GMT+0530 (India Standard Time),
----
-
 # [My Secret Correctives Root Touch-Up Spray 2 oz - Medium Brown](https://products.checkmycream.com/products/My-Secret-Correctives-Root-Touch-Up-Spray-2-oz-Medium-Brown.html)
 
 ### Positive Reviews

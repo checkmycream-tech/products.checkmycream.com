@@ -1,12 +1,3 @@
----
-title: Jason Tea Tree Moisturizing Treatments,
-description: Jason Tea Tree Moisturizing Treatments,
-author: Suvojit Manna,
-tags: Jason Tea Tree Moisturizing Treatments,
-publishedAt: Fri Jan 10 2020 15:00:23 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:23 GMT+0530 (India Standard Time),
----
-
 # [Jason Tea Tree Moisturizing Treatments](https://products.checkmycream.com/products/Jason-Tea-Tree-Moisturizing-Treatments.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: ENJOY by Enjoy: SULFATE-FREE REJUVENATING VOLUMIZING SHAMPOO 10.1 OZ [Misc.],
-description: ENJOY by Enjoy: SULFATE-FREE REJUVENATING VOLUMIZING SHAMPOO 10.1 OZ [Misc.],
-author: Suvojit Manna,
-tags: ENJOY by Enjoy: SULFATE-FREE REJUVENATING VOLUMIZING SHAMPOO 10.1 OZ [Misc.],
-publishedAt: Fri Jan 10 2020 14:59:13 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:13 GMT+0530 (India Standard Time),
----
-
 # [ENJOY by Enjoy: SULFATE-FREE REJUVENATING VOLUMIZING SHAMPOO 10.1 OZ [Misc.]](https://products.checkmycream.com/products/ENJOY-by-Enjoy:-SULFATE-FREE-REJUVENATING-VOLUMIZING-SHAMPOO-10.1-OZ-Misc..html)
 
 ### Positive Reviews

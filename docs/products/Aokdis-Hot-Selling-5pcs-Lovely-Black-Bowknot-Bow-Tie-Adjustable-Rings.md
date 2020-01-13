@@ -1,12 +1,3 @@
----
-title: Aokdis Hot Selling 5pcs Lovely Black Bowknot Bow Tie Adjustable Rings,
-description: Aokdis Hot Selling 5pcs Lovely Black Bowknot Bow Tie Adjustable Rings,
-author: Suvojit Manna,
-tags: Aokdis Hot Selling 5pcs Lovely Black Bowknot Bow Tie Adjustable Rings,
-publishedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
----
-
 # [Aokdis Hot Selling 5pcs Lovely Black Bowknot Bow Tie Adjustable Rings](https://products.checkmycream.com/products/Aokdis-Hot-Selling-5pcs-Lovely-Black-Bowknot-Bow-Tie-Adjustable-Rings.html)
 
 ### Positive Reviews

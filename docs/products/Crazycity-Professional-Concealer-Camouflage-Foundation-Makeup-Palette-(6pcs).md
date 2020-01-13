@@ -1,12 +1,3 @@
----
-title: Crazycity Professional Concealer Camouflage Foundation Makeup Palette (6pcs),
-description: Crazycity Professional Concealer Camouflage Foundation Makeup Palette (6pcs),
-author: Suvojit Manna,
-tags: Crazycity Professional Concealer Camouflage Foundation Makeup Palette (6pcs),
-publishedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
----
-
 # [Crazycity Professional Concealer Camouflage Foundation Makeup Palette (6pcs)](https://products.checkmycream.com/products/Crazycity-Professional-Concealer-Camouflage-Foundation-Makeup-Palette-(6pcs).html)
 
 ### Positive Reviews

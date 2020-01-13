@@ -1,12 +1,3 @@
----
-title: Redken Color Extend Shampoo 10.1 oz and Conditioner 8.5 oz Duo,
-description: Redken Color Extend Shampoo 10.1 oz and Conditioner 8.5 oz Duo,
-author: Suvojit Manna,
-tags: Redken Color Extend Shampoo 10.1 oz and Conditioner 8.5 oz Duo,
-publishedAt: Fri Jan 10 2020 14:59:44 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:44 GMT+0530 (India Standard Time),
----
-
 # [Redken Color Extend Shampoo 10.1 oz and Conditioner 8.5 oz Duo](https://products.checkmycream.com/products/Redken-Color-Extend-Shampoo-10.1-oz-and-Conditioner-8.5-oz-Duo.html)
 
 ### Positive Reviews

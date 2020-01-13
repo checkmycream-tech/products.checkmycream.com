@@ -1,12 +1,3 @@
----
-title: Cuba Gold Cologne By Fragluxe For Men,
-description: Cuba Gold Cologne By Fragluxe For Men,
-author: Suvojit Manna,
-tags: Cuba Gold Cologne By Fragluxe For Men,
-publishedAt: Fri Jan 10 2020 14:59:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:05 GMT+0530 (India Standard Time),
----
-
 # [Cuba Gold Cologne By Fragluxe For Men](https://products.checkmycream.com/products/Cuba-Gold-Cologne-By-Fragluxe-For-Men.html)
 
 ### Positive Reviews

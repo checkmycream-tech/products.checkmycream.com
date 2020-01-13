@@ -1,12 +1,3 @@
----
-title: Matrix Biolage Colorcaretherapie cShampoo 16.9 oz &amp; Conditioner 16.9 oz SET,
-description: Matrix Biolage Colorcaretherapie cShampoo 16.9 oz &amp; Conditioner 16.9 oz SET,
-author: Suvojit Manna,
-tags: Matrix Biolage Colorcaretherapie cShampoo 16.9 oz &amp; Conditioner 16.9 oz SET,
-publishedAt: Fri Jan 10 2020 15:00:14 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:14 GMT+0530 (India Standard Time),
----
-
 # [Matrix Biolage Colorcaretherapie cShampoo 16.9 oz &amp; Conditioner 16.9 oz SET](https://products.checkmycream.com/products/Matrix-Biolage-Colorcaretherapie-cShampoo-16.9-oz-and-Conditioner-16.9-oz-SET.html)
 
 ### Positive Reviews

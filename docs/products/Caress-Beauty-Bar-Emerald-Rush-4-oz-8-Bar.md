@@ -1,12 +1,3 @@
----
-title: Caress Beauty Bar, Emerald Rush 4 oz, 8 Bar,
-description: Caress Beauty Bar, Emerald Rush 4 oz, 8 Bar,
-author: Suvojit Manna,
-tags: Caress Beauty Bar, Emerald Rush 4 oz, 8 Bar,
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [Caress Beauty Bar, Emerald Rush 4 oz, 8 Bar](https://products.checkmycream.com/products/Caress-Beauty-Bar-Emerald-Rush-4-oz-8-Bar.html)
 
 ### Positive Reviews

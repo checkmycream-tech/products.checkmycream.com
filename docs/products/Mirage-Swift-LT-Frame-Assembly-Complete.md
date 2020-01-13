@@ -1,12 +1,3 @@
----
-title: Mirage Swift LT Frame Assembly Complete,
-description: Mirage Swift LT Frame Assembly Complete,
-author: Suvojit Manna,
-tags: Mirage Swift LT Frame Assembly Complete,
-publishedAt: Fri Jan 10 2020 15:00:16 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:16 GMT+0530 (India Standard Time),
----
-
 # [Mirage Swift LT Frame Assembly Complete](https://products.checkmycream.com/products/Mirage-Swift-LT-Frame-Assembly-Complete.html)
 
 ### Positive Reviews

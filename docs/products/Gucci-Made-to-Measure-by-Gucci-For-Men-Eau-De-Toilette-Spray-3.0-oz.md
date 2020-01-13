@@ -1,12 +1,3 @@
----
-title: Gucci Made to Measure by Gucci For Men Eau De Toilette Spray 3.0 oz,
-description: Gucci Made to Measure by Gucci For Men Eau De Toilette Spray 3.0 oz,
-author: Suvojit Manna,
-tags: Gucci Made to Measure by Gucci For Men Eau De Toilette Spray 3.0 oz,
-publishedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
----
-
 # [Gucci Made to Measure by Gucci For Men Eau De Toilette Spray 3.0 oz](https://products.checkmycream.com/products/Gucci-Made-to-Measure-by-Gucci-For-Men-Eau-De-Toilette-Spray-3.0-oz.html)
 
 ### Positive Reviews

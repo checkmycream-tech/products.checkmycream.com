@@ -1,12 +1,3 @@
----
-title: Starter Complete Tattoo Kit 9 Machine Gun Power Supply 50 Needles Ink Set D23,
-description: Starter Complete Tattoo Kit 9 Machine Gun Power Supply 50 Needles Ink Set D23,
-author: Suvojit Manna,
-tags: Starter Complete Tattoo Kit 9 Machine Gun Power Supply 50 Needles Ink Set D23,
-publishedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
----
-
 # [Starter Complete Tattoo Kit 9 Machine Gun Power Supply 50 Needles Ink Set D23](https://products.checkmycream.com/products/Starter-Complete-Tattoo-Kit-9-Machine-Gun-Power-Supply-50-Needles-Ink-Set-D23.html)
 
 ### Positive Reviews

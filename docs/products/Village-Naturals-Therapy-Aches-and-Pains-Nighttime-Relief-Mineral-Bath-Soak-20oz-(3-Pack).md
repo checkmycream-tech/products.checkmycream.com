@@ -1,12 +1,3 @@
----
-title: Village Naturals Therapy Aches and Pains Nighttime Relief Mineral Bath Soak, 20oz (3 Pack),
-description: Village Naturals Therapy Aches and Pains Nighttime Relief Mineral Bath Soak, 20oz (3 Pack),
-author: Suvojit Manna,
-tags: Village Naturals Therapy Aches and Pains Nighttime Relief Mineral Bath Soak, 20oz (3 Pack),
-publishedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
----
-
 # [Village Naturals Therapy Aches and Pains Nighttime Relief Mineral Bath Soak, 20oz (3 Pack)](https://products.checkmycream.com/products/Village-Naturals-Therapy-Aches-and-Pains-Nighttime-Relief-Mineral-Bath-Soak-20oz-(3-Pack).html)
 
 ### Positive Reviews

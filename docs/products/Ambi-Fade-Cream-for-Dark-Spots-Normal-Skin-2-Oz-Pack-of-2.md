@@ -1,12 +1,3 @@
----
-title: Ambi, Fade Cream for Dark Spots, Normal Skin, 2 Oz - Pack of 2,
-description: Ambi, Fade Cream for Dark Spots, Normal Skin, 2 Oz - Pack of 2,
-author: Suvojit Manna,
-tags: Ambi, Fade Cream for Dark Spots, Normal Skin, 2 Oz - Pack of 2,
-publishedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
----
-
 # [Ambi, Fade Cream for Dark Spots, Normal Skin, 2 Oz - Pack of 2](https://products.checkmycream.com/products/Ambi-Fade-Cream-for-Dark-Spots-Normal-Skin-2-Oz-Pack-of-2.html)
 
 ### Positive Reviews

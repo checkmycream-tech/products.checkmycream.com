@@ -1,12 +1,3 @@
----
-title: Makeup Blending Eyeshadow Eye Shading Cosmetics Brush #217 by Ownsig,
-description: Makeup Blending Eyeshadow Eye Shading Cosmetics Brush #217 by Ownsig,
-author: Suvojit Manna,
-tags: Makeup Blending Eyeshadow Eye Shading Cosmetics Brush #217 by Ownsig,
-publishedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
----
-
 # [Makeup Blending Eyeshadow Eye Shading Cosmetics Brush #217 by Ownsig](https://products.checkmycream.com/products/Makeup-Blending-Eyeshadow-Eye-Shading-Cosmetics-Brush-217-by-Ownsig.html)
 
 ### Positive Reviews

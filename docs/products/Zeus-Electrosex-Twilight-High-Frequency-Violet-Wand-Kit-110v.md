@@ -1,12 +1,3 @@
----
-title: Zeus Electrosex Twilight High Frequency Violet Wand Kit - 110v,
-description: Zeus Electrosex Twilight High Frequency Violet Wand Kit - 110v,
-author: Suvojit Manna,
-tags: Zeus Electrosex Twilight High Frequency Violet Wand Kit - 110v,
-publishedAt: Fri Jan 10 2020 15:00:18 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:18 GMT+0530 (India Standard Time),
----
-
 # [Zeus Electrosex Twilight High Frequency Violet Wand Kit - 110v](https://products.checkmycream.com/products/Zeus-Electrosex-Twilight-High-Frequency-Violet-Wand-Kit-110v.html)
 
 ### Positive Reviews

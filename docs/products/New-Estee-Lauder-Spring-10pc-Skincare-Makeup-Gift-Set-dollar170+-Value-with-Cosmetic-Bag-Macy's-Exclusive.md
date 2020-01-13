@@ -1,12 +1,3 @@
----
-title: New Estee Lauder Spring 10pc Skincare Makeup Gift Set $170+ Value with Cosmetic Bag Macy&#x27;s Exclusive,
-description: New Estee Lauder Spring 10pc Skincare Makeup Gift Set $170+ Value with Cosmetic Bag Macy&#x27;s Exclusive,
-author: Suvojit Manna,
-tags: New Estee Lauder Spring 10pc Skincare Makeup Gift Set $170+ Value with Cosmetic Bag Macy&#x27;s Exclusive,
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [New Estee Lauder Spring 10pc Skincare Makeup Gift Set $170+ Value with Cosmetic Bag Macy&#x27;s Exclusive](https://products.checkmycream.com/products/New-Estee-Lauder-Spring-10pc-Skincare-Makeup-Gift-Set-dollar170+-Value-with-Cosmetic-Bag-Macy&#x27;s-Exclusive.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Salon Supply Store 100 Salon Waxing Hair Removal Wooden Spatulas Wax Applicator Wood Eyebrow/Bikini,
-description: Salon Supply Store 100 Salon Waxing Hair Removal Wooden Spatulas Wax Applicator Wood Eyebrow/Bikini,
-author: Suvojit Manna,
-tags: Salon Supply Store 100 Salon Waxing Hair Removal Wooden Spatulas Wax Applicator Wood Eyebrow/Bikini,
-publishedAt: Fri Jan 10 2020 15:00:32 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:32 GMT+0530 (India Standard Time),
----
-
 # [Salon Supply Store 100 Salon Waxing Hair Removal Wooden Spatulas Wax Applicator Wood Eyebrow/Bikini](https://products.checkmycream.com/products/Salon-Supply-Store-100-Salon-Waxing-Hair-Removal-Wooden-Spatulas-Wax-Applicator-Wood-EyebrowBikini.html)
 
 ### Positive Reviews

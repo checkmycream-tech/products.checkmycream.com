@@ -1,12 +1,3 @@
----
-title: Lagute Hanging Cosmetic and Grooming Travel Organizer Bag, Black,
-description: Lagute Hanging Cosmetic and Grooming Travel Organizer Bag, Black,
-author: Suvojit Manna,
-tags: Lagute Hanging Cosmetic and Grooming Travel Organizer Bag, Black,
-publishedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
----
-
 # [Lagute Hanging Cosmetic and Grooming Travel Organizer Bag, Black](https://products.checkmycream.com/products/Lagute-Hanging-Cosmetic-and-Grooming-Travel-Organizer-Bag-Black.html)
 
 ### Positive Reviews

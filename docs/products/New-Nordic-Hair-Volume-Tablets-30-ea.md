@@ -1,12 +1,3 @@
----
-title: New Nordic Hair Volume, Tablets 30 ea,
-description: New Nordic Hair Volume, Tablets 30 ea,
-author: Suvojit Manna,
-tags: New Nordic Hair Volume, Tablets 30 ea,
-publishedAt: Fri Jan 10 2020 15:00:36 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:36 GMT+0530 (India Standard Time),
----
-
 # [New Nordic Hair Volume, Tablets 30 ea](https://products.checkmycream.com/products/New-Nordic-Hair-Volume-Tablets-30-ea.html)
 
 ### Positive Reviews

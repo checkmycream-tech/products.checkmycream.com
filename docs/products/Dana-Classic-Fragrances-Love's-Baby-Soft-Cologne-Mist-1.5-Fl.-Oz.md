@@ -1,12 +1,3 @@
----
-title: Dana Classic Fragrances Love&#x27;s Baby Soft Cologne Mist 1.5 Fl. Oz,
-description: Dana Classic Fragrances Love&#x27;s Baby Soft Cologne Mist 1.5 Fl. Oz,
-author: Suvojit Manna,
-tags: Dana Classic Fragrances Love&#x27;s Baby Soft Cologne Mist 1.5 Fl. Oz,
-publishedAt: Fri Jan 10 2020 14:59:23 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:23 GMT+0530 (India Standard Time),
----
-
 # [Dana Classic Fragrances Love&#x27;s Baby Soft Cologne Mist 1.5 Fl. Oz](https://products.checkmycream.com/products/Dana-Classic-Fragrances-Love&#x27;s-Baby-Soft-Cologne-Mist-1.5-Fl.-Oz.html)
 
 ### Positive Reviews

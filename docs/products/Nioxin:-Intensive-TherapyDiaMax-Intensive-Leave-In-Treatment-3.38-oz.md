@@ -1,12 +1,3 @@
----
-title: Nioxin: Intensive Therapy�DiaMax Intensive Leave In Treatment, 3.38 oz,
-description: Nioxin: Intensive Therapy�DiaMax Intensive Leave In Treatment, 3.38 oz,
-author: Suvojit Manna,
-tags: Nioxin: Intensive Therapy�DiaMax Intensive Leave In Treatment, 3.38 oz,
-publishedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
----
-
 # [Nioxin: Intensive Therapy�DiaMax Intensive Leave In Treatment, 3.38 oz](https://products.checkmycream.com/products/Nioxin:-Intensive-TherapyDiaMax-Intensive-Leave-In-Treatment-3.38-oz.html)
 
 ### Positive Reviews

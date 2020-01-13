@@ -1,12 +1,3 @@
----
-title: Neck Face Duster Barbers Brush Salon Stylist Hair Tool,
-description: Neck Face Duster Barbers Brush Salon Stylist Hair Tool,
-author: Suvojit Manna,
-tags: Neck Face Duster Barbers Brush Salon Stylist Hair Tool,
-publishedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
----
-
 # [Neck Face Duster Barbers Brush Salon Stylist Hair Tool](https://products.checkmycream.com/products/Neck-Face-Duster-Barbers-Brush-Salon-Stylist-Hair-Tool.html)
 
 ### Positive Reviews

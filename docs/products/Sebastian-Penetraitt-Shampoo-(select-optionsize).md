@@ -1,12 +1,3 @@
----
-title: Sebastian Penetraitt Shampoo (select option/size),
-description: Sebastian Penetraitt Shampoo (select option/size),
-author: Suvojit Manna,
-tags: Sebastian Penetraitt Shampoo (select option/size),
-publishedAt: Fri Jan 10 2020 14:59:32 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:32 GMT+0530 (India Standard Time),
----
-
 # [Sebastian Penetraitt Shampoo (select option/size)](https://products.checkmycream.com/products/Sebastian-Penetraitt-Shampoo-(select-optionsize).html)
 
 ### Positive Reviews

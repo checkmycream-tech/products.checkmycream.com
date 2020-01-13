@@ -1,12 +1,3 @@
----
-title: 8 Generic Replacement Blades for the Gillette Fusion Power,
-description: 8 Generic Replacement Blades for the Gillette Fusion Power,
-author: Suvojit Manna,
-tags: 8 Generic Replacement Blades for the Gillette Fusion Power,
-publishedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
----
-
 # [8 Generic Replacement Blades for the Gillette Fusion Power](https://products.checkmycream.com/products/8-Generic-Replacement-Blades-for-the-Gillette-Fusion-Power.html)
 
 ### Positive Reviews

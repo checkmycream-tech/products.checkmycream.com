@@ -1,12 +1,3 @@
----
-title: Orajel Severe Toothache &amp; Gum Relief Plus, Cooling Gel, 0.25 Oz,
-description: Orajel Severe Toothache &amp; Gum Relief Plus, Cooling Gel, 0.25 Oz,
-author: Suvojit Manna,
-tags: Orajel Severe Toothache &amp; Gum Relief Plus, Cooling Gel, 0.25 Oz,
-publishedAt: Fri Jan 10 2020 14:59:52 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:52 GMT+0530 (India Standard Time),
----
-
 # [Orajel Severe Toothache &amp; Gum Relief Plus, Cooling Gel, 0.25 Oz](https://products.checkmycream.com/products/Orajel-Severe-Toothache-and-Gum-Relief-Plus-Cooling-Gel-0.25-Oz.html)
 
 ### Positive Reviews

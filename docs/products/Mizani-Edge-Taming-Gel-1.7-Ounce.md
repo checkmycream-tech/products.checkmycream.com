@@ -1,12 +1,3 @@
----
-title: Mizani Edge Taming Gel, 1.7 Ounce,
-description: Mizani Edge Taming Gel, 1.7 Ounce,
-author: Suvojit Manna,
-tags: Mizani Edge Taming Gel, 1.7 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
----
-
 # [Mizani Edge Taming Gel, 1.7 Ounce](https://products.checkmycream.com/products/Mizani-Edge-Taming-Gel-1.7-Ounce.html)
 
 ### Positive Reviews

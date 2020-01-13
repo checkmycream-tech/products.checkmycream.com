@@ -1,12 +1,3 @@
----
-title: Pentaxyl Anti-aging Skincare, 4 fl. oz.,
-description: Pentaxyl Anti-aging Skincare, 4 fl. oz.,
-author: Suvojit Manna,
-tags: Pentaxyl Anti-aging Skincare, 4 fl. oz.,
-publishedAt: Fri Jan 10 2020 14:59:20 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:20 GMT+0530 (India Standard Time),
----
-
 # [Pentaxyl Anti-aging Skincare, 4 fl. oz.](https://products.checkmycream.com/products/Pentaxyl-Anti-aging-Skincare-4-fl.-oz..html)
 
 ### Positive Reviews

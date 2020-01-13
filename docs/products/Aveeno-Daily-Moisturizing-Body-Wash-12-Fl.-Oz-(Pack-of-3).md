@@ -1,12 +1,3 @@
----
-title: Aveeno Daily Moisturizing Body Wash, 12 Fl. Oz (Pack of 3),
-description: Aveeno Daily Moisturizing Body Wash, 12 Fl. Oz (Pack of 3),
-author: Suvojit Manna,
-tags: Aveeno Daily Moisturizing Body Wash, 12 Fl. Oz (Pack of 3),
-publishedAt: Fri Jan 10 2020 15:00:06 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:06 GMT+0530 (India Standard Time),
----
-
 # [Aveeno Daily Moisturizing Body Wash, 12 Fl. Oz (Pack of 3)](https://products.checkmycream.com/products/Aveeno-Daily-Moisturizing-Body-Wash-12-Fl.-Oz-(Pack-of-3).html)
 
 ### Positive Reviews

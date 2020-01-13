@@ -1,12 +1,3 @@
----
-title: Etude House Easy Peel-off Base Coat 8ml,
-description: Etude House Easy Peel-off Base Coat 8ml,
-author: Suvojit Manna,
-tags: Etude House Easy Peel-off Base Coat 8ml,
-publishedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
----
-
 # [Etude House Easy Peel-off Base Coat 8ml](https://products.checkmycream.com/products/Etude-House-Easy-Peel-off-Base-Coat-8ml.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Elizabeth Arden Sunflowers Eau de Toilette Spray for Women, 3.4 Fluid Ounce,
-description: Elizabeth Arden Sunflowers Eau de Toilette Spray for Women, 3.4 Fluid Ounce,
-author: Suvojit Manna,
-tags: Elizabeth Arden Sunflowers Eau de Toilette Spray for Women, 3.4 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 14:59:15 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:15 GMT+0530 (India Standard Time),
----
-
 # [Elizabeth Arden Sunflowers Eau de Toilette Spray for Women, 3.4 Fluid Ounce](https://products.checkmycream.com/products/Elizabeth-Arden-Sunflowers-Eau-de-Toilette-Spray-for-Women-3.4-Fluid-Ounce.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Mediterraneo Cologne by Antonio Banderas for men Colognes,
-description: Mediterraneo Cologne by Antonio Banderas for men Colognes,
-author: Suvojit Manna,
-tags: Mediterraneo Cologne by Antonio Banderas for men Colognes,
-publishedAt: Fri Jan 10 2020 14:59:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:05 GMT+0530 (India Standard Time),
----
-
 # [Mediterraneo Cologne by Antonio Banderas for men Colognes](https://products.checkmycream.com/products/Mediterraneo-Cologne-by-Antonio-Banderas-for-men-Colognes.html)
 
 ### Positive Reviews

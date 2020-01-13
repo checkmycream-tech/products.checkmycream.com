@@ -1,12 +1,3 @@
----
-title: Hypnotic Poison Eau Sensuelle Perfume by Christian Dior for women Personal Fragrances,
-description: Hypnotic Poison Eau Sensuelle Perfume by Christian Dior for women Personal Fragrances,
-author: Suvojit Manna,
-tags: Hypnotic Poison Eau Sensuelle Perfume by Christian Dior for women Personal Fragrances,
-publishedAt: Fri Jan 10 2020 15:00:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:01 GMT+0530 (India Standard Time),
----
-
 # [Hypnotic Poison Eau Sensuelle Perfume by Christian Dior for women Personal Fragrances](https://products.checkmycream.com/products/Hypnotic-Poison-Eau-Sensuelle-Perfume-by-Christian-Dior-for-women-Personal-Fragrances.html)
 
 ### Positive Reviews

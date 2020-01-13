@@ -1,12 +1,3 @@
----
-title: Revlon Matte Eyeshadow, Rich Sable, 0.08 Ounce,
-description: Revlon Matte Eyeshadow, Rich Sable, 0.08 Ounce,
-author: Suvojit Manna,
-tags: Revlon Matte Eyeshadow, Rich Sable, 0.08 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:34 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:34 GMT+0530 (India Standard Time),
----
-
 # [Revlon Matte Eyeshadow, Rich Sable, 0.08 Ounce](https://products.checkmycream.com/products/Revlon-Matte-Eyeshadow-Rich-Sable-0.08-Ounce.html)
 
 ### Positive Reviews

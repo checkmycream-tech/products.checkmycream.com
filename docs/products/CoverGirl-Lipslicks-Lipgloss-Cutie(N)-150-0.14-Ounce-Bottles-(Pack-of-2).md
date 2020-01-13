@@ -1,12 +1,3 @@
----
-title: CoverGirl Lipslicks Lipgloss Cutie(N) 150, 0.14-Ounce Bottles (Pack of 2),
-description: CoverGirl Lipslicks Lipgloss Cutie(N) 150, 0.14-Ounce Bottles (Pack of 2),
-author: Suvojit Manna,
-tags: CoverGirl Lipslicks Lipgloss Cutie(N) 150, 0.14-Ounce Bottles (Pack of 2),
-publishedAt: Fri Jan 10 2020 14:59:43 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:43 GMT+0530 (India Standard Time),
----
-
 # [CoverGirl Lipslicks Lipgloss Cutie(N) 150, 0.14-Ounce Bottles (Pack of 2)](https://products.checkmycream.com/products/CoverGirl-Lipslicks-Lipgloss-Cutie(N)-150-0.14-Ounce-Bottles-(Pack-of-2).html)
 
 ### Positive Reviews

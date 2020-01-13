@@ -1,12 +1,3 @@
----
-title: Philosophy Amazing Grace Multi-Tasking Oil 1.6 FL OZ,
-description: Philosophy Amazing Grace Multi-Tasking Oil 1.6 FL OZ,
-author: Suvojit Manna,
-tags: Philosophy Amazing Grace Multi-Tasking Oil 1.6 FL OZ,
-publishedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
----
-
 # [Philosophy Amazing Grace Multi-Tasking Oil 1.6 FL OZ](https://products.checkmycream.com/products/Philosophy-Amazing-Grace-Multi-Tasking-Oil-1.6-FL-OZ.html)
 
 ### Positive Reviews

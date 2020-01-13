@@ -1,12 +1,3 @@
----
-title: Aphogee Pro Vitamin Leave-In Conditioner,
-description: Aphogee Pro Vitamin Leave-In Conditioner,
-author: Suvojit Manna,
-tags: Aphogee Pro Vitamin Leave-In Conditioner,
-publishedAt: Fri Jan 10 2020 14:59:23 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:23 GMT+0530 (India Standard Time),
----
-
 # [Aphogee Pro Vitamin Leave-In Conditioner](https://products.checkmycream.com/products/Aphogee-Pro-Vitamin-Leave-In-Conditioner.html)
 
 ### Positive Reviews

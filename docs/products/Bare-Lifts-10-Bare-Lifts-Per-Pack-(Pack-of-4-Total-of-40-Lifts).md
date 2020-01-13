@@ -1,12 +1,3 @@
----
-title: Bare Lifts, 10 Bare Lifts Per Pack (Pack of 4 Total of 40 Lifts),
-description: Bare Lifts, 10 Bare Lifts Per Pack (Pack of 4 Total of 40 Lifts),
-author: Suvojit Manna,
-tags: Bare Lifts, 10 Bare Lifts Per Pack (Pack of 4 Total of 40 Lifts),
-publishedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
----
-
 # [Bare Lifts, 10 Bare Lifts Per Pack (Pack of 4 Total of 40 Lifts)](https://products.checkmycream.com/products/Bare-Lifts-10-Bare-Lifts-Per-Pack-(Pack-of-4-Total-of-40-Lifts).html)
 
 ### Positive Reviews

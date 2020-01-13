@@ -1,12 +1,3 @@
----
-title: Caress Body Wash, Velvet Bliss, 18Ounces Bottles (Pack of 3),
-description: Caress Body Wash, Velvet Bliss, 18Ounces Bottles (Pack of 3),
-author: Suvojit Manna,
-tags: Caress Body Wash, Velvet Bliss, 18Ounces Bottles (Pack of 3),
-publishedAt: Fri Jan 10 2020 14:59:42 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:42 GMT+0530 (India Standard Time),
----
-
 # [Caress Body Wash, Velvet Bliss, 18Ounces Bottles (Pack of 3)](https://products.checkmycream.com/products/Caress-Body-Wash-Velvet-Bliss-18Ounces-Bottles-(Pack-of-3).html)
 
 ### Positive Reviews

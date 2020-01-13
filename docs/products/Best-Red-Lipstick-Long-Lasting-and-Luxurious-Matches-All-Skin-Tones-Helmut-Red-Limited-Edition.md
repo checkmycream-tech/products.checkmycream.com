@@ -1,12 +1,3 @@
----
-title: Best Red Lipstick Long Lasting &amp; Luxurious - Matches All Skin Tones - Helmut Red Limited Edition,
-description: Best Red Lipstick Long Lasting &amp; Luxurious - Matches All Skin Tones - Helmut Red Limited Edition,
-author: Suvojit Manna,
-tags: Best Red Lipstick Long Lasting &amp; Luxurious - Matches All Skin Tones - Helmut Red Limited Edition,
-publishedAt: Fri Jan 10 2020 15:01:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:05 GMT+0530 (India Standard Time),
----
-
 # [Best Red Lipstick Long Lasting &amp; Luxurious - Matches All Skin Tones - Helmut Red Limited Edition](https://products.checkmycream.com/products/Best-Red-Lipstick-Long-Lasting-and-Luxurious-Matches-All-Skin-Tones-Helmut-Red-Limited-Edition.html)
 
 ### Positive Reviews

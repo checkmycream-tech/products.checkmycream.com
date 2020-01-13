@@ -1,12 +1,3 @@
----
-title: ResMed Swift II Nasal Pillows (Medium),
-description: ResMed Swift II Nasal Pillows (Medium),
-author: Suvojit Manna,
-tags: ResMed Swift II Nasal Pillows (Medium),
-publishedAt: Fri Jan 10 2020 15:00:18 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:18 GMT+0530 (India Standard Time),
----
-
 # [ResMed Swift II Nasal Pillows (Medium)](https://products.checkmycream.com/products/ResMed-Swift-II-Nasal-Pillows-(Medium).html)
 
 ### Positive Reviews

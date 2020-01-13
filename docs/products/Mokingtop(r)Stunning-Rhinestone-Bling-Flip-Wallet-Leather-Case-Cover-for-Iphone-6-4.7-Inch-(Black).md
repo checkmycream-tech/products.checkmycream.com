@@ -1,12 +1,3 @@
----
-title: Mokingtop®Stunning Rhinestone Bling Flip Wallet Leather Case Cover for Iphone 6 4.7 Inch (Black),
-description: Mokingtop®Stunning Rhinestone Bling Flip Wallet Leather Case Cover for Iphone 6 4.7 Inch (Black),
-author: Suvojit Manna,
-tags: Mokingtop®Stunning Rhinestone Bling Flip Wallet Leather Case Cover for Iphone 6 4.7 Inch (Black),
-publishedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
----
-
 # [Mokingtop®Stunning Rhinestone Bling Flip Wallet Leather Case Cover for Iphone 6 4.7 Inch (Black)](https://products.checkmycream.com/products/Mokingtop(r)Stunning-Rhinestone-Bling-Flip-Wallet-Leather-Case-Cover-for-Iphone-6-4.7-Inch-(Black).html)
 
 ### Positive Reviews

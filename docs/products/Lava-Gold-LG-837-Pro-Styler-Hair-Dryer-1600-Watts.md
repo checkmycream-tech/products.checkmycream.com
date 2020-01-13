@@ -1,12 +1,3 @@
----
-title: Lava Gold LG-837 Pro Styler Hair Dryer, 1600 Watts,
-description: Lava Gold LG-837 Pro Styler Hair Dryer, 1600 Watts,
-author: Suvojit Manna,
-tags: Lava Gold LG-837 Pro Styler Hair Dryer, 1600 Watts,
-publishedAt: Fri Jan 10 2020 15:00:16 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:16 GMT+0530 (India Standard Time),
----
-
 # [Lava Gold LG-837 Pro Styler Hair Dryer, 1600 Watts](https://products.checkmycream.com/products/Lava-Gold-LG-837-Pro-Styler-Hair-Dryer-1600-Watts.html)
 
 ### Positive Reviews

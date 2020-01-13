@@ -1,12 +1,3 @@
----
-title: High Altitude Organics Black Cumin Seed Oil,
-description: High Altitude Organics Black Cumin Seed Oil,
-author: Suvojit Manna,
-tags: High Altitude Organics Black Cumin Seed Oil,
-publishedAt: Fri Jan 10 2020 15:00:29 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:29 GMT+0530 (India Standard Time),
----
-
 # [High Altitude Organics Black Cumin Seed Oil](https://products.checkmycream.com/products/High-Altitude-Organics-Black-Cumin-Seed-Oil.html)
 
 ### Positive Reviews

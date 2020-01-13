@@ -1,12 +1,3 @@
----
-title: Single Toe Straightener,
-description: Single Toe Straightener,
-author: Suvojit Manna,
-tags: Single Toe Straightener,
-publishedAt: Fri Jan 10 2020 14:59:31 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:31 GMT+0530 (India Standard Time),
----
-
 # [Single Toe Straightener](https://products.checkmycream.com/products/Single-Toe-Straightener.html)
 
 ### Positive Reviews

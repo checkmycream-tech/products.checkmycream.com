@@ -1,12 +1,3 @@
----
-title: 212 by Carolina Herrera Eau De Toilette Spray 2 oz,
-description: 212 by Carolina Herrera Eau De Toilette Spray 2 oz,
-author: Suvojit Manna,
-tags: 212 by Carolina Herrera Eau De Toilette Spray 2 oz,
-publishedAt: Fri Jan 10 2020 15:00:21 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:21 GMT+0530 (India Standard Time),
----
-
 # [212 by Carolina Herrera Eau De Toilette Spray 2 oz](https://products.checkmycream.com/products/212-by-Carolina-Herrera-Eau-De-Toilette-Spray-2-oz.html)
 
 ### Positive Reviews

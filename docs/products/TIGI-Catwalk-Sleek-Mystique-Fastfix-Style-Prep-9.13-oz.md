@@ -1,12 +1,3 @@
----
-title: TIGI Catwalk Sleek Mystique Fastfix Style Prep 9.13 oz,
-description: TIGI Catwalk Sleek Mystique Fastfix Style Prep 9.13 oz,
-author: Suvojit Manna,
-tags: TIGI Catwalk Sleek Mystique Fastfix Style Prep 9.13 oz,
-publishedAt: Fri Jan 10 2020 14:59:54 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:54 GMT+0530 (India Standard Time),
----
-
 # [TIGI Catwalk Sleek Mystique Fastfix Style Prep 9.13 oz](https://products.checkmycream.com/products/TIGI-Catwalk-Sleek-Mystique-Fastfix-Style-Prep-9.13-oz.html)
 
 ### Positive Reviews

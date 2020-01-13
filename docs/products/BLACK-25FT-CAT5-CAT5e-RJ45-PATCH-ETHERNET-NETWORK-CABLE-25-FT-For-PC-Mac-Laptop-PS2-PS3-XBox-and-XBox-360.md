@@ -1,12 +1,3 @@
----
-title: BLACK 25FT CAT5 CAT5e RJ45 PATCH ETHERNET NETWORK CABLE 25 FT For PC, Mac, Laptop, PS2, PS3, XBox, and XBox 360,
-description: BLACK 25FT CAT5 CAT5e RJ45 PATCH ETHERNET NETWORK CABLE 25 FT For PC, Mac, Laptop, PS2, PS3, XBox, and XBox 360,
-author: Suvojit Manna,
-tags: BLACK 25FT CAT5 CAT5e RJ45 PATCH ETHERNET NETWORK CABLE 25 FT For PC, Mac, Laptop, PS2, PS3, XBox, and XBox 360,
-publishedAt: Fri Jan 10 2020 15:01:09 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:09 GMT+0530 (India Standard Time),
----
-
 # [BLACK 25FT CAT5 CAT5e RJ45 PATCH ETHERNET NETWORK CABLE 25 FT For PC, Mac, Laptop, PS2, PS3, XBox, and XBox 360](https://products.checkmycream.com/products/BLACK-25FT-CAT5-CAT5e-RJ45-PATCH-ETHERNET-NETWORK-CABLE-25-FT-For-PC-Mac-Laptop-PS2-PS3-XBox-and-XBox-360.html)
 
 ### Positive Reviews

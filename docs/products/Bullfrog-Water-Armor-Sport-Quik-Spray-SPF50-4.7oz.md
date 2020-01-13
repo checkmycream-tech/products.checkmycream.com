@@ -1,12 +1,3 @@
----
-title: Bullfrog Water Armor Sport Quik Spray SPF50 4.7oz,
-description: Bullfrog Water Armor Sport Quik Spray SPF50 4.7oz,
-author: Suvojit Manna,
-tags: Bullfrog Water Armor Sport Quik Spray SPF50 4.7oz,
-publishedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
----
-
 # [Bullfrog Water Armor Sport Quik Spray SPF50 4.7oz](https://products.checkmycream.com/products/Bullfrog-Water-Armor-Sport-Quik-Spray-SPF50-4.7oz.html)
 
 ### Positive Reviews

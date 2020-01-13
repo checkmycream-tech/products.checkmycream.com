@@ -1,12 +1,3 @@
----
-title: IRISMARU Black Thin Waterproof Liquid Eyeliner Pen Eye Liner Pencil,
-description: IRISMARU Black Thin Waterproof Liquid Eyeliner Pen Eye Liner Pencil,
-author: Suvojit Manna,
-tags: IRISMARU Black Thin Waterproof Liquid Eyeliner Pen Eye Liner Pencil,
-publishedAt: Fri Jan 10 2020 15:01:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:05 GMT+0530 (India Standard Time),
----
-
 # [IRISMARU Black Thin Waterproof Liquid Eyeliner Pen Eye Liner Pencil](https://products.checkmycream.com/products/IRISMARU-Black-Thin-Waterproof-Liquid-Eyeliner-Pen-Eye-Liner-Pencil.html)
 
 ### Positive Reviews

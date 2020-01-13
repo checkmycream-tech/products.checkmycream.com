@@ -1,12 +1,3 @@
----
-title: Obagi Hydrate, White, 1.7 Fluid Ounce,
-description: Obagi Hydrate, White, 1.7 Fluid Ounce,
-author: Suvojit Manna,
-tags: Obagi Hydrate, White, 1.7 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
----
-
 # [Obagi Hydrate, White, 1.7 Fluid Ounce](https://products.checkmycream.com/products/Obagi-Hydrate-White-1.7-Fluid-Ounce.html)
 
 ### Positive Reviews

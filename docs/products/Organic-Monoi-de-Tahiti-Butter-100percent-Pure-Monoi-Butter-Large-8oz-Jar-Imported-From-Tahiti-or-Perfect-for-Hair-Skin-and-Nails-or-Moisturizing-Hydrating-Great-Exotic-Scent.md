@@ -1,12 +1,3 @@
----
-title: Organic Monoi de Tahiti Butter - 100% Pure Monoi Butter - Large 8oz Jar - Imported From Tahiti | Perfect for Hair, Skin &amp; Nails | Moisturizing - Hydrating - Great Exotic Scent,
-description: Organic Monoi de Tahiti Butter - 100% Pure Monoi Butter - Large 8oz Jar - Imported From Tahiti | Perfect for Hair, Skin &amp; Nails | Moisturizing - Hydrating - Great Exotic Scent,
-author: Suvojit Manna,
-tags: Organic Monoi de Tahiti Butter - 100% Pure Monoi Butter - Large 8oz Jar - Imported From Tahiti | Perfect for Hair, Skin &amp; Nails | Moisturizing - Hydrating - Great Exotic Scent,
-publishedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
----
-
 # [Organic Monoi de Tahiti Butter - 100% Pure Monoi Butter - Large 8oz Jar - Imported From Tahiti | Perfect for Hair, Skin &amp; Nails | Moisturizing - Hydrating - Great Exotic Scent](https://products.checkmycream.com/products/Organic-Monoi-de-Tahiti-Butter-100percent-Pure-Monoi-Butter-Large-8oz-Jar-Imported-From-Tahiti-or-Perfect-for-Hair-Skin-and-Nails-or-Moisturizing-Hydrating-Great-Exotic-Scent.html)
 
 ### Positive Reviews

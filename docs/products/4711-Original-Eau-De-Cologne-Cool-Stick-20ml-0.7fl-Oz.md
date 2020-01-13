@@ -1,12 +1,3 @@
----
-title: 4711 Original Eau De Cologne Cool Stick 20ml 0.7fl Oz,
-description: 4711 Original Eau De Cologne Cool Stick 20ml 0.7fl Oz,
-author: Suvojit Manna,
-tags: 4711 Original Eau De Cologne Cool Stick 20ml 0.7fl Oz,
-publishedAt: Fri Jan 10 2020 14:59:43 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:43 GMT+0530 (India Standard Time),
----
-
 # [4711 Original Eau De Cologne Cool Stick 20ml 0.7fl Oz](https://products.checkmycream.com/products/4711-Original-Eau-De-Cologne-Cool-Stick-20ml-0.7fl-Oz.html)
 
 ### Positive Reviews

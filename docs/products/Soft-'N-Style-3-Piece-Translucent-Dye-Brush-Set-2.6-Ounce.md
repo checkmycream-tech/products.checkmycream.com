@@ -1,12 +1,3 @@
----
-title: Soft &#x27;N Style 3 Piece Translucent Dye Brush Set, 2.6 Ounce,
-description: Soft &#x27;N Style 3 Piece Translucent Dye Brush Set, 2.6 Ounce,
-author: Suvojit Manna,
-tags: Soft &#x27;N Style 3 Piece Translucent Dye Brush Set, 2.6 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
----
-
 # [Soft &#x27;N Style 3 Piece Translucent Dye Brush Set, 2.6 Ounce](https://products.checkmycream.com/products/Soft-&#x27;N-Style-3-Piece-Translucent-Dye-Brush-Set-2.6-Ounce.html)
 
 ### Positive Reviews

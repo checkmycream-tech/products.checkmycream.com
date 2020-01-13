@@ -1,12 +1,3 @@
----
-title: KoKo Lashes,
-description: KoKo Lashes,
-author: Suvojit Manna,
-tags: KoKo Lashes,
-publishedAt: Fri Jan 10 2020 15:01:04 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:04 GMT+0530 (India Standard Time),
----
-
 # [KoKo Lashes](https://products.checkmycream.com/products/KoKo-Lashes.html)
 
 ### Positive Reviews

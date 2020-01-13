@@ -1,12 +1,3 @@
----
-title: Liz Claiborne Candies Cologne, 0.18 Ounce,
-description: Liz Claiborne Candies Cologne, 0.18 Ounce,
-author: Suvojit Manna,
-tags: Liz Claiborne Candies Cologne, 0.18 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:01 GMT+0530 (India Standard Time),
----
-
 # [Liz Claiborne Candies Cologne, 0.18 Ounce](https://products.checkmycream.com/products/Liz-Claiborne-Candies-Cologne-0.18-Ounce.html)
 
 ### Positive Reviews

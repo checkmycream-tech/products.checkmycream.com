@@ -1,12 +1,3 @@
----
-title: Katy Perry Killer Queen Oh So Sheer Eau de Parfum Spray for Women, 3.4 Ounce,
-description: Katy Perry Killer Queen Oh So Sheer Eau de Parfum Spray for Women, 3.4 Ounce,
-author: Suvojit Manna,
-tags: Katy Perry Killer Queen Oh So Sheer Eau de Parfum Spray for Women, 3.4 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
----
-
 # [Katy Perry Killer Queen Oh So Sheer Eau de Parfum Spray for Women, 3.4 Ounce](https://products.checkmycream.com/products/Katy-Perry-Killer-Queen-Oh-So-Sheer-Eau-de-Parfum-Spray-for-Women-3.4-Ounce.html)
 
 ### Positive Reviews

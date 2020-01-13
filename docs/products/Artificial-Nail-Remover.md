@@ -1,12 +1,3 @@
----
-title: Artificial Nail Remover,
-description: Artificial Nail Remover,
-author: Suvojit Manna,
-tags: Artificial Nail Remover,
-publishedAt: Fri Jan 10 2020 15:00:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:08 GMT+0530 (India Standard Time),
----
-
 # [Artificial Nail Remover](https://products.checkmycream.com/products/Artificial-Nail-Remover.html)
 
 ### Positive Reviews

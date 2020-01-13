@@ -1,12 +1,3 @@
----
-title: Microdermal Anchor Holding Body Piercing Forcep,
-description: Microdermal Anchor Holding Body Piercing Forcep,
-author: Suvojit Manna,
-tags: Microdermal Anchor Holding Body Piercing Forcep,
-publishedAt: Fri Jan 10 2020 15:00:17 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:17 GMT+0530 (India Standard Time),
----
-
 # [Microdermal Anchor Holding Body Piercing Forcep](https://products.checkmycream.com/products/Microdermal-Anchor-Holding-Body-Piercing-Forcep.html)
 
 ### Positive Reviews

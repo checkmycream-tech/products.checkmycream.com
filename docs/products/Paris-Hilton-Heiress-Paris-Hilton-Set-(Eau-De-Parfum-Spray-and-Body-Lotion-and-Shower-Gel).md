@@ -1,12 +1,3 @@
----
-title: Paris Hilton Heiress Paris Hilton Set (Eau De Parfum Spray and Body Lotion and Shower Gel),
-description: Paris Hilton Heiress Paris Hilton Set (Eau De Parfum Spray and Body Lotion and Shower Gel),
-author: Suvojit Manna,
-tags: Paris Hilton Heiress Paris Hilton Set (Eau De Parfum Spray and Body Lotion and Shower Gel),
-publishedAt: Fri Jan 10 2020 14:59:22 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:22 GMT+0530 (India Standard Time),
----
-
 # [Paris Hilton Heiress Paris Hilton Set (Eau De Parfum Spray and Body Lotion and Shower Gel)](https://products.checkmycream.com/products/Paris-Hilton-Heiress-Paris-Hilton-Set-(Eau-De-Parfum-Spray-and-Body-Lotion-and-Shower-Gel).html)
 
 ### Positive Reviews

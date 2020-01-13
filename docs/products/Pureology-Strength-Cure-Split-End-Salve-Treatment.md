@@ -1,12 +1,3 @@
----
-title: Pureology Strength Cure Split End Salve Treatment,
-description: Pureology Strength Cure Split End Salve Treatment,
-author: Suvojit Manna,
-tags: Pureology Strength Cure Split End Salve Treatment,
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [Pureology Strength Cure Split End Salve Treatment](https://products.checkmycream.com/products/Pureology-Strength-Cure-Split-End-Salve-Treatment.html)
 
 ### Positive Reviews

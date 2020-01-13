@@ -1,12 +1,3 @@
----
-title: Distinction Firmalift Firming Face and Eye Serum- 2 Bottles,
-description: Distinction Firmalift Firming Face and Eye Serum- 2 Bottles,
-author: Suvojit Manna,
-tags: Distinction Firmalift Firming Face and Eye Serum- 2 Bottles,
-publishedAt: Fri Jan 10 2020 14:59:38 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:38 GMT+0530 (India Standard Time),
----
-
 # [Distinction Firmalift Firming Face and Eye Serum- 2 Bottles](https://products.checkmycream.com/products/Distinction-Firmalift-Firming-Face-and-Eye-Serum-2-Bottles.html)
 
 ### Positive Reviews

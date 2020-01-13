@@ -1,12 +1,3 @@
----
-title: CombPal Scissor Clipper Over Comb Haircutting Tool Kit (Black, Gray, or Yellow),
-description: CombPal Scissor Clipper Over Comb Haircutting Tool Kit (Black, Gray, or Yellow),
-author: Suvojit Manna,
-tags: CombPal Scissor Clipper Over Comb Haircutting Tool Kit (Black, Gray, or Yellow),
-publishedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
----
-
 # [CombPal Scissor Clipper Over Comb Haircutting Tool Kit (Black, Gray, or Yellow)](https://products.checkmycream.com/products/CombPal-Scissor-Clipper-Over-Comb-Haircutting-Tool-Kit-(Black-Gray-or-Yellow).html)
 
 ### Positive Reviews

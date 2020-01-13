@@ -1,12 +1,3 @@
----
-title: AsWeChange Vitamin C 30X Skin Serum,
-description: AsWeChange Vitamin C 30X Skin Serum,
-author: Suvojit Manna,
-tags: AsWeChange Vitamin C 30X Skin Serum,
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [AsWeChange Vitamin C 30X Skin Serum](https://products.checkmycream.com/products/AsWeChange-Vitamin-C-30X-Skin-Serum.html)
 
 ### Positive Reviews

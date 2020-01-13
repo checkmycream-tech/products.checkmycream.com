@@ -1,12 +1,3 @@
----
-title: Amir Argan Oil - Leave In Treatment 5.8 fl.oz - (Super Size) with Acai Berry extract,
-description: Amir Argan Oil - Leave In Treatment 5.8 fl.oz - (Super Size) with Acai Berry extract,
-author: Suvojit Manna,
-tags: Amir Argan Oil - Leave In Treatment 5.8 fl.oz - (Super Size) with Acai Berry extract,
-publishedAt: Fri Jan 10 2020 15:00:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:03 GMT+0530 (India Standard Time),
----
-
 # [Amir Argan Oil - Leave In Treatment 5.8 fl.oz - (Super Size) with Acai Berry extract](https://products.checkmycream.com/products/Amir-Argan-Oil-Leave-In-Treatment-5.8-fl.oz-(Super-Size)-with-Acai-Berry-extract.html)
 
 ### Positive Reviews

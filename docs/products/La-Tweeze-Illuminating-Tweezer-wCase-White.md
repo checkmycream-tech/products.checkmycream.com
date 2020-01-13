@@ -1,12 +1,3 @@
----
-title: La Tweeze Illuminating Tweezer w/Case White,
-description: La Tweeze Illuminating Tweezer w/Case White,
-author: Suvojit Manna,
-tags: La Tweeze Illuminating Tweezer w/Case White,
-publishedAt: Fri Jan 10 2020 14:59:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:57 GMT+0530 (India Standard Time),
----
-
 # [La Tweeze Illuminating Tweezer w/Case White](https://products.checkmycream.com/products/La-Tweeze-Illuminating-Tweezer-wCase-White.html)
 
 ### Positive Reviews

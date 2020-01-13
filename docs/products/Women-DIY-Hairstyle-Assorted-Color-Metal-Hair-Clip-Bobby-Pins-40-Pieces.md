@@ -1,12 +1,3 @@
----
-title: Women DIY Hairstyle Assorted Color Metal Hair Clip Bobby Pins 40 Pieces,
-description: Women DIY Hairstyle Assorted Color Metal Hair Clip Bobby Pins 40 Pieces,
-author: Suvojit Manna,
-tags: Women DIY Hairstyle Assorted Color Metal Hair Clip Bobby Pins 40 Pieces,
-publishedAt: Fri Jan 10 2020 15:00:37 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:37 GMT+0530 (India Standard Time),
----
-
 # [Women DIY Hairstyle Assorted Color Metal Hair Clip Bobby Pins 40 Pieces](https://products.checkmycream.com/products/Women-DIY-Hairstyle-Assorted-Color-Metal-Hair-Clip-Bobby-Pins-40-Pieces.html)
 
 ### Positive Reviews

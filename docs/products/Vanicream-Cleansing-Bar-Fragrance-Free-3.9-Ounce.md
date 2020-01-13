@@ -1,12 +1,3 @@
----
-title: Vanicream Cleansing Bar, Fragrance Free, 3.9 Ounce,
-description: Vanicream Cleansing Bar, Fragrance Free, 3.9 Ounce,
-author: Suvojit Manna,
-tags: Vanicream Cleansing Bar, Fragrance Free, 3.9 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:33 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:33 GMT+0530 (India Standard Time),
----
-
 # [Vanicream Cleansing Bar, Fragrance Free, 3.9 Ounce](https://products.checkmycream.com/products/Vanicream-Cleansing-Bar-Fragrance-Free-3.9-Ounce.html)
 
 ### Positive Reviews

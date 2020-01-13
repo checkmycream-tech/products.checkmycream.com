@@ -1,12 +1,3 @@
----
-title: Poli-Grip Partials Seal and Protect Denture Adhesive Cream, 2.1 Ounce,
-description: Poli-Grip Partials Seal and Protect Denture Adhesive Cream, 2.1 Ounce,
-author: Suvojit Manna,
-tags: Poli-Grip Partials Seal and Protect Denture Adhesive Cream, 2.1 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:38 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:38 GMT+0530 (India Standard Time),
----
-
 # [Poli-Grip Partials Seal and Protect Denture Adhesive Cream, 2.1 Ounce](https://products.checkmycream.com/products/Poli-Grip-Partials-Seal-and-Protect-Denture-Adhesive-Cream-2.1-Ounce.html)
 
 ### Positive Reviews

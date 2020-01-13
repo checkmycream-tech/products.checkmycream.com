@@ -1,12 +1,3 @@
----
-title: Glycerin Vegetable Kosher USP-Highest Quality Available-From Element Six,
-description: Glycerin Vegetable Kosher USP-Highest Quality Available-From Element Six,
-author: Suvojit Manna,
-tags: Glycerin Vegetable Kosher USP-Highest Quality Available-From Element Six,
-publishedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
----
-
 # [Glycerin Vegetable Kosher USP-Highest Quality Available-From Element Six](https://products.checkmycream.com/products/Glycerin-Vegetable-Kosher-USP-Highest-Quality-Available-From-Element-Six.html)
 
 ### Positive Reviews

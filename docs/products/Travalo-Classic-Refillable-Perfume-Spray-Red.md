@@ -1,12 +1,3 @@
----
-title: Travalo Classic Refillable Perfume Spray, Red,
-description: Travalo Classic Refillable Perfume Spray, Red,
-author: Suvojit Manna,
-tags: Travalo Classic Refillable Perfume Spray, Red,
-publishedAt: Fri Jan 10 2020 15:00:23 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:23 GMT+0530 (India Standard Time),
----
-
 # [Travalo Classic Refillable Perfume Spray, Red](https://products.checkmycream.com/products/Travalo-Classic-Refillable-Perfume-Spray-Red.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: CoverGirl Outlast Stay Brilliant Nail Gloss Holiday Gift Set,
-description: CoverGirl Outlast Stay Brilliant Nail Gloss Holiday Gift Set,
-author: Suvojit Manna,
-tags: CoverGirl Outlast Stay Brilliant Nail Gloss Holiday Gift Set,
-publishedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
----
-
 # [CoverGirl Outlast Stay Brilliant Nail Gloss Holiday Gift Set](https://products.checkmycream.com/products/CoverGirl-Outlast-Stay-Brilliant-Nail-Gloss-Holiday-Gift-Set.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Andis Beauty &amp; Barber T-Edjer Replacement Hair Trimmer Blade Set- Very Close Cutting .1mm- Fits Models AE &amp; AEE (15528),
-description: Andis Beauty &amp; Barber T-Edjer Replacement Hair Trimmer Blade Set- Very Close Cutting .1mm- Fits Models AE &amp; AEE (15528),
-author: Suvojit Manna,
-tags: Andis Beauty &amp; Barber T-Edjer Replacement Hair Trimmer Blade Set- Very Close Cutting .1mm- Fits Models AE &amp; AEE (15528),
-publishedAt: Fri Jan 10 2020 14:59:24 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:24 GMT+0530 (India Standard Time),
----
-
 # [Andis Beauty &amp; Barber T-Edjer Replacement Hair Trimmer Blade Set- Very Close Cutting .1mm- Fits Models AE &amp; AEE (15528)](https://products.checkmycream.com/products/Andis-Beauty-and-Barber-T-Edjer-Replacement-Hair-Trimmer-Blade-Set-Very-Close-Cutting-.1mm-Fits-Models-AE-and-AEE-(15528).html)
 
 ### Positive Reviews

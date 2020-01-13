@@ -1,12 +1,3 @@
----
-title: Wild Country Cologne Spray,
-description: Wild Country Cologne Spray,
-author: Suvojit Manna,
-tags: Wild Country Cologne Spray,
-publishedAt: Fri Jan 10 2020 14:59:34 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:34 GMT+0530 (India Standard Time),
----
-
 # [Wild Country Cologne Spray](https://products.checkmycream.com/products/Wild-Country-Cologne-Spray.html)
 
 ### Positive Reviews

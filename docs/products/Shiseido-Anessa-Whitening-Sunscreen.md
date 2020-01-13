@@ -1,12 +1,3 @@
----
-title: Shiseido Anessa Whitening Sunscreen,
-description: Shiseido Anessa Whitening Sunscreen,
-author: Suvojit Manna,
-tags: Shiseido Anessa Whitening Sunscreen,
-publishedAt: Fri Jan 10 2020 15:00:07 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:07 GMT+0530 (India Standard Time),
----
-
 # [Shiseido Anessa Whitening Sunscreen](https://products.checkmycream.com/products/Shiseido-Anessa-Whitening-Sunscreen.html)
 
 ### Positive Reviews

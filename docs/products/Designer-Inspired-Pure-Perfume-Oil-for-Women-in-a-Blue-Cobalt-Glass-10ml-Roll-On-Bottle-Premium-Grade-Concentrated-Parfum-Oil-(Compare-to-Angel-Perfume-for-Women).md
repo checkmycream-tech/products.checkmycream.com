@@ -1,12 +1,3 @@
----
-title: Designer Inspired Pure Perfume Oil for Women in a Blue Cobalt Glass 10ml Roll On Bottle; Premium Grade Concentrated Parfum Oil (Compare to Angel Perfume for Women),
-description: Designer Inspired Pure Perfume Oil for Women in a Blue Cobalt Glass 10ml Roll On Bottle; Premium Grade Concentrated Parfum Oil (Compare to Angel Perfume for Women),
-author: Suvojit Manna,
-tags: Designer Inspired Pure Perfume Oil for Women in a Blue Cobalt Glass 10ml Roll On Bottle; Premium Grade Concentrated Parfum Oil (Compare to Angel Perfume for Women),
-publishedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
----
-
 # [Designer Inspired Pure Perfume Oil for Women in a Blue Cobalt Glass 10ml Roll On Bottle; Premium Grade Concentrated Parfum Oil (Compare to Angel Perfume for Women)](https://products.checkmycream.com/products/Designer-Inspired-Pure-Perfume-Oil-for-Women-in-a-Blue-Cobalt-Glass-10ml-Roll-On-Bottle-Premium-Grade-Concentrated-Parfum-Oil-(Compare-to-Angel-Perfume-for-Women).html)
 
 ### Positive Reviews

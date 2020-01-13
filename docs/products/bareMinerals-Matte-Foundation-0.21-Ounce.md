@@ -1,12 +1,3 @@
----
-title: bareMinerals Matte Foundation, 0.21 Ounce,
-description: bareMinerals Matte Foundation, 0.21 Ounce,
-author: Suvojit Manna,
-tags: bareMinerals Matte Foundation, 0.21 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:29 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:29 GMT+0530 (India Standard Time),
----
-
 # [bareMinerals Matte Foundation, 0.21 Ounce](https://products.checkmycream.com/products/bareMinerals-Matte-Foundation-0.21-Ounce.html)
 
 ### Positive Reviews

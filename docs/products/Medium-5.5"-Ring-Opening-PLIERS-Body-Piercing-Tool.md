@@ -1,12 +1,3 @@
----
-title: Medium 5.5&quot; Ring Opening PLIERS Body Piercing Tool,
-description: Medium 5.5&quot; Ring Opening PLIERS Body Piercing Tool,
-author: Suvojit Manna,
-tags: Medium 5.5&quot; Ring Opening PLIERS Body Piercing Tool,
-publishedAt: Fri Jan 10 2020 15:00:10 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:10 GMT+0530 (India Standard Time),
----
-
 # [Medium 5.5&quot; Ring Opening PLIERS Body Piercing Tool](https://products.checkmycream.com/products/Medium-5.5&quot;-Ring-Opening-PLIERS-Body-Piercing-Tool.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: VERSACE EROS MEN/VERSACE SET (M),
-description: VERSACE EROS MEN/VERSACE SET (M),
-author: Suvojit Manna,
-tags: VERSACE EROS MEN/VERSACE SET (M),
-publishedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
----
-
 # [VERSACE EROS MEN/VERSACE SET (M)](https://products.checkmycream.com/products/VERSACE-EROS-MENVERSACE-SET-(M).html)
 
 ### Positive Reviews

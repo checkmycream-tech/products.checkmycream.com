@@ -1,12 +1,3 @@
----
-title: Durable High Quality Nail Art Designs / Patterns Round Small Stamp / Stamping / Stamper Tool With Easy To Clean White Rubber Head By VAGA,
-description: Durable High Quality Nail Art Designs / Patterns Round Small Stamp / Stamping / Stamper Tool With Easy To Clean White Rubber Head By VAGA,
-author: Suvojit Manna,
-tags: Durable High Quality Nail Art Designs / Patterns Round Small Stamp / Stamping / Stamper Tool With Easy To Clean White Rubber Head By VAGA,
-publishedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
----
-
 # [Durable High Quality Nail Art Designs / Patterns Round Small Stamp / Stamping / Stamper Tool With Easy To Clean White Rubber Head By VAGA](https://products.checkmycream.com/products/Durable-High-Quality-Nail-Art-Designs-Patterns-Round-Small-Stamp-Stamping-Stamper-Tool-With-Easy-To-Clean-White-Rubber-Head-By-VAGA.html)
 
 ### Positive Reviews

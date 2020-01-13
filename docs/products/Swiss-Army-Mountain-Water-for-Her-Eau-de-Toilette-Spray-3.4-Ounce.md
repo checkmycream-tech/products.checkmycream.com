@@ -1,12 +1,3 @@
----
-title: Swiss Army Mountain Water for Her Eau-de-Toilette Spray, 3.4-Ounce,
-description: Swiss Army Mountain Water for Her Eau-de-Toilette Spray, 3.4-Ounce,
-author: Suvojit Manna,
-tags: Swiss Army Mountain Water for Her Eau-de-Toilette Spray, 3.4-Ounce,
-publishedAt: Fri Jan 10 2020 14:59:52 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:52 GMT+0530 (India Standard Time),
----
-
 # [Swiss Army Mountain Water for Her Eau-de-Toilette Spray, 3.4-Ounce](https://products.checkmycream.com/products/Swiss-Army-Mountain-Water-for-Her-Eau-de-Toilette-Spray-3.4-Ounce.html)
 
 ### Positive Reviews

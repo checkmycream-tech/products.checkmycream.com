@@ -1,12 +1,3 @@
----
-title: WAHL Professional Straight Trimmer Blade for Men, Play Mat Clipper Blade,
-description: WAHL Professional Straight Trimmer Blade for Men, Play Mat Clipper Blade,
-author: Suvojit Manna,
-tags: WAHL Professional Straight Trimmer Blade for Men, Play Mat Clipper Blade,
-publishedAt: Fri Jan 10 2020 14:59:24 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:24 GMT+0530 (India Standard Time),
----
-
 # [WAHL Professional Straight Trimmer Blade for Men, Play Mat Clipper Blade](https://products.checkmycream.com/products/WAHL-Professional-Straight-Trimmer-Blade-for-Men-Play-Mat-Clipper-Blade.html)
 
 ### Positive Reviews

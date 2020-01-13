@@ -1,12 +1,3 @@
----
-title: RuiChy Multifunction Women Travel Make up Cosmetic Pouch Bag,
-description: RuiChy Multifunction Women Travel Make up Cosmetic Pouch Bag,
-author: Suvojit Manna,
-tags: RuiChy Multifunction Women Travel Make up Cosmetic Pouch Bag,
-publishedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
----
-
 # [RuiChy Multifunction Women Travel Make up Cosmetic Pouch Bag](https://products.checkmycream.com/products/RuiChy-Multifunction-Women-Travel-Make-up-Cosmetic-Pouch-Bag.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Clinique Acne Solutions Clinical Clearing Gel, Size 15ml,
-description: Clinique Acne Solutions Clinical Clearing Gel, Size 15ml,
-author: Suvojit Manna,
-tags: Clinique Acne Solutions Clinical Clearing Gel, Size 15ml,
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [Clinique Acne Solutions Clinical Clearing Gel, Size 15ml](https://products.checkmycream.com/products/Clinique-Acne-Solutions-Clinical-Clearing-Gel-Size-15ml.html)
 
 ### Positive Reviews

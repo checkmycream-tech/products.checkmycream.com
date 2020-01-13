@@ -1,12 +1,3 @@
----
-title: Kerastase Paris Resistance Ciment Thermique Conditioner, 5.1 ounce(150ml),
-description: Kerastase Paris Resistance Ciment Thermique Conditioner, 5.1 ounce(150ml),
-author: Suvojit Manna,
-tags: Kerastase Paris Resistance Ciment Thermique Conditioner, 5.1 ounce(150ml),
-publishedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
----
-
 # [Kerastase Paris Resistance Ciment Thermique Conditioner, 5.1 ounce(150ml)](https://products.checkmycream.com/products/Kerastase-Paris-Resistance-Ciment-Thermique-Conditioner-5.1-ounce(150ml).html)
 
 ### Positive Reviews

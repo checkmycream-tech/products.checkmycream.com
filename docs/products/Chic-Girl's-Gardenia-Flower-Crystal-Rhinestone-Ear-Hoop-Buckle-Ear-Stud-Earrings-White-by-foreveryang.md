@@ -1,12 +1,3 @@
----
-title: Chic Girl&#x27;s Gardenia Flower Crystal Rhinestone Ear Hoop Buckle Ear Stud Earrings White by foreveryang,
-description: Chic Girl&#x27;s Gardenia Flower Crystal Rhinestone Ear Hoop Buckle Ear Stud Earrings White by foreveryang,
-author: Suvojit Manna,
-tags: Chic Girl&#x27;s Gardenia Flower Crystal Rhinestone Ear Hoop Buckle Ear Stud Earrings White by foreveryang,
-publishedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
----
-
 # [Chic Girl&#x27;s Gardenia Flower Crystal Rhinestone Ear Hoop Buckle Ear Stud Earrings White by foreveryang](https://products.checkmycream.com/products/Chic-Girl&#x27;s-Gardenia-Flower-Crystal-Rhinestone-Ear-Hoop-Buckle-Ear-Stud-Earrings-White-by-foreveryang.html)
 
 ### Positive Reviews

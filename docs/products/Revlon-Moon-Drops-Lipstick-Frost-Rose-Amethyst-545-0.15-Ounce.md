@@ -1,12 +1,3 @@
----
-title: Revlon Moon Drops Lipstick, Frost, Rose Amethyst 545, 0.15 Ounce,
-description: Revlon Moon Drops Lipstick, Frost, Rose Amethyst 545, 0.15 Ounce,
-author: Suvojit Manna,
-tags: Revlon Moon Drops Lipstick, Frost, Rose Amethyst 545, 0.15 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:08 GMT+0530 (India Standard Time),
----
-
 # [Revlon Moon Drops Lipstick, Frost, Rose Amethyst 545, 0.15 Ounce](https://products.checkmycream.com/products/Revlon-Moon-Drops-Lipstick-Frost-Rose-Amethyst-545-0.15-Ounce.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: 6pcs Temporary Tattoo Sleeves,
-description: 6pcs Temporary Tattoo Sleeves,
-author: Suvojit Manna,
-tags: 6pcs Temporary Tattoo Sleeves,
-publishedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
----
-
 # [6pcs Temporary Tattoo Sleeves](https://products.checkmycream.com/products/6pcs-Temporary-Tattoo-Sleeves.html)
 
 ### Positive Reviews

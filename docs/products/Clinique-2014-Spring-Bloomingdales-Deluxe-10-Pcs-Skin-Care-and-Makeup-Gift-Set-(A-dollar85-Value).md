@@ -1,12 +1,3 @@
----
-title: Clinique 2014 Spring Bloomingdales Deluxe 10 Pcs Skin Care &amp; Makeup Gift Set (A $85 Value),
-description: Clinique 2014 Spring Bloomingdales Deluxe 10 Pcs Skin Care &amp; Makeup Gift Set (A $85 Value),
-author: Suvojit Manna,
-tags: Clinique 2014 Spring Bloomingdales Deluxe 10 Pcs Skin Care &amp; Makeup Gift Set (A $85 Value),
-publishedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
----
-
 # [Clinique 2014 Spring Bloomingdales Deluxe 10 Pcs Skin Care &amp; Makeup Gift Set (A $85 Value)](https://products.checkmycream.com/products/Clinique-2014-Spring-Bloomingdales-Deluxe-10-Pcs-Skin-Care-and-Makeup-Gift-Set-(A-dollar85-Value).html)
 
 ### Positive Reviews

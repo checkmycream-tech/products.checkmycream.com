@@ -1,12 +1,3 @@
----
-title: Playboy New York By Playboy Edt Spray/FN207225/3.4 oz/men/,
-description: Playboy New York By Playboy Edt Spray/FN207225/3.4 oz/men/,
-author: Suvojit Manna,
-tags: Playboy New York By Playboy Edt Spray/FN207225/3.4 oz/men/,
-publishedAt: Fri Jan 10 2020 15:00:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:00 GMT+0530 (India Standard Time),
----
-
 # [Playboy New York By Playboy Edt Spray/FN207225/3.4 oz/men/](https://products.checkmycream.com/products/Playboy-New-York-By-Playboy-Edt-SprayFN2072253.4-ozmen.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: 10 Transparent Clear Empty Lip Balm Tubes Containers,
-description: 10 Transparent Clear Empty Lip Balm Tubes Containers,
-author: Suvojit Manna,
-tags: 10 Transparent Clear Empty Lip Balm Tubes Containers,
-publishedAt: Fri Jan 10 2020 15:00:45 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:45 GMT+0530 (India Standard Time),
----
-
 # [10 Transparent Clear Empty Lip Balm Tubes Containers](https://products.checkmycream.com/products/10-Transparent-Clear-Empty-Lip-Balm-Tubes-Containers.html)
 
 ### Positive Reviews

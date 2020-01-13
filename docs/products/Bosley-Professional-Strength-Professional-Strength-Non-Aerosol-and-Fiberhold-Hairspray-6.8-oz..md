@@ -1,12 +1,3 @@
----
-title: Bosley Professional Strength Professional Strength Non-Aerosol and Fiberhold Hairspray, 6.8 oz.,
-description: Bosley Professional Strength Professional Strength Non-Aerosol and Fiberhold Hairspray, 6.8 oz.,
-author: Suvojit Manna,
-tags: Bosley Professional Strength Professional Strength Non-Aerosol and Fiberhold Hairspray, 6.8 oz.,
-publishedAt: Fri Jan 10 2020 15:00:22 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:22 GMT+0530 (India Standard Time),
----
-
 # [Bosley Professional Strength Professional Strength Non-Aerosol and Fiberhold Hairspray, 6.8 oz.](https://products.checkmycream.com/products/Bosley-Professional-Strength-Professional-Strength-Non-Aerosol-and-Fiberhold-Hairspray-6.8-oz..html)
 
 ### Positive Reviews

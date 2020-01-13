@@ -1,12 +1,3 @@
----
-title: Avon Anew Platinum Cleanser 4.2 FL Oz,
-description: Avon Anew Platinum Cleanser 4.2 FL Oz,
-author: Suvojit Manna,
-tags: Avon Anew Platinum Cleanser 4.2 FL Oz,
-publishedAt: Fri Jan 10 2020 15:00:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:03 GMT+0530 (India Standard Time),
----
-
 # [Avon Anew Platinum Cleanser 4.2 FL Oz](https://products.checkmycream.com/products/Avon-Anew-Platinum-Cleanser-4.2-FL-Oz.html)
 
 ### Positive Reviews

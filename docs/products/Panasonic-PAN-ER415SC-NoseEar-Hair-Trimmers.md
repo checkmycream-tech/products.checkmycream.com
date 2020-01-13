@@ -1,12 +1,3 @@
----
-title: Panasonic PAN-ER415SC Nose/Ear Hair Trimmers,
-description: Panasonic PAN-ER415SC Nose/Ear Hair Trimmers,
-author: Suvojit Manna,
-tags: Panasonic PAN-ER415SC Nose/Ear Hair Trimmers,
-publishedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
----
-
 # [Panasonic PAN-ER415SC Nose/Ear Hair Trimmers](https://products.checkmycream.com/products/Panasonic-PAN-ER415SC-NoseEar-Hair-Trimmers.html)
 
 ### Positive Reviews

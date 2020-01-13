@@ -1,12 +1,3 @@
----
-title: Frangipani - Spiritual Sky Scented Oil - 1/4 Ounce Bottle,
-description: Frangipani - Spiritual Sky Scented Oil - 1/4 Ounce Bottle,
-author: Suvojit Manna,
-tags: Frangipani - Spiritual Sky Scented Oil - 1/4 Ounce Bottle,
-publishedAt: Fri Jan 10 2020 14:59:25 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:25 GMT+0530 (India Standard Time),
----
-
 # [Frangipani - Spiritual Sky Scented Oil - 1/4 Ounce Bottle](https://products.checkmycream.com/products/Frangipani-Spiritual-Sky-Scented-Oil-14-Ounce-Bottle.html)
 
 ### Positive Reviews

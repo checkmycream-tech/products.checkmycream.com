@@ -1,12 +1,3 @@
----
-title: Sana Nameraka Isoflavone Facial Milky Lotion,
-description: Sana Nameraka Isoflavone Facial Milky Lotion,
-author: Suvojit Manna,
-tags: Sana Nameraka Isoflavone Facial Milky Lotion,
-publishedAt: Fri Jan 10 2020 14:59:16 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:16 GMT+0530 (India Standard Time),
----
-
 # [Sana Nameraka Isoflavone Facial Milky Lotion](https://products.checkmycream.com/products/Sana-Nameraka-Isoflavone-Facial-Milky-Lotion.html)
 
 ### Positive Reviews

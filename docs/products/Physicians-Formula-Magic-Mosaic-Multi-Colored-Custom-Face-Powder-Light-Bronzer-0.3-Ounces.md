@@ -1,12 +1,3 @@
----
-title: Physicians Formula Magic Mosaic Multi-Colored Custom Face Powder, Light Bronzer, 0.3-Ounces,
-description: Physicians Formula Magic Mosaic Multi-Colored Custom Face Powder, Light Bronzer, 0.3-Ounces,
-author: Suvojit Manna,
-tags: Physicians Formula Magic Mosaic Multi-Colored Custom Face Powder, Light Bronzer, 0.3-Ounces,
-publishedAt: Fri Jan 10 2020 14:59:31 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:31 GMT+0530 (India Standard Time),
----
-
 # [Physicians Formula Magic Mosaic Multi-Colored Custom Face Powder, Light Bronzer, 0.3-Ounces](https://products.checkmycream.com/products/Physicians-Formula-Magic-Mosaic-Multi-Colored-Custom-Face-Powder-Light-Bronzer-0.3-Ounces.html)
 
 ### Positive Reviews

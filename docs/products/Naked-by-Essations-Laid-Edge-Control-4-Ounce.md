@@ -1,12 +1,3 @@
----
-title: Naked by Essations Laid Edge Control, 4 Ounce,
-description: Naked by Essations Laid Edge Control, 4 Ounce,
-author: Suvojit Manna,
-tags: Naked by Essations Laid Edge Control, 4 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
----
-
 # [Naked by Essations Laid Edge Control, 4 Ounce](https://products.checkmycream.com/products/Naked-by-Essations-Laid-Edge-Control-4-Ounce.html)
 
 ### Positive Reviews

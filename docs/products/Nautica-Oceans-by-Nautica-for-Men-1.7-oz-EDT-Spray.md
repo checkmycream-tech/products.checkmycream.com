@@ -1,12 +1,3 @@
----
-title: Nautica Oceans by Nautica for Men - 1.7 oz EDT Spray,
-description: Nautica Oceans by Nautica for Men - 1.7 oz EDT Spray,
-author: Suvojit Manna,
-tags: Nautica Oceans by Nautica for Men - 1.7 oz EDT Spray,
-publishedAt: Fri Jan 10 2020 14:59:36 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:36 GMT+0530 (India Standard Time),
----
-
 # [Nautica Oceans by Nautica for Men - 1.7 oz EDT Spray](https://products.checkmycream.com/products/Nautica-Oceans-by-Nautica-for-Men-1.7-oz-EDT-Spray.html)
 
 ### Positive Reviews

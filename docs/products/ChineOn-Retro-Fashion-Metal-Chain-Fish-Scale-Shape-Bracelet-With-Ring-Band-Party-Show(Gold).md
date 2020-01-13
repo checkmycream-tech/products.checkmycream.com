@@ -1,12 +1,3 @@
----
-title: ChineOn Retro Fashion Metal Chain Fish Scale Shape Bracelet With Ring Band Party Show(Gold),
-description: ChineOn Retro Fashion Metal Chain Fish Scale Shape Bracelet With Ring Band Party Show(Gold),
-author: Suvojit Manna,
-tags: ChineOn Retro Fashion Metal Chain Fish Scale Shape Bracelet With Ring Band Party Show(Gold),
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [ChineOn Retro Fashion Metal Chain Fish Scale Shape Bracelet With Ring Band Party Show(Gold)](https://products.checkmycream.com/products/ChineOn-Retro-Fashion-Metal-Chain-Fish-Scale-Shape-Bracelet-With-Ring-Band-Party-Show(Gold).html)
 
 ### Positive Reviews

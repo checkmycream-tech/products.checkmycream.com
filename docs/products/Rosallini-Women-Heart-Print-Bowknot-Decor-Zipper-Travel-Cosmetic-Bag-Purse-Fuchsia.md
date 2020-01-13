@@ -1,12 +1,3 @@
----
-title: Rosallini Women Heart Print Bowknot Decor Zipper Travel Cosmetic Bag Purse Fuchsia,
-description: Rosallini Women Heart Print Bowknot Decor Zipper Travel Cosmetic Bag Purse Fuchsia,
-author: Suvojit Manna,
-tags: Rosallini Women Heart Print Bowknot Decor Zipper Travel Cosmetic Bag Purse Fuchsia,
-publishedAt: Fri Jan 10 2020 15:00:31 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:31 GMT+0530 (India Standard Time),
----
-
 # [Rosallini Women Heart Print Bowknot Decor Zipper Travel Cosmetic Bag Purse Fuchsia](https://products.checkmycream.com/products/Rosallini-Women-Heart-Print-Bowknot-Decor-Zipper-Travel-Cosmetic-Bag-Purse-Fuchsia.html)
 
 ### Positive Reviews

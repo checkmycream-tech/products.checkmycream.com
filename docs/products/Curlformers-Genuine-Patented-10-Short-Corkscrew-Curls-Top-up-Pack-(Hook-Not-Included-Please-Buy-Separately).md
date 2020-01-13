@@ -1,12 +1,3 @@
----
-title: Curlformers Genuine Patented 10 Short Corkscrew Curls Top-up Pack (Hook Not Included, Please Buy Separately),
-description: Curlformers Genuine Patented 10 Short Corkscrew Curls Top-up Pack (Hook Not Included, Please Buy Separately),
-author: Suvojit Manna,
-tags: Curlformers Genuine Patented 10 Short Corkscrew Curls Top-up Pack (Hook Not Included, Please Buy Separately),
-publishedAt: Fri Jan 10 2020 14:59:49 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:49 GMT+0530 (India Standard Time),
----
-
 # [Curlformers Genuine Patented 10 Short Corkscrew Curls Top-up Pack (Hook Not Included, Please Buy Separately)](https://products.checkmycream.com/products/Curlformers-Genuine-Patented-10-Short-Corkscrew-Curls-Top-up-Pack-(Hook-Not-Included-Please-Buy-Separately).html)
 
 ### Positive Reviews

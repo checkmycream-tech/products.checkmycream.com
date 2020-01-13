@@ -1,12 +1,3 @@
----
-title: Mary Kay Oil-Free Eye Makeup Remover,
-description: Mary Kay Oil-Free Eye Makeup Remover,
-author: Suvojit Manna,
-tags: Mary Kay Oil-Free Eye Makeup Remover,
-publishedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
----
-
 # [Mary Kay Oil-Free Eye Makeup Remover](https://products.checkmycream.com/products/Mary-Kay-Oil-Free-Eye-Makeup-Remover.html)
 
 ### Positive Reviews

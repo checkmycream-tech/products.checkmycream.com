@@ -1,12 +1,3 @@
----
-title: Sebamed Scalp Activating Shampoo (for thinning hair),
-description: Sebamed Scalp Activating Shampoo (for thinning hair),
-author: Suvojit Manna,
-tags: Sebamed Scalp Activating Shampoo (for thinning hair),
-publishedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
----
-
 # [Sebamed Scalp Activating Shampoo (for thinning hair)](https://products.checkmycream.com/products/Sebamed-Scalp-Activating-Shampoo-(for-thinning-hair).html)
 
 ### Positive Reviews

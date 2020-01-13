@@ -1,12 +1,3 @@
----
-title: Victoria&#x27;s Secret Small Cosmetic Bag Round 5&quot; x 2.5&quot; For Small items,
-description: Victoria&#x27;s Secret Small Cosmetic Bag Round 5&quot; x 2.5&quot; For Small items,
-author: Suvojit Manna,
-tags: Victoria&#x27;s Secret Small Cosmetic Bag Round 5&quot; x 2.5&quot; For Small items,
-publishedAt: Fri Jan 10 2020 15:00:10 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:10 GMT+0530 (India Standard Time),
----
-
 # [Victoria&#x27;s Secret Small Cosmetic Bag Round 5&quot; x 2.5&quot; For Small items](https://products.checkmycream.com/products/Victoria&#x27;s-Secret-Small-Cosmetic-Bag-Round-5&quot;-x-2.5&quot;-For-Small-items.html)
 
 ### Positive Reviews

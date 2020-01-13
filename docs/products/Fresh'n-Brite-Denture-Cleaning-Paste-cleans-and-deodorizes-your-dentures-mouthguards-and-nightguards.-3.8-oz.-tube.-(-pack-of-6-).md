@@ -1,12 +1,3 @@
----
-title: Fresh&#x27;n Brite  Denture Cleaning Paste cleans and deodorizes your dentures, mouthguards, and nightguards. 3.8 oz. tube.  ( pack of 6 ),
-description: Fresh&#x27;n Brite  Denture Cleaning Paste cleans and deodorizes your dentures, mouthguards, and nightguards. 3.8 oz. tube.  ( pack of 6 ),
-author: Suvojit Manna,
-tags: Fresh&#x27;n Brite  Denture Cleaning Paste cleans and deodorizes your dentures, mouthguards, and nightguards. 3.8 oz. tube.  ( pack of 6 ),
-publishedAt: Fri Jan 10 2020 15:00:37 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:37 GMT+0530 (India Standard Time),
----
-
 # [Fresh&#x27;n Brite  Denture Cleaning Paste cleans and deodorizes your dentures, mouthguards, and nightguards. 3.8 oz. tube.  ( pack of 6 )](https://products.checkmycream.com/products/Fresh&#x27;n-Brite-Denture-Cleaning-Paste-cleans-and-deodorizes-your-dentures-mouthguards-and-nightguards.-3.8-oz.-tube.-(-pack-of-6-).html)
 
 ### Positive Reviews

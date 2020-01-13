@@ -1,12 +1,3 @@
----
-title: OGX Leave-In Mist, Luxurious Moroccan Argan Sheer Hydration, 6oz,
-description: OGX Leave-In Mist, Luxurious Moroccan Argan Sheer Hydration, 6oz,
-author: Suvojit Manna,
-tags: OGX Leave-In Mist, Luxurious Moroccan Argan Sheer Hydration, 6oz,
-publishedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
----
-
 # [OGX Leave-In Mist, Luxurious Moroccan Argan Sheer Hydration, 6oz](https://products.checkmycream.com/products/OGX-Leave-In-Mist-Luxurious-Moroccan-Argan-Sheer-Hydration-6oz.html)
 
 ### Positive Reviews

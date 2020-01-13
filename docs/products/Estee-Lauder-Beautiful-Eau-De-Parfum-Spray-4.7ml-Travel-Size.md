@@ -1,12 +1,3 @@
----
-title: Estee Lauder Beautiful Eau De Parfum Spray, 4.7ml Travel Size,
-description: Estee Lauder Beautiful Eau De Parfum Spray, 4.7ml Travel Size,
-author: Suvojit Manna,
-tags: Estee Lauder Beautiful Eau De Parfum Spray, 4.7ml Travel Size,
-publishedAt: Fri Jan 10 2020 15:00:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:00 GMT+0530 (India Standard Time),
----
-
 # [Estee Lauder Beautiful Eau De Parfum Spray, 4.7ml Travel Size](https://products.checkmycream.com/products/Estee-Lauder-Beautiful-Eau-De-Parfum-Spray-4.7ml-Travel-Size.html)
 
 ### Positive Reviews

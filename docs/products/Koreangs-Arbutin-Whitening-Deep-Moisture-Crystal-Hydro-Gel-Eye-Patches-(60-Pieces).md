@@ -1,12 +1,3 @@
----
-title: Koreangs Arbutin Whitening Deep Moisture Crystal Hydro Gel Eye Patches (60 Pieces),
-description: Koreangs Arbutin Whitening Deep Moisture Crystal Hydro Gel Eye Patches (60 Pieces),
-author: Suvojit Manna,
-tags: Koreangs Arbutin Whitening Deep Moisture Crystal Hydro Gel Eye Patches (60 Pieces),
-publishedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
----
-
 # [Koreangs Arbutin Whitening Deep Moisture Crystal Hydro Gel Eye Patches (60 Pieces)](https://products.checkmycream.com/products/Koreangs-Arbutin-Whitening-Deep-Moisture-Crystal-Hydro-Gel-Eye-Patches-(60-Pieces).html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: 10 Pair Reusable Charming Cross Fake False Eyelashes Glue Adhesives Eye Lashes 57,
-description: 10 Pair Reusable Charming Cross Fake False Eyelashes Glue Adhesives Eye Lashes 57,
-author: Suvojit Manna,
-tags: 10 Pair Reusable Charming Cross Fake False Eyelashes Glue Adhesives Eye Lashes 57,
-publishedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
----
-
 # [10 Pair Reusable Charming Cross Fake False Eyelashes Glue Adhesives Eye Lashes 57](https://products.checkmycream.com/products/10-Pair-Reusable-Charming-Cross-Fake-False-Eyelashes-Glue-Adhesives-Eye-Lashes-57.html)
 
 ### Positive Reviews

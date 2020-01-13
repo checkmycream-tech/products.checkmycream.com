@@ -1,12 +1,3 @@
----
-title: Mally Beauty Volumizing Mascara, Black .39 fl oz (10 ml) Duo,
-description: Mally Beauty Volumizing Mascara, Black .39 fl oz (10 ml) Duo,
-author: Suvojit Manna,
-tags: Mally Beauty Volumizing Mascara, Black .39 fl oz (10 ml) Duo,
-publishedAt: Fri Jan 10 2020 15:00:17 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:17 GMT+0530 (India Standard Time),
----
-
 # [Mally Beauty Volumizing Mascara, Black .39 fl oz (10 ml) Duo](https://products.checkmycream.com/products/Mally-Beauty-Volumizing-Mascara-Black-.39-fl-oz-(10-ml)-Duo.html)
 
 ### Positive Reviews

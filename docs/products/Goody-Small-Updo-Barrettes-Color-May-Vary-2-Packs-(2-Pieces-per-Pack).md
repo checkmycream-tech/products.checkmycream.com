@@ -1,12 +1,3 @@
----
-title: Goody Small Updo Barrettes Color May Vary - 2 Packs (2 Pieces per Pack),
-description: Goody Small Updo Barrettes Color May Vary - 2 Packs (2 Pieces per Pack),
-author: Suvojit Manna,
-tags: Goody Small Updo Barrettes Color May Vary - 2 Packs (2 Pieces per Pack),
-publishedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
----
-
 # [Goody Small Updo Barrettes Color May Vary - 2 Packs (2 Pieces per Pack)](https://products.checkmycream.com/products/Goody-Small-Updo-Barrettes-Color-May-Vary-2-Packs-(2-Pieces-per-Pack).html)
 
 ### Positive Reviews

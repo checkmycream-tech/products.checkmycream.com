@@ -1,12 +1,3 @@
----
-title: Mary Kay Black Eyeliner in the New Black &amp; Pink Packaging,
-description: Mary Kay Black Eyeliner in the New Black &amp; Pink Packaging,
-author: Suvojit Manna,
-tags: Mary Kay Black Eyeliner in the New Black &amp; Pink Packaging,
-publishedAt: Fri Jan 10 2020 15:00:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:01 GMT+0530 (India Standard Time),
----
-
 # [Mary Kay Black Eyeliner in the New Black &amp; Pink Packaging](https://products.checkmycream.com/products/Mary-Kay-Black-Eyeliner-in-the-New-Black-and-Pink-Packaging.html)
 
 ### Positive Reviews

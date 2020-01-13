@@ -1,12 +1,3 @@
----
-title: Inferno Paradiso Pink By Benetton For Women. Eau De Toilette Spray 3.3 Ounces,
-description: Inferno Paradiso Pink By Benetton For Women. Eau De Toilette Spray 3.3 Ounces,
-author: Suvojit Manna,
-tags: Inferno Paradiso Pink By Benetton For Women. Eau De Toilette Spray 3.3 Ounces,
-publishedAt: Fri Jan 10 2020 14:59:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:08 GMT+0530 (India Standard Time),
----
-
 # [Inferno Paradiso Pink By Benetton For Women. Eau De Toilette Spray 3.3 Ounces](https://products.checkmycream.com/products/Inferno-Paradiso-Pink-By-Benetton-For-Women.-Eau-De-Toilette-Spray-3.3-Ounces.html)
 
 ### Positive Reviews

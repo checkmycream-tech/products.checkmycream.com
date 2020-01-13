@@ -1,12 +1,3 @@
----
-title: Clairol Professional Soy4plex Pure White Creme Hair Color Developer, 40 Volume,
-description: Clairol Professional Soy4plex Pure White Creme Hair Color Developer, 40 Volume,
-author: Suvojit Manna,
-tags: Clairol Professional Soy4plex Pure White Creme Hair Color Developer, 40 Volume,
-publishedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
----
-
 # [Clairol Professional Soy4plex Pure White Creme Hair Color Developer, 40 Volume](https://products.checkmycream.com/products/Clairol-Professional-Soy4plex-Pure-White-Creme-Hair-Color-Developer-40-Volume.html)
 
 ### Positive Reviews

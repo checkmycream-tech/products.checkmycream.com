@@ -1,12 +1,3 @@
----
-title: Denture Brush,
-description: Denture Brush,
-author: Suvojit Manna,
-tags: Denture Brush,
-publishedAt: Fri Jan 10 2020 14:59:25 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:25 GMT+0530 (India Standard Time),
----
-
 # [Denture Brush](https://products.checkmycream.com/products/Denture-Brush.html)
 
 ### Positive Reviews

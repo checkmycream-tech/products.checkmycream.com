@@ -1,12 +1,3 @@
----
-title: NEW 2015 Clinique 7 Pcs Makeup Skincare Gift Set with Moisture Surge &amp; More! ($70+ Value),
-description: NEW 2015 Clinique 7 Pcs Makeup Skincare Gift Set with Moisture Surge &amp; More! ($70+ Value),
-author: Suvojit Manna,
-tags: NEW 2015 Clinique 7 Pcs Makeup Skincare Gift Set with Moisture Surge &amp; More! ($70+ Value),
-publishedAt: Fri Jan 10 2020 15:01:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:08 GMT+0530 (India Standard Time),
----
-
 # [NEW 2015 Clinique 7 Pcs Makeup Skincare Gift Set with Moisture Surge &amp; More! ($70+ Value)](https://products.checkmycream.com/products/NEW-2015-Clinique-7-Pcs-Makeup-Skincare-Gift-Set-with-Moisture-Surge-and-More!-(dollar70+-Value).html)
 
 ### Positive Reviews

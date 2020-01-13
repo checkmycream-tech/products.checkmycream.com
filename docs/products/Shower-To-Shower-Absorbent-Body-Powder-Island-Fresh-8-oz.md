@@ -1,12 +1,3 @@
----
-title: Shower To Shower Absorbent Body Powder-Island Fresh-8 oz,
-description: Shower To Shower Absorbent Body Powder-Island Fresh-8 oz,
-author: Suvojit Manna,
-tags: Shower To Shower Absorbent Body Powder-Island Fresh-8 oz,
-publishedAt: Fri Jan 10 2020 14:59:11 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:11 GMT+0530 (India Standard Time),
----
-
 # [Shower To Shower Absorbent Body Powder-Island Fresh-8 oz](https://products.checkmycream.com/products/Shower-To-Shower-Absorbent-Body-Powder-Island-Fresh-8-oz.html)
 
 ### Positive Reviews

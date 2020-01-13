@@ -1,12 +1,3 @@
----
-title: Towallmark(TM)Fresh Cute Flip Wallet Leather Case Cover for Samsung Galaxy S3 i9300,
-description: Towallmark(TM)Fresh Cute Flip Wallet Leather Case Cover for Samsung Galaxy S3 i9300,
-author: Suvojit Manna,
-tags: Towallmark(TM)Fresh Cute Flip Wallet Leather Case Cover for Samsung Galaxy S3 i9300,
-publishedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
----
-
 # [Towallmark(TM)Fresh Cute Flip Wallet Leather Case Cover for Samsung Galaxy S3 i9300](https://products.checkmycream.com/products/Towallmark(TM)Fresh-Cute-Flip-Wallet-Leather-Case-Cover-for-Samsung-Galaxy-S3-i9300.html)
 
 ### Positive Reviews

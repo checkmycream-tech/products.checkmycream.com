@@ -1,12 +1,3 @@
----
-title: Relaxing Epsom Bath Salts with Lavender,
-description: Relaxing Epsom Bath Salts with Lavender,
-author: Suvojit Manna,
-tags: Relaxing Epsom Bath Salts with Lavender,
-publishedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
----
-
 # [Relaxing Epsom Bath Salts with Lavender](https://products.checkmycream.com/products/Relaxing-Epsom-Bath-Salts-with-Lavender.html)
 
 ### Positive Reviews

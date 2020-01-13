@@ -1,12 +1,3 @@
----
-title: Avani Refreshing Facial Toner All Skin Types 220ml 7.5oz.,
-description: Avani Refreshing Facial Toner All Skin Types 220ml 7.5oz.,
-author: Suvojit Manna,
-tags: Avani Refreshing Facial Toner All Skin Types 220ml 7.5oz.,
-publishedAt: Fri Jan 10 2020 15:00:23 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:23 GMT+0530 (India Standard Time),
----
-
 # [Avani Refreshing Facial Toner All Skin Types 220ml 7.5oz.](https://products.checkmycream.com/products/Avani-Refreshing-Facial-Toner-All-Skin-Types-220ml-7.5oz..html)
 
 ### Positive Reviews

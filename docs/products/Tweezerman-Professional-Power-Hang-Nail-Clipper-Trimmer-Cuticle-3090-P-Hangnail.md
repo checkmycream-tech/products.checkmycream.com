@@ -1,12 +1,3 @@
----
-title: Tweezerman Professional Power Hang Nail Clipper Trimmer Cuticle 3090-P Hangnail,
-description: Tweezerman Professional Power Hang Nail Clipper Trimmer Cuticle 3090-P Hangnail,
-author: Suvojit Manna,
-tags: Tweezerman Professional Power Hang Nail Clipper Trimmer Cuticle 3090-P Hangnail,
-publishedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
----
-
 # [Tweezerman Professional Power Hang Nail Clipper Trimmer Cuticle 3090-P Hangnail](https://products.checkmycream.com/products/Tweezerman-Professional-Power-Hang-Nail-Clipper-Trimmer-Cuticle-3090-P-Hangnail.html)
 
 ### Positive Reviews

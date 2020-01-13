@@ -1,12 +1,3 @@
----
-title: Thann Aromatic Wood Hand Lotion 250 ml,
-description: Thann Aromatic Wood Hand Lotion 250 ml,
-author: Suvojit Manna,
-tags: Thann Aromatic Wood Hand Lotion 250 ml,
-publishedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
----
-
 # [Thann Aromatic Wood Hand Lotion 250 ml](https://products.checkmycream.com/products/Thann-Aromatic-Wood-Hand-Lotion-250-ml.html)
 
 ### Positive Reviews

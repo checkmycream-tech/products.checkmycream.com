@@ -1,12 +1,3 @@
----
-title: American Crew Light Hold Styling Gel,
-description: American Crew Light Hold Styling Gel,
-author: Suvojit Manna,
-tags: American Crew Light Hold Styling Gel,
-publishedAt: Fri Jan 10 2020 15:00:11 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:11 GMT+0530 (India Standard Time),
----
-
 # [American Crew Light Hold Styling Gel](https://products.checkmycream.com/products/American-Crew-Light-Hold-Styling-Gel.html)
 
 ### Positive Reviews

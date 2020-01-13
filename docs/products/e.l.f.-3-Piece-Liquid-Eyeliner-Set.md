@@ -1,12 +1,3 @@
----
-title: e.l.f. 3 Piece Liquid Eyeliner Set,
-description: e.l.f. 3 Piece Liquid Eyeliner Set,
-author: Suvojit Manna,
-tags: e.l.f. 3 Piece Liquid Eyeliner Set,
-publishedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
----
-
 # [e.l.f. 3 Piece Liquid Eyeliner Set](https://products.checkmycream.com/products/e.l.f.-3-Piece-Liquid-Eyeliner-Set.html)
 
 ### Positive Reviews

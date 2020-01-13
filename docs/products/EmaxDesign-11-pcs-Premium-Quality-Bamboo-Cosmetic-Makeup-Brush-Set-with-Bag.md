@@ -1,12 +1,3 @@
----
-title: EmaxDesign 11 pcs Premium Quality Bamboo Cosmetic Makeup Brush Set with Bag,
-description: EmaxDesign 11 pcs Premium Quality Bamboo Cosmetic Makeup Brush Set with Bag,
-author: Suvojit Manna,
-tags: EmaxDesign 11 pcs Premium Quality Bamboo Cosmetic Makeup Brush Set with Bag,
-publishedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
----
-
 # [EmaxDesign 11 pcs Premium Quality Bamboo Cosmetic Makeup Brush Set with Bag](https://products.checkmycream.com/products/EmaxDesign-11-pcs-Premium-Quality-Bamboo-Cosmetic-Makeup-Brush-Set-with-Bag.html)
 
 ### Positive Reviews

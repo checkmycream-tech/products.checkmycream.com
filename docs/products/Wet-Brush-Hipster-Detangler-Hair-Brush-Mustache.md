@@ -1,12 +1,3 @@
----
-title: Wet Brush Hipster Detangler Hair Brush, Mustache,
-description: Wet Brush Hipster Detangler Hair Brush, Mustache,
-author: Suvojit Manna,
-tags: Wet Brush Hipster Detangler Hair Brush, Mustache,
-publishedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
----
-
 # [Wet Brush Hipster Detangler Hair Brush, Mustache](https://products.checkmycream.com/products/Wet-Brush-Hipster-Detangler-Hair-Brush-Mustache.html)
 
 ### Positive Reviews

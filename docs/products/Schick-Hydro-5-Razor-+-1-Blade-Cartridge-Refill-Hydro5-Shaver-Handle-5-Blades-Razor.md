@@ -1,12 +1,3 @@
----
-title: Schick Hydro 5 Razor + 1 Blade Cartridge Refill Hydro5 Shaver Handle 5 Blades Razor,
-description: Schick Hydro 5 Razor + 1 Blade Cartridge Refill Hydro5 Shaver Handle 5 Blades Razor,
-author: Suvojit Manna,
-tags: Schick Hydro 5 Razor + 1 Blade Cartridge Refill Hydro5 Shaver Handle 5 Blades Razor,
-publishedAt: Fri Jan 10 2020 15:00:16 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:16 GMT+0530 (India Standard Time),
----
-
 # [Schick Hydro 5 Razor + 1 Blade Cartridge Refill Hydro5 Shaver Handle 5 Blades Razor](https://products.checkmycream.com/products/Schick-Hydro-5-Razor-+-1-Blade-Cartridge-Refill-Hydro5-Shaver-Handle-5-Blades-Razor.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Victoria&#x27;s Secret Breathless Body Lotion 6.7 fl oz (200 ml),
-description: Victoria&#x27;s Secret Breathless Body Lotion 6.7 fl oz (200 ml),
-author: Suvojit Manna,
-tags: Victoria&#x27;s Secret Breathless Body Lotion 6.7 fl oz (200 ml),
-publishedAt: Fri Jan 10 2020 14:59:44 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:44 GMT+0530 (India Standard Time),
----
-
 # [Victoria&#x27;s Secret Breathless Body Lotion 6.7 fl oz (200 ml)](https://products.checkmycream.com/products/Victoria&#x27;s-Secret-Breathless-Body-Lotion-6.7-fl-oz-(200-ml).html)
 
 ### Positive Reviews

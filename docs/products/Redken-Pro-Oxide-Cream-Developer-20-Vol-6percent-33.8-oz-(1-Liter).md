@@ -1,12 +1,3 @@
----
-title: Redken Pro-Oxide Cream Developer 20 Vol 6% 33.8 oz (1 Liter),
-description: Redken Pro-Oxide Cream Developer 20 Vol 6% 33.8 oz (1 Liter),
-author: Suvojit Manna,
-tags: Redken Pro-Oxide Cream Developer 20 Vol 6% 33.8 oz (1 Liter),
-publishedAt: Fri Jan 10 2020 14:59:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:56 GMT+0530 (India Standard Time),
----
-
 # [Redken Pro-Oxide Cream Developer 20 Vol 6% 33.8 oz (1 Liter)](https://products.checkmycream.com/products/Redken-Pro-Oxide-Cream-Developer-20-Vol-6percent-33.8-oz-(1-Liter).html)
 
 ### Positive Reviews

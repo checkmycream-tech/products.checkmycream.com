@@ -1,12 +1,3 @@
----
-title: Fixodent Adhesive Cream (Pack of 6),
-description: Fixodent Adhesive Cream (Pack of 6),
-author: Suvojit Manna,
-tags: Fixodent Adhesive Cream (Pack of 6),
-publishedAt: Fri Jan 10 2020 14:59:47 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:47 GMT+0530 (India Standard Time),
----
-
 # [Fixodent Adhesive Cream (Pack of 6)](https://products.checkmycream.com/products/Fixodent-Adhesive-Cream-(Pack-of-6).html)
 
 ### Positive Reviews

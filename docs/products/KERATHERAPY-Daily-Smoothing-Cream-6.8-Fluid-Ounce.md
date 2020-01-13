@@ -1,12 +1,3 @@
----
-title: KERATHERAPY Daily Smoothing Cream, 6.8 Fluid Ounce,
-description: KERATHERAPY Daily Smoothing Cream, 6.8 Fluid Ounce,
-author: Suvojit Manna,
-tags: KERATHERAPY Daily Smoothing Cream, 6.8 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
----
-
 # [KERATHERAPY Daily Smoothing Cream, 6.8 Fluid Ounce](https://products.checkmycream.com/products/KERATHERAPY-Daily-Smoothing-Cream-6.8-Fluid-Ounce.html)
 
 ### Positive Reviews

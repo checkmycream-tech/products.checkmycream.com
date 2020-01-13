@@ -1,12 +1,3 @@
----
-title: Forever Florals Hawaii Plumeria Spray Cologne 2 oz,
-description: Forever Florals Hawaii Plumeria Spray Cologne 2 oz,
-author: Suvojit Manna,
-tags: Forever Florals Hawaii Plumeria Spray Cologne 2 oz,
-publishedAt: Fri Jan 10 2020 14:59:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:58 GMT+0530 (India Standard Time),
----
-
 # [Forever Florals Hawaii Plumeria Spray Cologne 2 oz](https://products.checkmycream.com/products/Forever-Florals-Hawaii-Plumeria-Spray-Cologne-2-oz.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: uxcell 12 Pcs Pink Plastic DIY Hair Styling Roller Curlers Clips,
-description: uxcell 12 Pcs Pink Plastic DIY Hair Styling Roller Curlers Clips,
-author: Suvojit Manna,
-tags: uxcell 12 Pcs Pink Plastic DIY Hair Styling Roller Curlers Clips,
-publishedAt: Fri Jan 10 2020 15:00:36 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:36 GMT+0530 (India Standard Time),
----
-
 # [uxcell 12 Pcs Pink Plastic DIY Hair Styling Roller Curlers Clips](https://products.checkmycream.com/products/uxcell-12-Pcs-Pink-Plastic-DIY-Hair-Styling-Roller-Curlers-Clips.html)
 
 ### Positive Reviews

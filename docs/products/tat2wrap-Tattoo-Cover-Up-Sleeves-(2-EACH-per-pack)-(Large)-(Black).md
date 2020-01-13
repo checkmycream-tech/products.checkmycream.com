@@ -1,12 +1,3 @@
----
-title: tat2wrap Tattoo Cover-Up Sleeves (2 EACH per pack) (Large) (Black),
-description: tat2wrap Tattoo Cover-Up Sleeves (2 EACH per pack) (Large) (Black),
-author: Suvojit Manna,
-tags: tat2wrap Tattoo Cover-Up Sleeves (2 EACH per pack) (Large) (Black),
-publishedAt: Fri Jan 10 2020 15:00:32 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:32 GMT+0530 (India Standard Time),
----
-
 # [tat2wrap Tattoo Cover-Up Sleeves (2 EACH per pack) (Large) (Black)](https://products.checkmycream.com/products/tat2wrap-Tattoo-Cover-Up-Sleeves-(2-EACH-per-pack)-(Large)-(Black).html)
 
 ### Positive Reviews

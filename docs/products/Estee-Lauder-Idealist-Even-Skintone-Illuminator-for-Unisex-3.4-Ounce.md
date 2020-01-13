@@ -1,12 +1,3 @@
----
-title: Estee Lauder Idealist Even Skintone Illuminator for Unisex, 3.4 Ounce,
-description: Estee Lauder Idealist Even Skintone Illuminator for Unisex, 3.4 Ounce,
-author: Suvojit Manna,
-tags: Estee Lauder Idealist Even Skintone Illuminator for Unisex, 3.4 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:16 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:16 GMT+0530 (India Standard Time),
----
-
 # [Estee Lauder Idealist Even Skintone Illuminator for Unisex, 3.4 Ounce](https://products.checkmycream.com/products/Estee-Lauder-Idealist-Even-Skintone-Illuminator-for-Unisex-3.4-Ounce.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Teeth Whitening Gel Syringes 44% Carbamide Peroxide Tooth Bleaching Gel Dispensers,
-description: Teeth Whitening Gel Syringes 44% Carbamide Peroxide Tooth Bleaching Gel Dispensers,
-author: Suvojit Manna,
-tags: Teeth Whitening Gel Syringes 44% Carbamide Peroxide Tooth Bleaching Gel Dispensers,
-publishedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
----
-
 # [Teeth Whitening Gel Syringes 44% Carbamide Peroxide Tooth Bleaching Gel Dispensers](https://products.checkmycream.com/products/Teeth-Whitening-Gel-Syringes-44percent-Carbamide-Peroxide-Tooth-Bleaching-Gel-Dispensers.html)
 
 ### Positive Reviews

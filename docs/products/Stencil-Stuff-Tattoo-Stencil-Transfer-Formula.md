@@ -1,12 +1,3 @@
----
-title: Stencil Stuff Tattoo Stencil Transfer Formula,
-description: Stencil Stuff Tattoo Stencil Transfer Formula,
-author: Suvojit Manna,
-tags: Stencil Stuff Tattoo Stencil Transfer Formula,
-publishedAt: Fri Jan 10 2020 15:00:13 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:13 GMT+0530 (India Standard Time),
----
-
 # [Stencil Stuff Tattoo Stencil Transfer Formula](https://products.checkmycream.com/products/Stencil-Stuff-Tattoo-Stencil-Transfer-Formula.html)
 
 ### Positive Reviews

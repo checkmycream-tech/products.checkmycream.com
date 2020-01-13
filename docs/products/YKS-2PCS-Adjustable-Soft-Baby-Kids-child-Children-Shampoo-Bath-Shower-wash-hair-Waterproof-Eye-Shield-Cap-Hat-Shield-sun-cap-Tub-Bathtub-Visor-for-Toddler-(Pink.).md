@@ -1,12 +1,3 @@
----
-title: YKS 2PCS Adjustable Soft Baby Kids child Children Shampoo Bath Shower wash hair Waterproof Eye Shield Cap Hat Shield sun cap Tub Bathtub Visor for Toddler (Pink.),
-description: YKS 2PCS Adjustable Soft Baby Kids child Children Shampoo Bath Shower wash hair Waterproof Eye Shield Cap Hat Shield sun cap Tub Bathtub Visor for Toddler (Pink.),
-author: Suvojit Manna,
-tags: YKS 2PCS Adjustable Soft Baby Kids child Children Shampoo Bath Shower wash hair Waterproof Eye Shield Cap Hat Shield sun cap Tub Bathtub Visor for Toddler (Pink.),
-publishedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
----
-
 # [YKS 2PCS Adjustable Soft Baby Kids child Children Shampoo Bath Shower wash hair Waterproof Eye Shield Cap Hat Shield sun cap Tub Bathtub Visor for Toddler (Pink.)](https://products.checkmycream.com/products/YKS-2PCS-Adjustable-Soft-Baby-Kids-child-Children-Shampoo-Bath-Shower-wash-hair-Waterproof-Eye-Shield-Cap-Hat-Shield-sun-cap-Tub-Bathtub-Visor-for-Toddler-(Pink.).html)
 
 ### Positive Reviews

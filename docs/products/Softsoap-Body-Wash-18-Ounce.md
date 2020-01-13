@@ -1,12 +1,3 @@
----
-title: Softsoap Body Wash, 18 Ounce,
-description: Softsoap Body Wash, 18 Ounce,
-author: Suvojit Manna,
-tags: Softsoap Body Wash, 18 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:32 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:32 GMT+0530 (India Standard Time),
----
-
 # [Softsoap Body Wash, 18 Ounce](https://products.checkmycream.com/products/Softsoap-Body-Wash-18-Ounce.html)
 
 ### Positive Reviews

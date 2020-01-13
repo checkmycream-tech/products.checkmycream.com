@@ -1,12 +1,3 @@
----
-title: NOW Jasmine Absolute Oil, 1-Ounce,
-description: NOW Jasmine Absolute Oil, 1-Ounce,
-author: Suvojit Manna,
-tags: NOW Jasmine Absolute Oil, 1-Ounce,
-publishedAt: Fri Jan 10 2020 14:59:04 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:04 GMT+0530 (India Standard Time),
----
-
 # [NOW Jasmine Absolute Oil, 1-Ounce](https://products.checkmycream.com/products/NOW-Jasmine-Absolute-Oil-1-Ounce.html)
 
 ### Positive Reviews

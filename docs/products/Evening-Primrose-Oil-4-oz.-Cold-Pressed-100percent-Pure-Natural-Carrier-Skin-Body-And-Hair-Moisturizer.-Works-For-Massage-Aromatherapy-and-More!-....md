@@ -1,12 +1,3 @@
----
-title: Evening Primrose Oil 4 oz. Cold Pressed 100% Pure Natural Carrier - Skin, Body And Hair Moisturizer. Works For Massage, Aromatherapy, &amp; More! …,
-description: Evening Primrose Oil 4 oz. Cold Pressed 100% Pure Natural Carrier - Skin, Body And Hair Moisturizer. Works For Massage, Aromatherapy, &amp; More! …,
-author: Suvojit Manna,
-tags: Evening Primrose Oil 4 oz. Cold Pressed 100% Pure Natural Carrier - Skin, Body And Hair Moisturizer. Works For Massage, Aromatherapy, &amp; More! …,
-publishedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
----
-
 # [Evening Primrose Oil 4 oz. Cold Pressed 100% Pure Natural Carrier - Skin, Body And Hair Moisturizer. Works For Massage, Aromatherapy, &amp; More! …](https://products.checkmycream.com/products/Evening-Primrose-Oil-4-oz.-Cold-Pressed-100percent-Pure-Natural-Carrier-Skin-Body-And-Hair-Moisturizer.-Works-For-Massage-Aromatherapy-and-More!-....html)
 
 ### Positive Reviews

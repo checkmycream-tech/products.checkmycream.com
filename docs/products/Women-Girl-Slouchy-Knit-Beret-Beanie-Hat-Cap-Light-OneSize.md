@@ -1,12 +1,3 @@
----
-title: Women Girl Slouchy Knit Beret Beanie Hat Cap Light OneSize,,
-description: Women Girl Slouchy Knit Beret Beanie Hat Cap Light OneSize,,
-author: Suvojit Manna,
-tags: Women Girl Slouchy Knit Beret Beanie Hat Cap Light OneSize,,
-publishedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
----
-
 # [Women Girl Slouchy Knit Beret Beanie Hat Cap Light OneSize,](https://products.checkmycream.com/products/Women-Girl-Slouchy-Knit-Beret-Beanie-Hat-Cap-Light-OneSize.html)
 
 ### Positive Reviews

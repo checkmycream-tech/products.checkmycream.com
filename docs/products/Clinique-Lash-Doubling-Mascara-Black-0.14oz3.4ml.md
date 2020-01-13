@@ -1,12 +1,3 @@
----
-title: Clinique Lash Doubling Mascara Black 0.14oz/3.4ml,
-description: Clinique Lash Doubling Mascara Black 0.14oz/3.4ml,
-author: Suvojit Manna,
-tags: Clinique Lash Doubling Mascara Black 0.14oz/3.4ml,
-publishedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
----
-
 # [Clinique Lash Doubling Mascara Black 0.14oz/3.4ml](https://products.checkmycream.com/products/Clinique-Lash-Doubling-Mascara-Black-0.14oz3.4ml.html)
 
 ### Positive Reviews

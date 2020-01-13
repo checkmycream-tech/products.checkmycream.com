@@ -1,12 +1,3 @@
----
-title: Topwedding Remedios Crystal Jewelry Comb Bridal Wedding Headpiece Hair Clip Headband,
-description: Topwedding Remedios Crystal Jewelry Comb Bridal Wedding Headpiece Hair Clip Headband,
-author: Suvojit Manna,
-tags: Topwedding Remedios Crystal Jewelry Comb Bridal Wedding Headpiece Hair Clip Headband,
-publishedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
----
-
 # [Topwedding Remedios Crystal Jewelry Comb Bridal Wedding Headpiece Hair Clip Headband](https://products.checkmycream.com/products/Topwedding-Remedios-Crystal-Jewelry-Comb-Bridal-Wedding-Headpiece-Hair-Clip-Headband.html)
 
 ### Positive Reviews

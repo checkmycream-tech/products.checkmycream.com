@@ -1,12 +1,3 @@
----
-title: Bath and Body Works Beautiful Day Fine Fragrance Mist, 8 Fl Ounce,
-description: Bath and Body Works Beautiful Day Fine Fragrance Mist, 8 Fl Ounce,
-author: Suvojit Manna,
-tags: Bath and Body Works Beautiful Day Fine Fragrance Mist, 8 Fl Ounce,
-publishedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
----
-
 # [Bath and Body Works Beautiful Day Fine Fragrance Mist, 8 Fl Ounce](https://products.checkmycream.com/products/Bath-and-Body-Works-Beautiful-Day-Fine-Fragrance-Mist-8-Fl-Ounce.html)
 
 ### Positive Reviews

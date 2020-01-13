@@ -1,12 +1,3 @@
----
-title: Bed Head Motor Mouth,
-description: Bed Head Motor Mouth,
-author: Suvojit Manna,
-tags: Bed Head Motor Mouth,
-publishedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
----
-
 # [Bed Head Motor Mouth](https://products.checkmycream.com/products/Bed-Head-Motor-Mouth.html)
 
 ### Positive Reviews

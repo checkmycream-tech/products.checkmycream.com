@@ -1,12 +1,3 @@
----
-title: Babyliss Pro Miracurl Hair Product Kit (5 Different Sprays),
-description: Babyliss Pro Miracurl Hair Product Kit (5 Different Sprays),
-author: Suvojit Manna,
-tags: Babyliss Pro Miracurl Hair Product Kit (5 Different Sprays),
-publishedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
----
-
 # [Babyliss Pro Miracurl Hair Product Kit (5 Different Sprays)](https://products.checkmycream.com/products/Babyliss-Pro-Miracurl-Hair-Product-Kit-(5-Different-Sprays).html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: abHair Cheap Real Long Clip In Remy Human Hair Extensions 18 inch Dark Brown 7 Piece Yaki Dark Brown 85g for Women Beauty,
-description: abHair Cheap Real Long Clip In Remy Human Hair Extensions 18 inch Dark Brown 7 Piece Yaki Dark Brown 85g for Women Beauty,
-author: Suvojit Manna,
-tags: abHair Cheap Real Long Clip In Remy Human Hair Extensions 18 inch Dark Brown 7 Piece Yaki Dark Brown 85g for Women Beauty,
-publishedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
----
-
 # [abHair Cheap Real Long Clip In Remy Human Hair Extensions 18 inch Dark Brown 7 Piece Yaki Dark Brown 85g for Women Beauty](https://products.checkmycream.com/products/abHair-Cheap-Real-Long-Clip-In-Remy-Human-Hair-Extensions-18-inch-Dark-Brown-7-Piece-Yaki-Dark-Brown-85g-for-Women-Beauty.html)
 
 ### Positive Reviews

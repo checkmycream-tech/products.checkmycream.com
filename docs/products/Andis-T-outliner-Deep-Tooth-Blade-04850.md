@@ -1,12 +1,3 @@
----
-title: Andis T-outliner Deep Tooth Blade #04850,
-description: Andis T-outliner Deep Tooth Blade #04850,
-author: Suvojit Manna,
-tags: Andis T-outliner Deep Tooth Blade #04850,
-publishedAt: Fri Jan 10 2020 15:00:32 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:32 GMT+0530 (India Standard Time),
----
-
 # [Andis T-outliner Deep Tooth Blade #04850](https://products.checkmycream.com/products/Andis-T-outliner-Deep-Tooth-Blade-04850.html)
 
 ### Positive Reviews

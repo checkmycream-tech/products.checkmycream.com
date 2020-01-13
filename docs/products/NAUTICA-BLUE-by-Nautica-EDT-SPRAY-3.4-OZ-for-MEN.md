@@ -1,12 +1,3 @@
----
-title: NAUTICA BLUE by Nautica EDT SPRAY 3.4 OZ for MEN,
-description: NAUTICA BLUE by Nautica EDT SPRAY 3.4 OZ for MEN,
-author: Suvojit Manna,
-tags: NAUTICA BLUE by Nautica EDT SPRAY 3.4 OZ for MEN,
-publishedAt: Fri Jan 10 2020 15:00:11 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:11 GMT+0530 (India Standard Time),
----
-
 # [NAUTICA BLUE by Nautica EDT SPRAY 3.4 OZ for MEN](https://products.checkmycream.com/products/NAUTICA-BLUE-by-Nautica-EDT-SPRAY-3.4-OZ-for-MEN.html)
 
 ### Positive Reviews

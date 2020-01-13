@@ -1,12 +1,3 @@
----
-title: Michael Kors Very Hollywood Eau De Parfum for Her,
-description: Michael Kors Very Hollywood Eau De Parfum for Her,
-author: Suvojit Manna,
-tags: Michael Kors Very Hollywood Eau De Parfum for Her,
-publishedAt: Fri Jan 10 2020 14:59:42 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:42 GMT+0530 (India Standard Time),
----
-
 # [Michael Kors Very Hollywood Eau De Parfum for Her](https://products.checkmycream.com/products/Michael-Kors-Very-Hollywood-Eau-De-Parfum-for-Her.html)
 
 ### Positive Reviews

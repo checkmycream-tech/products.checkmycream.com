@@ -1,12 +1,3 @@
----
-title: BOOLAVARD ® 12 pcs Assorted Colors Women 2-Hook 3 Rows Spacing Bra Extender Strap by Boolavard® TM,
-description: BOOLAVARD ® 12 pcs Assorted Colors Women 2-Hook 3 Rows Spacing Bra Extender Strap by Boolavard® TM,
-author: Suvojit Manna,
-tags: BOOLAVARD ® 12 pcs Assorted Colors Women 2-Hook 3 Rows Spacing Bra Extender Strap by Boolavard® TM,
-publishedAt: Fri Jan 10 2020 15:00:45 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:45 GMT+0530 (India Standard Time),
----
-
 # [BOOLAVARD ® 12 pcs Assorted Colors Women 2-Hook 3 Rows Spacing Bra Extender Strap by Boolavard® TM](https://products.checkmycream.com/products/BOOLAVARD-(r)-12-pcs-Assorted-Colors-Women-2-Hook-3-Rows-Spacing-Bra-Extender-Strap-by-Boolavard(r)-TM.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Rayson Wax Applicator Sticks Extra Small - 100 count,
-description: Rayson Wax Applicator Sticks Extra Small - 100 count,
-author: Suvojit Manna,
-tags: Rayson Wax Applicator Sticks Extra Small - 100 count,
-publishedAt: Fri Jan 10 2020 14:59:16 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:16 GMT+0530 (India Standard Time),
----
-
 # [Rayson Wax Applicator Sticks Extra Small - 100 count](https://products.checkmycream.com/products/Rayson-Wax-Applicator-Sticks-Extra-Small-100-count.html)
 
 ### Positive Reviews

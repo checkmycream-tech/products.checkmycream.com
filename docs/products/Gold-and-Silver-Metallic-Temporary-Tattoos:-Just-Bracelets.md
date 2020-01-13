@@ -1,12 +1,3 @@
----
-title: Gold &amp; Silver Metallic Temporary Tattoos: Just Bracelets,
-description: Gold &amp; Silver Metallic Temporary Tattoos: Just Bracelets,
-author: Suvojit Manna,
-tags: Gold &amp; Silver Metallic Temporary Tattoos: Just Bracelets,
-publishedAt: Fri Jan 10 2020 15:01:04 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:04 GMT+0530 (India Standard Time),
----
-
 # [Gold &amp; Silver Metallic Temporary Tattoos: Just Bracelets](https://products.checkmycream.com/products/Gold-and-Silver-Metallic-Temporary-Tattoos:-Just-Bracelets.html)
 
 ### Positive Reviews

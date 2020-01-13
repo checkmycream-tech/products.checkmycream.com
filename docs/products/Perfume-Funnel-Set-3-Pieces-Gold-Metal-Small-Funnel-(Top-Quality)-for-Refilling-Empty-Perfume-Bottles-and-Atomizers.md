@@ -1,12 +1,3 @@
----
-title: Perfume Funnel Set - 3 Pieces, Gold Metal Small Funnel (Top Quality) for Refilling Empty Perfume Bottles and Atomizers,
-description: Perfume Funnel Set - 3 Pieces, Gold Metal Small Funnel (Top Quality) for Refilling Empty Perfume Bottles and Atomizers,
-author: Suvojit Manna,
-tags: Perfume Funnel Set - 3 Pieces, Gold Metal Small Funnel (Top Quality) for Refilling Empty Perfume Bottles and Atomizers,
-publishedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
----
-
 # [Perfume Funnel Set - 3 Pieces, Gold Metal Small Funnel (Top Quality) for Refilling Empty Perfume Bottles and Atomizers](https://products.checkmycream.com/products/Perfume-Funnel-Set-3-Pieces-Gold-Metal-Small-Funnel-(Top-Quality)-for-Refilling-Empty-Perfume-Bottles-and-Atomizers.html)
 
 ### Positive Reviews

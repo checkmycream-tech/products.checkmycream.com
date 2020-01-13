@@ -1,12 +1,3 @@
----
-title: DERMAGRAN Ointment 4 oz tube Dermasciences DT4,
-description: DERMAGRAN Ointment 4 oz tube Dermasciences DT4,
-author: Suvojit Manna,
-tags: DERMAGRAN Ointment 4 oz tube Dermasciences DT4,
-publishedAt: Fri Jan 10 2020 14:59:11 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:11 GMT+0530 (India Standard Time),
----
-
 # [DERMAGRAN Ointment 4 oz tube Dermasciences DT4](https://products.checkmycream.com/products/DERMAGRAN-Ointment-4-oz-tube-Dermasciences-DT4.html)
 
 ### Positive Reviews

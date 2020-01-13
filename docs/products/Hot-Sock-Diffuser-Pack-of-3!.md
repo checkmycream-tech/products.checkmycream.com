@@ -1,12 +1,3 @@
----
-title: Hot Sock Diffuser - Pack of 3!,
-description: Hot Sock Diffuser - Pack of 3!,
-author: Suvojit Manna,
-tags: Hot Sock Diffuser - Pack of 3!,
-publishedAt: Fri Jan 10 2020 15:00:36 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:36 GMT+0530 (India Standard Time),
----
-
 # [Hot Sock Diffuser - Pack of 3!](https://products.checkmycream.com/products/Hot-Sock-Diffuser-Pack-of-3!.html)
 
 ### Positive Reviews

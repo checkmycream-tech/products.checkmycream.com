@@ -1,12 +1,3 @@
----
-title: Cameo All in One Makeup Kit (84 Eyeshadows,12 Lip Glosses,6 Blushes,1 Lip Liner Pencil,4 Applicators,26 Lip Colors,6 Body Glitters,3 Pressed Powders,1 Eyeliner Pencil,1 Brush),
-description: Cameo All in One Makeup Kit (84 Eyeshadows,12 Lip Glosses,6 Blushes,1 Lip Liner Pencil,4 Applicators,26 Lip Colors,6 Body Glitters,3 Pressed Powders,1 Eyeliner Pencil,1 Brush),
-author: Suvojit Manna,
-tags: Cameo All in One Makeup Kit (84 Eyeshadows,12 Lip Glosses,6 Blushes,1 Lip Liner Pencil,4 Applicators,26 Lip Colors,6 Body Glitters,3 Pressed Powders,1 Eyeliner Pencil,1 Brush),
-publishedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
----
-
 # [Cameo All in One Makeup Kit (84 Eyeshadows,12 Lip Glosses,6 Blushes,1 Lip Liner Pencil,4 Applicators,26 Lip Colors,6 Body Glitters,3 Pressed Powders,1 Eyeliner Pencil,1 Brush)](https://products.checkmycream.com/products/Cameo-All-in-One-Makeup-Kit-(84-Eyeshadows12-Lip-Glosses6-Blushes1-Lip-Liner-Pencil4-Applicators26-Lip-Colors6-Body-Glitters3-Pressed-Powders1-Eyeliner-Pencil1-Brush).html)
 
 ### Positive Reviews

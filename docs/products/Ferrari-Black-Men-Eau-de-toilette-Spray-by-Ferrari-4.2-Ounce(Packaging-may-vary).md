@@ -1,12 +1,3 @@
----
-title: Ferrari Black Men Eau-de-toilette Spray by Ferrari, 4.2 Ounce(Packaging may vary),
-description: Ferrari Black Men Eau-de-toilette Spray by Ferrari, 4.2 Ounce(Packaging may vary),
-author: Suvojit Manna,
-tags: Ferrari Black Men Eau-de-toilette Spray by Ferrari, 4.2 Ounce(Packaging may vary),
-publishedAt: Fri Jan 10 2020 14:59:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:03 GMT+0530 (India Standard Time),
----
-
 # [Ferrari Black Men Eau-de-toilette Spray by Ferrari, 4.2 Ounce(Packaging may vary)](https://products.checkmycream.com/products/Ferrari-Black-Men-Eau-de-toilette-Spray-by-Ferrari-4.2-Ounce(Packaging-may-vary).html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Mont Blanc Legend 3 Piece Gift Set for Men,
-description: Mont Blanc Legend 3 Piece Gift Set for Men,
-author: Suvojit Manna,
-tags: Mont Blanc Legend 3 Piece Gift Set for Men,
-publishedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
----
-
 # [Mont Blanc Legend 3 Piece Gift Set for Men](https://products.checkmycream.com/products/Mont-Blanc-Legend-3-Piece-Gift-Set-for-Men.html)
 
 ### Positive Reviews

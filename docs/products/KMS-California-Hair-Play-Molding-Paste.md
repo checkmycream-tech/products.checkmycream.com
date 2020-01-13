@@ -1,12 +1,3 @@
----
-title: KMS California Hair Play Molding Paste,
-description: KMS California Hair Play Molding Paste,
-author: Suvojit Manna,
-tags: KMS California Hair Play Molding Paste,
-publishedAt: Fri Jan 10 2020 15:00:12 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:12 GMT+0530 (India Standard Time),
----
-
 # [KMS California Hair Play Molding Paste](https://products.checkmycream.com/products/KMS-California-Hair-Play-Molding-Paste.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Carolina Herrera 212 Vip Women&#x27;s EDP Eau De Parfum Spray - CH2V2581506,
-description: Carolina Herrera 212 Vip Women&#x27;s EDP Eau De Parfum Spray - CH2V2581506,
-author: Suvojit Manna,
-tags: Carolina Herrera 212 Vip Women&#x27;s EDP Eau De Parfum Spray - CH2V2581506,
-publishedAt: Fri Jan 10 2020 14:59:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:57 GMT+0530 (India Standard Time),
----
-
 # [Carolina Herrera 212 Vip Women&#x27;s EDP Eau De Parfum Spray - CH2V2581506](https://products.checkmycream.com/products/Carolina-Herrera-212-Vip-Women&#x27;s-EDP-Eau-De-Parfum-Spray-CH2V2581506.html)
 
 ### Positive Reviews

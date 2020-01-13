@@ -1,12 +1,3 @@
----
-title: Fenheus 6pcs Assorted Retro Vintage Floral Pattern Round Wooden Rubber Stamp Scrapbook,
-description: Fenheus 6pcs Assorted Retro Vintage Floral Pattern Round Wooden Rubber Stamp Scrapbook,
-author: Suvojit Manna,
-tags: Fenheus 6pcs Assorted Retro Vintage Floral Pattern Round Wooden Rubber Stamp Scrapbook,
-publishedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
----
-
 # [Fenheus 6pcs Assorted Retro Vintage Floral Pattern Round Wooden Rubber Stamp Scrapbook](https://products.checkmycream.com/products/Fenheus-6pcs-Assorted-Retro-Vintage-Floral-Pattern-Round-Wooden-Rubber-Stamp-Scrapbook.html)
 
 ### Positive Reviews

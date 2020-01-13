@@ -1,12 +1,3 @@
----
-title: Scunci Effortless Beauty Large No-damage Berry Elastics,
-description: Scunci Effortless Beauty Large No-damage Berry Elastics,
-author: Suvojit Manna,
-tags: Scunci Effortless Beauty Large No-damage Berry Elastics,
-publishedAt: Fri Jan 10 2020 15:00:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:01 GMT+0530 (India Standard Time),
----
-
 # [Scunci Effortless Beauty Large No-damage Berry Elastics](https://products.checkmycream.com/products/Scunci-Effortless-Beauty-Large-No-damage-Berry-Elastics.html)
 
 ### Positive Reviews

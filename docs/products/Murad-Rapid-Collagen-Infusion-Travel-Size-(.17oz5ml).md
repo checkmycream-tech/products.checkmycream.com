@@ -1,12 +1,3 @@
----
-title: Murad Rapid Collagen Infusion Travel Size (.17oz/5ml),
-description: Murad Rapid Collagen Infusion Travel Size (.17oz/5ml),
-author: Suvojit Manna,
-tags: Murad Rapid Collagen Infusion Travel Size (.17oz/5ml),
-publishedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
----
-
 # [Murad Rapid Collagen Infusion Travel Size (.17oz/5ml)](https://products.checkmycream.com/products/Murad-Rapid-Collagen-Infusion-Travel-Size-(.17oz5ml).html)
 
 ### Positive Reviews

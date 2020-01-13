@@ -1,12 +1,3 @@
----
-title: Nouritress Perfect Hair Vitamins Plus (60 Tablets),
-description: Nouritress Perfect Hair Vitamins Plus (60 Tablets),
-author: Suvojit Manna,
-tags: Nouritress Perfect Hair Vitamins Plus (60 Tablets),
-publishedAt: Fri Jan 10 2020 15:00:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:08 GMT+0530 (India Standard Time),
----
-
 # [Nouritress Perfect Hair Vitamins Plus (60 Tablets)](https://products.checkmycream.com/products/Nouritress-Perfect-Hair-Vitamins-Plus-(60-Tablets).html)
 
 ### Positive Reviews

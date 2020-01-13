@@ -1,12 +1,3 @@
----
-title: Red by Giorgio Beverly Hills for Women, Body Lotion, 6.7-Ounce,
-description: Red by Giorgio Beverly Hills for Women, Body Lotion, 6.7-Ounce,
-author: Suvojit Manna,
-tags: Red by Giorgio Beverly Hills for Women, Body Lotion, 6.7-Ounce,
-publishedAt: Fri Jan 10 2020 14:59:33 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:33 GMT+0530 (India Standard Time),
----
-
 # [Red by Giorgio Beverly Hills for Women, Body Lotion, 6.7-Ounce](https://products.checkmycream.com/products/Red-by-Giorgio-Beverly-Hills-for-Women-Body-Lotion-6.7-Ounce.html)
 
 ### Positive Reviews

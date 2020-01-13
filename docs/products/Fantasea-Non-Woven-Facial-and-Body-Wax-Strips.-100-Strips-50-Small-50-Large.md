@@ -1,12 +1,3 @@
----
-title: Fantasea Non-Woven Facial &amp; Body Wax Strips. 100 Strips - 50 Small, 50 Large,
-description: Fantasea Non-Woven Facial &amp; Body Wax Strips. 100 Strips - 50 Small, 50 Large,
-author: Suvojit Manna,
-tags: Fantasea Non-Woven Facial &amp; Body Wax Strips. 100 Strips - 50 Small, 50 Large,
-publishedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
----
-
 # [Fantasea Non-Woven Facial &amp; Body Wax Strips. 100 Strips - 50 Small, 50 Large](https://products.checkmycream.com/products/Fantasea-Non-Woven-Facial-and-Body-Wax-Strips.-100-Strips-50-Small-50-Large.html)
 
 ### Positive Reviews

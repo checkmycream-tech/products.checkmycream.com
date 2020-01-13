@@ -1,12 +1,3 @@
----
-title: Amber Glass Essential Oil Rollerball Bottles, 8ml Aromatherapy Glass Roll on Bottles - Set of 6 (Amber) by Grand Parfums 6 Pack Roller Ball Glass Bottles,
-description: Amber Glass Essential Oil Rollerball Bottles, 8ml Aromatherapy Glass Roll on Bottles - Set of 6 (Amber) by Grand Parfums 6 Pack Roller Ball Glass Bottles,
-author: Suvojit Manna,
-tags: Amber Glass Essential Oil Rollerball Bottles, 8ml Aromatherapy Glass Roll on Bottles - Set of 6 (Amber) by Grand Parfums 6 Pack Roller Ball Glass Bottles,
-publishedAt: Fri Jan 10 2020 15:01:07 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:07 GMT+0530 (India Standard Time),
----
-
 # [Amber Glass Essential Oil Rollerball Bottles, 8ml Aromatherapy Glass Roll on Bottles - Set of 6 (Amber) by Grand Parfums 6 Pack Roller Ball Glass Bottles](https://products.checkmycream.com/products/Amber-Glass-Essential-Oil-Rollerball-Bottles-8ml-Aromatherapy-Glass-Roll-on-Bottles-Set-of-6-(Amber)-by-Grand-Parfums-6-Pack-Roller-Ball-Glass-Bottles.html)
 
 ### Positive Reviews

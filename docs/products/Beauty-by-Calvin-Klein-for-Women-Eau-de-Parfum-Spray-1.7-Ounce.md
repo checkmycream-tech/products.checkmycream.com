@@ -1,12 +1,3 @@
----
-title: Beauty by Calvin Klein for Women, Eau de Parfum Spray, 1.7 Ounce,
-description: Beauty by Calvin Klein for Women, Eau de Parfum Spray, 1.7 Ounce,
-author: Suvojit Manna,
-tags: Beauty by Calvin Klein for Women, Eau de Parfum Spray, 1.7 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:56 GMT+0530 (India Standard Time),
----
-
 # [Beauty by Calvin Klein for Women, Eau de Parfum Spray, 1.7 Ounce](https://products.checkmycream.com/products/Beauty-by-Calvin-Klein-for-Women-Eau-de-Parfum-Spray-1.7-Ounce.html)
 
 ### Positive Reviews

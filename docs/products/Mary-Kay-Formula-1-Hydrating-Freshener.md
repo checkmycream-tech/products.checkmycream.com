@@ -1,12 +1,3 @@
----
-title: Mary Kay Formula 1 Hydrating Freshener,
-description: Mary Kay Formula 1 Hydrating Freshener,
-author: Suvojit Manna,
-tags: Mary Kay Formula 1 Hydrating Freshener,
-publishedAt: Fri Jan 10 2020 14:59:10 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:10 GMT+0530 (India Standard Time),
----
-
 # [Mary Kay Formula 1 Hydrating Freshener](https://products.checkmycream.com/products/Mary-Kay-Formula-1-Hydrating-Freshener.html)
 
 ### Positive Reviews

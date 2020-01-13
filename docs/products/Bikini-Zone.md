@@ -1,12 +1,3 @@
----
-title: Bikini Zone,
-description: Bikini Zone,
-author: Suvojit Manna,
-tags: Bikini Zone,
-publishedAt: Fri Jan 10 2020 14:59:54 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:54 GMT+0530 (India Standard Time),
----
-
 # [Bikini Zone](https://products.checkmycream.com/products/Bikini-Zone.html)
 
 ### Positive Reviews

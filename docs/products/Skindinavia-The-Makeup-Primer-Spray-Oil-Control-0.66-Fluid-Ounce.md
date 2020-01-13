@@ -1,12 +1,3 @@
----
-title: Skindinavia The Makeup Primer Spray, Oil Control, 0.66 Fluid Ounce,
-description: Skindinavia The Makeup Primer Spray, Oil Control, 0.66 Fluid Ounce,
-author: Suvojit Manna,
-tags: Skindinavia The Makeup Primer Spray, Oil Control, 0.66 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
----
-
 # [Skindinavia The Makeup Primer Spray, Oil Control, 0.66 Fluid Ounce](https://products.checkmycream.com/products/Skindinavia-The-Makeup-Primer-Spray-Oil-Control-0.66-Fluid-Ounce.html)
 
 ### Positive Reviews

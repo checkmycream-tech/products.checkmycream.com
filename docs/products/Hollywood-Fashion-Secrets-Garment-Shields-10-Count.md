@@ -1,12 +1,3 @@
----
-title: Hollywood Fashion Secrets Garment Shields, 10 Count,
-description: Hollywood Fashion Secrets Garment Shields, 10 Count,
-author: Suvojit Manna,
-tags: Hollywood Fashion Secrets Garment Shields, 10 Count,
-publishedAt: Fri Jan 10 2020 15:00:12 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:12 GMT+0530 (India Standard Time),
----
-
 # [Hollywood Fashion Secrets Garment Shields, 10 Count](https://products.checkmycream.com/products/Hollywood-Fashion-Secrets-Garment-Shields-10-Count.html)
 
 ### Positive Reviews

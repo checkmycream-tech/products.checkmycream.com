@@ -1,12 +1,3 @@
----
-title: Box of 24 African Shea Butter From Ghana 8oz,
-description: Box of 24 African Shea Butter From Ghana 8oz,
-author: Suvojit Manna,
-tags: Box of 24 African Shea Butter From Ghana 8oz,
-publishedAt: Fri Jan 10 2020 15:00:20 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:20 GMT+0530 (India Standard Time),
----
-
 # [Box of 24 African Shea Butter From Ghana 8oz](https://products.checkmycream.com/products/Box-of-24-African-Shea-Butter-From-Ghana-8oz.html)
 
 ### Positive Reviews

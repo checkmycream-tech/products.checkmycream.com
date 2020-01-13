@@ -1,12 +1,3 @@
----
-title: Aura Cacia - Organic Castor Oil Skin Care,
-description: Aura Cacia - Organic Castor Oil Skin Care,
-author: Suvojit Manna,
-tags: Aura Cacia - Organic Castor Oil Skin Care,
-publishedAt: Fri Jan 10 2020 15:00:36 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:36 GMT+0530 (India Standard Time),
----
-
 # [Aura Cacia - Organic Castor Oil Skin Care](https://products.checkmycream.com/products/Aura-Cacia-Organic-Castor-Oil-Skin-Care.html)
 
 ### Positive Reviews

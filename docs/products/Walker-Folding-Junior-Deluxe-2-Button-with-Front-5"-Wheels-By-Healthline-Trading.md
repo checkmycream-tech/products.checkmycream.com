@@ -1,12 +1,3 @@
----
-title: Walker Folding Junior Deluxe 2 Button with Front 5&quot; Wheels By Healthline Trading,
-description: Walker Folding Junior Deluxe 2 Button with Front 5&quot; Wheels By Healthline Trading,
-author: Suvojit Manna,
-tags: Walker Folding Junior Deluxe 2 Button with Front 5&quot; Wheels By Healthline Trading,
-publishedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
----
-
 # [Walker Folding Junior Deluxe 2 Button with Front 5&quot; Wheels By Healthline Trading](https://products.checkmycream.com/products/Walker-Folding-Junior-Deluxe-2-Button-with-Front-5&quot;-Wheels-By-Healthline-Trading.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Inis Sonas Eau de Toilette Spray, 1.7 Fluid Ounce,
-description: Inis Sonas Eau de Toilette Spray, 1.7 Fluid Ounce,
-author: Suvojit Manna,
-tags: Inis Sonas Eau de Toilette Spray, 1.7 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 15:00:06 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:06 GMT+0530 (India Standard Time),
----
-
 # [Inis Sonas Eau de Toilette Spray, 1.7 Fluid Ounce](https://products.checkmycream.com/products/Inis-Sonas-Eau-de-Toilette-Spray-1.7-Fluid-Ounce.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Arbonne Bronzer,
-description: Arbonne Bronzer,
-author: Suvojit Manna,
-tags: Arbonne Bronzer,
-publishedAt: Fri Jan 10 2020 14:58:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:58:57 GMT+0530 (India Standard Time),
----
-
 # [Arbonne Bronzer](https://products.checkmycream.com/products/Arbonne-Bronzer.html)
 
 ### Positive Reviews

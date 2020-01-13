@@ -1,12 +1,3 @@
----
-title: Bio Ionic Blue Wave Medium Square Round, 3.85 oz.,
-description: Bio Ionic Blue Wave Medium Square Round, 3.85 oz.,
-author: Suvojit Manna,
-tags: Bio Ionic Blue Wave Medium Square Round, 3.85 oz.,
-publishedAt: Fri Jan 10 2020 14:59:32 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:32 GMT+0530 (India Standard Time),
----
-
 # [Bio Ionic Blue Wave Medium Square Round, 3.85 oz.](https://products.checkmycream.com/products/Bio-Ionic-Blue-Wave-Medium-Square-Round-3.85-oz..html)
 
 ### Positive Reviews

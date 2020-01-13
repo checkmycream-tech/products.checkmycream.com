@@ -1,12 +1,3 @@
----
-title: Cuba Wild Heart by Cuba for Men - 3.3 Ounce EDT Spray,
-description: Cuba Wild Heart by Cuba for Men - 3.3 Ounce EDT Spray,
-author: Suvojit Manna,
-tags: Cuba Wild Heart by Cuba for Men - 3.3 Ounce EDT Spray,
-publishedAt: Fri Jan 10 2020 14:59:49 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:49 GMT+0530 (India Standard Time),
----
-
 # [Cuba Wild Heart by Cuba for Men - 3.3 Ounce EDT Spray](https://products.checkmycream.com/products/Cuba-Wild-Heart-by-Cuba-for-Men-3.3-Ounce-EDT-Spray.html)
 
 ### Positive Reviews

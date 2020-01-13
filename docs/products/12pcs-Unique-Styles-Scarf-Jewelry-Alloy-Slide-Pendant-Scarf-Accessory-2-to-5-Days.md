@@ -1,12 +1,3 @@
----
-title: 12pcs Unique Styles Scarf Jewelry Alloy Slide Pendant Scarf Accessory 2 to 5 Days,
-description: 12pcs Unique Styles Scarf Jewelry Alloy Slide Pendant Scarf Accessory 2 to 5 Days,
-author: Suvojit Manna,
-tags: 12pcs Unique Styles Scarf Jewelry Alloy Slide Pendant Scarf Accessory 2 to 5 Days,
-publishedAt: Fri Jan 10 2020 15:00:45 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:45 GMT+0530 (India Standard Time),
----
-
 # [12pcs Unique Styles Scarf Jewelry Alloy Slide Pendant Scarf Accessory 2 to 5 Days](https://products.checkmycream.com/products/12pcs-Unique-Styles-Scarf-Jewelry-Alloy-Slide-Pendant-Scarf-Accessory-2-to-5-Days.html)
 
 ### Positive Reviews

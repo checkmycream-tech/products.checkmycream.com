@@ -1,12 +1,3 @@
----
-title: Almay Nearly Naked Loose Powder, Light 100, 1-Ounce Package,
-description: Almay Nearly Naked Loose Powder, Light 100, 1-Ounce Package,
-author: Suvojit Manna,
-tags: Almay Nearly Naked Loose Powder, Light 100, 1-Ounce Package,
-publishedAt: Fri Jan 10 2020 14:59:29 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:29 GMT+0530 (India Standard Time),
----
-
 # [Almay Nearly Naked Loose Powder, Light 100, 1-Ounce Package](https://products.checkmycream.com/products/Almay-Nearly-Naked-Loose-Powder-Light-100-1-Ounce-Package.html)
 
 ### Positive Reviews

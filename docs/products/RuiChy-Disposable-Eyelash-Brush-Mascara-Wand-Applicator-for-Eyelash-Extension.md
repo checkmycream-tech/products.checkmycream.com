@@ -1,12 +1,3 @@
----
-title: RuiChy Disposable Eyelash Brush Mascara Wand Applicator for Eyelash Extension,
-description: RuiChy Disposable Eyelash Brush Mascara Wand Applicator for Eyelash Extension,
-author: Suvojit Manna,
-tags: RuiChy Disposable Eyelash Brush Mascara Wand Applicator for Eyelash Extension,
-publishedAt: Fri Jan 10 2020 15:00:16 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:16 GMT+0530 (India Standard Time),
----
-
 # [RuiChy Disposable Eyelash Brush Mascara Wand Applicator for Eyelash Extension](https://products.checkmycream.com/products/RuiChy-Disposable-Eyelash-Brush-Mascara-Wand-Applicator-for-Eyelash-Extension.html)
 
 ### Positive Reviews

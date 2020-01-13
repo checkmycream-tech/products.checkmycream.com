@@ -1,12 +1,3 @@
----
-title: Microdermabrasion accesories - Air/Oil filter,
-description: Microdermabrasion accesories - Air/Oil filter,
-author: Suvojit Manna,
-tags: Microdermabrasion accesories - Air/Oil filter,
-publishedAt: Fri Jan 10 2020 14:59:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:55 GMT+0530 (India Standard Time),
----
-
 # [Microdermabrasion accesories - Air/Oil filter](https://products.checkmycream.com/products/Microdermabrasion-accesories-AirOil-filter.html)
 
 ### Positive Reviews

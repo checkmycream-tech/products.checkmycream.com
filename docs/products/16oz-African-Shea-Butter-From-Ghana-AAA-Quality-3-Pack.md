@@ -1,12 +1,3 @@
----
-title: 16oz African Shea Butter From Ghana AAA Quality 3 Pack,
-description: 16oz African Shea Butter From Ghana AAA Quality 3 Pack,
-author: Suvojit Manna,
-tags: 16oz African Shea Butter From Ghana AAA Quality 3 Pack,
-publishedAt: Fri Jan 10 2020 15:00:22 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:22 GMT+0530 (India Standard Time),
----
-
 # [16oz African Shea Butter From Ghana AAA Quality 3 Pack](https://products.checkmycream.com/products/16oz-African-Shea-Butter-From-Ghana-AAA-Quality-3-Pack.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Clinique Chubby Stick Moisturizing Lip Colour Balm - Mega Melon 04 Travel Size,
-description: Clinique Chubby Stick Moisturizing Lip Colour Balm - Mega Melon 04 Travel Size,
-author: Suvojit Manna,
-tags: Clinique Chubby Stick Moisturizing Lip Colour Balm - Mega Melon 04 Travel Size,
-publishedAt: Fri Jan 10 2020 15:00:17 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:17 GMT+0530 (India Standard Time),
----
-
 # [Clinique Chubby Stick Moisturizing Lip Colour Balm - Mega Melon 04 Travel Size](https://products.checkmycream.com/products/Clinique-Chubby-Stick-Moisturizing-Lip-Colour-Balm-Mega-Melon-04-Travel-Size.html)
 
 ### Positive Reviews

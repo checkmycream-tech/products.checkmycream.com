@@ -1,12 +1,3 @@
----
-title: Set of 3 Sable NAIL ART Brushes Pen, Detailer Liner and Striper,
-description: Set of 3 Sable NAIL ART Brushes Pen, Detailer Liner and Striper,
-author: Suvojit Manna,
-tags: Set of 3 Sable NAIL ART Brushes Pen, Detailer Liner and Striper,
-publishedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
----
-
 # [Set of 3 Sable NAIL ART Brushes Pen, Detailer Liner and Striper](https://products.checkmycream.com/products/Set-of-3-Sable-NAIL-ART-Brushes-Pen-Detailer-Liner-and-Striper.html)
 
 ### Positive Reviews

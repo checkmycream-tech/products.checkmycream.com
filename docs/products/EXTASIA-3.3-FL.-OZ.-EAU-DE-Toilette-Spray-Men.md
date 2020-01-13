@@ -1,12 +1,3 @@
----
-title: EXTASIA 3.3 FL. OZ. EAU DE Toilette Spray Men,
-description: EXTASIA 3.3 FL. OZ. EAU DE Toilette Spray Men,
-author: Suvojit Manna,
-tags: EXTASIA 3.3 FL. OZ. EAU DE Toilette Spray Men,
-publishedAt: Fri Jan 10 2020 14:59:44 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:44 GMT+0530 (India Standard Time),
----
-
 # [EXTASIA 3.3 FL. OZ. EAU DE Toilette Spray Men](https://products.checkmycream.com/products/EXTASIA-3.3-FL.-OZ.-EAU-DE-Toilette-Spray-Men.html)
 
 ### Positive Reviews

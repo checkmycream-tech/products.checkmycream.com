@@ -1,12 +1,3 @@
----
-title: Estee Lauder Beautiful Eau de Parfum Spray, 1 Fluid Ounce,
-description: Estee Lauder Beautiful Eau de Parfum Spray, 1 Fluid Ounce,
-author: Suvojit Manna,
-tags: Estee Lauder Beautiful Eau de Parfum Spray, 1 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 15:00:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:01 GMT+0530 (India Standard Time),
----
-
 # [Estee Lauder Beautiful Eau de Parfum Spray, 1 Fluid Ounce](https://products.checkmycream.com/products/Estee-Lauder-Beautiful-Eau-de-Parfum-Spray-1-Fluid-Ounce.html)
 
 ### Positive Reviews

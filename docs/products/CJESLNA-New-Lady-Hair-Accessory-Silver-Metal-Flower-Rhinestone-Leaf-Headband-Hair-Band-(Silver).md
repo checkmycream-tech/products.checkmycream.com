@@ -1,12 +1,3 @@
----
-title: CJESLNA New Lady Hair Accessory Silver Metal Flower Rhinestone Leaf Headband Hair Band (Silver),
-description: CJESLNA New Lady Hair Accessory Silver Metal Flower Rhinestone Leaf Headband Hair Band (Silver),
-author: Suvojit Manna,
-tags: CJESLNA New Lady Hair Accessory Silver Metal Flower Rhinestone Leaf Headband Hair Band (Silver),
-publishedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
----
-
 # [CJESLNA New Lady Hair Accessory Silver Metal Flower Rhinestone Leaf Headband Hair Band (Silver)](https://products.checkmycream.com/products/CJESLNA-New-Lady-Hair-Accessory-Silver-Metal-Flower-Rhinestone-Leaf-Headband-Hair-Band-(Silver).html)
 
 ### Positive Reviews

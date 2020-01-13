@@ -1,12 +1,3 @@
----
-title: 2X Finger Toe Nail Art Side Slant Edge Clipper Cutter Manicure Pedicure Trimmer,
-description: 2X Finger Toe Nail Art Side Slant Edge Clipper Cutter Manicure Pedicure Trimmer,
-author: Suvojit Manna,
-tags: 2X Finger Toe Nail Art Side Slant Edge Clipper Cutter Manicure Pedicure Trimmer,
-publishedAt: Fri Jan 10 2020 15:00:38 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:38 GMT+0530 (India Standard Time),
----
-
 # [2X Finger Toe Nail Art Side Slant Edge Clipper Cutter Manicure Pedicure Trimmer](https://products.checkmycream.com/products/2X-Finger-Toe-Nail-Art-Side-Slant-Edge-Clipper-Cutter-Manicure-Pedicure-Trimmer.html)
 
 ### Positive Reviews

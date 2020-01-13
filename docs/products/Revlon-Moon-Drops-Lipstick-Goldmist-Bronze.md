@@ -1,12 +1,3 @@
----
-title: Revlon Moon Drops Lipstick Goldmist Bronze,
-description: Revlon Moon Drops Lipstick Goldmist Bronze,
-author: Suvojit Manna,
-tags: Revlon Moon Drops Lipstick Goldmist Bronze,
-publishedAt: Fri Jan 10 2020 15:00:06 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:06 GMT+0530 (India Standard Time),
----
-
 # [Revlon Moon Drops Lipstick Goldmist Bronze](https://products.checkmycream.com/products/Revlon-Moon-Drops-Lipstick-Goldmist-Bronze.html)
 
 ### Positive Reviews

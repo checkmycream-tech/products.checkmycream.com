@@ -1,12 +1,3 @@
----
-title: Wen Hair Care 3 Piece Traveler&#x27;s Kit,
-description: Wen Hair Care 3 Piece Traveler&#x27;s Kit,
-author: Suvojit Manna,
-tags: Wen Hair Care 3 Piece Traveler&#x27;s Kit,
-publishedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
----
-
 # [Wen Hair Care 3 Piece Traveler&#x27;s Kit](https://products.checkmycream.com/products/Wen-Hair-Care-3-Piece-Traveler&#x27;s-Kit.html)
 
 ### Positive Reviews

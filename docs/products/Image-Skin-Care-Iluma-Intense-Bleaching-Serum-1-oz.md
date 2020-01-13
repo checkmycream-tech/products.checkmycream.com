@@ -1,12 +1,3 @@
----
-title: Image Skin Care Iluma Intense Bleaching Serum 1 oz,
-description: Image Skin Care Iluma Intense Bleaching Serum 1 oz,
-author: Suvojit Manna,
-tags: Image Skin Care Iluma Intense Bleaching Serum 1 oz,
-publishedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
----
-
 # [Image Skin Care Iluma Intense Bleaching Serum 1 oz](https://products.checkmycream.com/products/Image-Skin-Care-Iluma-Intense-Bleaching-Serum-1-oz.html)
 
 ### Positive Reviews

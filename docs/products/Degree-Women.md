@@ -1,12 +1,3 @@
----
-title: Degree Women,
-description: Degree Women,
-author: Suvojit Manna,
-tags: Degree Women,
-publishedAt: Fri Jan 10 2020 14:59:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:56 GMT+0530 (India Standard Time),
----
-
 # [Degree Women](https://products.checkmycream.com/products/Degree-Women.html)
 
 ### Positive Reviews

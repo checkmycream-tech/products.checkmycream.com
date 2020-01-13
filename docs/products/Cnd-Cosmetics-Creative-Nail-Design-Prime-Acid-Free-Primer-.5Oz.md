@@ -1,12 +1,3 @@
----
-title: Cnd Cosmetics Creative Nail Design Prime Acid-Free Primer .5Oz,
-description: Cnd Cosmetics Creative Nail Design Prime Acid-Free Primer .5Oz,
-author: Suvojit Manna,
-tags: Cnd Cosmetics Creative Nail Design Prime Acid-Free Primer .5Oz,
-publishedAt: Fri Jan 10 2020 15:00:07 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:07 GMT+0530 (India Standard Time),
----
-
 # [Cnd Cosmetics Creative Nail Design Prime Acid-Free Primer .5Oz](https://products.checkmycream.com/products/Cnd-Cosmetics-Creative-Nail-Design-Prime-Acid-Free-Primer-.5Oz.html)
 
 ### Positive Reviews

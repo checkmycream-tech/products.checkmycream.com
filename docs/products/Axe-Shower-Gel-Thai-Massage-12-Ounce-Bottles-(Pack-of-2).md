@@ -1,12 +1,3 @@
----
-title: Axe  Shower Gel, Thai Massage, 12 Ounce Bottles (Pack of 2),
-description: Axe  Shower Gel, Thai Massage, 12 Ounce Bottles (Pack of 2),
-author: Suvojit Manna,
-tags: Axe  Shower Gel, Thai Massage, 12 Ounce Bottles (Pack of 2),
-publishedAt: Fri Jan 10 2020 15:00:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:00 GMT+0530 (India Standard Time),
----
-
 # [Axe  Shower Gel, Thai Massage, 12 Ounce Bottles (Pack of 2)](https://products.checkmycream.com/products/Axe-Shower-Gel-Thai-Massage-12-Ounce-Bottles-(Pack-of-2).html)
 
 ### Positive Reviews

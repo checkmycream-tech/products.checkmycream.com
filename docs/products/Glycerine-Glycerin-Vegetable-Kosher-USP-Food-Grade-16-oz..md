@@ -1,12 +1,3 @@
----
-title: Glycerine / Glycerin Vegetable Kosher, USP, Food Grade 16 oz.,
-description: Glycerine / Glycerin Vegetable Kosher, USP, Food Grade 16 oz.,
-author: Suvojit Manna,
-tags: Glycerine / Glycerin Vegetable Kosher, USP, Food Grade 16 oz.,
-publishedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
----
-
 # [Glycerine / Glycerin Vegetable Kosher, USP, Food Grade 16 oz.](https://products.checkmycream.com/products/Glycerine-Glycerin-Vegetable-Kosher-USP-Food-Grade-16-oz..html)
 
 ### Positive Reviews

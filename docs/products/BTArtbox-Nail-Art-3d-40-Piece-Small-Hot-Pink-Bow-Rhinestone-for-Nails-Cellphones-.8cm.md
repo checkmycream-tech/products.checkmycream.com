@@ -1,12 +1,3 @@
----
-title: BTArtbox Nail Art 3d 40 Piece Small Hot Pink Bow /Rhinestone for Nails, Cellphones .8cm,
-description: BTArtbox Nail Art 3d 40 Piece Small Hot Pink Bow /Rhinestone for Nails, Cellphones .8cm,
-author: Suvojit Manna,
-tags: BTArtbox Nail Art 3d 40 Piece Small Hot Pink Bow /Rhinestone for Nails, Cellphones .8cm,
-publishedAt: Fri Jan 10 2020 15:00:21 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:21 GMT+0530 (India Standard Time),
----
-
 # [BTArtbox Nail Art 3d 40 Piece Small Hot Pink Bow /Rhinestone for Nails, Cellphones .8cm](https://products.checkmycream.com/products/BTArtbox-Nail-Art-3d-40-Piece-Small-Hot-Pink-Bow-Rhinestone-for-Nails-Cellphones-.8cm.html)
 
 ### Positive Reviews

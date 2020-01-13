@@ -1,12 +1,3 @@
----
-title: Edible Massage Oil for Sensual Intimacy Kissable Oil French Vanilla by Earthly Body 8oz,
-description: Edible Massage Oil for Sensual Intimacy Kissable Oil French Vanilla by Earthly Body 8oz,
-author: Suvojit Manna,
-tags: Edible Massage Oil for Sensual Intimacy Kissable Oil French Vanilla by Earthly Body 8oz,
-publishedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
----
-
 # [Edible Massage Oil for Sensual Intimacy Kissable Oil French Vanilla by Earthly Body 8oz](https://products.checkmycream.com/products/Edible-Massage-Oil-for-Sensual-Intimacy-Kissable-Oil-French-Vanilla-by-Earthly-Body-8oz.html)
 
 ### Positive Reviews

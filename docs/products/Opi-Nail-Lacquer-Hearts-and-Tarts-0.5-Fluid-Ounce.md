@@ -1,12 +1,3 @@
----
-title: Opi Nail Lacquer, Hearts and Tarts, 0.5 Fluid Ounce,
-description: Opi Nail Lacquer, Hearts and Tarts, 0.5 Fluid Ounce,
-author: Suvojit Manna,
-tags: Opi Nail Lacquer, Hearts and Tarts, 0.5 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 14:59:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:00 GMT+0530 (India Standard Time),
----
-
 # [Opi Nail Lacquer, Hearts and Tarts, 0.5 Fluid Ounce](https://products.checkmycream.com/products/Opi-Nail-Lacquer-Hearts-and-Tarts-0.5-Fluid-Ounce.html)
 
 ### Positive Reviews

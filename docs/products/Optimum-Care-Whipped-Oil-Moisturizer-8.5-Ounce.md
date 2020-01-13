@@ -1,12 +1,3 @@
----
-title: Optimum Care Whipped Oil Moisturizer, 8.5 Ounce,
-description: Optimum Care Whipped Oil Moisturizer, 8.5 Ounce,
-author: Suvojit Manna,
-tags: Optimum Care Whipped Oil Moisturizer, 8.5 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:03 GMT+0530 (India Standard Time),
----
-
 # [Optimum Care Whipped Oil Moisturizer, 8.5 Ounce](https://products.checkmycream.com/products/Optimum-Care-Whipped-Oil-Moisturizer-8.5-Ounce.html)
 
 ### Positive Reviews

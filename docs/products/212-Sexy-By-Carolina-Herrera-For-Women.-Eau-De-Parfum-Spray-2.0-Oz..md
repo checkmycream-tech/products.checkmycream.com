@@ -1,12 +1,3 @@
----
-title: 212 Sexy By Carolina Herrera For Women. Eau De Parfum Spray 2.0 Oz.,
-description: 212 Sexy By Carolina Herrera For Women. Eau De Parfum Spray 2.0 Oz.,
-author: Suvojit Manna,
-tags: 212 Sexy By Carolina Herrera For Women. Eau De Parfum Spray 2.0 Oz.,
-publishedAt: Fri Jan 10 2020 14:59:25 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:25 GMT+0530 (India Standard Time),
----
-
 # [212 Sexy By Carolina Herrera For Women. Eau De Parfum Spray 2.0 Oz.](https://products.checkmycream.com/products/212-Sexy-By-Carolina-Herrera-For-Women.-Eau-De-Parfum-Spray-2.0-Oz..html)
 
 ### Positive Reviews

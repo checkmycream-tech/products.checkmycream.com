@@ -1,12 +1,3 @@
----
-title: RADIUS Source Replacement Heads, Soft Bristles, 2 Count (Pack of 3),
-description: RADIUS Source Replacement Heads, Soft Bristles, 2 Count (Pack of 3),
-author: Suvojit Manna,
-tags: RADIUS Source Replacement Heads, Soft Bristles, 2 Count (Pack of 3),
-publishedAt: Fri Jan 10 2020 15:00:45 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:45 GMT+0530 (India Standard Time),
----
-
 # [RADIUS Source Replacement Heads, Soft Bristles, 2 Count (Pack of 3)](https://products.checkmycream.com/products/RADIUS-Source-Replacement-Heads-Soft-Bristles-2-Count-(Pack-of-3).html)
 
 ### Positive Reviews

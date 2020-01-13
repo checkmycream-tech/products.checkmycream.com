@@ -1,12 +1,3 @@
----
-title: Eufora Hydrating Shampoo 25.4 oz,
-description: Eufora Hydrating Shampoo 25.4 oz,
-author: Suvojit Manna,
-tags: Eufora Hydrating Shampoo 25.4 oz,
-publishedAt: Fri Jan 10 2020 14:59:38 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:38 GMT+0530 (India Standard Time),
----
-
 # [Eufora Hydrating Shampoo 25.4 oz](https://products.checkmycream.com/products/Eufora-Hydrating-Shampoo-25.4-oz.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: World Pride Manicure Rainbow Crystal Glass Nail Files, Set of 6,
-description: World Pride Manicure Rainbow Crystal Glass Nail Files, Set of 6,
-author: Suvojit Manna,
-tags: World Pride Manicure Rainbow Crystal Glass Nail Files, Set of 6,
-publishedAt: Fri Jan 10 2020 15:00:45 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:45 GMT+0530 (India Standard Time),
----
-
 # [World Pride Manicure Rainbow Crystal Glass Nail Files, Set of 6](https://products.checkmycream.com/products/World-Pride-Manicure-Rainbow-Crystal-Glass-Nail-Files-Set-of-6.html)
 
 ### Positive Reviews

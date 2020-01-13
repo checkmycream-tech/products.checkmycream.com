@@ -1,12 +1,3 @@
----
-title: Image Iluma Intense Lightening Serum, 1.0 Fluid Ounce,
-description: Image Iluma Intense Lightening Serum, 1.0 Fluid Ounce,
-author: Suvojit Manna,
-tags: Image Iluma Intense Lightening Serum, 1.0 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
----
-
 # [Image Iluma Intense Lightening Serum, 1.0 Fluid Ounce](https://products.checkmycream.com/products/Image-Iluma-Intense-Lightening-Serum-1.0-Fluid-Ounce.html)
 
 ### Positive Reviews

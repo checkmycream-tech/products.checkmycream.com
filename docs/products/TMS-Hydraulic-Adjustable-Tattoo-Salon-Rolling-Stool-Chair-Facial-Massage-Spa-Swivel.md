@@ -1,12 +1,3 @@
----
-title: TMS Hydraulic Adjustable Tattoo Salon Rolling Stool Chair Facial Massage Spa Swivel,
-description: TMS Hydraulic Adjustable Tattoo Salon Rolling Stool Chair Facial Massage Spa Swivel,
-author: Suvojit Manna,
-tags: TMS Hydraulic Adjustable Tattoo Salon Rolling Stool Chair Facial Massage Spa Swivel,
-publishedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
----
-
 # [TMS Hydraulic Adjustable Tattoo Salon Rolling Stool Chair Facial Massage Spa Swivel](https://products.checkmycream.com/products/TMS-Hydraulic-Adjustable-Tattoo-Salon-Rolling-Stool-Chair-Facial-Massage-Spa-Swivel.html)
 
 ### Positive Reviews

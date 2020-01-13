@@ -1,12 +1,3 @@
----
-title: MAC Matte Lipstick HEROINE,
-description: MAC Matte Lipstick HEROINE,
-author: Suvojit Manna,
-tags: MAC Matte Lipstick HEROINE,
-publishedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
----
-
 # [MAC Matte Lipstick HEROINE](https://products.checkmycream.com/products/MAC-Matte-Lipstick-HEROINE.html)
 
 ### Positive Reviews

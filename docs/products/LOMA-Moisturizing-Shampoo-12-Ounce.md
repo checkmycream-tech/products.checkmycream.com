@@ -1,12 +1,3 @@
----
-title: LOMA Moisturizing Shampoo 12 Ounce,
-description: LOMA Moisturizing Shampoo 12 Ounce,
-author: Suvojit Manna,
-tags: LOMA Moisturizing Shampoo 12 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
----
-
 # [LOMA Moisturizing Shampoo 12 Ounce](https://products.checkmycream.com/products/LOMA-Moisturizing-Shampoo-12-Ounce.html)
 
 ### Positive Reviews

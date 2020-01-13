@@ -1,12 +1,3 @@
----
-title: Adhesive Uplifting Breast Tapes w Nipple Covers,
-description: Adhesive Uplifting Breast Tapes w Nipple Covers,
-author: Suvojit Manna,
-tags: Adhesive Uplifting Breast Tapes w Nipple Covers,
-publishedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
----
-
 # [Adhesive Uplifting Breast Tapes w Nipple Covers](https://products.checkmycream.com/products/Adhesive-Uplifting-Breast-Tapes-w-Nipple-Covers.html)
 
 ### Positive Reviews

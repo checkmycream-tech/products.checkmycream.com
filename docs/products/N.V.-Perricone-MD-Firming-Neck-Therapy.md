@@ -1,12 +1,3 @@
----
-title: N.V. Perricone MD Firming Neck Therapy,
-description: N.V. Perricone MD Firming Neck Therapy,
-author: Suvojit Manna,
-tags: N.V. Perricone MD Firming Neck Therapy,
-publishedAt: Fri Jan 10 2020 14:59:39 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:39 GMT+0530 (India Standard Time),
----
-
 # [N.V. Perricone MD Firming Neck Therapy](https://products.checkmycream.com/products/N.V.-Perricone-MD-Firming-Neck-Therapy.html)
 
 ### Positive Reviews

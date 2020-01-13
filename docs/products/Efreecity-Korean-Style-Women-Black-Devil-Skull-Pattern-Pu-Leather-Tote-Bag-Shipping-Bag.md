@@ -1,12 +1,3 @@
----
-title: Efreecity Korean Style Women Black Devil Skull Pattern Pu Leather Tote Bag Shipping Bag,
-description: Efreecity Korean Style Women Black Devil Skull Pattern Pu Leather Tote Bag Shipping Bag,
-author: Suvojit Manna,
-tags: Efreecity Korean Style Women Black Devil Skull Pattern Pu Leather Tote Bag Shipping Bag,
-publishedAt: Fri Jan 10 2020 15:00:37 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:37 GMT+0530 (India Standard Time),
----
-
 # [Efreecity Korean Style Women Black Devil Skull Pattern Pu Leather Tote Bag Shipping Bag](https://products.checkmycream.com/products/Efreecity-Korean-Style-Women-Black-Devil-Skull-Pattern-Pu-Leather-Tote-Bag-Shipping-Bag.html)
 
 ### Positive Reviews

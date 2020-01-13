@@ -1,12 +1,3 @@
----
-title: Efferdent Plus Anti-Bacterial Denture Cleanser, Minty Fresh,
-description: Efferdent Plus Anti-Bacterial Denture Cleanser, Minty Fresh,
-author: Suvojit Manna,
-tags: Efferdent Plus Anti-Bacterial Denture Cleanser, Minty Fresh,
-publishedAt: Fri Jan 10 2020 14:59:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:08 GMT+0530 (India Standard Time),
----
-
 # [Efferdent Plus Anti-Bacterial Denture Cleanser, Minty Fresh](https://products.checkmycream.com/products/Efferdent-Plus-Anti-Bacterial-Denture-Cleanser-Minty-Fresh.html)
 
 ### Positive Reviews

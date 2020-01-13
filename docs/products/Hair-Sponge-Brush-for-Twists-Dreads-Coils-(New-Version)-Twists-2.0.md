@@ -1,12 +1,3 @@
----
-title: Hair Sponge Brush for Twists, Dreads, Coils (New Version) Twists 2.0,
-description: Hair Sponge Brush for Twists, Dreads, Coils (New Version) Twists 2.0,
-author: Suvojit Manna,
-tags: Hair Sponge Brush for Twists, Dreads, Coils (New Version) Twists 2.0,
-publishedAt: Fri Jan 10 2020 15:01:06 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:06 GMT+0530 (India Standard Time),
----
-
 # [Hair Sponge Brush for Twists, Dreads, Coils (New Version) Twists 2.0](https://products.checkmycream.com/products/Hair-Sponge-Brush-for-Twists-Dreads-Coils-(New-Version)-Twists-2.0.html)
 
 ### Positive Reviews

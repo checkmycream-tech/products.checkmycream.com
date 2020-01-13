@@ -1,12 +1,3 @@
----
-title: Franck Olivier White Touch Eau De Parfum Spray for Women, 3.3 Ounce,
-description: Franck Olivier White Touch Eau De Parfum Spray for Women, 3.3 Ounce,
-author: Suvojit Manna,
-tags: Franck Olivier White Touch Eau De Parfum Spray for Women, 3.3 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:14 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:14 GMT+0530 (India Standard Time),
----
-
 # [Franck Olivier White Touch Eau De Parfum Spray for Women, 3.3 Ounce](https://products.checkmycream.com/products/Franck-Olivier-White-Touch-Eau-De-Parfum-Spray-for-Women-3.3-Ounce.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Ulta 30-piece Lip Gloss Collection Lip Glossary,
-description: Ulta 30-piece Lip Gloss Collection Lip Glossary,
-author: Suvojit Manna,
-tags: Ulta 30-piece Lip Gloss Collection Lip Glossary,
-publishedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
----
-
 # [Ulta 30-piece Lip Gloss Collection Lip Glossary](https://products.checkmycream.com/products/Ulta-30-piece-Lip-Gloss-Collection-Lip-Glossary.html)
 
 ### Positive Reviews

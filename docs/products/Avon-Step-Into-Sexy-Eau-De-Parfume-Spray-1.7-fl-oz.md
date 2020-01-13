@@ -1,12 +1,3 @@
----
-title: Avon Step Into Sexy Eau De Parfume Spray 1.7 fl oz,
-description: Avon Step Into Sexy Eau De Parfume Spray 1.7 fl oz,
-author: Suvojit Manna,
-tags: Avon Step Into Sexy Eau De Parfume Spray 1.7 fl oz,
-publishedAt: Fri Jan 10 2020 15:00:12 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:12 GMT+0530 (India Standard Time),
----
-
 # [Avon Step Into Sexy Eau De Parfume Spray 1.7 fl oz](https://products.checkmycream.com/products/Avon-Step-Into-Sexy-Eau-De-Parfume-Spray-1.7-fl-oz.html)
 
 ### Positive Reviews

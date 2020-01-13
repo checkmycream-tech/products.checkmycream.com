@@ -1,12 +1,3 @@
----
-title: Jane Cosmetics Water-Resistant Eye Liner, Rose Gold, 0.010 Ounce,
-description: Jane Cosmetics Water-Resistant Eye Liner, Rose Gold, 0.010 Ounce,
-author: Suvojit Manna,
-tags: Jane Cosmetics Water-Resistant Eye Liner, Rose Gold, 0.010 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
----
-
 # [Jane Cosmetics Water-Resistant Eye Liner, Rose Gold, 0.010 Ounce](https://products.checkmycream.com/products/Jane-Cosmetics-Water-Resistant-Eye-Liner-Rose-Gold-0.010-Ounce.html)
 
 ### Positive Reviews

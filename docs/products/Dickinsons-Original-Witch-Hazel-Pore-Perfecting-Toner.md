@@ -1,12 +1,3 @@
----
-title: Dickinsons Original Witch Hazel Pore Perfecting Toner,
-description: Dickinsons Original Witch Hazel Pore Perfecting Toner,
-author: Suvojit Manna,
-tags: Dickinsons Original Witch Hazel Pore Perfecting Toner,
-publishedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
----
-
 # [Dickinsons Original Witch Hazel Pore Perfecting Toner](https://products.checkmycream.com/products/Dickinsons-Original-Witch-Hazel-Pore-Perfecting-Toner.html)
 
 ### Positive Reviews

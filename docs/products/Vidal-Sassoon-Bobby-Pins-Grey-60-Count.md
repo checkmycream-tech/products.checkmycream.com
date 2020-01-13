@@ -1,12 +1,3 @@
----
-title: Vidal Sassoon Bobby Pins, Grey, 60 Count,
-description: Vidal Sassoon Bobby Pins, Grey, 60 Count,
-author: Suvojit Manna,
-tags: Vidal Sassoon Bobby Pins, Grey, 60 Count,
-publishedAt: Fri Jan 10 2020 15:00:20 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:20 GMT+0530 (India Standard Time),
----
-
 # [Vidal Sassoon Bobby Pins, Grey, 60 Count](https://products.checkmycream.com/products/Vidal-Sassoon-Bobby-Pins-Grey-60-Count.html)
 
 ### Positive Reviews

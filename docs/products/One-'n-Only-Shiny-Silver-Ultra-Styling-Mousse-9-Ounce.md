@@ -1,12 +1,3 @@
----
-title: One &#x27;n Only Shiny Silver Ultra Styling Mousse, 9 Ounce,
-description: One &#x27;n Only Shiny Silver Ultra Styling Mousse, 9 Ounce,
-author: Suvojit Manna,
-tags: One &#x27;n Only Shiny Silver Ultra Styling Mousse, 9 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:46 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:46 GMT+0530 (India Standard Time),
----
-
 # [One &#x27;n Only Shiny Silver Ultra Styling Mousse, 9 Ounce](https://products.checkmycream.com/products/One-&#x27;n-Only-Shiny-Silver-Ultra-Styling-Mousse-9-Ounce.html)
 
 ### Positive Reviews

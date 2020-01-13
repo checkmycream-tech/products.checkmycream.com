@@ -1,12 +1,3 @@
----
-title: Scholl Velvet Smooth Pedi Hard Skin Remover Refills,
-description: Scholl Velvet Smooth Pedi Hard Skin Remover Refills,
-author: Suvojit Manna,
-tags: Scholl Velvet Smooth Pedi Hard Skin Remover Refills,
-publishedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
----
-
 # [Scholl Velvet Smooth Pedi Hard Skin Remover Refills](https://products.checkmycream.com/products/Scholl-Velvet-Smooth-Pedi-Hard-Skin-Remover-Refills.html)
 
 ### Positive Reviews

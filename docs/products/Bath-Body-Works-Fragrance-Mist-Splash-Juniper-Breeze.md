@@ -1,12 +1,3 @@
----
-title: Bath Body Works Fragrance Mist Splash Juniper Breeze,
-description: Bath Body Works Fragrance Mist Splash Juniper Breeze,
-author: Suvojit Manna,
-tags: Bath Body Works Fragrance Mist Splash Juniper Breeze,
-publishedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
----
-
 # [Bath Body Works Fragrance Mist Splash Juniper Breeze](https://products.checkmycream.com/products/Bath-Body-Works-Fragrance-Mist-Splash-Juniper-Breeze.html)
 
 ### Positive Reviews

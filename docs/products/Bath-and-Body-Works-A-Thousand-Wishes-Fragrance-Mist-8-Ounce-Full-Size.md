@@ -1,12 +1,3 @@
----
-title: Bath and Body Works A Thousand Wishes Fragrance Mist 8 Ounce Full Size,
-description: Bath and Body Works A Thousand Wishes Fragrance Mist 8 Ounce Full Size,
-author: Suvojit Manna,
-tags: Bath and Body Works A Thousand Wishes Fragrance Mist 8 Ounce Full Size,
-publishedAt: Fri Jan 10 2020 15:01:04 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:04 GMT+0530 (India Standard Time),
----
-
 # [Bath and Body Works A Thousand Wishes Fragrance Mist 8 Ounce Full Size](https://products.checkmycream.com/products/Bath-and-Body-Works-A-Thousand-Wishes-Fragrance-Mist-8-Ounce-Full-Size.html)
 
 ### Positive Reviews

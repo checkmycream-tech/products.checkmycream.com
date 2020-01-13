@@ -1,12 +1,3 @@
----
-title: Muehle Crystal Shaving Brush Holder,
-description: Muehle Crystal Shaving Brush Holder,
-author: Suvojit Manna,
-tags: Muehle Crystal Shaving Brush Holder,
-publishedAt: Fri Jan 10 2020 14:59:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:02 GMT+0530 (India Standard Time),
----
-
 # [Muehle Crystal Shaving Brush Holder](https://products.checkmycream.com/products/Muehle-Crystal-Shaving-Brush-Holder.html)
 
 ### Positive Reviews

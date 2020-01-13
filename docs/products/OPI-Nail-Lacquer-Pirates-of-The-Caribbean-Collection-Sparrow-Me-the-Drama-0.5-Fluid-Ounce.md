@@ -1,12 +1,3 @@
----
-title: OPI Nail Lacquer, Pirates of The Caribbean Collection, Sparrow Me the Drama, 0.5 Fluid Ounce,
-description: OPI Nail Lacquer, Pirates of The Caribbean Collection, Sparrow Me the Drama, 0.5 Fluid Ounce,
-author: Suvojit Manna,
-tags: OPI Nail Lacquer, Pirates of The Caribbean Collection, Sparrow Me the Drama, 0.5 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 15:00:06 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:06 GMT+0530 (India Standard Time),
----
-
 # [OPI Nail Lacquer, Pirates of The Caribbean Collection, Sparrow Me the Drama, 0.5 Fluid Ounce](https://products.checkmycream.com/products/OPI-Nail-Lacquer-Pirates-of-The-Caribbean-Collection-Sparrow-Me-the-Drama-0.5-Fluid-Ounce.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Irish Spring Body Wash,
-description: Irish Spring Body Wash,
-author: Suvojit Manna,
-tags: Irish Spring Body Wash,
-publishedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
----
-
 # [Irish Spring Body Wash](https://products.checkmycream.com/products/Irish-Spring-Body-Wash.html)
 
 ### Positive Reviews

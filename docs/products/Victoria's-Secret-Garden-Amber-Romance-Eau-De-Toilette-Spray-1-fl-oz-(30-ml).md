@@ -1,12 +1,3 @@
----
-title: Victoria&#x27;s Secret Garden Amber Romance Eau De Toilette Spray 1 fl oz (30 ml),
-description: Victoria&#x27;s Secret Garden Amber Romance Eau De Toilette Spray 1 fl oz (30 ml),
-author: Suvojit Manna,
-tags: Victoria&#x27;s Secret Garden Amber Romance Eau De Toilette Spray 1 fl oz (30 ml),
-publishedAt: Fri Jan 10 2020 14:59:15 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:15 GMT+0530 (India Standard Time),
----
-
 # [Victoria&#x27;s Secret Garden Amber Romance Eau De Toilette Spray 1 fl oz (30 ml)](https://products.checkmycream.com/products/Victoria&#x27;s-Secret-Garden-Amber-Romance-Eau-De-Toilette-Spray-1-fl-oz-(30-ml).html)
 
 ### Positive Reviews

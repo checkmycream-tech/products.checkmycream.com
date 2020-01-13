@@ -1,12 +1,3 @@
----
-title: Loma Maximum Volumizing Solution, 8.45 Ounce,
-description: Loma Maximum Volumizing Solution, 8.45 Ounce,
-author: Suvojit Manna,
-tags: Loma Maximum Volumizing Solution, 8.45 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
----
-
 # [Loma Maximum Volumizing Solution, 8.45 Ounce](https://products.checkmycream.com/products/Loma-Maximum-Volumizing-Solution-8.45-Ounce.html)
 
 ### Positive Reviews

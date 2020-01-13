@@ -1,12 +1,3 @@
----
-title: 9-1/2&quot; Spiral Hair bendable Foam Curler Roller Set - twist curls flex rods - 2 sizes,
-description: 9-1/2&quot; Spiral Hair bendable Foam Curler Roller Set - twist curls flex rods - 2 sizes,
-author: Suvojit Manna,
-tags: 9-1/2&quot; Spiral Hair bendable Foam Curler Roller Set - twist curls flex rods - 2 sizes,
-publishedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
----
-
 # [9-1/2&quot; Spiral Hair bendable Foam Curler Roller Set - twist curls flex rods - 2 sizes](https://products.checkmycream.com/products/9-12&quot;-Spiral-Hair-bendable-Foam-Curler-Roller-Set-twist-curls-flex-rods-2-sizes.html)
 
 ### Positive Reviews

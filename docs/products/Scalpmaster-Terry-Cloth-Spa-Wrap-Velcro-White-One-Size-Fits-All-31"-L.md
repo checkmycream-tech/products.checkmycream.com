@@ -1,12 +1,3 @@
----
-title: Scalpmaster Terry Cloth Spa Wrap Velcro White One Size Fits All, 31&quot; L,
-description: Scalpmaster Terry Cloth Spa Wrap Velcro White One Size Fits All, 31&quot; L,
-author: Suvojit Manna,
-tags: Scalpmaster Terry Cloth Spa Wrap Velcro White One Size Fits All, 31&quot; L,
-publishedAt: Fri Jan 10 2020 14:59:15 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:15 GMT+0530 (India Standard Time),
----
-
 # [Scalpmaster Terry Cloth Spa Wrap Velcro White One Size Fits All, 31&quot; L](https://products.checkmycream.com/products/Scalpmaster-Terry-Cloth-Spa-Wrap-Velcro-White-One-Size-Fits-All-31&quot;-L.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: MAC Matte Lipstick - Kinda Sexy,
-description: MAC Matte Lipstick - Kinda Sexy,
-author: Suvojit Manna,
-tags: MAC Matte Lipstick - Kinda Sexy,
-publishedAt: Fri Jan 10 2020 14:59:14 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:14 GMT+0530 (India Standard Time),
----
-
 # [MAC Matte Lipstick - Kinda Sexy](https://products.checkmycream.com/products/MAC-Matte-Lipstick-Kinda-Sexy.html)
 
 ### Positive Reviews

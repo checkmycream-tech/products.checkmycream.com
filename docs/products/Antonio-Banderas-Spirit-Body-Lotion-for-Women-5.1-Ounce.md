@@ -1,12 +1,3 @@
----
-title: Antonio Banderas Spirit Body Lotion for Women, 5.1 Ounce,
-description: Antonio Banderas Spirit Body Lotion for Women, 5.1 Ounce,
-author: Suvojit Manna,
-tags: Antonio Banderas Spirit Body Lotion for Women, 5.1 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:19 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:19 GMT+0530 (India Standard Time),
----
-
 # [Antonio Banderas Spirit Body Lotion for Women, 5.1 Ounce](https://products.checkmycream.com/products/Antonio-Banderas-Spirit-Body-Lotion-for-Women-5.1-Ounce.html)
 
 ### Positive Reviews

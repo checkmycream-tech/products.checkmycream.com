@@ -1,12 +1,3 @@
----
-title: Paul Mitchell Extra Body Daily Rinse 33.8 oz. Shampoo + 33.8 oz. Conditioner (Combo Deal),
-description: Paul Mitchell Extra Body Daily Rinse 33.8 oz. Shampoo + 33.8 oz. Conditioner (Combo Deal),
-author: Suvojit Manna,
-tags: Paul Mitchell Extra Body Daily Rinse 33.8 oz. Shampoo + 33.8 oz. Conditioner (Combo Deal),
-publishedAt: Fri Jan 10 2020 14:59:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:58 GMT+0530 (India Standard Time),
----
-
 # [Paul Mitchell Extra Body Daily Rinse 33.8 oz. Shampoo + 33.8 oz. Conditioner (Combo Deal)](https://products.checkmycream.com/products/Paul-Mitchell-Extra-Body-Daily-Rinse-33.8-oz.-Shampoo-+-33.8-oz.-Conditioner-(Combo-Deal).html)
 
 ### Positive Reviews

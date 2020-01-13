@@ -1,12 +1,3 @@
----
-title: Hotportgift Street Snap Candid Tote Shoulder Bag Handbag Linen,
-description: Hotportgift Street Snap Candid Tote Shoulder Bag Handbag Linen,
-author: Suvojit Manna,
-tags: Hotportgift Street Snap Candid Tote Shoulder Bag Handbag Linen,
-publishedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
----
-
 # [Hotportgift Street Snap Candid Tote Shoulder Bag Handbag Linen](https://products.checkmycream.com/products/Hotportgift-Street-Snap-Candid-Tote-Shoulder-Bag-Handbag-Linen.html)
 
 ### Positive Reviews

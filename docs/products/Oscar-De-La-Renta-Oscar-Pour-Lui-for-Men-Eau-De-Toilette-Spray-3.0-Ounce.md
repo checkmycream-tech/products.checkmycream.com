@@ -1,12 +1,3 @@
----
-title: Oscar De La Renta Oscar Pour Lui for Men Eau De Toilette Spray, 3.0 Ounce,
-description: Oscar De La Renta Oscar Pour Lui for Men Eau De Toilette Spray, 3.0 Ounce,
-author: Suvojit Manna,
-tags: Oscar De La Renta Oscar Pour Lui for Men Eau De Toilette Spray, 3.0 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
----
-
 # [Oscar De La Renta Oscar Pour Lui for Men Eau De Toilette Spray, 3.0 Ounce](https://products.checkmycream.com/products/Oscar-De-La-Renta-Oscar-Pour-Lui-for-Men-Eau-De-Toilette-Spray-3.0-Ounce.html)
 
 ### Positive Reviews

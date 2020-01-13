@@ -1,12 +1,3 @@
----
-title: billion dollar brows Eyebrow Brush Makeup tool,
-description: billion dollar brows Eyebrow Brush Makeup tool,
-author: Suvojit Manna,
-tags: billion dollar brows Eyebrow Brush Makeup tool,
-publishedAt: Fri Jan 10 2020 14:59:21 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:21 GMT+0530 (India Standard Time),
----
-
 # [billion dollar brows Eyebrow Brush Makeup tool](https://products.checkmycream.com/products/billion-dollar-brows-Eyebrow-Brush-Makeup-tool.html)
 
 ### Positive Reviews

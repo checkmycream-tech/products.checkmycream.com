@@ -1,12 +1,3 @@
----
-title: Salon Barber Child Booster Seat,
-description: Salon Barber Child Booster Seat,
-author: Suvojit Manna,
-tags: Salon Barber Child Booster Seat,
-publishedAt: Fri Jan 10 2020 14:59:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:56 GMT+0530 (India Standard Time),
----
-
 # [Salon Barber Child Booster Seat](https://products.checkmycream.com/products/Salon-Barber-Child-Booster-Seat.html)
 
 ### Positive Reviews

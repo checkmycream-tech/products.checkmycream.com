@@ -1,12 +1,3 @@
----
-title: 40-Pieces Eye Shadow Applicators, Eyeshadow Disposable Sponge Tip Brush,
-description: 40-Pieces Eye Shadow Applicators, Eyeshadow Disposable Sponge Tip Brush,
-author: Suvojit Manna,
-tags: 40-Pieces Eye Shadow Applicators, Eyeshadow Disposable Sponge Tip Brush,
-publishedAt: Fri Jan 10 2020 15:00:30 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:30 GMT+0530 (India Standard Time),
----
-
 # [40-Pieces Eye Shadow Applicators, Eyeshadow Disposable Sponge Tip Brush](https://products.checkmycream.com/products/40-Pieces-Eye-Shadow-Applicators-Eyeshadow-Disposable-Sponge-Tip-Brush.html)
 
 ### Positive Reviews

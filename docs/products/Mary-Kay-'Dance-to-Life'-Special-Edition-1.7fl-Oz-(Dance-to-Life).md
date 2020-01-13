@@ -1,12 +1,3 @@
----
-title: Mary Kay &#x27;Dance to Life&#x27; Special Edition - 1.7fl Oz (Dance to Life),
-description: Mary Kay &#x27;Dance to Life&#x27; Special Edition - 1.7fl Oz (Dance to Life),
-author: Suvojit Manna,
-tags: Mary Kay &#x27;Dance to Life&#x27; Special Edition - 1.7fl Oz (Dance to Life),
-publishedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
----
-
 # [Mary Kay &#x27;Dance to Life&#x27; Special Edition - 1.7fl Oz (Dance to Life)](https://products.checkmycream.com/products/Mary-Kay-&#x27;Dance-to-Life&#x27;-Special-Edition-1.7fl-Oz-(Dance-to-Life).html)
 
 ### Positive Reviews

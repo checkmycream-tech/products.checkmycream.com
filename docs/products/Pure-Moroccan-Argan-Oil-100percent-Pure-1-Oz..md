@@ -1,12 +1,3 @@
----
-title: Pure Moroccan Argan Oil 100% Pure 1 Oz.,
-description: Pure Moroccan Argan Oil 100% Pure 1 Oz.,
-author: Suvojit Manna,
-tags: Pure Moroccan Argan Oil 100% Pure 1 Oz.,
-publishedAt: Fri Jan 10 2020 15:01:06 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:06 GMT+0530 (India Standard Time),
----
-
 # [Pure Moroccan Argan Oil 100% Pure 1 Oz.](https://products.checkmycream.com/products/Pure-Moroccan-Argan-Oil-100percent-Pure-1-Oz..html)
 
 ### Positive Reviews

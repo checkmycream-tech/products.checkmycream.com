@@ -1,12 +1,3 @@
----
-title: Caesars Man Cologne for Men by Caesars Palace,
-description: Caesars Man Cologne for Men by Caesars Palace,
-author: Suvojit Manna,
-tags: Caesars Man Cologne for Men by Caesars Palace,
-publishedAt: Fri Jan 10 2020 14:59:04 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:04 GMT+0530 (India Standard Time),
----
-
 # [Caesars Man Cologne for Men by Caesars Palace](https://products.checkmycream.com/products/Caesars-Man-Cologne-for-Men-by-Caesars-Palace.html)
 
 ### Positive Reviews

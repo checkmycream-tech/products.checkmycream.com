@@ -1,12 +1,3 @@
----
-title: 212 NYC by Caroline Herrera For Women. Eau De Toilette Spray 3.4-Ounce Bottle,
-description: 212 NYC by Caroline Herrera For Women. Eau De Toilette Spray 3.4-Ounce Bottle,
-author: Suvojit Manna,
-tags: 212 NYC by Caroline Herrera For Women. Eau De Toilette Spray 3.4-Ounce Bottle,
-publishedAt: Fri Jan 10 2020 14:59:23 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:23 GMT+0530 (India Standard Time),
----
-
 # [212 NYC by Caroline Herrera For Women. Eau De Toilette Spray 3.4-Ounce Bottle](https://products.checkmycream.com/products/212-NYC-by-Caroline-Herrera-For-Women.-Eau-De-Toilette-Spray-3.4-Ounce-Bottle.html)
 
 ### Positive Reviews

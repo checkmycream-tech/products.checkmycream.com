@@ -1,12 +1,3 @@
----
-title: GELISH TAHITI HOTTIE #620 GEL POLISH,
-description: GELISH TAHITI HOTTIE #620 GEL POLISH,
-author: Suvojit Manna,
-tags: GELISH TAHITI HOTTIE #620 GEL POLISH,
-publishedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
----
-
 # [GELISH TAHITI HOTTIE #620 GEL POLISH](https://products.checkmycream.com/products/GELISH-TAHITI-HOTTIE-620-GEL-POLISH.html)
 
 ### Positive Reviews

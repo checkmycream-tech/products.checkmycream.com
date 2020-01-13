@@ -1,12 +1,3 @@
----
-title: Frozen Lip Gloss Tubes, 6 Count,
-description: Frozen Lip Gloss Tubes, 6 Count,
-author: Suvojit Manna,
-tags: Frozen Lip Gloss Tubes, 6 Count,
-publishedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
----
-
 # [Frozen Lip Gloss Tubes, 6 Count](https://products.checkmycream.com/products/Frozen-Lip-Gloss-Tubes-6-Count.html)
 
 ### Positive Reviews

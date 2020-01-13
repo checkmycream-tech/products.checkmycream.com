@@ -1,12 +1,3 @@
----
-title: Aokdis Hot Fashion Korean Style Women Lady Girls Retro Owl Decoration Faux Leather Bracelets (Black),
-description: Aokdis Hot Fashion Korean Style Women Lady Girls Retro Owl Decoration Faux Leather Bracelets (Black),
-author: Suvojit Manna,
-tags: Aokdis Hot Fashion Korean Style Women Lady Girls Retro Owl Decoration Faux Leather Bracelets (Black),
-publishedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
----
-
 # [Aokdis Hot Fashion Korean Style Women Lady Girls Retro Owl Decoration Faux Leather Bracelets (Black)](https://products.checkmycream.com/products/Aokdis-Hot-Fashion-Korean-Style-Women-Lady-Girls-Retro-Owl-Decoration-Faux-Leather-Bracelets-(Black).html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Promesse By Cacharel For Women. Eau De Toilette Spray 1.7 OZ,
-description: Promesse By Cacharel For Women. Eau De Toilette Spray 1.7 OZ,
-author: Suvojit Manna,
-tags: Promesse By Cacharel For Women. Eau De Toilette Spray 1.7 OZ,
-publishedAt: Fri Jan 10 2020 14:59:09 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:09 GMT+0530 (India Standard Time),
----
-
 # [Promesse By Cacharel For Women. Eau De Toilette Spray 1.7 OZ](https://products.checkmycream.com/products/Promesse-By-Cacharel-For-Women.-Eau-De-Toilette-Spray-1.7-OZ.html)
 
 ### Positive Reviews

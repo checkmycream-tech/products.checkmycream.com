@@ -1,12 +1,3 @@
----
-title: Schick Tracer Fx Razor Handle with 2 Refill Blades + 3 Packs of Wilkinson FX Performer, 5 Count,
-description: Schick Tracer Fx Razor Handle with 2 Refill Blades + 3 Packs of Wilkinson FX Performer, 5 Count,
-author: Suvojit Manna,
-tags: Schick Tracer Fx Razor Handle with 2 Refill Blades + 3 Packs of Wilkinson FX Performer, 5 Count,
-publishedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
----
-
 # [Schick Tracer Fx Razor Handle with 2 Refill Blades + 3 Packs of Wilkinson FX Performer, 5 Count](https://products.checkmycream.com/products/Schick-Tracer-Fx-Razor-Handle-with-2-Refill-Blades-+-3-Packs-of-Wilkinson-FX-Performer-5-Count.html)
 
 ### Positive Reviews

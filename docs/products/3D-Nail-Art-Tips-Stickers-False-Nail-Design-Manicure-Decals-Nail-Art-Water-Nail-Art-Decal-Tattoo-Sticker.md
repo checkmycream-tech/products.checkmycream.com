@@ -1,12 +1,3 @@
----
-title: 3D Nail Art Tips Stickers False Nail Design Manicure Decals Nail Art Water Nail Art Decal / Tattoo / Sticker,
-description: 3D Nail Art Tips Stickers False Nail Design Manicure Decals Nail Art Water Nail Art Decal / Tattoo / Sticker,
-author: Suvojit Manna,
-tags: 3D Nail Art Tips Stickers False Nail Design Manicure Decals Nail Art Water Nail Art Decal / Tattoo / Sticker,
-publishedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
----
-
 # [3D Nail Art Tips Stickers False Nail Design Manicure Decals Nail Art Water Nail Art Decal / Tattoo / Sticker](https://products.checkmycream.com/products/3D-Nail-Art-Tips-Stickers-False-Nail-Design-Manicure-Decals-Nail-Art-Water-Nail-Art-Decal-Tattoo-Sticker.html)
 
 ### Positive Reviews

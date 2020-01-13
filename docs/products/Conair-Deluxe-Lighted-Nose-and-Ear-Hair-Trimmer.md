@@ -1,12 +1,3 @@
----
-title: Conair Deluxe Lighted Nose and Ear Hair Trimmer,
-description: Conair Deluxe Lighted Nose and Ear Hair Trimmer,
-author: Suvojit Manna,
-tags: Conair Deluxe Lighted Nose and Ear Hair Trimmer,
-publishedAt: Fri Jan 10 2020 14:59:15 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:15 GMT+0530 (India Standard Time),
----
-
 # [Conair Deluxe Lighted Nose and Ear Hair Trimmer](https://products.checkmycream.com/products/Conair-Deluxe-Lighted-Nose-and-Ear-Hair-Trimmer.html)
 
 ### Positive Reviews

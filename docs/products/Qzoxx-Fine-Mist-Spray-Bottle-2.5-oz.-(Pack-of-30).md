@@ -1,12 +1,3 @@
----
-title: Qzoxx Fine Mist Spray Bottle 2.5 oz. (Pack of 30),
-description: Qzoxx Fine Mist Spray Bottle 2.5 oz. (Pack of 30),
-author: Suvojit Manna,
-tags: Qzoxx Fine Mist Spray Bottle 2.5 oz. (Pack of 30),
-publishedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
----
-
 # [Qzoxx Fine Mist Spray Bottle 2.5 oz. (Pack of 30)](https://products.checkmycream.com/products/Qzoxx-Fine-Mist-Spray-Bottle-2.5-oz.-(Pack-of-30).html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: BelleSha Face Loofah Pads pack of 3,
-description: BelleSha Face Loofah Pads pack of 3,
-author: Suvojit Manna,
-tags: BelleSha Face Loofah Pads pack of 3,
-publishedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
----
-
 # [BelleSha Face Loofah Pads pack of 3](https://products.checkmycream.com/products/BelleSha-Face-Loofah-Pads-pack-of-3.html)
 
 ### Positive Reviews

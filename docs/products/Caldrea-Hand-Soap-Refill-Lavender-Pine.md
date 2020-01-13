@@ -1,12 +1,3 @@
----
-title: Caldrea - Hand Soap Refill Lavender Pine,
-description: Caldrea - Hand Soap Refill Lavender Pine,
-author: Suvojit Manna,
-tags: Caldrea - Hand Soap Refill Lavender Pine,
-publishedAt: Fri Jan 10 2020 14:59:30 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:30 GMT+0530 (India Standard Time),
----
-
 # [Caldrea - Hand Soap Refill Lavender Pine](https://products.checkmycream.com/products/Caldrea-Hand-Soap-Refill-Lavender-Pine.html)
 
 ### Positive Reviews

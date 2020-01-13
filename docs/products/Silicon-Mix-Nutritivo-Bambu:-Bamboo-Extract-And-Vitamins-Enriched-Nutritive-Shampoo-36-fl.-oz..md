@@ -1,12 +1,3 @@
----
-title: Silicon Mix - Nutritivo Bambú: Bamboo Extract And Vitamins Enriched [Nutritive Shampoo] 36 fl. oz.,
-description: Silicon Mix - Nutritivo Bambú: Bamboo Extract And Vitamins Enriched [Nutritive Shampoo] 36 fl. oz.,
-author: Suvojit Manna,
-tags: Silicon Mix - Nutritivo Bambú: Bamboo Extract And Vitamins Enriched [Nutritive Shampoo] 36 fl. oz.,
-publishedAt: Fri Jan 10 2020 15:00:32 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:32 GMT+0530 (India Standard Time),
----
-
 # [Silicon Mix - Nutritivo Bambú: Bamboo Extract And Vitamins Enriched [Nutritive Shampoo] 36 fl. oz.](https://products.checkmycream.com/products/Silicon-Mix-Nutritivo-Bambu:-Bamboo-Extract-And-Vitamins-Enriched-Nutritive-Shampoo-36-fl.-oz..html)
 
 ### Positive Reviews

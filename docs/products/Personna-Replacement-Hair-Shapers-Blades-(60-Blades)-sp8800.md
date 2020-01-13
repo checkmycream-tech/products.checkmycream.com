@@ -1,12 +1,3 @@
----
-title: Personna Replacement Hair Shapers Blades (60 Blades) sp#8800,
-description: Personna Replacement Hair Shapers Blades (60 Blades) sp#8800,
-author: Suvojit Manna,
-tags: Personna Replacement Hair Shapers Blades (60 Blades) sp#8800,
-publishedAt: Fri Jan 10 2020 14:59:13 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:13 GMT+0530 (India Standard Time),
----
-
 # [Personna Replacement Hair Shapers Blades (60 Blades) sp#8800](https://products.checkmycream.com/products/Personna-Replacement-Hair-Shapers-Blades-(60-Blades)-sp8800.html)
 
 ### Positive Reviews

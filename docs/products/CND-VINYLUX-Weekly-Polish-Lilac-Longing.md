@@ -1,12 +1,3 @@
----
-title: CND VINYLUX Weekly Polish, Lilac Longing,
-description: CND VINYLUX Weekly Polish, Lilac Longing,
-author: Suvojit Manna,
-tags: CND VINYLUX Weekly Polish, Lilac Longing,
-publishedAt: Fri Jan 10 2020 15:00:45 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:45 GMT+0530 (India Standard Time),
----
-
 # [CND VINYLUX Weekly Polish, Lilac Longing](https://products.checkmycream.com/products/CND-VINYLUX-Weekly-Polish-Lilac-Longing.html)
 
 ### Positive Reviews

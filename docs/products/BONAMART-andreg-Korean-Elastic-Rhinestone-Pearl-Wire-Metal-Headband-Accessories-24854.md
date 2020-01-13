@@ -1,12 +1,3 @@
----
-title: BONAMART &amp;reg; Korean Elastic Rhinestone Pearl Wire Metal Headband Accessories 24854,
-description: BONAMART &amp;reg; Korean Elastic Rhinestone Pearl Wire Metal Headband Accessories 24854,
-author: Suvojit Manna,
-tags: BONAMART &amp;reg; Korean Elastic Rhinestone Pearl Wire Metal Headband Accessories 24854,
-publishedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
----
-
 # [BONAMART &amp;reg; Korean Elastic Rhinestone Pearl Wire Metal Headband Accessories 24854](https://products.checkmycream.com/products/BONAMART-andreg-Korean-Elastic-Rhinestone-Pearl-Wire-Metal-Headband-Accessories-24854.html)
 
 ### Positive Reviews

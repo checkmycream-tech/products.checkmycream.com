@@ -1,12 +1,3 @@
----
-title: Redken Chemistry System 3.5 Phix Phase,
-description: Redken Chemistry System 3.5 Phix Phase,
-author: Suvojit Manna,
-tags: Redken Chemistry System 3.5 Phix Phase,
-publishedAt: Fri Jan 10 2020 15:00:20 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:20 GMT+0530 (India Standard Time),
----
-
 # [Redken Chemistry System 3.5 Phix Phase](https://products.checkmycream.com/products/Redken-Chemistry-System-3.5-Phix-Phase.html)
 
 ### Positive Reviews

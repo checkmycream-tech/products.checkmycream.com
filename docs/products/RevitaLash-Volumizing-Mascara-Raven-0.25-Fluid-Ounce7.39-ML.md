@@ -1,12 +1,3 @@
----
-title: RevitaLash Volumizing Mascara - # Raven -0.25 Fluid Ounce/7.39 ML,
-description: RevitaLash Volumizing Mascara - # Raven -0.25 Fluid Ounce/7.39 ML,
-author: Suvojit Manna,
-tags: RevitaLash Volumizing Mascara - # Raven -0.25 Fluid Ounce/7.39 ML,
-publishedAt: Fri Jan 10 2020 15:00:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:01 GMT+0530 (India Standard Time),
----
-
 # [RevitaLash Volumizing Mascara - # Raven -0.25 Fluid Ounce/7.39 ML](https://products.checkmycream.com/products/RevitaLash-Volumizing-Mascara-Raven-0.25-Fluid-Ounce7.39-ML.html)
 
 ### Positive Reviews

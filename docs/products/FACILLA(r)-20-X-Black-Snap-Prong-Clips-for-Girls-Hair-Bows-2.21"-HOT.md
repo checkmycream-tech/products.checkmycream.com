@@ -1,12 +1,3 @@
----
-title: FACILLA® 20 X Black Snap Prong Clips for Girls Hair Bows 2.21&quot; HOT,
-description: FACILLA® 20 X Black Snap Prong Clips for Girls Hair Bows 2.21&quot; HOT,
-author: Suvojit Manna,
-tags: FACILLA® 20 X Black Snap Prong Clips for Girls Hair Bows 2.21&quot; HOT,
-publishedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
----
-
 # [FACILLA® 20 X Black Snap Prong Clips for Girls Hair Bows 2.21&quot; HOT](https://products.checkmycream.com/products/FACILLA(r)-20-X-Black-Snap-Prong-Clips-for-Girls-Hair-Bows-2.21&quot;-HOT.html)
 
 ### Positive Reviews

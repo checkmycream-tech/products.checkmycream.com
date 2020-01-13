@@ -1,12 +1,3 @@
----
-title: Coco Chanel Mademoiselle,
-description: Coco Chanel Mademoiselle,
-author: Suvojit Manna,
-tags: Coco Chanel Mademoiselle,
-publishedAt: Fri Jan 10 2020 15:01:07 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:07 GMT+0530 (India Standard Time),
----
-
 # [Coco Chanel Mademoiselle](https://products.checkmycream.com/products/Coco-Chanel-Mademoiselle.html)
 
 ### Positive Reviews

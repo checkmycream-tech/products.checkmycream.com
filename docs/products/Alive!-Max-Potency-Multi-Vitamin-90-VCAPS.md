@@ -1,12 +1,3 @@
----
-title: Alive! Max Potency Multi-Vitamin,, 90 VCAPS,
-description: Alive! Max Potency Multi-Vitamin,, 90 VCAPS,
-author: Suvojit Manna,
-tags: Alive! Max Potency Multi-Vitamin,, 90 VCAPS,
-publishedAt: Fri Jan 10 2020 14:59:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:00 GMT+0530 (India Standard Time),
----
-
 # [Alive! Max Potency Multi-Vitamin,, 90 VCAPS](https://products.checkmycream.com/products/Alive!-Max-Potency-Multi-Vitamin-90-VCAPS.html)
 
 ### Positive Reviews

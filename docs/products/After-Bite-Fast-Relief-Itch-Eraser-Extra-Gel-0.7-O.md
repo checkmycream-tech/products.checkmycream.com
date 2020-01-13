@@ -1,12 +1,3 @@
----
-title: After Bite, Fast Relief Itch Eraser Extra Gel --- 0.7 O,
-description: After Bite, Fast Relief Itch Eraser Extra Gel --- 0.7 O,
-author: Suvojit Manna,
-tags: After Bite, Fast Relief Itch Eraser Extra Gel --- 0.7 O,
-publishedAt: Fri Jan 10 2020 14:59:12 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:12 GMT+0530 (India Standard Time),
----
-
 # [After Bite, Fast Relief Itch Eraser Extra Gel --- 0.7 O](https://products.checkmycream.com/products/After-Bite-Fast-Relief-Itch-Eraser-Extra-Gel-0.7-O.html)
 
 ### Positive Reviews

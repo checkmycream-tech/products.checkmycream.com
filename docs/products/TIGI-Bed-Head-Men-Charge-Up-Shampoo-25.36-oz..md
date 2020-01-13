@@ -1,12 +1,3 @@
----
-title: TIGI Bed Head Men Charge Up Shampoo 25.36 oz.,
-description: TIGI Bed Head Men Charge Up Shampoo 25.36 oz.,
-author: Suvojit Manna,
-tags: TIGI Bed Head Men Charge Up Shampoo 25.36 oz.,
-publishedAt: Fri Jan 10 2020 14:59:36 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:36 GMT+0530 (India Standard Time),
----
-
 # [TIGI Bed Head Men Charge Up Shampoo 25.36 oz.](https://products.checkmycream.com/products/TIGI-Bed-Head-Men-Charge-Up-Shampoo-25.36-oz..html)
 
 ### Positive Reviews

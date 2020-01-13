@@ -1,12 +1,3 @@
----
-title: Micro Pedi Nano Callus Remover Pedicure Foot Rough Skin Buffer Smoother,
-description: Micro Pedi Nano Callus Remover Pedicure Foot Rough Skin Buffer Smoother,
-author: Suvojit Manna,
-tags: Micro Pedi Nano Callus Remover Pedicure Foot Rough Skin Buffer Smoother,
-publishedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
----
-
 # [Micro Pedi Nano Callus Remover Pedicure Foot Rough Skin Buffer Smoother](https://products.checkmycream.com/products/Micro-Pedi-Nano-Callus-Remover-Pedicure-Foot-Rough-Skin-Buffer-Smoother.html)
 
 ### Positive Reviews

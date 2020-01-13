@@ -1,12 +1,3 @@
----
-title: Bed Head Manipulator (2 oz.),
-description: Bed Head Manipulator (2 oz.),
-author: Suvojit Manna,
-tags: Bed Head Manipulator (2 oz.),
-publishedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
----
-
 # [Bed Head Manipulator (2 oz.)](https://products.checkmycream.com/products/Bed-Head-Manipulator-(2-oz.).html)
 
 ### Positive Reviews

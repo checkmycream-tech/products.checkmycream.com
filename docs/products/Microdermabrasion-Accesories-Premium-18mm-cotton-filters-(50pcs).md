@@ -1,12 +1,3 @@
----
-title: Microdermabrasion Accesories - Premium 18mm cotton filters (50pcs),
-description: Microdermabrasion Accesories - Premium 18mm cotton filters (50pcs),
-author: Suvojit Manna,
-tags: Microdermabrasion Accesories - Premium 18mm cotton filters (50pcs),
-publishedAt: Fri Jan 10 2020 14:59:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:55 GMT+0530 (India Standard Time),
----
-
 # [Microdermabrasion Accesories - Premium 18mm cotton filters (50pcs)](https://products.checkmycream.com/products/Microdermabrasion-Accesories-Premium-18mm-cotton-filters-(50pcs).html)
 
 ### Positive Reviews

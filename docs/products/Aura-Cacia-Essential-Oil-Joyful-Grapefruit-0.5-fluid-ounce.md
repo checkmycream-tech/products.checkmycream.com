@@ -1,12 +1,3 @@
----
-title: Aura Cacia Essential Oil, Joyful Grapefruit, 0.5 fluid ounce,
-description: Aura Cacia Essential Oil, Joyful Grapefruit, 0.5 fluid ounce,
-author: Suvojit Manna,
-tags: Aura Cacia Essential Oil, Joyful Grapefruit, 0.5 fluid ounce,
-publishedAt: Fri Jan 10 2020 14:59:22 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:22 GMT+0530 (India Standard Time),
----
-
 # [Aura Cacia Essential Oil, Joyful Grapefruit, 0.5 fluid ounce](https://products.checkmycream.com/products/Aura-Cacia-Essential-Oil-Joyful-Grapefruit-0.5-fluid-ounce.html)
 
 ### Positive Reviews

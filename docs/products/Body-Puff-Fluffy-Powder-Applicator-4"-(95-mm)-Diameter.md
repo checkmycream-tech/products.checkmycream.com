@@ -1,12 +1,3 @@
----
-title: Body Puff Fluffy Powder Applicator 4&quot; (95 mm) Diameter,
-description: Body Puff Fluffy Powder Applicator 4&quot; (95 mm) Diameter,
-author: Suvojit Manna,
-tags: Body Puff Fluffy Powder Applicator 4&quot; (95 mm) Diameter,
-publishedAt: Fri Jan 10 2020 15:00:10 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:10 GMT+0530 (India Standard Time),
----
-
 # [Body Puff Fluffy Powder Applicator 4&quot; (95 mm) Diameter](https://products.checkmycream.com/products/Body-Puff-Fluffy-Powder-Applicator-4&quot;-(95-mm)-Diameter.html)
 
 ### Positive Reviews

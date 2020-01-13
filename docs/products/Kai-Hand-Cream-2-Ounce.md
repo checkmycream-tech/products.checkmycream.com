@@ -1,12 +1,3 @@
----
-title: Kai Hand Cream, 2 Ounce,
-description: Kai Hand Cream, 2 Ounce,
-author: Suvojit Manna,
-tags: Kai Hand Cream, 2 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
----
-
 # [Kai Hand Cream, 2 Ounce](https://products.checkmycream.com/products/Kai-Hand-Cream-2-Ounce.html)
 
 ### Positive Reviews

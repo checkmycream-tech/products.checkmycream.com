@@ -1,12 +1,3 @@
----
-title: Nail Art Water Transfers Stickers Decals Metallic Gold/Sliver Funky Zipper/Zips,
-description: Nail Art Water Transfers Stickers Decals Metallic Gold/Sliver Funky Zipper/Zips,
-author: Suvojit Manna,
-tags: Nail Art Water Transfers Stickers Decals Metallic Gold/Sliver Funky Zipper/Zips,
-publishedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
----
-
 # [Nail Art Water Transfers Stickers Decals Metallic Gold/Sliver Funky Zipper/Zips](https://products.checkmycream.com/products/Nail-Art-Water-Transfers-Stickers-Decals-Metallic-GoldSliver-Funky-ZipperZips.html)
 
 ### Positive Reviews

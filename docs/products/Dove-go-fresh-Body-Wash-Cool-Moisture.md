@@ -1,12 +1,3 @@
----
-title: Dove go fresh Body Wash, Cool Moisture,
-description: Dove go fresh Body Wash, Cool Moisture,
-author: Suvojit Manna,
-tags: Dove go fresh Body Wash, Cool Moisture,
-publishedAt: Fri Jan 10 2020 15:00:04 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:04 GMT+0530 (India Standard Time),
----
-
 # [Dove go fresh Body Wash, Cool Moisture](https://products.checkmycream.com/products/Dove-go-fresh-Body-Wash-Cool-Moisture.html)
 
 ### Positive Reviews

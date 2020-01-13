@@ -1,12 +1,3 @@
----
-title: Aveda - Shampure Conditioner 8.5oz,
-description: Aveda - Shampure Conditioner 8.5oz,
-author: Suvojit Manna,
-tags: Aveda - Shampure Conditioner 8.5oz,
-publishedAt: Fri Jan 10 2020 14:59:25 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:25 GMT+0530 (India Standard Time),
----
-
 # [Aveda - Shampure Conditioner 8.5oz](https://products.checkmycream.com/products/Aveda-Shampure-Conditioner-8.5oz.html)
 
 ### Positive Reviews

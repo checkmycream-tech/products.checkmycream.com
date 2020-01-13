@@ -1,12 +1,3 @@
----
-title: Ann Chery Colombian Anti Cellulite Slimming Cold Gel,
-description: Ann Chery Colombian Anti Cellulite Slimming Cold Gel,
-author: Suvojit Manna,
-tags: Ann Chery Colombian Anti Cellulite Slimming Cold Gel,
-publishedAt: Fri Jan 10 2020 15:01:07 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:07 GMT+0530 (India Standard Time),
----
-
 # [Ann Chery Colombian Anti Cellulite Slimming Cold Gel](https://products.checkmycream.com/products/Ann-Chery-Colombian-Anti-Cellulite-Slimming-Cold-Gel.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Brocato Shatter Chaos Paste, 4 Ounce,
-description: Brocato Shatter Chaos Paste, 4 Ounce,
-author: Suvojit Manna,
-tags: Brocato Shatter Chaos Paste, 4 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:31 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:31 GMT+0530 (India Standard Time),
----
-
 # [Brocato Shatter Chaos Paste, 4 Ounce](https://products.checkmycream.com/products/Brocato-Shatter-Chaos-Paste-4-Ounce.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Gap Blue No. 655 Eau de Toilette Spray for Him 2 fl oz / 50 ml,
-description: Gap Blue No. 655 Eau de Toilette Spray for Him 2 fl oz / 50 ml,
-author: Suvojit Manna,
-tags: Gap Blue No. 655 Eau de Toilette Spray for Him 2 fl oz / 50 ml,
-publishedAt: Fri Jan 10 2020 14:59:27 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:27 GMT+0530 (India Standard Time),
----
-
 # [Gap Blue No. 655 Eau de Toilette Spray for Him 2 fl oz / 50 ml](https://products.checkmycream.com/products/Gap-Blue-No.-655-Eau-de-Toilette-Spray-for-Him-2-fl-oz-50-ml.html)
 
 ### Positive Reviews

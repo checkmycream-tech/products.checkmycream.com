@@ -1,12 +1,3 @@
----
-title: Wahl Comb Kit For Sterling 2 Peanut Neo Beret,
-description: Wahl Comb Kit For Sterling 2 Peanut Neo Beret,
-author: Suvojit Manna,
-tags: Wahl Comb Kit For Sterling 2 Peanut Neo Beret,
-publishedAt: Fri Jan 10 2020 14:59:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:00 GMT+0530 (India Standard Time),
----
-
 # [Wahl Comb Kit For Sterling 2 Peanut Neo Beret](https://products.checkmycream.com/products/Wahl-Comb-Kit-For-Sterling-2-Peanut-Neo-Beret.html)
 
 ### Positive Reviews

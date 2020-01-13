@@ -1,12 +1,3 @@
----
-title: Giell Styrofoam Mannequin Wig Head Non-Topple Styling Holder,
-description: Giell Styrofoam Mannequin Wig Head Non-Topple Styling Holder,
-author: Suvojit Manna,
-tags: Giell Styrofoam Mannequin Wig Head Non-Topple Styling Holder,
-publishedAt: Fri Jan 10 2020 14:59:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:58 GMT+0530 (India Standard Time),
----
-
 # [Giell Styrofoam Mannequin Wig Head Non-Topple Styling Holder](https://products.checkmycream.com/products/Giell-Styrofoam-Mannequin-Wig-Head-Non-Topple-Styling-Holder.html)
 
 ### Positive Reviews

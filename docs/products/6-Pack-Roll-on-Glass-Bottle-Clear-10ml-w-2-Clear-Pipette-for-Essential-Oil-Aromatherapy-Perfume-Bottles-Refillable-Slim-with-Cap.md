@@ -1,12 +1,3 @@
----
-title: 6 Pack - Roll on Glass Bottle - Clear 10ml w/ 2 Clear Pipette for Essential Oil - Aromatherapy Perfume Bottles - Refillable Slim with Cap,
-description: 6 Pack - Roll on Glass Bottle - Clear 10ml w/ 2 Clear Pipette for Essential Oil - Aromatherapy Perfume Bottles - Refillable Slim with Cap,
-author: Suvojit Manna,
-tags: 6 Pack - Roll on Glass Bottle - Clear 10ml w/ 2 Clear Pipette for Essential Oil - Aromatherapy Perfume Bottles - Refillable Slim with Cap,
-publishedAt: Fri Jan 10 2020 15:01:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:08 GMT+0530 (India Standard Time),
----
-
 # [6 Pack - Roll on Glass Bottle - Clear 10ml w/ 2 Clear Pipette for Essential Oil - Aromatherapy Perfume Bottles - Refillable Slim with Cap](https://products.checkmycream.com/products/6-Pack-Roll-on-Glass-Bottle-Clear-10ml-w-2-Clear-Pipette-for-Essential-Oil-Aromatherapy-Perfume-Bottles-Refillable-Slim-with-Cap.html)
 
 ### Positive Reviews

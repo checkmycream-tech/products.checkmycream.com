@@ -1,12 +1,3 @@
----
-title: Femitu Clip For Hair Extension, Snap Clip For DIY Use, Black 20pcs,
-description: Femitu Clip For Hair Extension, Snap Clip For DIY Use, Black 20pcs,
-author: Suvojit Manna,
-tags: Femitu Clip For Hair Extension, Snap Clip For DIY Use, Black 20pcs,
-publishedAt: Fri Jan 10 2020 15:00:36 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:36 GMT+0530 (India Standard Time),
----
-
 # [Femitu Clip For Hair Extension, Snap Clip For DIY Use, Black 20pcs](https://products.checkmycream.com/products/Femitu-Clip-For-Hair-Extension-Snap-Clip-For-DIY-Use-Black-20pcs.html)
 
 ### Positive Reviews

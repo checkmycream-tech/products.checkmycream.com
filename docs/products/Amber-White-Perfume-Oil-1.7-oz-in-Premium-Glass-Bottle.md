@@ -1,12 +1,3 @@
----
-title: Amber White Perfume Oil - 1.7 oz in Premium Glass Bottle,
-description: Amber White Perfume Oil - 1.7 oz in Premium Glass Bottle,
-author: Suvojit Manna,
-tags: Amber White Perfume Oil - 1.7 oz in Premium Glass Bottle,
-publishedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
----
-
 # [Amber White Perfume Oil - 1.7 oz in Premium Glass Bottle](https://products.checkmycream.com/products/Amber-White-Perfume-Oil-1.7-oz-in-Premium-Glass-Bottle.html)
 
 ### Positive Reviews

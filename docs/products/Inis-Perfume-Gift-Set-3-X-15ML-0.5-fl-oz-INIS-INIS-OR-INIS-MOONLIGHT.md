@@ -1,12 +1,3 @@
----
-title: Inis Perfume Gift Set 3 X 15ML 0.5 fl oz INIS, INIS OR, INIS MOONLIGHT,
-description: Inis Perfume Gift Set 3 X 15ML 0.5 fl oz INIS, INIS OR, INIS MOONLIGHT,
-author: Suvojit Manna,
-tags: Inis Perfume Gift Set 3 X 15ML 0.5 fl oz INIS, INIS OR, INIS MOONLIGHT,
-publishedAt: Fri Jan 10 2020 15:00:15 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:15 GMT+0530 (India Standard Time),
----
-
 # [Inis Perfume Gift Set 3 X 15ML 0.5 fl oz INIS, INIS OR, INIS MOONLIGHT](https://products.checkmycream.com/products/Inis-Perfume-Gift-Set-3-X-15ML-0.5-fl-oz-INIS-INIS-OR-INIS-MOONLIGHT.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Hello Kitty Pencil Case Cosmetic Bag Tote Black,
-description: Hello Kitty Pencil Case Cosmetic Bag Tote Black,
-author: Suvojit Manna,
-tags: Hello Kitty Pencil Case Cosmetic Bag Tote Black,
-publishedAt: Fri Jan 10 2020 14:59:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:57 GMT+0530 (India Standard Time),
----
-
 # [Hello Kitty Pencil Case Cosmetic Bag Tote Black](https://products.checkmycream.com/products/Hello-Kitty-Pencil-Case-Cosmetic-Bag-Tote-Black.html)
 
 ### Positive Reviews

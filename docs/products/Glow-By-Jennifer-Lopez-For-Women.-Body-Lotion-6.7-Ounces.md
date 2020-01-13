@@ -1,12 +1,3 @@
----
-title: Glow By Jennifer Lopez For Women. Body Lotion 6.7 Ounces,
-description: Glow By Jennifer Lopez For Women. Body Lotion 6.7 Ounces,
-author: Suvojit Manna,
-tags: Glow By Jennifer Lopez For Women. Body Lotion 6.7 Ounces,
-publishedAt: Fri Jan 10 2020 14:59:06 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:06 GMT+0530 (India Standard Time),
----
-
 # [Glow By Jennifer Lopez For Women. Body Lotion 6.7 Ounces](https://products.checkmycream.com/products/Glow-By-Jennifer-Lopez-For-Women.-Body-Lotion-6.7-Ounces.html)
 
 ### Positive Reviews

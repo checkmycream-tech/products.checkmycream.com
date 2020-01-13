@@ -1,12 +1,3 @@
----
-title: Hair Color Stain Remover,
-description: Hair Color Stain Remover,
-author: Suvojit Manna,
-tags: Hair Color Stain Remover,
-publishedAt: Fri Jan 10 2020 14:59:21 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:21 GMT+0530 (India Standard Time),
----
-
 # [Hair Color Stain Remover](https://products.checkmycream.com/products/Hair-Color-Stain-Remover.html)
 
 ### Positive Reviews

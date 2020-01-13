@@ -1,12 +1,3 @@
----
-title: Robert Piguet Perfume Mini Pure Parfum Fracas 1/8 oz,
-description: Robert Piguet Perfume Mini Pure Parfum Fracas 1/8 oz,
-author: Suvojit Manna,
-tags: Robert Piguet Perfume Mini Pure Parfum Fracas 1/8 oz,
-publishedAt: Fri Jan 10 2020 15:00:37 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:37 GMT+0530 (India Standard Time),
----
-
 # [Robert Piguet Perfume Mini Pure Parfum Fracas 1/8 oz](https://products.checkmycream.com/products/Robert-Piguet-Perfume-Mini-Pure-Parfum-Fracas-18-oz.html)
 
 ### Positive Reviews

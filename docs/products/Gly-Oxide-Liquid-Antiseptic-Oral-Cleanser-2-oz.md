@@ -1,12 +1,3 @@
----
-title: Gly-Oxide Liquid Antiseptic Oral Cleanser 2 oz,
-description: Gly-Oxide Liquid Antiseptic Oral Cleanser 2 oz,
-author: Suvojit Manna,
-tags: Gly-Oxide Liquid Antiseptic Oral Cleanser 2 oz,
-publishedAt: Fri Jan 10 2020 14:59:28 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:28 GMT+0530 (India Standard Time),
----
-
 # [Gly-Oxide Liquid Antiseptic Oral Cleanser 2 oz](https://products.checkmycream.com/products/Gly-Oxide-Liquid-Antiseptic-Oral-Cleanser-2-oz.html)
 
 ### Positive Reviews

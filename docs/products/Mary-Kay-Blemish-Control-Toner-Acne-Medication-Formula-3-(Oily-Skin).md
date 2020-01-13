@@ -1,12 +1,3 @@
----
-title: Mary Kay Blemish Control Toner, Acne Medication, Formula 3 (Oily Skin),
-description: Mary Kay Blemish Control Toner, Acne Medication, Formula 3 (Oily Skin),
-author: Suvojit Manna,
-tags: Mary Kay Blemish Control Toner, Acne Medication, Formula 3 (Oily Skin),
-publishedAt: Fri Jan 10 2020 15:00:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:05 GMT+0530 (India Standard Time),
----
-
 # [Mary Kay Blemish Control Toner, Acne Medication, Formula 3 (Oily Skin)](https://products.checkmycream.com/products/Mary-Kay-Blemish-Control-Toner-Acne-Medication-Formula-3-(Oily-Skin).html)
 
 ### Positive Reviews

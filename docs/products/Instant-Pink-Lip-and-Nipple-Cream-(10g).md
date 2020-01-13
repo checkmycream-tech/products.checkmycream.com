@@ -1,12 +1,3 @@
----
-title: Instant Pink Lip and Nipple Cream (10g),
-description: Instant Pink Lip and Nipple Cream (10g),
-author: Suvojit Manna,
-tags: Instant Pink Lip and Nipple Cream (10g),
-publishedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
----
-
 # [Instant Pink Lip and Nipple Cream (10g)](https://products.checkmycream.com/products/Instant-Pink-Lip-and-Nipple-Cream-(10g).html)
 
 ### Positive Reviews

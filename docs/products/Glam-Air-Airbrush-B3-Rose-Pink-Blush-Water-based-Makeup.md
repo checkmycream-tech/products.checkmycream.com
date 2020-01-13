@@ -1,12 +1,3 @@
----
-title: Glam Air Airbrush B3 Rose Pink Blush Water-based Makeup,
-description: Glam Air Airbrush B3 Rose Pink Blush Water-based Makeup,
-author: Suvojit Manna,
-tags: Glam Air Airbrush B3 Rose Pink Blush Water-based Makeup,
-publishedAt: Fri Jan 10 2020 15:00:10 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:10 GMT+0530 (India Standard Time),
----
-
 # [Glam Air Airbrush B3 Rose Pink Blush Water-based Makeup](https://products.checkmycream.com/products/Glam-Air-Airbrush-B3-Rose-Pink-Blush-Water-based-Makeup.html)
 
 ### Positive Reviews

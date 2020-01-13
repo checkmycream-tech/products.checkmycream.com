@@ -1,12 +1,3 @@
----
-title: Loveswept Philosophy Body Lotion Women 16 oz,
-description: Loveswept Philosophy Body Lotion Women 16 oz,
-author: Suvojit Manna,
-tags: Loveswept Philosophy Body Lotion Women 16 oz,
-publishedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
----
-
 # [Loveswept Philosophy Body Lotion Women 16 oz](https://products.checkmycream.com/products/Loveswept-Philosophy-Body-Lotion-Women-16-oz.html)
 
 ### Positive Reviews

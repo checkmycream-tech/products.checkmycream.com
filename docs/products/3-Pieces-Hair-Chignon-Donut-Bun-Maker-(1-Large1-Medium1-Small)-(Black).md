@@ -1,12 +1,3 @@
----
-title: 3 Pieces Hair Chignon Donut Bun Maker (1 Large,1 Medium,1 Small) (Black),
-description: 3 Pieces Hair Chignon Donut Bun Maker (1 Large,1 Medium,1 Small) (Black),
-author: Suvojit Manna,
-tags: 3 Pieces Hair Chignon Donut Bun Maker (1 Large,1 Medium,1 Small) (Black),
-publishedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
----
-
 # [3 Pieces Hair Chignon Donut Bun Maker (1 Large,1 Medium,1 Small) (Black)](https://products.checkmycream.com/products/3-Pieces-Hair-Chignon-Donut-Bun-Maker-(1-Large1-Medium1-Small)-(Black).html)
 
 ### Positive Reviews

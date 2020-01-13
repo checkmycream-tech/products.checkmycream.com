@@ -1,12 +1,3 @@
----
-title: Neem Active Toothpaste,
-description: Neem Active Toothpaste,
-author: Suvojit Manna,
-tags: Neem Active Toothpaste,
-publishedAt: Fri Jan 10 2020 14:59:10 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:10 GMT+0530 (India Standard Time),
----
-
 # [Neem Active Toothpaste](https://products.checkmycream.com/products/Neem-Active-Toothpaste.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Epionce Intense Defense Serum, 1 Fluid Ounce,
-description: Epionce Intense Defense Serum, 1 Fluid Ounce,
-author: Suvojit Manna,
-tags: Epionce Intense Defense Serum, 1 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
----
-
 # [Epionce Intense Defense Serum, 1 Fluid Ounce](https://products.checkmycream.com/products/Epionce-Intense-Defense-Serum-1-Fluid-Ounce.html)
 
 ### Positive Reviews

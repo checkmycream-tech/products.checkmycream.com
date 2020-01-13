@@ -1,12 +1,3 @@
----
-title: Humphreys - Witch Hazel Astringent,
-description: Humphreys - Witch Hazel Astringent,
-author: Suvojit Manna,
-tags: Humphreys - Witch Hazel Astringent,
-publishedAt: Fri Jan 10 2020 14:59:20 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:20 GMT+0530 (India Standard Time),
----
-
 # [Humphreys - Witch Hazel Astringent](https://products.checkmycream.com/products/Humphreys-Witch-Hazel-Astringent.html)
 
 ### Positive Reviews

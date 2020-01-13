@@ -1,12 +1,3 @@
----
-title: Hair Tamer Sectioning and Gripping Croc Hair Styling Clips 18 Pack,
-description: Hair Tamer Sectioning and Gripping Croc Hair Styling Clips 18 Pack,
-author: Suvojit Manna,
-tags: Hair Tamer Sectioning and Gripping Croc Hair Styling Clips 18 Pack,
-publishedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
----
-
 # [Hair Tamer Sectioning and Gripping Croc Hair Styling Clips 18 Pack](https://products.checkmycream.com/products/Hair-Tamer-Sectioning-and-Gripping-Croc-Hair-Styling-Clips-18-Pack.html)
 
 ### Positive Reviews

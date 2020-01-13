@@ -1,12 +1,3 @@
----
-title: Shiseido Anessa Perfect UV Sunscreen EX SPF 50+ PA++++ 60ml,
-description: Shiseido Anessa Perfect UV Sunscreen EX SPF 50+ PA++++ 60ml,
-author: Suvojit Manna,
-tags: Shiseido Anessa Perfect UV Sunscreen EX SPF 50+ PA++++ 60ml,
-publishedAt: Fri Jan 10 2020 15:00:22 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:22 GMT+0530 (India Standard Time),
----
-
 # [Shiseido Anessa Perfect UV Sunscreen EX SPF 50+ PA++++ 60ml](https://products.checkmycream.com/products/Shiseido-Anessa-Perfect-UV-Sunscreen-EX-SPF-50+-PA++++-60ml.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Opi Nail Polish Collection The It Color 0.5 Oz,
-description: Opi Nail Polish Collection The It Color 0.5 Oz,
-author: Suvojit Manna,
-tags: Opi Nail Polish Collection The It Color 0.5 Oz,
-publishedAt: Fri Jan 10 2020 14:59:25 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:25 GMT+0530 (India Standard Time),
----
-
 # [Opi Nail Polish Collection The It Color 0.5 Oz](https://products.checkmycream.com/products/Opi-Nail-Polish-Collection-The-It-Color-0.5-Oz.html)
 
 ### Positive Reviews

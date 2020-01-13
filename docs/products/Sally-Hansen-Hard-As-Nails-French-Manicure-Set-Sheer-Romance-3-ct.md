@@ -1,12 +1,3 @@
----
-title: Sally Hansen Hard As Nails French Manicure Set - Sheer Romance, 3 ct,
-description: Sally Hansen Hard As Nails French Manicure Set - Sheer Romance, 3 ct,
-author: Suvojit Manna,
-tags: Sally Hansen Hard As Nails French Manicure Set - Sheer Romance, 3 ct,
-publishedAt: Fri Jan 10 2020 14:59:45 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:45 GMT+0530 (India Standard Time),
----
-
 # [Sally Hansen Hard As Nails French Manicure Set - Sheer Romance, 3 ct](https://products.checkmycream.com/products/Sally-Hansen-Hard-As-Nails-French-Manicure-Set-Sheer-Romance-3-ct.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Set of 3 Nose Rings 18g 1/4&quot; Diameter For Very Small Nostril,
-description: Set of 3 Nose Rings 18g 1/4&quot; Diameter For Very Small Nostril,
-author: Suvojit Manna,
-tags: Set of 3 Nose Rings 18g 1/4&quot; Diameter For Very Small Nostril,
-publishedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
----
-
 # [Set of 3 Nose Rings 18g 1/4&quot; Diameter For Very Small Nostril](https://products.checkmycream.com/products/Set-of-3-Nose-Rings-18g-14&quot;-Diameter-For-Very-Small-Nostril.html)
 
 ### Positive Reviews

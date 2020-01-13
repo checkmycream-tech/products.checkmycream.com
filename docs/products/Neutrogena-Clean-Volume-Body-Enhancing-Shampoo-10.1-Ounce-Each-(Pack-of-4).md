@@ -1,12 +1,3 @@
----
-title: Neutrogena Clean Volume Body Enhancing Shampoo 10.1 Ounce Each (Pack of 4),
-description: Neutrogena Clean Volume Body Enhancing Shampoo 10.1 Ounce Each (Pack of 4),
-author: Suvojit Manna,
-tags: Neutrogena Clean Volume Body Enhancing Shampoo 10.1 Ounce Each (Pack of 4),
-publishedAt: Fri Jan 10 2020 14:59:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:03 GMT+0530 (India Standard Time),
----
-
 # [Neutrogena Clean Volume Body Enhancing Shampoo 10.1 Ounce Each (Pack of 4)](https://products.checkmycream.com/products/Neutrogena-Clean-Volume-Body-Enhancing-Shampoo-10.1-Ounce-Each-(Pack-of-4).html)
 
 ### Positive Reviews

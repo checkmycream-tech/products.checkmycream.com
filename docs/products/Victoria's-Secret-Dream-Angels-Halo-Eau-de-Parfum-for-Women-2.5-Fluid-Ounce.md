@@ -1,12 +1,3 @@
----
-title: Victoria&#x27;s Secret Dream Angels Halo Eau de Parfum for Women, 2.5 Fluid Ounce,
-description: Victoria&#x27;s Secret Dream Angels Halo Eau de Parfum for Women, 2.5 Fluid Ounce,
-author: Suvojit Manna,
-tags: Victoria&#x27;s Secret Dream Angels Halo Eau de Parfum for Women, 2.5 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
----
-
 # [Victoria&#x27;s Secret Dream Angels Halo Eau de Parfum for Women, 2.5 Fluid Ounce](https://products.checkmycream.com/products/Victoria&#x27;s-Secret-Dream-Angels-Halo-Eau-de-Parfum-for-Women-2.5-Fluid-Ounce.html)
 
 ### Positive Reviews

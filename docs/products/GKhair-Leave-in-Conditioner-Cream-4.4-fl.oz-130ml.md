@@ -1,12 +1,3 @@
----
-title: GKhair Leave-in Conditioner Cream 4.4 fl.oz / 130ml,
-description: GKhair Leave-in Conditioner Cream 4.4 fl.oz / 130ml,
-author: Suvojit Manna,
-tags: GKhair Leave-in Conditioner Cream 4.4 fl.oz / 130ml,
-publishedAt: Fri Jan 10 2020 15:00:15 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:15 GMT+0530 (India Standard Time),
----
-
 # [GKhair Leave-in Conditioner Cream 4.4 fl.oz / 130ml](https://products.checkmycream.com/products/GKhair-Leave-in-Conditioner-Cream-4.4-fl.oz-130ml.html)
 
 ### Positive Reviews

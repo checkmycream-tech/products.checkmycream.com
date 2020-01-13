@@ -1,12 +1,3 @@
----
-title: Nu Skin Sole Solution Foot Treatment,
-description: Nu Skin Sole Solution Foot Treatment,
-author: Suvojit Manna,
-tags: Nu Skin Sole Solution Foot Treatment,
-publishedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
----
-
 # [Nu Skin Sole Solution Foot Treatment](https://products.checkmycream.com/products/Nu-Skin-Sole-Solution-Foot-Treatment.html)
 
 ### Positive Reviews

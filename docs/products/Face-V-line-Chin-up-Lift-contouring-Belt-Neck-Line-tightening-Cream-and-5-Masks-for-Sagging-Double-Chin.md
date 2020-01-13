@@ -1,12 +1,3 @@
----
-title: Face V-line Chin up Lift contouring Belt , Neck Line tightening Cream and 5 Masks - for Sagging Double Chin,
-description: Face V-line Chin up Lift contouring Belt , Neck Line tightening Cream and 5 Masks - for Sagging Double Chin,
-author: Suvojit Manna,
-tags: Face V-line Chin up Lift contouring Belt , Neck Line tightening Cream and 5 Masks - for Sagging Double Chin,
-publishedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
----
-
 # [Face V-line Chin up Lift contouring Belt , Neck Line tightening Cream and 5 Masks - for Sagging Double Chin](https://products.checkmycream.com/products/Face-V-line-Chin-up-Lift-contouring-Belt-Neck-Line-tightening-Cream-and-5-Masks-for-Sagging-Double-Chin.html)
 
 ### Positive Reviews

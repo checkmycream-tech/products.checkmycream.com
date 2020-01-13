@@ -1,12 +1,3 @@
----
-title: TIGI Bed Head Foxy Curls Contour Cream 6.76 oz.,
-description: TIGI Bed Head Foxy Curls Contour Cream 6.76 oz.,
-author: Suvojit Manna,
-tags: TIGI Bed Head Foxy Curls Contour Cream 6.76 oz.,
-publishedAt: Fri Jan 10 2020 14:59:31 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:31 GMT+0530 (India Standard Time),
----
-
 # [TIGI Bed Head Foxy Curls Contour Cream 6.76 oz.](https://products.checkmycream.com/products/TIGI-Bed-Head-Foxy-Curls-Contour-Cream-6.76-oz..html)
 
 ### Positive Reviews

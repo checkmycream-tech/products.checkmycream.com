@@ -1,12 +1,3 @@
----
-title: IBD Just Gel MOLLY Soak Off Neon Purple Nail Polish UV Manicure .5 oz Salon LED,
-description: IBD Just Gel MOLLY Soak Off Neon Purple Nail Polish UV Manicure .5 oz Salon LED,
-author: Suvojit Manna,
-tags: IBD Just Gel MOLLY Soak Off Neon Purple Nail Polish UV Manicure .5 oz Salon LED,
-publishedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
----
-
 # [IBD Just Gel MOLLY Soak Off Neon Purple Nail Polish UV Manicure .5 oz Salon LED](https://products.checkmycream.com/products/IBD-Just-Gel-MOLLY-Soak-Off-Neon-Purple-Nail-Polish-UV-Manicure-.5-oz-Salon-LED.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Clinique All In One Colour Palette Palette For Women,
-description: Clinique All In One Colour Palette Palette For Women,
-author: Suvojit Manna,
-tags: Clinique All In One Colour Palette Palette For Women,
-publishedAt: Fri Jan 10 2020 15:00:12 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:12 GMT+0530 (India Standard Time),
----
-
 # [Clinique All In One Colour Palette Palette For Women](https://products.checkmycream.com/products/Clinique-All-In-One-Colour-Palette-Palette-For-Women.html)
 
 ### Positive Reviews

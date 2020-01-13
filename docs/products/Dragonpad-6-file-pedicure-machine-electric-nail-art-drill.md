@@ -1,12 +1,3 @@
----
-title: Dragonpad 6 file pedicure machine electric nail art drill,
-description: Dragonpad 6 file pedicure machine electric nail art drill,
-author: Suvojit Manna,
-tags: Dragonpad 6 file pedicure machine electric nail art drill,
-publishedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
----
-
 # [Dragonpad 6 file pedicure machine electric nail art drill](https://products.checkmycream.com/products/Dragonpad-6-file-pedicure-machine-electric-nail-art-drill.html)
 
 ### Positive Reviews

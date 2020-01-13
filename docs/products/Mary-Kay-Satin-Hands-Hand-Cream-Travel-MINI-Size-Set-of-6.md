@@ -1,12 +1,3 @@
----
-title: Mary Kay Satin Hands Hand Cream Travel MINI Size Set of 6,
-description: Mary Kay Satin Hands Hand Cream Travel MINI Size Set of 6,
-author: Suvojit Manna,
-tags: Mary Kay Satin Hands Hand Cream Travel MINI Size Set of 6,
-publishedAt: Fri Jan 10 2020 14:58:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:58:57 GMT+0530 (India Standard Time),
----
-
 # [Mary Kay Satin Hands Hand Cream Travel MINI Size Set of 6](https://products.checkmycream.com/products/Mary-Kay-Satin-Hands-Hand-Cream-Travel-MINI-Size-Set-of-6.html)
 
 ### Positive Reviews

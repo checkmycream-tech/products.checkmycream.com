@@ -1,12 +1,3 @@
----
-title: Obsession Night By Calvin Klein For Men. Eau De Toilette Spray 4 oz,
-description: Obsession Night By Calvin Klein For Men. Eau De Toilette Spray 4 oz,
-author: Suvojit Manna,
-tags: Obsession Night By Calvin Klein For Men. Eau De Toilette Spray 4 oz,
-publishedAt: Fri Jan 10 2020 14:59:17 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:17 GMT+0530 (India Standard Time),
----
-
 # [Obsession Night By Calvin Klein For Men. Eau De Toilette Spray 4 oz](https://products.checkmycream.com/products/Obsession-Night-By-Calvin-Klein-For-Men.-Eau-De-Toilette-Spray-4-oz.html)
 
 ### Positive Reviews

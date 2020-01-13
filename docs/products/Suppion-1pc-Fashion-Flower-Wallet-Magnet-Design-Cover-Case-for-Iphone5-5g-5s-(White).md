@@ -1,12 +1,3 @@
----
-title: Suppion 1pc Fashion Flower Wallet Magnet Design Cover Case for Iphone5 5g 5s (White),
-description: Suppion 1pc Fashion Flower Wallet Magnet Design Cover Case for Iphone5 5g 5s (White),
-author: Suvojit Manna,
-tags: Suppion 1pc Fashion Flower Wallet Magnet Design Cover Case for Iphone5 5g 5s (White),
-publishedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
----
-
 # [Suppion 1pc Fashion Flower Wallet Magnet Design Cover Case for Iphone5 5g 5s (White)](https://products.checkmycream.com/products/Suppion-1pc-Fashion-Flower-Wallet-Magnet-Design-Cover-Case-for-Iphone5-5g-5s-(White).html)
 
 ### Positive Reviews

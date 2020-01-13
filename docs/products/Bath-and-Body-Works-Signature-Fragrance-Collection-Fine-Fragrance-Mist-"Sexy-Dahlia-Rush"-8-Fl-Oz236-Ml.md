@@ -1,12 +1,3 @@
----
-title: Bath &amp; Body Works Signature Fragrance Collection Fine Fragrance Mist &quot;Sexy Dahlia Rush&quot; 8 Fl Oz/236 Ml,
-description: Bath &amp; Body Works Signature Fragrance Collection Fine Fragrance Mist &quot;Sexy Dahlia Rush&quot; 8 Fl Oz/236 Ml,
-author: Suvojit Manna,
-tags: Bath &amp; Body Works Signature Fragrance Collection Fine Fragrance Mist &quot;Sexy Dahlia Rush&quot; 8 Fl Oz/236 Ml,
-publishedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
----
-
 # [Bath &amp; Body Works Signature Fragrance Collection Fine Fragrance Mist &quot;Sexy Dahlia Rush&quot; 8 Fl Oz/236 Ml](https://products.checkmycream.com/products/Bath-and-Body-Works-Signature-Fragrance-Collection-Fine-Fragrance-Mist-&quot;Sexy-Dahlia-Rush&quot;-8-Fl-Oz236-Ml.html)
 
 ### Positive Reviews

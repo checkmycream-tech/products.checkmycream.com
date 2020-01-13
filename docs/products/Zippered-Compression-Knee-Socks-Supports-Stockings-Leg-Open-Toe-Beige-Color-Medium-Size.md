@@ -1,12 +1,3 @@
----
-title: Zippered Compression Knee Socks Supports Stockings Leg Open Toe - Beige Color - Medium Size,
-description: Zippered Compression Knee Socks Supports Stockings Leg Open Toe - Beige Color - Medium Size,
-author: Suvojit Manna,
-tags: Zippered Compression Knee Socks Supports Stockings Leg Open Toe - Beige Color - Medium Size,
-publishedAt: Fri Jan 10 2020 15:01:06 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:06 GMT+0530 (India Standard Time),
----
-
 # [Zippered Compression Knee Socks Supports Stockings Leg Open Toe - Beige Color - Medium Size](https://products.checkmycream.com/products/Zippered-Compression-Knee-Socks-Supports-Stockings-Leg-Open-Toe-Beige-Color-Medium-Size.html)
 
 ### Positive Reviews

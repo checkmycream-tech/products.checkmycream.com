@@ -1,12 +1,3 @@
----
-title: Personal Care Age Defying Skin Cream with Vitamins A &amp; E 8oz,
-description: Personal Care Age Defying Skin Cream with Vitamins A &amp; E 8oz,
-author: Suvojit Manna,
-tags: Personal Care Age Defying Skin Cream with Vitamins A &amp; E 8oz,
-publishedAt: Fri Jan 10 2020 14:59:50 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:50 GMT+0530 (India Standard Time),
----
-
 # [Personal Care Age Defying Skin Cream with Vitamins A &amp; E 8oz](https://products.checkmycream.com/products/Personal-Care-Age-Defying-Skin-Cream-with-Vitamins-A-and-E-8oz.html)
 
 ### Positive Reviews

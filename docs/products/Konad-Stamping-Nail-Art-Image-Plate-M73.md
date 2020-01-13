@@ -1,12 +1,3 @@
----
-title: Konad Stamping Nail Art Image Plate - M73,
-description: Konad Stamping Nail Art Image Plate - M73,
-author: Suvojit Manna,
-tags: Konad Stamping Nail Art Image Plate - M73,
-publishedAt: Fri Jan 10 2020 15:00:15 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:15 GMT+0530 (India Standard Time),
----
-
 # [Konad Stamping Nail Art Image Plate - M73](https://products.checkmycream.com/products/Konad-Stamping-Nail-Art-Image-Plate-M73.html)
 
 ### Positive Reviews

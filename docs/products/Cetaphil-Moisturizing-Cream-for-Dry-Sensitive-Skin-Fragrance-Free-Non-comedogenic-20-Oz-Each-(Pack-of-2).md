@@ -1,12 +1,3 @@
----
-title: Cetaphil Moisturizing Cream for Dry, Sensitive Skin, Fragrance Free, Non-comedogenic, 20 Oz Each (Pack of 2),
-description: Cetaphil Moisturizing Cream for Dry, Sensitive Skin, Fragrance Free, Non-comedogenic, 20 Oz Each (Pack of 2),
-author: Suvojit Manna,
-tags: Cetaphil Moisturizing Cream for Dry, Sensitive Skin, Fragrance Free, Non-comedogenic, 20 Oz Each (Pack of 2),
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [Cetaphil Moisturizing Cream for Dry, Sensitive Skin, Fragrance Free, Non-comedogenic, 20 Oz Each (Pack of 2)](https://products.checkmycream.com/products/Cetaphil-Moisturizing-Cream-for-Dry-Sensitive-Skin-Fragrance-Free-Non-comedogenic-20-Oz-Each-(Pack-of-2).html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: American Crew Classic Nine Fragrance Spray for Men, 2.5 Fluid Ounce,
-description: American Crew Classic Nine Fragrance Spray for Men, 2.5 Fluid Ounce,
-author: Suvojit Manna,
-tags: American Crew Classic Nine Fragrance Spray for Men, 2.5 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
----
-
 # [American Crew Classic Nine Fragrance Spray for Men, 2.5 Fluid Ounce](https://products.checkmycream.com/products/American-Crew-Classic-Nine-Fragrance-Spray-for-Men-2.5-Fluid-Ounce.html)
 
 ### Positive Reviews

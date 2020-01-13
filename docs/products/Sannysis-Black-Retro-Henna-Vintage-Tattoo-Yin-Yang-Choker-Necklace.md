@@ -1,12 +1,3 @@
----
-title: Sannysis Black Retro Henna Vintage Tattoo Yin Yang Choker Necklace,
-description: Sannysis Black Retro Henna Vintage Tattoo Yin Yang Choker Necklace,
-author: Suvojit Manna,
-tags: Sannysis Black Retro Henna Vintage Tattoo Yin Yang Choker Necklace,
-publishedAt: Fri Jan 10 2020 15:01:06 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:06 GMT+0530 (India Standard Time),
----
-
 # [Sannysis Black Retro Henna Vintage Tattoo Yin Yang Choker Necklace](https://products.checkmycream.com/products/Sannysis-Black-Retro-Henna-Vintage-Tattoo-Yin-Yang-Choker-Necklace.html)
 
 ### Positive Reviews

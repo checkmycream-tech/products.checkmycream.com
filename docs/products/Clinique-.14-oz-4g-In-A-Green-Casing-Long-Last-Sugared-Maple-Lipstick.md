@@ -1,12 +1,3 @@
----
-title: Clinique .14 oz / 4g In A Green Casing Long Last Sugared Maple Lipstick,
-description: Clinique .14 oz / 4g In A Green Casing Long Last Sugared Maple Lipstick,
-author: Suvojit Manna,
-tags: Clinique .14 oz / 4g In A Green Casing Long Last Sugared Maple Lipstick,
-publishedAt: Fri Jan 10 2020 14:59:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:56 GMT+0530 (India Standard Time),
----
-
 # [Clinique .14 oz / 4g In A Green Casing Long Last Sugared Maple Lipstick](https://products.checkmycream.com/products/Clinique-.14-oz-4g-In-A-Green-Casing-Long-Last-Sugared-Maple-Lipstick.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Lowpricenice(TM)Fashion Cute Gold OWL Dream Design Hard Cover Case Skin for iPhone 6 Plus,
-description: Lowpricenice(TM)Fashion Cute Gold OWL Dream Design Hard Cover Case Skin for iPhone 6 Plus,
-author: Suvojit Manna,
-tags: Lowpricenice(TM)Fashion Cute Gold OWL Dream Design Hard Cover Case Skin for iPhone 6 Plus,
-publishedAt: Fri Jan 10 2020 15:01:04 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:04 GMT+0530 (India Standard Time),
----
-
 # [Lowpricenice(TM)Fashion Cute Gold OWL Dream Design Hard Cover Case Skin for iPhone 6 Plus](https://products.checkmycream.com/products/Lowpricenice(TM)Fashion-Cute-Gold-OWL-Dream-Design-Hard-Cover-Case-Skin-for-iPhone-6-Plus.html)
 
 ### Positive Reviews

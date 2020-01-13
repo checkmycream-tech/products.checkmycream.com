@@ -1,12 +1,3 @@
----
-title: GBS 100% Pure Badger Bristle Shaving Brush (Ivory),
-description: GBS 100% Pure Badger Bristle Shaving Brush (Ivory),
-author: Suvojit Manna,
-tags: GBS 100% Pure Badger Bristle Shaving Brush (Ivory),
-publishedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
----
-
 # [GBS 100% Pure Badger Bristle Shaving Brush (Ivory)](https://products.checkmycream.com/products/GBS-100percent-Pure-Badger-Bristle-Shaving-Brush-(Ivory).html)
 
 ### Positive Reviews

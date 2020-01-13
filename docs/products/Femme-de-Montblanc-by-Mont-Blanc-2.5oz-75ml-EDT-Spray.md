@@ -1,12 +1,3 @@
----
-title: Femme de Montblanc by Mont Blanc 2.5oz 75ml EDT Spray,
-description: Femme de Montblanc by Mont Blanc 2.5oz 75ml EDT Spray,
-author: Suvojit Manna,
-tags: Femme de Montblanc by Mont Blanc 2.5oz 75ml EDT Spray,
-publishedAt: Fri Jan 10 2020 14:59:29 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:29 GMT+0530 (India Standard Time),
----
-
 # [Femme de Montblanc by Mont Blanc 2.5oz 75ml EDT Spray](https://products.checkmycream.com/products/Femme-de-Montblanc-by-Mont-Blanc-2.5oz-75ml-EDT-Spray.html)
 
 ### Positive Reviews

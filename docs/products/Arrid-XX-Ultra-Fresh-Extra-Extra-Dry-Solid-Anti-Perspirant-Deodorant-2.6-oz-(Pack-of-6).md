@@ -1,12 +1,3 @@
----
-title: Arrid XX Ultra Fresh Extra Extra Dry Solid Anti-Perspirant Deodorant 2.6 oz (Pack of 6),
-description: Arrid XX Ultra Fresh Extra Extra Dry Solid Anti-Perspirant Deodorant 2.6 oz (Pack of 6),
-author: Suvojit Manna,
-tags: Arrid XX Ultra Fresh Extra Extra Dry Solid Anti-Perspirant Deodorant 2.6 oz (Pack of 6),
-publishedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
----
-
 # [Arrid XX Ultra Fresh Extra Extra Dry Solid Anti-Perspirant Deodorant 2.6 oz (Pack of 6)](https://products.checkmycream.com/products/Arrid-XX-Ultra-Fresh-Extra-Extra-Dry-Solid-Anti-Perspirant-Deodorant-2.6-oz-(Pack-of-6).html)
 
 ### Positive Reviews

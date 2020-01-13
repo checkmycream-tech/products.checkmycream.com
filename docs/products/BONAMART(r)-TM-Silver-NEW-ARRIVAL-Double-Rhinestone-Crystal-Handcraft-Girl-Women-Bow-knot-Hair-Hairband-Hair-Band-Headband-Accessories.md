@@ -1,12 +1,3 @@
----
-title: BONAMART® TM Silver NEW ARRIVAL Double Rhinestone Crystal Handcraft Girl Women Bow-knot Hair Hairband Hair Band Headband Accessories,
-description: BONAMART® TM Silver NEW ARRIVAL Double Rhinestone Crystal Handcraft Girl Women Bow-knot Hair Hairband Hair Band Headband Accessories,
-author: Suvojit Manna,
-tags: BONAMART® TM Silver NEW ARRIVAL Double Rhinestone Crystal Handcraft Girl Women Bow-knot Hair Hairband Hair Band Headband Accessories,
-publishedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
----
-
 # [BONAMART® TM Silver NEW ARRIVAL Double Rhinestone Crystal Handcraft Girl Women Bow-knot Hair Hairband Hair Band Headband Accessories](https://products.checkmycream.com/products/BONAMART(r)-TM-Silver-NEW-ARRIVAL-Double-Rhinestone-Crystal-Handcraft-Girl-Women-Bow-knot-Hair-Hairband-Hair-Band-Headband-Accessories.html)
 
 ### Positive Reviews

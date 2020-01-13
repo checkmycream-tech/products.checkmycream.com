@@ -1,12 +1,3 @@
----
-title: Zad Women&#x27;s Feather &amp; Mesh Fascinator Hair Clip Cocktail Party Hat (Scarlet Red),
-description: Zad Women&#x27;s Feather &amp; Mesh Fascinator Hair Clip Cocktail Party Hat (Scarlet Red),
-author: Suvojit Manna,
-tags: Zad Women&#x27;s Feather &amp; Mesh Fascinator Hair Clip Cocktail Party Hat (Scarlet Red),
-publishedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
----
-
 # [Zad Women&#x27;s Feather &amp; Mesh Fascinator Hair Clip Cocktail Party Hat (Scarlet Red)](https://products.checkmycream.com/products/Zad-Women&#x27;s-Feather-and-Mesh-Fascinator-Hair-Clip-Cocktail-Party-Hat-(Scarlet-Red).html)
 
 ### Positive Reviews

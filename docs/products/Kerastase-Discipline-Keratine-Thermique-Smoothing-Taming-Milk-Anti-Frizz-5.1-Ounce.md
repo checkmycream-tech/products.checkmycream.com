@@ -1,12 +1,3 @@
----
-title: Kerastase Discipline Keratine Thermique Smoothing Taming Milk Anti-Frizz, 5.1 Ounce,
-description: Kerastase Discipline Keratine Thermique Smoothing Taming Milk Anti-Frizz, 5.1 Ounce,
-author: Suvojit Manna,
-tags: Kerastase Discipline Keratine Thermique Smoothing Taming Milk Anti-Frizz, 5.1 Ounce,
-publishedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
----
-
 # [Kerastase Discipline Keratine Thermique Smoothing Taming Milk Anti-Frizz, 5.1 Ounce](https://products.checkmycream.com/products/Kerastase-Discipline-Keratine-Thermique-Smoothing-Taming-Milk-Anti-Frizz-5.1-Ounce.html)
 
 ### Positive Reviews

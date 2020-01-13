@@ -1,12 +1,3 @@
----
-title: Ann Chery Slim Body Wrap for Use with Waist Trainer Cincher,
-description: Ann Chery Slim Body Wrap for Use with Waist Trainer Cincher,
-author: Suvojit Manna,
-tags: Ann Chery Slim Body Wrap for Use with Waist Trainer Cincher,
-publishedAt: Fri Jan 10 2020 15:01:06 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:06 GMT+0530 (India Standard Time),
----
-
 # [Ann Chery Slim Body Wrap for Use with Waist Trainer Cincher](https://products.checkmycream.com/products/Ann-Chery-Slim-Body-Wrap-for-Use-with-Waist-Trainer-Cincher.html)
 
 ### Positive Reviews

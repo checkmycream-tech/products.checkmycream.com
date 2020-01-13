@@ -1,12 +1,3 @@
----
-title: Yonka Face Cleansing Gel, 6.76 Ounce,
-description: Yonka Face Cleansing Gel, 6.76 Ounce,
-author: Suvojit Manna,
-tags: Yonka Face Cleansing Gel, 6.76 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
----
-
 # [Yonka Face Cleansing Gel, 6.76 Ounce](https://products.checkmycream.com/products/Yonka-Face-Cleansing-Gel-6.76-Ounce.html)
 
 ### Positive Reviews

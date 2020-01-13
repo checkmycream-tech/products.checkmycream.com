@@ -1,12 +1,3 @@
----
-title: Niven Morgan Jean Baptiste 1717 Body Lotion,
-description: Niven Morgan Jean Baptiste 1717 Body Lotion,
-author: Suvojit Manna,
-tags: Niven Morgan Jean Baptiste 1717 Body Lotion,
-publishedAt: Fri Jan 10 2020 14:59:50 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:50 GMT+0530 (India Standard Time),
----
-
 # [Niven Morgan Jean Baptiste 1717 Body Lotion](https://products.checkmycream.com/products/Niven-Morgan-Jean-Baptiste-1717-Body-Lotion.html)
 
 ### Positive Reviews

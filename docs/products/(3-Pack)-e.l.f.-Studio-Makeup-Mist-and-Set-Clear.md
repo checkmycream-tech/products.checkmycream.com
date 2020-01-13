@@ -1,12 +1,3 @@
----
-title: (3 Pack) e.l.f. Studio Makeup Mist &amp; Set - Clear,
-description: (3 Pack) e.l.f. Studio Makeup Mist &amp; Set - Clear,
-author: Suvojit Manna,
-tags: (3 Pack) e.l.f. Studio Makeup Mist &amp; Set - Clear,
-publishedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
----
-
 # [(3 Pack) e.l.f. Studio Makeup Mist &amp; Set - Clear](https://products.checkmycream.com/products/(3-Pack)-e.l.f.-Studio-Makeup-Mist-and-Set-Clear.html)
 
 ### Positive Reviews

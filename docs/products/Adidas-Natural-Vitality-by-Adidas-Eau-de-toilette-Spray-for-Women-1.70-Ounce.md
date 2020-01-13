@@ -1,12 +1,3 @@
----
-title: Adidas Natural Vitality by Adidas Eau-de-toilette Spray for Women, 1.70-Ounce,
-description: Adidas Natural Vitality by Adidas Eau-de-toilette Spray for Women, 1.70-Ounce,
-author: Suvojit Manna,
-tags: Adidas Natural Vitality by Adidas Eau-de-toilette Spray for Women, 1.70-Ounce,
-publishedAt: Fri Jan 10 2020 14:59:38 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:38 GMT+0530 (India Standard Time),
----
-
 # [Adidas Natural Vitality by Adidas Eau-de-toilette Spray for Women, 1.70-Ounce](https://products.checkmycream.com/products/Adidas-Natural-Vitality-by-Adidas-Eau-de-toilette-Spray-for-Women-1.70-Ounce.html)
 
 ### Positive Reviews

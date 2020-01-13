@@ -1,12 +1,3 @@
----
-title: Remedios 2T Tulle Fingertip Length Wedding Veil with Embroidered Hem, White,
-description: Remedios 2T Tulle Fingertip Length Wedding Veil with Embroidered Hem, White,
-author: Suvojit Manna,
-tags: Remedios 2T Tulle Fingertip Length Wedding Veil with Embroidered Hem, White,
-publishedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
----
-
 # [Remedios 2T Tulle Fingertip Length Wedding Veil with Embroidered Hem, White](https://products.checkmycream.com/products/Remedios-2T-Tulle-Fingertip-Length-Wedding-Veil-with-Embroidered-Hem-White.html)
 
 ### Positive Reviews

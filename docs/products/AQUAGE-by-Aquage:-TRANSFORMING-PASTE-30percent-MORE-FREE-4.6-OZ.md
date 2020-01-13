@@ -1,12 +1,3 @@
----
-title: AQUAGE by Aquage: TRANSFORMING PASTE 30% MORE FREE 4.6 OZ,
-description: AQUAGE by Aquage: TRANSFORMING PASTE 30% MORE FREE 4.6 OZ,
-author: Suvojit Manna,
-tags: AQUAGE by Aquage: TRANSFORMING PASTE 30% MORE FREE 4.6 OZ,
-publishedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
----
-
 # [AQUAGE by Aquage: TRANSFORMING PASTE 30% MORE FREE 4.6 OZ](https://products.checkmycream.com/products/AQUAGE-by-Aquage:-TRANSFORMING-PASTE-30percent-MORE-FREE-4.6-OZ.html)
 
 ### Positive Reviews

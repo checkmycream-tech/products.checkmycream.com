@@ -1,12 +1,3 @@
----
-title: Swiss Army Eau de Toilette for Women by Swiss Army,
-description: Swiss Army Eau de Toilette for Women by Swiss Army,
-author: Suvojit Manna,
-tags: Swiss Army Eau de Toilette for Women by Swiss Army,
-publishedAt: Fri Jan 10 2020 14:59:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:05 GMT+0530 (India Standard Time),
----
-
 # [Swiss Army Eau de Toilette for Women by Swiss Army](https://products.checkmycream.com/products/Swiss-Army-Eau-de-Toilette-for-Women-by-Swiss-Army.html)
 
 ### Positive Reviews

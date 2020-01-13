@@ -1,12 +1,3 @@
----
-title: Mary Kay Timewise Age Fighting Moisturizer Normal/Dry,
-description: Mary Kay Timewise Age Fighting Moisturizer Normal/Dry,
-author: Suvojit Manna,
-tags: Mary Kay Timewise Age Fighting Moisturizer Normal/Dry,
-publishedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
----
-
 # [Mary Kay Timewise Age Fighting Moisturizer Normal/Dry](https://products.checkmycream.com/products/Mary-Kay-Timewise-Age-Fighting-Moisturizer-NormalDry.html)
 
 ### Positive Reviews

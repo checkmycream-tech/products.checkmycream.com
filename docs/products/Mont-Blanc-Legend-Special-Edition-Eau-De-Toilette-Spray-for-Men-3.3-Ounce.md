@@ -1,12 +1,3 @@
----
-title: Mont Blanc Legend Special Edition Eau De Toilette Spray for Men, 3.3 Ounce,
-description: Mont Blanc Legend Special Edition Eau De Toilette Spray for Men, 3.3 Ounce,
-author: Suvojit Manna,
-tags: Mont Blanc Legend Special Edition Eau De Toilette Spray for Men, 3.3 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:28 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:28 GMT+0530 (India Standard Time),
----
-
 # [Mont Blanc Legend Special Edition Eau De Toilette Spray for Men, 3.3 Ounce](https://products.checkmycream.com/products/Mont-Blanc-Legend-Special-Edition-Eau-De-Toilette-Spray-for-Men-3.3-Ounce.html)
 
 ### Positive Reviews

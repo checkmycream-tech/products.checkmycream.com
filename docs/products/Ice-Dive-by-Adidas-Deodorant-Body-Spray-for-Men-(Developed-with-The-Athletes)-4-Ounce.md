@@ -1,12 +1,3 @@
----
-title: Ice Dive by Adidas Deodorant Body Spray for Men (Developed with The Athletes), 4 Ounce,
-description: Ice Dive by Adidas Deodorant Body Spray for Men (Developed with The Athletes), 4 Ounce,
-author: Suvojit Manna,
-tags: Ice Dive by Adidas Deodorant Body Spray for Men (Developed with The Athletes), 4 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:13 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:13 GMT+0530 (India Standard Time),
----
-
 # [Ice Dive by Adidas Deodorant Body Spray for Men (Developed with The Athletes), 4 Ounce](https://products.checkmycream.com/products/Ice-Dive-by-Adidas-Deodorant-Body-Spray-for-Men-(Developed-with-The-Athletes)-4-Ounce.html)
 
 ### Positive Reviews

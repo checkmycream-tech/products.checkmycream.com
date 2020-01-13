@@ -1,12 +1,3 @@
----
-title: set2-4,
-description: set2-4,
-author: Suvojit Manna,
-tags: set2-4,
-publishedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
----
-
 # [set2-4](https://products.checkmycream.com/products/set2-4.html)
 
 ### Positive Reviews

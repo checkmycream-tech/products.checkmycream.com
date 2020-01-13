@@ -1,12 +1,3 @@
----
-title: HOT TOOLS 1125 Hair Pik, Black,
-description: HOT TOOLS 1125 Hair Pik, Black,
-author: Suvojit Manna,
-tags: HOT TOOLS 1125 Hair Pik, Black,
-publishedAt: Fri Jan 10 2020 14:59:38 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:38 GMT+0530 (India Standard Time),
----
-
 # [HOT TOOLS 1125 Hair Pik, Black](https://products.checkmycream.com/products/HOT-TOOLS-1125-Hair-Pik-Black.html)
 
 ### Positive Reviews

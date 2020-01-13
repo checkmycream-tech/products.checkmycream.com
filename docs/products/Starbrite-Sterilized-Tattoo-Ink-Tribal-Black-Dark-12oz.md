@@ -1,12 +1,3 @@
----
-title: Starbrite Sterilized Tattoo Ink Tribal Black Dark 1/2oz,
-description: Starbrite Sterilized Tattoo Ink Tribal Black Dark 1/2oz,
-author: Suvojit Manna,
-tags: Starbrite Sterilized Tattoo Ink Tribal Black Dark 1/2oz,
-publishedAt: Fri Jan 10 2020 15:00:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:05 GMT+0530 (India Standard Time),
----
-
 # [Starbrite Sterilized Tattoo Ink Tribal Black Dark 1/2oz](https://products.checkmycream.com/products/Starbrite-Sterilized-Tattoo-Ink-Tribal-Black-Dark-12oz.html)
 
 ### Positive Reviews

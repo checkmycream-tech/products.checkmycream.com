@@ -1,12 +1,3 @@
----
-title: W Perfume by Banana Republic for women Personal Fragrances,
-description: W Perfume by Banana Republic for women Personal Fragrances,
-author: Suvojit Manna,
-tags: W Perfume by Banana Republic for women Personal Fragrances,
-publishedAt: Fri Jan 10 2020 14:59:21 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:21 GMT+0530 (India Standard Time),
----
-
 # [W Perfume by Banana Republic for women Personal Fragrances](https://products.checkmycream.com/products/W-Perfume-by-Banana-Republic-for-women-Personal-Fragrances.html)
 
 ### Positive Reviews

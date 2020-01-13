@@ -1,12 +1,3 @@
----
-title: Celtrixa Stretch Mark Lotion made by Hydroxatone,
-description: Celtrixa Stretch Mark Lotion made by Hydroxatone,
-author: Suvojit Manna,
-tags: Celtrixa Stretch Mark Lotion made by Hydroxatone,
-publishedAt: Fri Jan 10 2020 14:59:51 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:51 GMT+0530 (India Standard Time),
----
-
 # [Celtrixa Stretch Mark Lotion made by Hydroxatone](https://products.checkmycream.com/products/Celtrixa-Stretch-Mark-Lotion-made-by-Hydroxatone.html)
 
 ### Positive Reviews

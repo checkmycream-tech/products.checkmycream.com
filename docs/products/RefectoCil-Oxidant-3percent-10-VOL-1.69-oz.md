@@ -1,12 +1,3 @@
----
-title: RefectoCil Oxidant 3% 10 VOL 1.69 oz,
-description: RefectoCil Oxidant 3% 10 VOL 1.69 oz,
-author: Suvojit Manna,
-tags: RefectoCil Oxidant 3% 10 VOL 1.69 oz,
-publishedAt: Fri Jan 10 2020 14:59:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:56 GMT+0530 (India Standard Time),
----
-
 # [RefectoCil Oxidant 3% 10 VOL 1.69 oz](https://products.checkmycream.com/products/RefectoCil-Oxidant-3percent-10-VOL-1.69-oz.html)
 
 ### Positive Reviews

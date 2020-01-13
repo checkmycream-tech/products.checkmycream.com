@@ -1,12 +1,3 @@
----
-title: Perm Rods Jumbo Sandy Lot of 3 Dozen,
-description: Perm Rods Jumbo Sandy Lot of 3 Dozen,
-author: Suvojit Manna,
-tags: Perm Rods Jumbo Sandy Lot of 3 Dozen,
-publishedAt: Fri Jan 10 2020 14:59:44 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:44 GMT+0530 (India Standard Time),
----
-
 # [Perm Rods Jumbo Sandy Lot of 3 Dozen](https://products.checkmycream.com/products/Perm-Rods-Jumbo-Sandy-Lot-of-3-Dozen.html)
 
 ### Positive Reviews

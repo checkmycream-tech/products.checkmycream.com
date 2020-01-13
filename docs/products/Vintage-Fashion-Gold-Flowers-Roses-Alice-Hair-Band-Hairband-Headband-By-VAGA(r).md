@@ -1,12 +1,3 @@
----
-title: Vintage Fashion Gold Flowers Roses Alice Hair Band Hairband Headband By VAGA®,
-description: Vintage Fashion Gold Flowers Roses Alice Hair Band Hairband Headband By VAGA®,
-author: Suvojit Manna,
-tags: Vintage Fashion Gold Flowers Roses Alice Hair Band Hairband Headband By VAGA®,
-publishedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
----
-
 # [Vintage Fashion Gold Flowers Roses Alice Hair Band Hairband Headband By VAGA®](https://products.checkmycream.com/products/Vintage-Fashion-Gold-Flowers-Roses-Alice-Hair-Band-Hairband-Headband-By-VAGA(r).html)
 
 ### Positive Reviews

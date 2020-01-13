@@ -1,12 +1,3 @@
----
-title: Economy Retainer Case BLACK,
-description: Economy Retainer Case BLACK,
-author: Suvojit Manna,
-tags: Economy Retainer Case BLACK,
-publishedAt: Fri Jan 10 2020 14:59:33 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:33 GMT+0530 (India Standard Time),
----
-
 # [Economy Retainer Case BLACK](https://products.checkmycream.com/products/Economy-Retainer-Case-BLACK.html)
 
 ### Positive Reviews

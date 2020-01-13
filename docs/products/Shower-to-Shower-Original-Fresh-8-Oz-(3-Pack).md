@@ -1,12 +1,3 @@
----
-title: Shower to Shower Original Fresh 8 Oz (3 Pack),
-description: Shower to Shower Original Fresh 8 Oz (3 Pack),
-author: Suvojit Manna,
-tags: Shower to Shower Original Fresh 8 Oz (3 Pack),
-publishedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
----
-
 # [Shower to Shower Original Fresh 8 Oz (3 Pack)](https://products.checkmycream.com/products/Shower-to-Shower-Original-Fresh-8-Oz-(3-Pack).html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Special Value BIG size! Alexandra De Markoff Daytime Moisture 8 fl oz,
-description: Special Value BIG size! Alexandra De Markoff Daytime Moisture 8 fl oz,
-author: Suvojit Manna,
-tags: Special Value BIG size! Alexandra De Markoff Daytime Moisture 8 fl oz,
-publishedAt: Fri Jan 10 2020 14:59:21 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:21 GMT+0530 (India Standard Time),
----
-
 # [Special Value BIG size! Alexandra De Markoff Daytime Moisture 8 fl oz](https://products.checkmycream.com/products/Special-Value-BIG-size!-Alexandra-De-Markoff-Daytime-Moisture-8-fl-oz.html)
 
 ### Positive Reviews

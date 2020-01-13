@@ -1,12 +1,3 @@
----
-title: Joico K-PAK Intense Hydrator (select option/size),
-description: Joico K-PAK Intense Hydrator (select option/size),
-author: Suvojit Manna,
-tags: Joico K-PAK Intense Hydrator (select option/size),
-publishedAt: Fri Jan 10 2020 14:59:26 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:26 GMT+0530 (India Standard Time),
----
-
 # [Joico K-PAK Intense Hydrator (select option/size)](https://products.checkmycream.com/products/Joico-K-PAK-Intense-Hydrator-(select-optionsize).html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: L&#x27;Oreal Dermo-Expertise Wrinkle De-Crease Collagen Filler 30ml/1oz,
-description: L&#x27;Oreal Dermo-Expertise Wrinkle De-Crease Collagen Filler 30ml/1oz,
-author: Suvojit Manna,
-tags: L&#x27;Oreal Dermo-Expertise Wrinkle De-Crease Collagen Filler 30ml/1oz,
-publishedAt: Fri Jan 10 2020 14:59:14 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:14 GMT+0530 (India Standard Time),
----
-
 # [L&#x27;Oreal Dermo-Expertise Wrinkle De-Crease Collagen Filler 30ml/1oz](https://products.checkmycream.com/products/L&#x27;Oreal-Dermo-Expertise-Wrinkle-De-Crease-Collagen-Filler-30ml1oz.html)
 
 ### Positive Reviews

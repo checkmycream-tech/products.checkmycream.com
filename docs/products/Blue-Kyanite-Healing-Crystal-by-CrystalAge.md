@@ -1,12 +1,3 @@
----
-title: Blue Kyanite Healing Crystal by CrystalAge,
-description: Blue Kyanite Healing Crystal by CrystalAge,
-author: Suvojit Manna,
-tags: Blue Kyanite Healing Crystal by CrystalAge,
-publishedAt: Fri Jan 10 2020 14:59:52 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:52 GMT+0530 (India Standard Time),
----
-
 # [Blue Kyanite Healing Crystal by CrystalAge](https://products.checkmycream.com/products/Blue-Kyanite-Healing-Crystal-by-CrystalAge.html)
 
 ### Positive Reviews

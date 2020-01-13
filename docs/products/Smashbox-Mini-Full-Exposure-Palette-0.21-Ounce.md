@@ -1,12 +1,3 @@
----
-title: Smashbox Mini Full Exposure Palette, 0.21 Ounce,
-description: Smashbox Mini Full Exposure Palette, 0.21 Ounce,
-author: Suvojit Manna,
-tags: Smashbox Mini Full Exposure Palette, 0.21 Ounce,
-publishedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
----
-
 # [Smashbox Mini Full Exposure Palette, 0.21 Ounce](https://products.checkmycream.com/products/Smashbox-Mini-Full-Exposure-Palette-0.21-Ounce.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: NYX Professional Makeup Mineral Finishing Powder, Light/Medium, 0.28 Ounce,
-description: NYX Professional Makeup Mineral Finishing Powder, Light/Medium, 0.28 Ounce,
-author: Suvojit Manna,
-tags: NYX Professional Makeup Mineral Finishing Powder, Light/Medium, 0.28 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:37 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:37 GMT+0530 (India Standard Time),
----
-
 # [NYX Professional Makeup Mineral Finishing Powder, Light/Medium, 0.28 Ounce](https://products.checkmycream.com/products/NYX-Professional-Makeup-Mineral-Finishing-Powder-LightMedium-0.28-Ounce.html)
 
 ### Positive Reviews

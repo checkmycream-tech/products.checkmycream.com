@@ -1,12 +1,3 @@
----
-title: 350buyÂ® Special White Pearl Bow Tie 10 pieces 3D Alloy Nail Art Slices DIY Decorations by 350buy,
-description: 350buyÂ® Special White Pearl Bow Tie 10 pieces 3D Alloy Nail Art Slices DIY Decorations by 350buy,
-author: Suvojit Manna,
-tags: 350buyÂ® Special White Pearl Bow Tie 10 pieces 3D Alloy Nail Art Slices DIY Decorations by 350buy,
-publishedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
----
-
 # [350buyÂ® Special White Pearl Bow Tie 10 pieces 3D Alloy Nail Art Slices DIY Decorations by 350buy](https://products.checkmycream.com/products/350buyA(r)-Special-White-Pearl-Bow-Tie-10-pieces-3D-Alloy-Nail-Art-Slices-DIY-Decorations-by-350buy.html)
 
 ### Positive Reviews

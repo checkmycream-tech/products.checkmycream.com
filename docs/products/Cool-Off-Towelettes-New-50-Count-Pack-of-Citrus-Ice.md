@@ -1,12 +1,3 @@
----
-title: Cool Off Towelettes - New, 50 Count Pack of Citrus Ice,
-description: Cool Off Towelettes - New, 50 Count Pack of Citrus Ice,
-author: Suvojit Manna,
-tags: Cool Off Towelettes - New, 50 Count Pack of Citrus Ice,
-publishedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
----
-
 # [Cool Off Towelettes - New, 50 Count Pack of Citrus Ice](https://products.checkmycream.com/products/Cool-Off-Towelettes-New-50-Count-Pack-of-Citrus-Ice.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Annie Professional Wave Brush 100% Natural Boar Medium Bristle,
-description: Annie Professional Wave Brush 100% Natural Boar Medium Bristle,
-author: Suvojit Manna,
-tags: Annie Professional Wave Brush 100% Natural Boar Medium Bristle,
-publishedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
----
-
 # [Annie Professional Wave Brush 100% Natural Boar Medium Bristle](https://products.checkmycream.com/products/Annie-Professional-Wave-Brush-100percent-Natural-Boar-Medium-Bristle.html)
 
 ### Positive Reviews

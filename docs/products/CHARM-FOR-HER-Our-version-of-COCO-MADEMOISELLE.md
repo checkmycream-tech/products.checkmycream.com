@@ -1,12 +1,3 @@
----
-title: CHARM FOR HER Our version of COCO MADEMOISELLE,
-description: CHARM FOR HER Our version of COCO MADEMOISELLE,
-author: Suvojit Manna,
-tags: CHARM FOR HER Our version of COCO MADEMOISELLE,
-publishedAt: Fri Jan 10 2020 15:01:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:05 GMT+0530 (India Standard Time),
----
-
 # [CHARM FOR HER Our version of COCO MADEMOISELLE](https://products.checkmycream.com/products/CHARM-FOR-HER-Our-version-of-COCO-MADEMOISELLE.html)
 
 ### Positive Reviews

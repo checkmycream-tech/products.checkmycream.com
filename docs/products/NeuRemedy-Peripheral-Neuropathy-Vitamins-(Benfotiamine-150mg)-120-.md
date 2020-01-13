@@ -1,12 +1,3 @@
----
-title: NeuRemedy Peripheral Neuropathy Vitamins (Benfotiamine 150mg) -120-,
-description: NeuRemedy Peripheral Neuropathy Vitamins (Benfotiamine 150mg) -120-,
-author: Suvojit Manna,
-tags: NeuRemedy Peripheral Neuropathy Vitamins (Benfotiamine 150mg) -120-,
-publishedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
----
-
 # [NeuRemedy Peripheral Neuropathy Vitamins (Benfotiamine 150mg) -120-](https://products.checkmycream.com/products/NeuRemedy-Peripheral-Neuropathy-Vitamins-(Benfotiamine-150mg)-120-.html)
 
 ### Positive Reviews

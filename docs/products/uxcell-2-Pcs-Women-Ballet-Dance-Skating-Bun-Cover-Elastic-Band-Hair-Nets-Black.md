@@ -1,12 +1,3 @@
----
-title: uxcell 2 Pcs Women Ballet Dance Skating Bun Cover Elastic Band Hair Nets Black,
-description: uxcell 2 Pcs Women Ballet Dance Skating Bun Cover Elastic Band Hair Nets Black,
-author: Suvojit Manna,
-tags: uxcell 2 Pcs Women Ballet Dance Skating Bun Cover Elastic Band Hair Nets Black,
-publishedAt: Fri Jan 10 2020 15:00:29 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:29 GMT+0530 (India Standard Time),
----
-
 # [uxcell 2 Pcs Women Ballet Dance Skating Bun Cover Elastic Band Hair Nets Black](https://products.checkmycream.com/products/uxcell-2-Pcs-Women-Ballet-Dance-Skating-Bun-Cover-Elastic-Band-Hair-Nets-Black.html)
 
 ### Positive Reviews

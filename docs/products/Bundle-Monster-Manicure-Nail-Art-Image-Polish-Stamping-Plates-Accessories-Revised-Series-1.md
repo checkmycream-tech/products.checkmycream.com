@@ -1,12 +1,3 @@
----
-title: Bundle Monster Manicure Nail Art Image Polish Stamping Plates Accessories - Revised Series 1,
-description: Bundle Monster Manicure Nail Art Image Polish Stamping Plates Accessories - Revised Series 1,
-author: Suvojit Manna,
-tags: Bundle Monster Manicure Nail Art Image Polish Stamping Plates Accessories - Revised Series 1,
-publishedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
----
-
 # [Bundle Monster Manicure Nail Art Image Polish Stamping Plates Accessories - Revised Series 1](https://products.checkmycream.com/products/Bundle-Monster-Manicure-Nail-Art-Image-Polish-Stamping-Plates-Accessories-Revised-Series-1.html)
 
 ### Positive Reviews

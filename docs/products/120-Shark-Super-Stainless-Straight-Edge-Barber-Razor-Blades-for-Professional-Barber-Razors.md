@@ -1,12 +1,3 @@
----
-title: 120 Shark Super Stainless Straight Edge Barber Razor Blades for Professional Barber Razors,
-description: 120 Shark Super Stainless Straight Edge Barber Razor Blades for Professional Barber Razors,
-author: Suvojit Manna,
-tags: 120 Shark Super Stainless Straight Edge Barber Razor Blades for Professional Barber Razors,
-publishedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
----
-
 # [120 Shark Super Stainless Straight Edge Barber Razor Blades for Professional Barber Razors](https://products.checkmycream.com/products/120-Shark-Super-Stainless-Straight-Edge-Barber-Razor-Blades-for-Professional-Barber-Razors.html)
 
 ### Positive Reviews

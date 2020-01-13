@@ -1,12 +1,3 @@
----
-title: John Frieda Luxurious Volume Touchably Full Hair Shampoo, 8.45 Fluid Ounce,
-description: John Frieda Luxurious Volume Touchably Full Hair Shampoo, 8.45 Fluid Ounce,
-author: Suvojit Manna,
-tags: John Frieda Luxurious Volume Touchably Full Hair Shampoo, 8.45 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
----
-
 # [John Frieda Luxurious Volume Touchably Full Hair Shampoo, 8.45 Fluid Ounce](https://products.checkmycream.com/products/John-Frieda-Luxurious-Volume-Touchably-Full-Hair-Shampoo-8.45-Fluid-Ounce.html)
 
 ### Positive Reviews

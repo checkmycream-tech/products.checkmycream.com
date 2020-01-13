@@ -1,12 +1,3 @@
----
-title: Manly Man Soap-100% Natural Skin Care Bar. Scented with Essential Oils. One 4 oz Bar in a Handy Travel Gift Tin. Great For Men, Guys, Workout, Muscle, Exercise Lovers.,
-description: Manly Man Soap-100% Natural Skin Care Bar. Scented with Essential Oils. One 4 oz Bar in a Handy Travel Gift Tin. Great For Men, Guys, Workout, Muscle, Exercise Lovers.,
-author: Suvojit Manna,
-tags: Manly Man Soap-100% Natural Skin Care Bar. Scented with Essential Oils. One 4 oz Bar in a Handy Travel Gift Tin. Great For Men, Guys, Workout, Muscle, Exercise Lovers.,
-publishedAt: Fri Jan 10 2020 15:00:30 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:30 GMT+0530 (India Standard Time),
----
-
 # [Manly Man Soap-100% Natural Skin Care Bar. Scented with Essential Oils. One 4 oz Bar in a Handy Travel Gift Tin. Great For Men, Guys, Workout, Muscle, Exercise Lovers.](https://products.checkmycream.com/products/Manly-Man-Soap-100percent-Natural-Skin-Care-Bar.-Scented-with-Essential-Oils.-One-4-oz-Bar-in-a-Handy-Travel-Gift-Tin.-Great-For-Men-Guys-Workout-Muscle-Exercise-Lovers..html)
 
 ### Positive Reviews

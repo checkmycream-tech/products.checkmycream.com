@@ -1,12 +1,3 @@
----
-title: LipSense by SeneGence,
-description: LipSense by SeneGence,
-author: Suvojit Manna,
-tags: LipSense by SeneGence,
-publishedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
----
-
 # [LipSense by SeneGence](https://products.checkmycream.com/products/LipSense-by-SeneGence.html)
 
 ### Positive Reviews

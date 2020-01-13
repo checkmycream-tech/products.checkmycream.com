@@ -1,12 +1,3 @@
----
-title: Technic Mega Nudes 12 Colour Eyeshadow Palette,
-description: Technic Mega Nudes 12 Colour Eyeshadow Palette,
-author: Suvojit Manna,
-tags: Technic Mega Nudes 12 Colour Eyeshadow Palette,
-publishedAt: Fri Jan 10 2020 15:01:06 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:06 GMT+0530 (India Standard Time),
----
-
 # [Technic Mega Nudes 12 Colour Eyeshadow Palette](https://products.checkmycream.com/products/Technic-Mega-Nudes-12-Colour-Eyeshadow-Palette.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Seasource Detox Spa Renewing Body Gelee, 12 Oz,
-description: Seasource Detox Spa Renewing Body Gelee, 12 Oz,
-author: Suvojit Manna,
-tags: Seasource Detox Spa Renewing Body Gelee, 12 Oz,
-publishedAt: Fri Jan 10 2020 14:59:29 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:29 GMT+0530 (India Standard Time),
----
-
 # [Seasource Detox Spa Renewing Body Gelee, 12 Oz](https://products.checkmycream.com/products/Seasource-Detox-Spa-Renewing-Body-Gelee-12-Oz.html)
 
 ### Positive Reviews

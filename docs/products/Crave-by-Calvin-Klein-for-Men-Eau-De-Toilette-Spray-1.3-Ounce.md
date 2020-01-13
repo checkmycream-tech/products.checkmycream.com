@@ -1,12 +1,3 @@
----
-title: Crave by Calvin Klein for Men, Eau De Toilette Spray, 1.3 Ounce,
-description: Crave by Calvin Klein for Men, Eau De Toilette Spray, 1.3 Ounce,
-author: Suvojit Manna,
-tags: Crave by Calvin Klein for Men, Eau De Toilette Spray, 1.3 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:05 GMT+0530 (India Standard Time),
----
-
 # [Crave by Calvin Klein for Men, Eau De Toilette Spray, 1.3 Ounce](https://products.checkmycream.com/products/Crave-by-Calvin-Klein-for-Men-Eau-De-Toilette-Spray-1.3-Ounce.html)
 
 ### Positive Reviews

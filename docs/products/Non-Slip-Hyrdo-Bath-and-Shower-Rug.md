@@ -1,12 +1,3 @@
----
-title: Non Slip Hyrdo Bath &amp; Shower Rug,
-description: Non Slip Hyrdo Bath &amp; Shower Rug,
-author: Suvojit Manna,
-tags: Non Slip Hyrdo Bath &amp; Shower Rug,
-publishedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
----
-
 # [Non Slip Hyrdo Bath &amp; Shower Rug](https://products.checkmycream.com/products/Non-Slip-Hyrdo-Bath-and-Shower-Rug.html)
 
 ### Positive Reviews

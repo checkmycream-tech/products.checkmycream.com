@@ -1,12 +1,3 @@
----
-title: De La Cruz Coconut Oil Moisturizer,
-description: De La Cruz Coconut Oil Moisturizer,
-author: Suvojit Manna,
-tags: De La Cruz Coconut Oil Moisturizer,
-publishedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
----
-
 # [De La Cruz Coconut Oil Moisturizer](https://products.checkmycream.com/products/De-La-Cruz-Coconut-Oil-Moisturizer.html)
 
 ### Positive Reviews

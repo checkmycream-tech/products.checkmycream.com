@@ -1,12 +1,3 @@
----
-title: Victoria Secret Sexy Little Things Noir, Dream Angels Heavenly, Very Sexy &amp; Bombshell Body Mist Gift Set,
-description: Victoria Secret Sexy Little Things Noir, Dream Angels Heavenly, Very Sexy &amp; Bombshell Body Mist Gift Set,
-author: Suvojit Manna,
-tags: Victoria Secret Sexy Little Things Noir, Dream Angels Heavenly, Very Sexy &amp; Bombshell Body Mist Gift Set,
-publishedAt: Fri Jan 10 2020 15:00:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:00 GMT+0530 (India Standard Time),
----
-
 # [Victoria Secret Sexy Little Things Noir, Dream Angels Heavenly, Very Sexy &amp; Bombshell Body Mist Gift Set](https://products.checkmycream.com/products/Victoria-Secret-Sexy-Little-Things-Noir-Dream-Angels-Heavenly-Very-Sexy-and-Bombshell-Body-Mist-Gift-Set.html)
 
 ### Positive Reviews

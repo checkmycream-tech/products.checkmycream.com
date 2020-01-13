@@ -1,12 +1,3 @@
----
-title: Avene Thermal Spring Water Spray 300ml,
-description: Avene Thermal Spring Water Spray 300ml,
-author: Suvojit Manna,
-tags: Avene Thermal Spring Water Spray 300ml,
-publishedAt: Fri Jan 10 2020 14:59:13 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:13 GMT+0530 (India Standard Time),
----
-
 # [Avene Thermal Spring Water Spray 300ml](https://products.checkmycream.com/products/Avene-Thermal-Spring-Water-Spray-300ml.html)
 
 ### Positive Reviews

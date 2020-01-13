@@ -1,12 +1,3 @@
----
-title: WAHL Replacement Professional 5-Star Balding 6X0 Clipper Blade Screws Oil Kit,
-description: WAHL Replacement Professional 5-Star Balding 6X0 Clipper Blade Screws Oil Kit,
-author: Suvojit Manna,
-tags: WAHL Replacement Professional 5-Star Balding 6X0 Clipper Blade Screws Oil Kit,
-publishedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
----
-
 # [WAHL Replacement Professional 5-Star Balding 6X0 Clipper Blade Screws Oil Kit](https://products.checkmycream.com/products/WAHL-Replacement-Professional-5-Star-Balding-6X0-Clipper-Blade-Screws-Oil-Kit.html)
 
 ### Positive Reviews

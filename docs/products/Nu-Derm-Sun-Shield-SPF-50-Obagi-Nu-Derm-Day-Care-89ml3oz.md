@@ -1,12 +1,3 @@
----
-title: Nu Derm Sun Shield SPF 50 - Obagi - Nu Derm - Day Care - 89ml/3oz,
-description: Nu Derm Sun Shield SPF 50 - Obagi - Nu Derm - Day Care - 89ml/3oz,
-author: Suvojit Manna,
-tags: Nu Derm Sun Shield SPF 50 - Obagi - Nu Derm - Day Care - 89ml/3oz,
-publishedAt: Fri Jan 10 2020 15:00:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:08 GMT+0530 (India Standard Time),
----
-
 # [Nu Derm Sun Shield SPF 50 - Obagi - Nu Derm - Day Care - 89ml/3oz](https://products.checkmycream.com/products/Nu-Derm-Sun-Shield-SPF-50-Obagi-Nu-Derm-Day-Care-89ml3oz.html)
 
 ### Positive Reviews

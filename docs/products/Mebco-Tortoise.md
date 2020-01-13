@@ -1,12 +1,3 @@
----
-title: Mebco Tortoise,
-description: Mebco Tortoise,
-author: Suvojit Manna,
-tags: Mebco Tortoise,
-publishedAt: Fri Jan 10 2020 14:59:14 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:14 GMT+0530 (India Standard Time),
----
-
 # [Mebco Tortoise](https://products.checkmycream.com/products/Mebco-Tortoise.html)
 
 ### Positive Reviews

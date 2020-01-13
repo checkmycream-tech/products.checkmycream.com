@@ -1,12 +1,3 @@
----
-title: Thymes Goldleaf Candle,
-description: Thymes Goldleaf Candle,
-author: Suvojit Manna,
-tags: Thymes Goldleaf Candle,
-publishedAt: Fri Jan 10 2020 14:59:43 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:43 GMT+0530 (India Standard Time),
----
-
 # [Thymes Goldleaf Candle](https://products.checkmycream.com/products/Thymes-Goldleaf-Candle.html)
 
 ### Positive Reviews

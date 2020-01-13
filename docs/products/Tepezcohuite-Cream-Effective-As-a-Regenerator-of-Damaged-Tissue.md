@@ -1,12 +1,3 @@
----
-title: Tepezcohuite Cream Effective As a Regenerator of Damaged Tissue,
-description: Tepezcohuite Cream Effective As a Regenerator of Damaged Tissue,
-author: Suvojit Manna,
-tags: Tepezcohuite Cream Effective As a Regenerator of Damaged Tissue,
-publishedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
----
-
 # [Tepezcohuite Cream Effective As a Regenerator of Damaged Tissue](https://products.checkmycream.com/products/Tepezcohuite-Cream-Effective-As-a-Regenerator-of-Damaged-Tissue.html)
 
 ### Positive Reviews

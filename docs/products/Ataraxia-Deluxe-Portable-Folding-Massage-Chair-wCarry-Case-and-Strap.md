@@ -1,12 +1,3 @@
----
-title: Ataraxia Deluxe Portable Folding Massage Chair w/Carry Case &amp; Strap,
-description: Ataraxia Deluxe Portable Folding Massage Chair w/Carry Case &amp; Strap,
-author: Suvojit Manna,
-tags: Ataraxia Deluxe Portable Folding Massage Chair w/Carry Case &amp; Strap,
-publishedAt: Fri Jan 10 2020 14:59:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:55 GMT+0530 (India Standard Time),
----
-
 # [Ataraxia Deluxe Portable Folding Massage Chair w/Carry Case &amp; Strap](https://products.checkmycream.com/products/Ataraxia-Deluxe-Portable-Folding-Massage-Chair-wCarry-Case-and-Strap.html)
 
 ### Positive Reviews

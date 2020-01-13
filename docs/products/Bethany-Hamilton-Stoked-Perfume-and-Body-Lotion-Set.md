@@ -1,12 +1,3 @@
----
-title: Bethany Hamilton Stoked Perfume &amp; Body Lotion Set,
-description: Bethany Hamilton Stoked Perfume &amp; Body Lotion Set,
-author: Suvojit Manna,
-tags: Bethany Hamilton Stoked Perfume &amp; Body Lotion Set,
-publishedAt: Fri Jan 10 2020 14:59:20 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:20 GMT+0530 (India Standard Time),
----
-
 # [Bethany Hamilton Stoked Perfume &amp; Body Lotion Set](https://products.checkmycream.com/products/Bethany-Hamilton-Stoked-Perfume-and-Body-Lotion-Set.html)
 
 ### Positive Reviews

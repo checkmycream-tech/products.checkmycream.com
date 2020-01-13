@@ -1,12 +1,3 @@
----
-title: White Diamonds by Elizabeth Taylor for Women, Body Wash, 6.8 Ounce,
-description: White Diamonds by Elizabeth Taylor for Women, Body Wash, 6.8 Ounce,
-author: Suvojit Manna,
-tags: White Diamonds by Elizabeth Taylor for Women, Body Wash, 6.8 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:05 GMT+0530 (India Standard Time),
----
-
 # [White Diamonds by Elizabeth Taylor for Women, Body Wash, 6.8 Ounce](https://products.checkmycream.com/products/White-Diamonds-by-Elizabeth-Taylor-for-Women-Body-Wash-6.8-Ounce.html)
 
 ### Positive Reviews

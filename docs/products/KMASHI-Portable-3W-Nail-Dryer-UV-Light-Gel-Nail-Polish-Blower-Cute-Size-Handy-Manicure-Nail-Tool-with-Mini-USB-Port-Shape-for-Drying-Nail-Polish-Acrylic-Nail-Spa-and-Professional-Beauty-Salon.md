@@ -1,12 +1,3 @@
----
-title: KMASHI Portable 3W Nail Dryer UV Light Gel Nail Polish Blower Cute Size Handy Manicure Nail Tool with Mini USB Port Shape for Drying Nail Polish, Acrylic Nail Spa and Professional Beauty Salon,
-description: KMASHI Portable 3W Nail Dryer UV Light Gel Nail Polish Blower Cute Size Handy Manicure Nail Tool with Mini USB Port Shape for Drying Nail Polish, Acrylic Nail Spa and Professional Beauty Salon,
-author: Suvojit Manna,
-tags: KMASHI Portable 3W Nail Dryer UV Light Gel Nail Polish Blower Cute Size Handy Manicure Nail Tool with Mini USB Port Shape for Drying Nail Polish, Acrylic Nail Spa and Professional Beauty Salon,
-publishedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
----
-
 # [KMASHI Portable 3W Nail Dryer UV Light Gel Nail Polish Blower Cute Size Handy Manicure Nail Tool with Mini USB Port Shape for Drying Nail Polish, Acrylic Nail Spa and Professional Beauty Salon](https://products.checkmycream.com/products/KMASHI-Portable-3W-Nail-Dryer-UV-Light-Gel-Nail-Polish-Blower-Cute-Size-Handy-Manicure-Nail-Tool-with-Mini-USB-Port-Shape-for-Drying-Nail-Polish-Acrylic-Nail-Spa-and-Professional-Beauty-Salon.html)
 
 ### Positive Reviews

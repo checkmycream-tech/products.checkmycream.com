@@ -1,12 +1,3 @@
----
-title: Charlie Gold Perfume by Revlon for women Personal Fragrances,
-description: Charlie Gold Perfume by Revlon for women Personal Fragrances,
-author: Suvojit Manna,
-tags: Charlie Gold Perfume by Revlon for women Personal Fragrances,
-publishedAt: Fri Jan 10 2020 14:59:06 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:06 GMT+0530 (India Standard Time),
----
-
 # [Charlie Gold Perfume by Revlon for women Personal Fragrances](https://products.checkmycream.com/products/Charlie-Gold-Perfume-by-Revlon-for-women-Personal-Fragrances.html)
 
 ### Positive Reviews

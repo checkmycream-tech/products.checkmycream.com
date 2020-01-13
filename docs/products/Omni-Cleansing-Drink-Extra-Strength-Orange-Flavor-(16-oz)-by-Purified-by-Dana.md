@@ -1,12 +1,3 @@
----
-title: Omni Cleansing Drink, Extra Strength, Orange Flavor (16 oz) by Purified by Dana,
-description: Omni Cleansing Drink, Extra Strength, Orange Flavor (16 oz) by Purified by Dana,
-author: Suvojit Manna,
-tags: Omni Cleansing Drink, Extra Strength, Orange Flavor (16 oz) by Purified by Dana,
-publishedAt: Fri Jan 10 2020 14:59:27 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:27 GMT+0530 (India Standard Time),
----
-
 # [Omni Cleansing Drink, Extra Strength, Orange Flavor (16 oz) by Purified by Dana](https://products.checkmycream.com/products/Omni-Cleansing-Drink-Extra-Strength-Orange-Flavor-(16-oz)-by-Purified-by-Dana.html)
 
 ### Positive Reviews

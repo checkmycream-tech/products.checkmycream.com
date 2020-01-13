@@ -1,12 +1,3 @@
----
-title: The S&amp;P Generic Replacement Brush Heads, Compatible with Philips Sonicare ProResults Standard-Brush Head, HX6014,
-description: The S&amp;P Generic Replacement Brush Heads, Compatible with Philips Sonicare ProResults Standard-Brush Head, HX6014,
-author: Suvojit Manna,
-tags: The S&amp;P Generic Replacement Brush Heads, Compatible with Philips Sonicare ProResults Standard-Brush Head, HX6014,
-publishedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
----
-
 # [The S&amp;P Generic Replacement Brush Heads, Compatible with Philips Sonicare ProResults Standard-Brush Head, HX6014](https://products.checkmycream.com/products/The-SandP-Generic-Replacement-Brush-Heads-Compatible-with-Philips-Sonicare-ProResults-Standard-Brush-Head-HX6014.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: PYT Flat Iron,
-description: PYT Flat Iron,
-author: Suvojit Manna,
-tags: PYT Flat Iron,
-publishedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
----
-
 # [PYT Flat Iron](https://products.checkmycream.com/products/PYT-Flat-Iron.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: NYX Slim Lip Liner Pencil 817 Hot Red,
-description: NYX Slim Lip Liner Pencil 817 Hot Red,
-author: Suvojit Manna,
-tags: NYX Slim Lip Liner Pencil 817 Hot Red,
-publishedAt: Fri Jan 10 2020 15:00:12 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:12 GMT+0530 (India Standard Time),
----
-
 # [NYX Slim Lip Liner Pencil 817 Hot Red](https://products.checkmycream.com/products/NYX-Slim-Lip-Liner-Pencil-817-Hot-Red.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: COTTON BALLS ***KPP Size: 200,
-description: COTTON BALLS ***KPP Size: 200,
-author: Suvojit Manna,
-tags: COTTON BALLS ***KPP Size: 200,
-publishedAt: Fri Jan 10 2020 15:00:11 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:11 GMT+0530 (India Standard Time),
----
-
 # [COTTON BALLS ***KPP Size: 200](https://products.checkmycream.com/products/COTTON-BALLS-***KPP-Size:-200.html)
 
 ### Positive Reviews

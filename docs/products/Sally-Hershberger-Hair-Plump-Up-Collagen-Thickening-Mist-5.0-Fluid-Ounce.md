@@ -1,12 +1,3 @@
----
-title: Sally Hershberger Hair Plump Up Collagen Thickening Mist, 5.0 Fluid Ounce,
-description: Sally Hershberger Hair Plump Up Collagen Thickening Mist, 5.0 Fluid Ounce,
-author: Suvojit Manna,
-tags: Sally Hershberger Hair Plump Up Collagen Thickening Mist, 5.0 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 15:00:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:02 GMT+0530 (India Standard Time),
----
-
 # [Sally Hershberger Hair Plump Up Collagen Thickening Mist, 5.0 Fluid Ounce](https://products.checkmycream.com/products/Sally-Hershberger-Hair-Plump-Up-Collagen-Thickening-Mist-5.0-Fluid-Ounce.html)
 
 ### Positive Reviews

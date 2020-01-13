@@ -1,12 +1,3 @@
----
-title: uxcell® 110 Pairs Breathable Invisible Dual Eyelid Sticker Tape,
-description: uxcell® 110 Pairs Breathable Invisible Dual Eyelid Sticker Tape,
-author: Suvojit Manna,
-tags: uxcell® 110 Pairs Breathable Invisible Dual Eyelid Sticker Tape,
-publishedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
----
-
 # [uxcell® 110 Pairs Breathable Invisible Dual Eyelid Sticker Tape](https://products.checkmycream.com/products/uxcell(r)-110-Pairs-Breathable-Invisible-Dual-Eyelid-Sticker-Tape.html)
 
 ### Positive Reviews

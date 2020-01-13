@@ -1,12 +1,3 @@
----
-title: Anastasia Beverly Hills Brow Genius Kit Brunette,
-description: Anastasia Beverly Hills Brow Genius Kit Brunette,
-author: Suvojit Manna,
-tags: Anastasia Beverly Hills Brow Genius Kit Brunette,
-publishedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
----
-
 # [Anastasia Beverly Hills Brow Genius Kit Brunette](https://products.checkmycream.com/products/Anastasia-Beverly-Hills-Brow-Genius-Kit-Brunette.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Julien Farel Vitamin Shampoo 6,8 Fl. oz/200ml,
-description: Julien Farel Vitamin Shampoo 6,8 Fl. oz/200ml,
-author: Suvojit Manna,
-tags: Julien Farel Vitamin Shampoo 6,8 Fl. oz/200ml,
-publishedAt: Fri Jan 10 2020 15:00:15 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:15 GMT+0530 (India Standard Time),
----
-
 # [Julien Farel Vitamin Shampoo 6,8 Fl. oz/200ml](https://products.checkmycream.com/products/Julien-Farel-Vitamin-Shampoo-68-Fl.-oz200ml.html)
 
 ### Positive Reviews

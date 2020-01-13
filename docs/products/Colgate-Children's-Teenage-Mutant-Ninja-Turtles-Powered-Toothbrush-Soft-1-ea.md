@@ -1,12 +1,3 @@
----
-title: Colgate Children&#x27;s Teenage Mutant Ninja Turtles Powered Toothbrush, Soft, 1 ea,
-description: Colgate Children&#x27;s Teenage Mutant Ninja Turtles Powered Toothbrush, Soft, 1 ea,
-author: Suvojit Manna,
-tags: Colgate Children&#x27;s Teenage Mutant Ninja Turtles Powered Toothbrush, Soft, 1 ea,
-publishedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
----
-
 # [Colgate Children&#x27;s Teenage Mutant Ninja Turtles Powered Toothbrush, Soft, 1 ea](https://products.checkmycream.com/products/Colgate-Children&#x27;s-Teenage-Mutant-Ninja-Turtles-Powered-Toothbrush-Soft-1-ea.html)
 
 ### Positive Reviews

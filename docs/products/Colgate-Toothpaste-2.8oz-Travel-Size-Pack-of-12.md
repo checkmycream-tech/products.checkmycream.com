@@ -1,12 +1,3 @@
----
-title: Colgate Toothpaste 2.8oz Travel Size Pack of 12,
-description: Colgate Toothpaste 2.8oz Travel Size Pack of 12,
-author: Suvojit Manna,
-tags: Colgate Toothpaste 2.8oz Travel Size Pack of 12,
-publishedAt: Fri Jan 10 2020 15:00:17 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:17 GMT+0530 (India Standard Time),
----
-
 # [Colgate Toothpaste 2.8oz Travel Size Pack of 12](https://products.checkmycream.com/products/Colgate-Toothpaste-2.8oz-Travel-Size-Pack-of-12.html)
 
 ### Positive Reviews

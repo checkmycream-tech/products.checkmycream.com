@@ -1,12 +1,3 @@
----
-title: Pantene Pro-V Classic Care 2in1 Shampoo + Conditioner 25.4 Fluid Ounce (packaging may vary),
-description: Pantene Pro-V Classic Care 2in1 Shampoo + Conditioner 25.4 Fluid Ounce (packaging may vary),
-author: Suvojit Manna,
-tags: Pantene Pro-V Classic Care 2in1 Shampoo + Conditioner 25.4 Fluid Ounce (packaging may vary),
-publishedAt: Fri Jan 10 2020 14:59:36 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:36 GMT+0530 (India Standard Time),
----
-
 # [Pantene Pro-V Classic Care 2in1 Shampoo + Conditioner 25.4 Fluid Ounce (packaging may vary)](https://products.checkmycream.com/products/Pantene-Pro-V-Classic-Care-2in1-Shampoo-+-Conditioner-25.4-Fluid-Ounce-(packaging-may-vary).html)
 
 ### Positive Reviews

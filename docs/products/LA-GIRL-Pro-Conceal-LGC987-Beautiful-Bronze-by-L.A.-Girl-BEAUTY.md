@@ -1,12 +1,3 @@
----
-title: LA GIRL Pro Conceal - LGC987 Beautiful Bronze by L.A. Girl BEAUTY,
-description: LA GIRL Pro Conceal - LGC987 Beautiful Bronze by L.A. Girl BEAUTY,
-author: Suvojit Manna,
-tags: LA GIRL Pro Conceal - LGC987 Beautiful Bronze by L.A. Girl BEAUTY,
-publishedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
----
-
 # [LA GIRL Pro Conceal - LGC987 Beautiful Bronze by L.A. Girl BEAUTY](https://products.checkmycream.com/products/LA-GIRL-Pro-Conceal-LGC987-Beautiful-Bronze-by-L.A.-Girl-BEAUTY.html)
 
 ### Positive Reviews

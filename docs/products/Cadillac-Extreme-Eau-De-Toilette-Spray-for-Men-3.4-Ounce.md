@@ -1,12 +1,3 @@
----
-title: Cadillac Extreme Eau De Toilette Spray for Men, 3.4 Ounce,
-description: Cadillac Extreme Eau De Toilette Spray for Men, 3.4 Ounce,
-author: Suvojit Manna,
-tags: Cadillac Extreme Eau De Toilette Spray for Men, 3.4 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
----
-
 # [Cadillac Extreme Eau De Toilette Spray for Men, 3.4 Ounce](https://products.checkmycream.com/products/Cadillac-Extreme-Eau-De-Toilette-Spray-for-Men-3.4-Ounce.html)
 
 ### Positive Reviews

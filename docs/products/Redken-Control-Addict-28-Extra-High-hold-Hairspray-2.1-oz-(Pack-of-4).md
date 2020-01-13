@@ -1,12 +1,3 @@
----
-title: Redken Control Addict 28 Extra High-hold Hairspray 2.1 oz (Pack of 4),
-description: Redken Control Addict 28 Extra High-hold Hairspray 2.1 oz (Pack of 4),
-author: Suvojit Manna,
-tags: Redken Control Addict 28 Extra High-hold Hairspray 2.1 oz (Pack of 4),
-publishedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
----
-
 # [Redken Control Addict 28 Extra High-hold Hairspray 2.1 oz (Pack of 4)](https://products.checkmycream.com/products/Redken-Control-Addict-28-Extra-High-hold-Hairspray-2.1-oz-(Pack-of-4).html)
 
 ### Positive Reviews

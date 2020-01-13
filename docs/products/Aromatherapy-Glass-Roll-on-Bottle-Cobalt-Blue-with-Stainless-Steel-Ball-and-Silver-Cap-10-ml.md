@@ -1,12 +1,3 @@
----
-title: Aromatherapy - Glass Roll on Bottle, Cobalt Blue with Stainless Steel Ball and Silver Cap - 10 ml,
-description: Aromatherapy - Glass Roll on Bottle, Cobalt Blue with Stainless Steel Ball and Silver Cap - 10 ml,
-author: Suvojit Manna,
-tags: Aromatherapy - Glass Roll on Bottle, Cobalt Blue with Stainless Steel Ball and Silver Cap - 10 ml,
-publishedAt: Fri Jan 10 2020 15:01:06 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:06 GMT+0530 (India Standard Time),
----
-
 # [Aromatherapy - Glass Roll on Bottle, Cobalt Blue with Stainless Steel Ball and Silver Cap - 10 ml](https://products.checkmycream.com/products/Aromatherapy-Glass-Roll-on-Bottle-Cobalt-Blue-with-Stainless-Steel-Ball-and-Silver-Cap-10-ml.html)
 
 ### Positive Reviews

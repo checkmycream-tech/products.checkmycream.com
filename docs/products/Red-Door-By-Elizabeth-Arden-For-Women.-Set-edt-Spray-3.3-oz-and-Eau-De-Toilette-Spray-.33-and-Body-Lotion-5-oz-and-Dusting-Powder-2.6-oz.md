@@ -1,12 +1,3 @@
----
-title: Red Door By Elizabeth Arden For Women. Set-edt Spray 3.3 oz &amp; Eau De Toilette Spray .33 &amp; Body Lotion 5 oz &amp; Dusting Powder 2.6 oz,
-description: Red Door By Elizabeth Arden For Women. Set-edt Spray 3.3 oz &amp; Eau De Toilette Spray .33 &amp; Body Lotion 5 oz &amp; Dusting Powder 2.6 oz,
-author: Suvojit Manna,
-tags: Red Door By Elizabeth Arden For Women. Set-edt Spray 3.3 oz &amp; Eau De Toilette Spray .33 &amp; Body Lotion 5 oz &amp; Dusting Powder 2.6 oz,
-publishedAt: Fri Jan 10 2020 14:59:12 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:12 GMT+0530 (India Standard Time),
----
-
 # [Red Door By Elizabeth Arden For Women. Set-edt Spray 3.3 oz &amp; Eau De Toilette Spray .33 &amp; Body Lotion 5 oz &amp; Dusting Powder 2.6 oz](https://products.checkmycream.com/products/Red-Door-By-Elizabeth-Arden-For-Women.-Set-edt-Spray-3.3-oz-and-Eau-De-Toilette-Spray-.33-and-Body-Lotion-5-oz-and-Dusting-Powder-2.6-oz.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Alum Stone or Tawas 227g or 8 Oz,
-description: Alum Stone or Tawas 227g or 8 Oz,
-author: Suvojit Manna,
-tags: Alum Stone or Tawas 227g or 8 Oz,
-publishedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
----
-
 # [Alum Stone or Tawas 227g or 8 Oz](https://products.checkmycream.com/products/Alum-Stone-or-Tawas-227g-or-8-Oz.html)
 
 ### Positive Reviews

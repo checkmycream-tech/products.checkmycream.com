@@ -1,12 +1,3 @@
----
-title: Mary Kay Timewise 3 in 1 Cleanser Normal/Dry Skin - 4.5 oz.,
-description: Mary Kay Timewise 3 in 1 Cleanser Normal/Dry Skin - 4.5 oz.,
-author: Suvojit Manna,
-tags: Mary Kay Timewise 3 in 1 Cleanser Normal/Dry Skin - 4.5 oz.,
-publishedAt: Fri Jan 10 2020 15:00:11 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:11 GMT+0530 (India Standard Time),
----
-
 # [Mary Kay Timewise 3 in 1 Cleanser Normal/Dry Skin - 4.5 oz.](https://products.checkmycream.com/products/Mary-Kay-Timewise-3-in-1-Cleanser-NormalDry-Skin-4.5-oz..html)
 
 ### Positive Reviews

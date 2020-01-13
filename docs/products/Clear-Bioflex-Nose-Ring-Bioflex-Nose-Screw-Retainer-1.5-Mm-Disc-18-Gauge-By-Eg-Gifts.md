@@ -1,12 +1,3 @@
----
-title: Clear Bioflex Nose Ring Bioflex Nose Screw Retainer 1.5 Mm Disc 18 Gauge By Eg Gifts,
-description: Clear Bioflex Nose Ring Bioflex Nose Screw Retainer 1.5 Mm Disc 18 Gauge By Eg Gifts,
-author: Suvojit Manna,
-tags: Clear Bioflex Nose Ring Bioflex Nose Screw Retainer 1.5 Mm Disc 18 Gauge By Eg Gifts,
-publishedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
----
-
 # [Clear Bioflex Nose Ring Bioflex Nose Screw Retainer 1.5 Mm Disc 18 Gauge By Eg Gifts](https://products.checkmycream.com/products/Clear-Bioflex-Nose-Ring-Bioflex-Nose-Screw-Retainer-1.5-Mm-Disc-18-Gauge-By-Eg-Gifts.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: CAETLEPink MINI SIZE Beauty Flawless Makeup Blender Comestic MINI Sponge Puff,
-description: CAETLEPink MINI SIZE Beauty Flawless Makeup Blender Comestic MINI Sponge Puff,
-author: Suvojit Manna,
-tags: CAETLEPink MINI SIZE Beauty Flawless Makeup Blender Comestic MINI Sponge Puff,
-publishedAt: Fri Jan 10 2020 15:01:06 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:06 GMT+0530 (India Standard Time),
----
-
 # [CAETLEPink MINI SIZE Beauty Flawless Makeup Blender Comestic MINI Sponge Puff](https://products.checkmycream.com/products/CAETLEPink-MINI-SIZE-Beauty-Flawless-Makeup-Blender-Comestic-MINI-Sponge-Puff.html)
 
 ### Positive Reviews

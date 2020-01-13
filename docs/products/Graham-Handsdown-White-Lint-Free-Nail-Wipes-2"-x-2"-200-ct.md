@@ -1,12 +1,3 @@
----
-title: Graham Handsdown White Lint Free Nail Wipes- 2&quot; x 2&quot;- 200 ct,
-description: Graham Handsdown White Lint Free Nail Wipes- 2&quot; x 2&quot;- 200 ct,
-author: Suvojit Manna,
-tags: Graham Handsdown White Lint Free Nail Wipes- 2&quot; x 2&quot;- 200 ct,
-publishedAt: Fri Jan 10 2020 14:59:30 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:30 GMT+0530 (India Standard Time),
----
-
 # [Graham Handsdown White Lint Free Nail Wipes- 2&quot; x 2&quot;- 200 ct](https://products.checkmycream.com/products/Graham-Handsdown-White-Lint-Free-Nail-Wipes-2&quot;-x-2&quot;-200-ct.html)
 
 ### Positive Reviews

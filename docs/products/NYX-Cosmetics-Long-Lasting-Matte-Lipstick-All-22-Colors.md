@@ -1,12 +1,3 @@
----
-title: NYX Cosmetics Long Lasting Matte Lipstick All 22 Colors,
-description: NYX Cosmetics Long Lasting Matte Lipstick All 22 Colors,
-author: Suvojit Manna,
-tags: NYX Cosmetics Long Lasting Matte Lipstick All 22 Colors,
-publishedAt: Fri Jan 10 2020 15:00:09 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:09 GMT+0530 (India Standard Time),
----
-
 # [NYX Cosmetics Long Lasting Matte Lipstick All 22 Colors](https://products.checkmycream.com/products/NYX-Cosmetics-Long-Lasting-Matte-Lipstick-All-22-Colors.html)
 
 ### Positive Reviews

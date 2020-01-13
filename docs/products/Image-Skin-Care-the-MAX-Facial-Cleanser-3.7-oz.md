@@ -1,12 +1,3 @@
----
-title: Image Skin Care the MAX Facial Cleanser 3.7 oz,
-description: Image Skin Care the MAX Facial Cleanser 3.7 oz,
-author: Suvojit Manna,
-tags: Image Skin Care the MAX Facial Cleanser 3.7 oz,
-publishedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
----
-
 # [Image Skin Care the MAX Facial Cleanser 3.7 oz](https://products.checkmycream.com/products/Image-Skin-Care-the-MAX-Facial-Cleanser-3.7-oz.html)
 
 ### Positive Reviews

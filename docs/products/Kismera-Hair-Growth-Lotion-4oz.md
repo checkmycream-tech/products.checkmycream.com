@@ -1,12 +1,3 @@
----
-title: Kismera Hair Growth Lotion 4oz,
-description: Kismera Hair Growth Lotion 4oz,
-author: Suvojit Manna,
-tags: Kismera Hair Growth Lotion 4oz,
-publishedAt: Fri Jan 10 2020 14:59:51 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:51 GMT+0530 (India Standard Time),
----
-
 # [Kismera Hair Growth Lotion 4oz](https://products.checkmycream.com/products/Kismera-Hair-Growth-Lotion-4oz.html)
 
 ### Positive Reviews

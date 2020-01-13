@@ -1,12 +1,3 @@
----
-title: Revitol Skin Brightener Skin Brightening Cream - Skin Lightening Lotion for More Even Skin Tone ~ 1 Pack,
-description: Revitol Skin Brightener Skin Brightening Cream - Skin Lightening Lotion for More Even Skin Tone ~ 1 Pack,
-author: Suvojit Manna,
-tags: Revitol Skin Brightener Skin Brightening Cream - Skin Lightening Lotion for More Even Skin Tone ~ 1 Pack,
-publishedAt: Fri Jan 10 2020 14:59:47 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:47 GMT+0530 (India Standard Time),
----
-
 # [Revitol Skin Brightener Skin Brightening Cream - Skin Lightening Lotion for More Even Skin Tone ~ 1 Pack](https://products.checkmycream.com/products/Revitol-Skin-Brightener-Skin-Brightening-Cream-Skin-Lightening-Lotion-for-More-Even-Skin-Tone-~-1-Pack.html)
 
 ### Positive Reviews

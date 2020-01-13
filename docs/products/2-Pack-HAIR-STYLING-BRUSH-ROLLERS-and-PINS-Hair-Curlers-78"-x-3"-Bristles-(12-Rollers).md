@@ -1,12 +1,3 @@
----
-title: 2 Pack HAIR STYLING BRUSH ROLLERS &amp; PINS Hair Curlers 7/8&quot; x 3&quot; Bristles (12 Rollers),
-description: 2 Pack HAIR STYLING BRUSH ROLLERS &amp; PINS Hair Curlers 7/8&quot; x 3&quot; Bristles (12 Rollers),
-author: Suvojit Manna,
-tags: 2 Pack HAIR STYLING BRUSH ROLLERS &amp; PINS Hair Curlers 7/8&quot; x 3&quot; Bristles (12 Rollers),
-publishedAt: Fri Jan 10 2020 15:00:09 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:09 GMT+0530 (India Standard Time),
----
-
 # [2 Pack HAIR STYLING BRUSH ROLLERS &amp; PINS Hair Curlers 7/8&quot; x 3&quot; Bristles (12 Rollers)](https://products.checkmycream.com/products/2-Pack-HAIR-STYLING-BRUSH-ROLLERS-and-PINS-Hair-Curlers-78&quot;-x-3&quot;-Bristles-(12-Rollers).html)
 
 ### Positive Reviews

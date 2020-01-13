@@ -1,12 +1,3 @@
----
-title: Tribe by Coty Type - Fragrance / Perfume Oil - 2oz Made with Organic Oils - Spray On Perfume Oil - Alcohol &amp; Preservative Free,
-description: Tribe by Coty Type - Fragrance / Perfume Oil - 2oz Made with Organic Oils - Spray On Perfume Oil - Alcohol &amp; Preservative Free,
-author: Suvojit Manna,
-tags: Tribe by Coty Type - Fragrance / Perfume Oil - 2oz Made with Organic Oils - Spray On Perfume Oil - Alcohol &amp; Preservative Free,
-publishedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
----
-
 # [Tribe by Coty Type - Fragrance / Perfume Oil - 2oz Made with Organic Oils - Spray On Perfume Oil - Alcohol &amp; Preservative Free](https://products.checkmycream.com/products/Tribe-by-Coty-Type-Fragrance-Perfume-Oil-2oz-Made-with-Organic-Oils-Spray-On-Perfume-Oil-Alcohol-and-Preservative-Free.html)
 
 ### Positive Reviews

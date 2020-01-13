@@ -1,12 +1,3 @@
----
-title: Grip Tight Medium Hold Gel Redken For Men, 5 Ounce,
-description: Grip Tight Medium Hold Gel Redken For Men, 5 Ounce,
-author: Suvojit Manna,
-tags: Grip Tight Medium Hold Gel Redken For Men, 5 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:12 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:12 GMT+0530 (India Standard Time),
----
-
 # [Grip Tight Medium Hold Gel Redken For Men, 5 Ounce](https://products.checkmycream.com/products/Grip-Tight-Medium-Hold-Gel-Redken-For-Men-5-Ounce.html)
 
 ### Positive Reviews

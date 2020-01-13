@@ -1,12 +1,3 @@
----
-title: Fibre System Plus (30 packets/box) by 4Life,
-description: Fibre System Plus (30 packets/box) by 4Life,
-author: Suvojit Manna,
-tags: Fibre System Plus (30 packets/box) by 4Life,
-publishedAt: Fri Jan 10 2020 14:59:39 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:39 GMT+0530 (India Standard Time),
----
-
 # [Fibre System Plus (30 packets/box) by 4Life](https://products.checkmycream.com/products/Fibre-System-Plus-(30-packetsbox)-by-4Life.html)
 
 ### Positive Reviews

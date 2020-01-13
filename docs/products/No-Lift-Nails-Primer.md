@@ -1,12 +1,3 @@
----
-title: No Lift Nails Primer,
-description: No Lift Nails Primer,
-author: Suvojit Manna,
-tags: No Lift Nails Primer,
-publishedAt: Fri Jan 10 2020 15:00:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:00 GMT+0530 (India Standard Time),
----
-
 # [No Lift Nails Primer](https://products.checkmycream.com/products/No-Lift-Nails-Primer.html)
 
 ### Positive Reviews

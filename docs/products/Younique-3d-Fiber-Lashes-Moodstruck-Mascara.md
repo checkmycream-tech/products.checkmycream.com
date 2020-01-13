@@ -1,12 +1,3 @@
----
-title: Younique 3d Fiber Lashes Moodstruck Mascara,
-description: Younique 3d Fiber Lashes Moodstruck Mascara,
-author: Suvojit Manna,
-tags: Younique 3d Fiber Lashes Moodstruck Mascara,
-publishedAt: Fri Jan 10 2020 15:01:04 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:04 GMT+0530 (India Standard Time),
----
-
 # [Younique 3d Fiber Lashes Moodstruck Mascara](https://products.checkmycream.com/products/Younique-3d-Fiber-Lashes-Moodstruck-Mascara.html)
 
 ### Positive Reviews

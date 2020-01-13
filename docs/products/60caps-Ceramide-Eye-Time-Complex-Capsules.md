@@ -1,12 +1,3 @@
----
-title: 60caps Ceramide Eye Time Complex Capsules,
-description: 60caps Ceramide Eye Time Complex Capsules,
-author: Suvojit Manna,
-tags: 60caps Ceramide Eye Time Complex Capsules,
-publishedAt: Fri Jan 10 2020 14:59:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:57 GMT+0530 (India Standard Time),
----
-
 # [60caps Ceramide Eye Time Complex Capsules](https://products.checkmycream.com/products/60caps-Ceramide-Eye-Time-Complex-Capsules.html)
 
 ### Positive Reviews

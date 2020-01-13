@@ -1,12 +1,3 @@
----
-title: Bundle: Now Foods Avocado Oil, 16 oz. PLUS Now Foods Castor Oil, 16 oz.,
-description: Bundle: Now Foods Avocado Oil, 16 oz. PLUS Now Foods Castor Oil, 16 oz.,
-author: Suvojit Manna,
-tags: Bundle: Now Foods Avocado Oil, 16 oz. PLUS Now Foods Castor Oil, 16 oz.,
-publishedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
----
-
 # [Bundle: Now Foods Avocado Oil, 16 oz. PLUS Now Foods Castor Oil, 16 oz.](https://products.checkmycream.com/products/Bundle:-Now-Foods-Avocado-Oil-16-oz.-PLUS-Now-Foods-Castor-Oil-16-oz..html)
 
 ### Positive Reviews

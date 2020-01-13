@@ -1,12 +1,3 @@
----
-title: Usher By Usher Eau De Parfum Spray/FN197145/1 oz/women/,
-description: Usher By Usher Eau De Parfum Spray/FN197145/1 oz/women/,
-author: Suvojit Manna,
-tags: Usher By Usher Eau De Parfum Spray/FN197145/1 oz/women/,
-publishedAt: Fri Jan 10 2020 14:59:26 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:26 GMT+0530 (India Standard Time),
----
-
 # [Usher By Usher Eau De Parfum Spray/FN197145/1 oz/women/](https://products.checkmycream.com/products/Usher-By-Usher-Eau-De-Parfum-SprayFN1971451-ozwomen.html)
 
 ### Positive Reviews

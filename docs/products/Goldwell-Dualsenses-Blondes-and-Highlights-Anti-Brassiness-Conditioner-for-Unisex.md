@@ -1,12 +1,3 @@
----
-title: Goldwell Dualsenses Blondes and Highlights Anti-Brassiness Conditioner for Unisex,
-description: Goldwell Dualsenses Blondes and Highlights Anti-Brassiness Conditioner for Unisex,
-author: Suvojit Manna,
-tags: Goldwell Dualsenses Blondes and Highlights Anti-Brassiness Conditioner for Unisex,
-publishedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
----
-
 # [Goldwell Dualsenses Blondes and Highlights Anti-Brassiness Conditioner for Unisex](https://products.checkmycream.com/products/Goldwell-Dualsenses-Blondes-and-Highlights-Anti-Brassiness-Conditioner-for-Unisex.html)
 
 ### Positive Reviews

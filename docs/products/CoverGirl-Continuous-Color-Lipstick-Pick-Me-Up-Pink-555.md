@@ -1,12 +1,3 @@
----
-title: CoverGirl Continuous Color Lipstick, Pick Me Up Pink 555,
-description: CoverGirl Continuous Color Lipstick, Pick Me Up Pink 555,
-author: Suvojit Manna,
-tags: CoverGirl Continuous Color Lipstick, Pick Me Up Pink 555,
-publishedAt: Fri Jan 10 2020 14:59:23 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:23 GMT+0530 (India Standard Time),
----
-
 # [CoverGirl Continuous Color Lipstick, Pick Me Up Pink 555](https://products.checkmycream.com/products/CoverGirl-Continuous-Color-Lipstick-Pick-Me-Up-Pink-555.html)
 
 ### Positive Reviews

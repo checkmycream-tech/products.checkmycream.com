@@ -1,12 +1,3 @@
----
-title: Leopard Point Skull Rings Clutch Handbag Fashion Evening Bag,
-description: Leopard Point Skull Rings Clutch Handbag Fashion Evening Bag,
-author: Suvojit Manna,
-tags: Leopard Point Skull Rings Clutch Handbag Fashion Evening Bag,
-publishedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
----
-
 # [Leopard Point Skull Rings Clutch Handbag Fashion Evening Bag](https://products.checkmycream.com/products/Leopard-Point-Skull-Rings-Clutch-Handbag-Fashion-Evening-Bag.html)
 
 ### Positive Reviews

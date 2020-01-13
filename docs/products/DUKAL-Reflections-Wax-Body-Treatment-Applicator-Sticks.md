@@ -1,12 +1,3 @@
----
-title: DUKAL Reflections Wax-Body Treatment Applicator Sticks,
-description: DUKAL Reflections Wax-Body Treatment Applicator Sticks,
-author: Suvojit Manna,
-tags: DUKAL Reflections Wax-Body Treatment Applicator Sticks,
-publishedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
----
-
 # [DUKAL Reflections Wax-Body Treatment Applicator Sticks](https://products.checkmycream.com/products/DUKAL-Reflections-Wax-Body-Treatment-Applicator-Sticks.html)
 
 ### Positive Reviews

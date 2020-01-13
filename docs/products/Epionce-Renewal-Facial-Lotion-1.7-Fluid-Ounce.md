@@ -1,12 +1,3 @@
----
-title: Epionce Renewal Facial Lotion, 1.7 Fluid Ounce,
-description: Epionce Renewal Facial Lotion, 1.7 Fluid Ounce,
-author: Suvojit Manna,
-tags: Epionce Renewal Facial Lotion, 1.7 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 14:59:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:55 GMT+0530 (India Standard Time),
----
-
 # [Epionce Renewal Facial Lotion, 1.7 Fluid Ounce](https://products.checkmycream.com/products/Epionce-Renewal-Facial-Lotion-1.7-Fluid-Ounce.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: CoverGirl Instant Cheekbones Contouring Blush Sophisticated Sable 240, 0.29 Ounce Pan,
-description: CoverGirl Instant Cheekbones Contouring Blush Sophisticated Sable 240, 0.29 Ounce Pan,
-author: Suvojit Manna,
-tags: CoverGirl Instant Cheekbones Contouring Blush Sophisticated Sable 240, 0.29 Ounce Pan,
-publishedAt: Fri Jan 10 2020 14:59:25 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:25 GMT+0530 (India Standard Time),
----
-
 # [CoverGirl Instant Cheekbones Contouring Blush Sophisticated Sable 240, 0.29 Ounce Pan](https://products.checkmycream.com/products/CoverGirl-Instant-Cheekbones-Contouring-Blush-Sophisticated-Sable-240-0.29-Ounce-Pan.html)
 
 ### Positive Reviews

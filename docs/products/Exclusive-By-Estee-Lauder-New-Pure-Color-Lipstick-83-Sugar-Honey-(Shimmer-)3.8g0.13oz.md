@@ -1,12 +1,3 @@
----
-title: Exclusive By Estee Lauder New Pure Color Lipstick - # 83 Sugar Honey (Shimmer )3.8g/0.13oz,
-description: Exclusive By Estee Lauder New Pure Color Lipstick - # 83 Sugar Honey (Shimmer )3.8g/0.13oz,
-author: Suvojit Manna,
-tags: Exclusive By Estee Lauder New Pure Color Lipstick - # 83 Sugar Honey (Shimmer )3.8g/0.13oz,
-publishedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
----
-
 # [Exclusive By Estee Lauder New Pure Color Lipstick - # 83 Sugar Honey (Shimmer )3.8g/0.13oz](https://products.checkmycream.com/products/Exclusive-By-Estee-Lauder-New-Pure-Color-Lipstick-83-Sugar-Honey-(Shimmer-)3.8g0.13oz.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Charlie Blue by Revlon for Women 3.4 oz Eau De Toilette Spray,
-description: Charlie Blue by Revlon for Women 3.4 oz Eau De Toilette Spray,
-author: Suvojit Manna,
-tags: Charlie Blue by Revlon for Women 3.4 oz Eau De Toilette Spray,
-publishedAt: Fri Jan 10 2020 14:59:43 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:43 GMT+0530 (India Standard Time),
----
-
 # [Charlie Blue by Revlon for Women 3.4 oz Eau De Toilette Spray](https://products.checkmycream.com/products/Charlie-Blue-by-Revlon-for-Women-3.4-oz-Eau-De-Toilette-Spray.html)
 
 ### Positive Reviews

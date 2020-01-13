@@ -1,12 +1,3 @@
----
-title: Axe Shower Gel, Shock, 16 Fluid Ounce,
-description: Axe Shower Gel, Shock, 16 Fluid Ounce,
-author: Suvojit Manna,
-tags: Axe Shower Gel, Shock, 16 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
----
-
 # [Axe Shower Gel, Shock, 16 Fluid Ounce](https://products.checkmycream.com/products/Axe-Shower-Gel-Shock-16-Fluid-Ounce.html)
 
 ### Positive Reviews

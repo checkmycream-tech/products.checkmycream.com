@@ -1,12 +1,3 @@
----
-title: Catalina 12pc Clear Crystal Flower Hair Coils Twists Spirals Hair Pin Accessories,
-description: Catalina 12pc Clear Crystal Flower Hair Coils Twists Spirals Hair Pin Accessories,
-author: Suvojit Manna,
-tags: Catalina 12pc Clear Crystal Flower Hair Coils Twists Spirals Hair Pin Accessories,
-publishedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
----
-
 # [Catalina 12pc Clear Crystal Flower Hair Coils Twists Spirals Hair Pin Accessories](https://products.checkmycream.com/products/Catalina-12pc-Clear-Crystal-Flower-Hair-Coils-Twists-Spirals-Hair-Pin-Accessories.html)
 
 ### Positive Reviews

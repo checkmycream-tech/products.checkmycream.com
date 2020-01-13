@@ -1,12 +1,3 @@
----
-title: Showgirl Black and Fuchsia Pink Glitter Nail Polish - 0.5 Oz Full Sized Bottle,
-description: Showgirl Black and Fuchsia Pink Glitter Nail Polish - 0.5 Oz Full Sized Bottle,
-author: Suvojit Manna,
-tags: Showgirl Black and Fuchsia Pink Glitter Nail Polish - 0.5 Oz Full Sized Bottle,
-publishedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
----
-
 # [Showgirl Black and Fuchsia Pink Glitter Nail Polish - 0.5 Oz Full Sized Bottle](https://products.checkmycream.com/products/Showgirl-Black-and-Fuchsia-Pink-Glitter-Nail-Polish-0.5-Oz-Full-Sized-Bottle.html)
 
 ### Positive Reviews

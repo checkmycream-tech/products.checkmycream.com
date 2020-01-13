@@ -1,12 +1,3 @@
----
-title: Clarins Men Active Face Wash (Foaming Gel, Purifying) 4.4 oz./125 ml,
-description: Clarins Men Active Face Wash (Foaming Gel, Purifying) 4.4 oz./125 ml,
-author: Suvojit Manna,
-tags: Clarins Men Active Face Wash (Foaming Gel, Purifying) 4.4 oz./125 ml,
-publishedAt: Fri Jan 10 2020 14:59:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:00 GMT+0530 (India Standard Time),
----
-
 # [Clarins Men Active Face Wash (Foaming Gel, Purifying) 4.4 oz./125 ml](https://products.checkmycream.com/products/Clarins-Men-Active-Face-Wash-(Foaming-Gel-Purifying)-4.4-oz.125-ml.html)
 
 ### Positive Reviews

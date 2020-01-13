@@ -1,12 +1,3 @@
----
-title: Bvlgari eau Parfumee by Bvlgari for Women,
-description: Bvlgari eau Parfumee by Bvlgari for Women,
-author: Suvojit Manna,
-tags: Bvlgari eau Parfumee by Bvlgari for Women,
-publishedAt: Fri Jan 10 2020 14:59:17 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:17 GMT+0530 (India Standard Time),
----
-
 # [Bvlgari eau Parfumee by Bvlgari for Women](https://products.checkmycream.com/products/Bvlgari-eau-Parfumee-by-Bvlgari-for-Women.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: 50 Pack Tattoo Stencil Transfer Paper 8½&quot; X 11&quot;, Model TP-50, $15.99,
-description: 50 Pack Tattoo Stencil Transfer Paper 8½&quot; X 11&quot;, Model TP-50, $15.99,
-author: Suvojit Manna,
-tags: 50 Pack Tattoo Stencil Transfer Paper 8½&quot; X 11&quot;, Model TP-50, $15.99,
-publishedAt: Fri Jan 10 2020 15:00:11 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:11 GMT+0530 (India Standard Time),
----
-
 # [50 Pack Tattoo Stencil Transfer Paper 8½&quot; X 11&quot;, Model TP-50, $15.99](https://products.checkmycream.com/products/50-Pack-Tattoo-Stencil-Transfer-Paper-8&quot;-X-11&quot;-Model-TP-50-dollar15.99.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Essential Oil Bag Damask Hot Pink Carrying Case For Oils Organizer,
-description: Essential Oil Bag Damask Hot Pink Carrying Case For Oils Organizer,
-author: Suvojit Manna,
-tags: Essential Oil Bag Damask Hot Pink Carrying Case For Oils Organizer,
-publishedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
----
-
 # [Essential Oil Bag Damask Hot Pink Carrying Case For Oils Organizer](https://products.checkmycream.com/products/Essential-Oil-Bag-Damask-Hot-Pink-Carrying-Case-For-Oils-Organizer.html)
 
 ### Positive Reviews

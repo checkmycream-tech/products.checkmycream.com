@@ -1,12 +1,3 @@
----
-title: Carapex Face Day Cream with Anti Aging Firming Elastin &amp; Collagen, Contains Natural Shea Butter and Vitamin E, Anti Wrinkle, Fragrance Free for Dry to Combination Skin, 2oz,
-description: Carapex Face Day Cream with Anti Aging Firming Elastin &amp; Collagen, Contains Natural Shea Butter and Vitamin E, Anti Wrinkle, Fragrance Free for Dry to Combination Skin, 2oz,
-author: Suvojit Manna,
-tags: Carapex Face Day Cream with Anti Aging Firming Elastin &amp; Collagen, Contains Natural Shea Butter and Vitamin E, Anti Wrinkle, Fragrance Free for Dry to Combination Skin, 2oz,
-publishedAt: Fri Jan 10 2020 15:00:45 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:45 GMT+0530 (India Standard Time),
----
-
 # [Carapex Face Day Cream with Anti Aging Firming Elastin &amp; Collagen, Contains Natural Shea Butter and Vitamin E, Anti Wrinkle, Fragrance Free for Dry to Combination Skin, 2oz](https://products.checkmycream.com/products/Carapex-Face-Day-Cream-with-Anti-Aging-Firming-Elastin-and-Collagen-Contains-Natural-Shea-Butter-and-Vitamin-E-Anti-Wrinkle-Fragrance-Free-for-Dry-to-Combination-Skin-2oz.html)
 
 ### Positive Reviews

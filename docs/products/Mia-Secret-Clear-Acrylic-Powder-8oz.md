@@ -1,12 +1,3 @@
----
-title: Mia Secret Clear Acrylic Powder 8oz,
-description: Mia Secret Clear Acrylic Powder 8oz,
-author: Suvojit Manna,
-tags: Mia Secret Clear Acrylic Powder 8oz,
-publishedAt: Fri Jan 10 2020 15:00:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:08 GMT+0530 (India Standard Time),
----
-
 # [Mia Secret Clear Acrylic Powder 8oz](https://products.checkmycream.com/products/Mia-Secret-Clear-Acrylic-Powder-8oz.html)
 
 ### Positive Reviews

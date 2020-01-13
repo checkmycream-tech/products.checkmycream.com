@@ -1,12 +1,3 @@
----
-title: Lanza Healing Colorcare Magic Bullet Daily Leave In Protector Spray, 6.8 Ounce,
-description: Lanza Healing Colorcare Magic Bullet Daily Leave In Protector Spray, 6.8 Ounce,
-author: Suvojit Manna,
-tags: Lanza Healing Colorcare Magic Bullet Daily Leave In Protector Spray, 6.8 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:08 GMT+0530 (India Standard Time),
----
-
 # [Lanza Healing Colorcare Magic Bullet Daily Leave In Protector Spray, 6.8 Ounce](https://products.checkmycream.com/products/Lanza-Healing-Colorcare-Magic-Bullet-Daily-Leave-In-Protector-Spray-6.8-Ounce.html)
 
 ### Positive Reviews

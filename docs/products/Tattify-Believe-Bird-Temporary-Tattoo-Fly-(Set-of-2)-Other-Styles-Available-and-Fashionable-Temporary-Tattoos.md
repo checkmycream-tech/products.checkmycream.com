@@ -1,12 +1,3 @@
----
-title: Tattify Believe Bird Temporary Tattoo - Fly (Set of 2) - Other Styles Available and Fashionable Temporary Tattoos,
-description: Tattify Believe Bird Temporary Tattoo - Fly (Set of 2) - Other Styles Available and Fashionable Temporary Tattoos,
-author: Suvojit Manna,
-tags: Tattify Believe Bird Temporary Tattoo - Fly (Set of 2) - Other Styles Available and Fashionable Temporary Tattoos,
-publishedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
----
-
 # [Tattify Believe Bird Temporary Tattoo - Fly (Set of 2) - Other Styles Available and Fashionable Temporary Tattoos](https://products.checkmycream.com/products/Tattify-Believe-Bird-Temporary-Tattoo-Fly-(Set-of-2)-Other-Styles-Available-and-Fashionable-Temporary-Tattoos.html)
 
 ### Positive Reviews

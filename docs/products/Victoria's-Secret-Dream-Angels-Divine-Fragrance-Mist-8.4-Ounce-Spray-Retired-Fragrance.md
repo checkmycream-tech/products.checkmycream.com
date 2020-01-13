@@ -1,12 +1,3 @@
----
-title: Victoria&#x27;s Secret Dream Angels Divine Fragrance Mist 8.4 Ounce Spray Retired Fragrance,
-description: Victoria&#x27;s Secret Dream Angels Divine Fragrance Mist 8.4 Ounce Spray Retired Fragrance,
-author: Suvojit Manna,
-tags: Victoria&#x27;s Secret Dream Angels Divine Fragrance Mist 8.4 Ounce Spray Retired Fragrance,
-publishedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
----
-
 # [Victoria&#x27;s Secret Dream Angels Divine Fragrance Mist 8.4 Ounce Spray Retired Fragrance](https://products.checkmycream.com/products/Victoria&#x27;s-Secret-Dream-Angels-Divine-Fragrance-Mist-8.4-Ounce-Spray-Retired-Fragrance.html)
 
 ### Positive Reviews

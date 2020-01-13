@@ -1,12 +1,3 @@
----
-title: Breast Success, 90 capsules,
-description: Breast Success, 90 capsules,
-author: Suvojit Manna,
-tags: Breast Success, 90 capsules,
-publishedAt: Fri Jan 10 2020 15:00:20 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:20 GMT+0530 (India Standard Time),
----
-
 # [Breast Success, 90 capsules](https://products.checkmycream.com/products/Breast-Success-90-capsules.html)
 
 ### Positive Reviews

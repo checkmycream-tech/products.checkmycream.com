@@ -1,12 +1,3 @@
----
-title: Hugó Bóss Bóss No. 6 Còlogne For Men 1 oz Eau De Toilette Spray (Grey Box),
-description: Hugó Bóss Bóss No. 6 Còlogne For Men 1 oz Eau De Toilette Spray (Grey Box),
-author: Suvojit Manna,
-tags: Hugó Bóss Bóss No. 6 Còlogne For Men 1 oz Eau De Toilette Spray (Grey Box),
-publishedAt: Fri Jan 10 2020 14:59:31 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:31 GMT+0530 (India Standard Time),
----
-
 # [Hugó Bóss Bóss No. 6 Còlogne For Men 1 oz Eau De Toilette Spray (Grey Box)](https://products.checkmycream.com/products/Hugo-Boss-Boss-No.-6-Cologne-For-Men-1-oz-Eau-De-Toilette-Spray-(Grey-Box).html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Opi Get in the Expresso Lane (opi Touring America Collection),
-description: Opi Get in the Expresso Lane (opi Touring America Collection),
-author: Suvojit Manna,
-tags: Opi Get in the Expresso Lane (opi Touring America Collection),
-publishedAt: Fri Jan 10 2020 15:00:10 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:10 GMT+0530 (India Standard Time),
----
-
 # [Opi Get in the Expresso Lane (opi Touring America Collection)](https://products.checkmycream.com/products/Opi-Get-in-the-Expresso-Lane-(opi-Touring-America-Collection).html)
 
 ### Positive Reviews

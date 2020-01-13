@@ -1,12 +1,3 @@
----
-title: Clinique Moisture Surge Thirsty Skin Relief Face Spray - Travel Size [1 fl oz / 30 mL],
-description: Clinique Moisture Surge Thirsty Skin Relief Face Spray - Travel Size [1 fl oz / 30 mL],
-author: Suvojit Manna,
-tags: Clinique Moisture Surge Thirsty Skin Relief Face Spray - Travel Size [1 fl oz / 30 mL],
-publishedAt: Fri Jan 10 2020 14:59:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:08 GMT+0530 (India Standard Time),
----
-
 # [Clinique Moisture Surge Thirsty Skin Relief Face Spray - Travel Size [1 fl oz / 30 mL]](https://products.checkmycream.com/products/Clinique-Moisture-Surge-Thirsty-Skin-Relief-Face-Spray-Travel-Size-1-fl-oz-30-mL.html)
 
 ### Positive Reviews

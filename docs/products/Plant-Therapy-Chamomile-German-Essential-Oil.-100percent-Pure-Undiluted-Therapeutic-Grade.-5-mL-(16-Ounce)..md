@@ -1,12 +1,3 @@
----
-title: Plant Therapy Chamomile German Essential Oil. 100% Pure, Undiluted, Therapeutic Grade. 5 mL (1/6 Ounce).,
-description: Plant Therapy Chamomile German Essential Oil. 100% Pure, Undiluted, Therapeutic Grade. 5 mL (1/6 Ounce).,
-author: Suvojit Manna,
-tags: Plant Therapy Chamomile German Essential Oil. 100% Pure, Undiluted, Therapeutic Grade. 5 mL (1/6 Ounce).,
-publishedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
----
-
 # [Plant Therapy Chamomile German Essential Oil. 100% Pure, Undiluted, Therapeutic Grade. 5 mL (1/6 Ounce).](https://products.checkmycream.com/products/Plant-Therapy-Chamomile-German-Essential-Oil.-100percent-Pure-Undiluted-Therapeutic-Grade.-5-mL-(16-Ounce)..html)
 
 ### Positive Reviews

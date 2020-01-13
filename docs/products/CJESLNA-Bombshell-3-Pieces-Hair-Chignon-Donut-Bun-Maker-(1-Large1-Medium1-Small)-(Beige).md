@@ -1,12 +1,3 @@
----
-title: CJESLNA Bombshell 3 Pieces Hair Chignon Donut Bun Maker (1 Large,1 Medium,1 Small) (Beige),
-description: CJESLNA Bombshell 3 Pieces Hair Chignon Donut Bun Maker (1 Large,1 Medium,1 Small) (Beige),
-author: Suvojit Manna,
-tags: CJESLNA Bombshell 3 Pieces Hair Chignon Donut Bun Maker (1 Large,1 Medium,1 Small) (Beige),
-publishedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
----
-
 # [CJESLNA Bombshell 3 Pieces Hair Chignon Donut Bun Maker (1 Large,1 Medium,1 Small) (Beige)](https://products.checkmycream.com/products/CJESLNA-Bombshell-3-Pieces-Hair-Chignon-Donut-Bun-Maker-(1-Large1-Medium1-Small)-(Beige).html)
 
 ### Positive Reviews

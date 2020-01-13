@@ -1,12 +1,3 @@
----
-title: niceeshop(TM) Handcraft Thick Wispies Natural Elongated Cross False Eyelashes, Set of 10 Pairs,
-description: niceeshop(TM) Handcraft Thick Wispies Natural Elongated Cross False Eyelashes, Set of 10 Pairs,
-author: Suvojit Manna,
-tags: niceeshop(TM) Handcraft Thick Wispies Natural Elongated Cross False Eyelashes, Set of 10 Pairs,
-publishedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
----
-
 # [niceeshop(TM) Handcraft Thick Wispies Natural Elongated Cross False Eyelashes, Set of 10 Pairs](https://products.checkmycream.com/products/niceeshop(TM)-Handcraft-Thick-Wispies-Natural-Elongated-Cross-False-Eyelashes-Set-of-10-Pairs.html)
 
 ### Positive Reviews

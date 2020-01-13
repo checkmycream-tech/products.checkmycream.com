@@ -1,12 +1,3 @@
----
-title: Roffler Thick and Rich Shampoo Blue Formula, 32 Fluid Ounce,
-description: Roffler Thick and Rich Shampoo Blue Formula, 32 Fluid Ounce,
-author: Suvojit Manna,
-tags: Roffler Thick and Rich Shampoo Blue Formula, 32 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 14:59:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:57 GMT+0530 (India Standard Time),
----
-
 # [Roffler Thick and Rich Shampoo Blue Formula, 32 Fluid Ounce](https://products.checkmycream.com/products/Roffler-Thick-and-Rich-Shampoo-Blue-Formula-32-Fluid-Ounce.html)
 
 ### Positive Reviews

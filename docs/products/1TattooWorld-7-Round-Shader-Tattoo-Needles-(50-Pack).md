@@ -1,12 +1,3 @@
----
-title: 1TattooWorld 7 Round Shader Tattoo Needles (50 Pack),
-description: 1TattooWorld 7 Round Shader Tattoo Needles (50 Pack),
-author: Suvojit Manna,
-tags: 1TattooWorld 7 Round Shader Tattoo Needles (50 Pack),
-publishedAt: Fri Jan 10 2020 14:59:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:58 GMT+0530 (India Standard Time),
----
-
 # [1TattooWorld 7 Round Shader Tattoo Needles (50 Pack)](https://products.checkmycream.com/products/1TattooWorld-7-Round-Shader-Tattoo-Needles-(50-Pack).html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Sebastian Shaper Fierce Ultra Firm Finishing Hairspray,
-description: Sebastian Shaper Fierce Ultra Firm Finishing Hairspray,
-author: Suvojit Manna,
-tags: Sebastian Shaper Fierce Ultra Firm Finishing Hairspray,
-publishedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
----
-
 # [Sebastian Shaper Fierce Ultra Firm Finishing Hairspray](https://products.checkmycream.com/products/Sebastian-Shaper-Fierce-Ultra-Firm-Finishing-Hairspray.html)
 
 ### Positive Reviews

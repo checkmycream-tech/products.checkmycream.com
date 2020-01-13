@@ -1,12 +1,3 @@
----
-title: Clear Proof™ Acne Treatment Gel,** 1 oz.,
-description: Clear Proof™ Acne Treatment Gel,** 1 oz.,
-author: Suvojit Manna,
-tags: Clear Proof™ Acne Treatment Gel,** 1 oz.,
-publishedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
----
-
 # [Clear Proof™ Acne Treatment Gel,** 1 oz.](https://products.checkmycream.com/products/Clear-Prooftm-Acne-Treatment-Gel**-1-oz..html)
 
 ### Positive Reviews

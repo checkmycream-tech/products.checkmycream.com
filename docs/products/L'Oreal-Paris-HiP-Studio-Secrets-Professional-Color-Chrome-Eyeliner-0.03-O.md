@@ -1,12 +1,3 @@
----
-title: L&#x27;Oreal Paris HiP Studio Secrets Professional Color Chrome Eyeliner, 0.03 O,
-description: L&#x27;Oreal Paris HiP Studio Secrets Professional Color Chrome Eyeliner, 0.03 O,
-author: Suvojit Manna,
-tags: L&#x27;Oreal Paris HiP Studio Secrets Professional Color Chrome Eyeliner, 0.03 O,
-publishedAt: Fri Jan 10 2020 14:59:38 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:38 GMT+0530 (India Standard Time),
----
-
 # [L&#x27;Oreal Paris HiP Studio Secrets Professional Color Chrome Eyeliner, 0.03 O](https://products.checkmycream.com/products/L&#x27;Oreal-Paris-HiP-Studio-Secrets-Professional-Color-Chrome-Eyeliner-0.03-O.html)
 
 ### Positive Reviews

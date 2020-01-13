@@ -1,12 +1,3 @@
----
-title: Lip Smacker Skittles Flavors 8 Piece Party Pack Lip Balm Bonne Bell,
-description: Lip Smacker Skittles Flavors 8 Piece Party Pack Lip Balm Bonne Bell,
-author: Suvojit Manna,
-tags: Lip Smacker Skittles Flavors 8 Piece Party Pack Lip Balm Bonne Bell,
-publishedAt: Fri Jan 10 2020 14:59:22 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:22 GMT+0530 (India Standard Time),
----
-
 # [Lip Smacker Skittles Flavors 8 Piece Party Pack Lip Balm Bonne Bell](https://products.checkmycream.com/products/Lip-Smacker-Skittles-Flavors-8-Piece-Party-Pack-Lip-Balm-Bonne-Bell.html)
 
 ### Positive Reviews

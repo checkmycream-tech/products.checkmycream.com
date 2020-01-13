@@ -1,12 +1,3 @@
----
-title: Duo 568044 Eyelash Adhesive (Pack of 2),
-description: Duo 568044 Eyelash Adhesive (Pack of 2),
-author: Suvojit Manna,
-tags: Duo 568044 Eyelash Adhesive (Pack of 2),
-publishedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
----
-
 # [Duo 568044 Eyelash Adhesive (Pack of 2)](https://products.checkmycream.com/products/Duo-568044-Eyelash-Adhesive-(Pack-of-2).html)
 
 ### Positive Reviews

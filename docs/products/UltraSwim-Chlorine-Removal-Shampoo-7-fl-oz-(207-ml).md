@@ -1,12 +1,3 @@
----
-title: UltraSwim Chlorine Removal Shampoo, 7 fl oz (207 ml),
-description: UltraSwim Chlorine Removal Shampoo, 7 fl oz (207 ml),
-author: Suvojit Manna,
-tags: UltraSwim Chlorine Removal Shampoo, 7 fl oz (207 ml),
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [UltraSwim Chlorine Removal Shampoo, 7 fl oz (207 ml)](https://products.checkmycream.com/products/UltraSwim-Chlorine-Removal-Shampoo-7-fl-oz-(207-ml).html)
 
 ### Positive Reviews

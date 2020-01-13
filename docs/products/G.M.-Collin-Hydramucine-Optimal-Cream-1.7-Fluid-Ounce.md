@@ -1,12 +1,3 @@
----
-title: G.M. Collin Hydramucine Optimal Cream, 1.7 Fluid Ounce,
-description: G.M. Collin Hydramucine Optimal Cream, 1.7 Fluid Ounce,
-author: Suvojit Manna,
-tags: G.M. Collin Hydramucine Optimal Cream, 1.7 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 14:59:21 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:21 GMT+0530 (India Standard Time),
----
-
 # [G.M. Collin Hydramucine Optimal Cream, 1.7 Fluid Ounce](https://products.checkmycream.com/products/G.M.-Collin-Hydramucine-Optimal-Cream-1.7-Fluid-Ounce.html)
 
 ### Positive Reviews

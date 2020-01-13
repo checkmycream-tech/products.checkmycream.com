@@ -1,12 +1,3 @@
----
-title: OPI Cajun Shrimp,
-description: OPI Cajun Shrimp,
-author: Suvojit Manna,
-tags: OPI Cajun Shrimp,
-publishedAt: Fri Jan 10 2020 14:59:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:02 GMT+0530 (India Standard Time),
----
-
 # [OPI Cajun Shrimp](https://products.checkmycream.com/products/OPI-Cajun-Shrimp.html)
 
 ### Positive Reviews

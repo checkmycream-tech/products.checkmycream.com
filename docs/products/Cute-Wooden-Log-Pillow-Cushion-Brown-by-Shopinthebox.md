@@ -1,12 +1,3 @@
----
-title: Cute Wooden Log Pillow Cushion - Brown by Shopinthebox,
-description: Cute Wooden Log Pillow Cushion - Brown by Shopinthebox,
-author: Suvojit Manna,
-tags: Cute Wooden Log Pillow Cushion - Brown by Shopinthebox,
-publishedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
----
-
 # [Cute Wooden Log Pillow Cushion - Brown by Shopinthebox](https://products.checkmycream.com/products/Cute-Wooden-Log-Pillow-Cushion-Brown-by-Shopinthebox.html)
 
 ### Positive Reviews

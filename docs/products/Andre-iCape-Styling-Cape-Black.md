@@ -1,12 +1,3 @@
----
-title: Andre iCape Styling Cape, Black,
-description: Andre iCape Styling Cape, Black,
-author: Suvojit Manna,
-tags: Andre iCape Styling Cape, Black,
-publishedAt: Fri Jan 10 2020 15:00:31 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:31 GMT+0530 (India Standard Time),
----
-
 # [Andre iCape Styling Cape, Black](https://products.checkmycream.com/products/Andre-iCape-Styling-Cape-Black.html)
 
 ### Positive Reviews

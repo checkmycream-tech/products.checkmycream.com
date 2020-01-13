@@ -1,12 +1,3 @@
----
-title: Yardley Of London Refreshing Body Spray For Womens, 2.6 Ounce,
-description: Yardley Of London Refreshing Body Spray For Womens, 2.6 Ounce,
-author: Suvojit Manna,
-tags: Yardley Of London Refreshing Body Spray For Womens, 2.6 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:58 GMT+0530 (India Standard Time),
----
-
 # [Yardley Of London Refreshing Body Spray For Womens, 2.6 Ounce](https://products.checkmycream.com/products/Yardley-Of-London-Refreshing-Body-Spray-For-Womens-2.6-Ounce.html)
 
 ### Positive Reviews

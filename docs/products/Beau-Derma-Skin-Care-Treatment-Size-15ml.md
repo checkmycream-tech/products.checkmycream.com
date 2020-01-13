@@ -1,12 +1,3 @@
----
-title: Beau Derma Skin Care Treatment Size 15ml,
-description: Beau Derma Skin Care Treatment Size 15ml,
-author: Suvojit Manna,
-tags: Beau Derma Skin Care Treatment Size 15ml,
-publishedAt: Fri Jan 10 2020 15:01:07 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:07 GMT+0530 (India Standard Time),
----
-
 # [Beau Derma Skin Care Treatment Size 15ml](https://products.checkmycream.com/products/Beau-Derma-Skin-Care-Treatment-Size-15ml.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Colgate My World, At the Zoo, Children&#x27;s Toothbrush (Pack of 6) Extra Soft,
-description: Colgate My World, At the Zoo, Children&#x27;s Toothbrush (Pack of 6) Extra Soft,
-author: Suvojit Manna,
-tags: Colgate My World, At the Zoo, Children&#x27;s Toothbrush (Pack of 6) Extra Soft,
-publishedAt: Fri Jan 10 2020 15:00:37 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:37 GMT+0530 (India Standard Time),
----
-
 # [Colgate My World, At the Zoo, Children&#x27;s Toothbrush (Pack of 6) Extra Soft](https://products.checkmycream.com/products/Colgate-My-World-At-the-Zoo-Children&#x27;s-Toothbrush-(Pack-of-6)-Extra-Soft.html)
 
 ### Positive Reviews

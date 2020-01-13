@@ -1,12 +1,3 @@
----
-title: The Healing Garden Gift Set: Tender Lavender,
-description: The Healing Garden Gift Set: Tender Lavender,
-author: Suvojit Manna,
-tags: The Healing Garden Gift Set: Tender Lavender,
-publishedAt: Fri Jan 10 2020 14:59:38 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:38 GMT+0530 (India Standard Time),
----
-
 # [The Healing Garden Gift Set: Tender Lavender](https://products.checkmycream.com/products/The-Healing-Garden-Gift-Set:-Tender-Lavender.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Shalimar By Guerlain Eau De Toilette Spray Refill 3.1 Oz For Women,
-description: Shalimar By Guerlain Eau De Toilette Spray Refill 3.1 Oz For Women,
-author: Suvojit Manna,
-tags: Shalimar By Guerlain Eau De Toilette Spray Refill 3.1 Oz For Women,
-publishedAt: Fri Jan 10 2020 15:00:12 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:12 GMT+0530 (India Standard Time),
----
-
 # [Shalimar By Guerlain Eau De Toilette Spray Refill 3.1 Oz For Women](https://products.checkmycream.com/products/Shalimar-By-Guerlain-Eau-De-Toilette-Spray-Refill-3.1-Oz-For-Women.html)
 
 ### Positive Reviews

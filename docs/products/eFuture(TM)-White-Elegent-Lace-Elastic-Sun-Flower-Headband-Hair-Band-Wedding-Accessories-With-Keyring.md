@@ -1,12 +1,3 @@
----
-title: eFuture(TM) White Elegent Lace Elastic Sun Flower Headband Hair Band Wedding Accessories With Keyring,
-description: eFuture(TM) White Elegent Lace Elastic Sun Flower Headband Hair Band Wedding Accessories With Keyring,
-author: Suvojit Manna,
-tags: eFuture(TM) White Elegent Lace Elastic Sun Flower Headband Hair Band Wedding Accessories With Keyring,
-publishedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
----
-
 # [eFuture(TM) White Elegent Lace Elastic Sun Flower Headband Hair Band Wedding Accessories With Keyring](https://products.checkmycream.com/products/eFuture(TM)-White-Elegent-Lace-Elastic-Sun-Flower-Headband-Hair-Band-Wedding-Accessories-With-Keyring.html)
 
 ### Positive Reviews

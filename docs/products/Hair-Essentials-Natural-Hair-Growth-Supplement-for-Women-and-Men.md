@@ -1,12 +1,3 @@
----
-title: Hair Essentials Natural Hair Growth Supplement for Women and Men,,
-description: Hair Essentials Natural Hair Growth Supplement for Women and Men,,
-author: Suvojit Manna,
-tags: Hair Essentials Natural Hair Growth Supplement for Women and Men,,
-publishedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
----
-
 # [Hair Essentials Natural Hair Growth Supplement for Women and Men,](https://products.checkmycream.com/products/Hair-Essentials-Natural-Hair-Growth-Supplement-for-Women-and-Men.html)
 
 ### Positive Reviews

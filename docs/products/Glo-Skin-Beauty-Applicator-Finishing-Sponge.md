@@ -1,12 +1,3 @@
----
-title: Glo Skin Beauty Applicator - Finishing Sponge,
-description: Glo Skin Beauty Applicator - Finishing Sponge,
-author: Suvojit Manna,
-tags: Glo Skin Beauty Applicator - Finishing Sponge,
-publishedAt: Fri Jan 10 2020 14:59:33 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:33 GMT+0530 (India Standard Time),
----
-
 # [Glo Skin Beauty Applicator - Finishing Sponge](https://products.checkmycream.com/products/Glo-Skin-Beauty-Applicator-Finishing-Sponge.html)
 
 ### Positive Reviews

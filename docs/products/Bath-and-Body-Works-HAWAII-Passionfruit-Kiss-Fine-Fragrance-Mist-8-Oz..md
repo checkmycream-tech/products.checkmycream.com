@@ -1,12 +1,3 @@
----
-title: Bath &amp; Body Works HAWAII Passionfruit Kiss Fine Fragrance Mist 8 Oz.,
-description: Bath &amp; Body Works HAWAII Passionfruit Kiss Fine Fragrance Mist 8 Oz.,
-author: Suvojit Manna,
-tags: Bath &amp; Body Works HAWAII Passionfruit Kiss Fine Fragrance Mist 8 Oz.,
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [Bath &amp; Body Works HAWAII Passionfruit Kiss Fine Fragrance Mist 8 Oz.](https://products.checkmycream.com/products/Bath-and-Body-Works-HAWAII-Passionfruit-Kiss-Fine-Fragrance-Mist-8-Oz..html)
 
 ### Positive Reviews

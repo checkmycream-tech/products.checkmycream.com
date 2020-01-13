@@ -1,12 +1,3 @@
----
-title: Red Liner B Contour: 36 Pieces in Pack Toupee Tape,
-description: Red Liner B Contour: 36 Pieces in Pack Toupee Tape,
-author: Suvojit Manna,
-tags: Red Liner B Contour: 36 Pieces in Pack Toupee Tape,
-publishedAt: Fri Jan 10 2020 14:59:09 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:09 GMT+0530 (India Standard Time),
----
-
 # [Red Liner B Contour: 36 Pieces in Pack Toupee Tape](https://products.checkmycream.com/products/Red-Liner-B-Contour:-36-Pieces-in-Pack-Toupee-Tape.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Nioxin System 3 Cleanser Liter 33.8 oz &amp; Scalp Therapy Liter 33.8 oz Duo Set,
-description: Nioxin System 3 Cleanser Liter 33.8 oz &amp; Scalp Therapy Liter 33.8 oz Duo Set,
-author: Suvojit Manna,
-tags: Nioxin System 3 Cleanser Liter 33.8 oz &amp; Scalp Therapy Liter 33.8 oz Duo Set,
-publishedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
----
-
 # [Nioxin System 3 Cleanser Liter 33.8 oz &amp; Scalp Therapy Liter 33.8 oz Duo Set](https://products.checkmycream.com/products/Nioxin-System-3-Cleanser-Liter-33.8-oz-and-Scalp-Therapy-Liter-33.8-oz-Duo-Set.html)
 
 ### Positive Reviews

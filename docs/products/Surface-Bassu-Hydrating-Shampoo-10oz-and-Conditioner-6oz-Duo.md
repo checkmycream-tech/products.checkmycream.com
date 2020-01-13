@@ -1,12 +1,3 @@
----
-title: Surface Bassu Hydrating Shampoo 10oz &amp; Conditioner 6oz Duo,
-description: Surface Bassu Hydrating Shampoo 10oz &amp; Conditioner 6oz Duo,
-author: Suvojit Manna,
-tags: Surface Bassu Hydrating Shampoo 10oz &amp; Conditioner 6oz Duo,
-publishedAt: Fri Jan 10 2020 15:00:23 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:23 GMT+0530 (India Standard Time),
----
-
 # [Surface Bassu Hydrating Shampoo 10oz &amp; Conditioner 6oz Duo](https://products.checkmycream.com/products/Surface-Bassu-Hydrating-Shampoo-10oz-and-Conditioner-6oz-Duo.html)
 
 ### Positive Reviews

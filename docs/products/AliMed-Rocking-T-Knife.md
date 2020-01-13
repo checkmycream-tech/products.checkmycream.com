@@ -1,12 +1,3 @@
----
-title: AliMed - Rocking T Knife,
-description: AliMed - Rocking T Knife,
-author: Suvojit Manna,
-tags: AliMed - Rocking T Knife,
-publishedAt: Fri Jan 10 2020 14:59:06 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:06 GMT+0530 (India Standard Time),
----
-
 # [AliMed - Rocking T Knife](https://products.checkmycream.com/products/AliMed-Rocking-T-Knife.html)
 
 ### Positive Reviews

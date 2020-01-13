@@ -1,12 +1,3 @@
----
-title: Suppion Fashion Chain Headband Head Shiny Piece Hair Band Tassels Gold,
-description: Suppion Fashion Chain Headband Head Shiny Piece Hair Band Tassels Gold,
-author: Suvojit Manna,
-tags: Suppion Fashion Chain Headband Head Shiny Piece Hair Band Tassels Gold,
-publishedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
----
-
 # [Suppion Fashion Chain Headband Head Shiny Piece Hair Band Tassels Gold](https://products.checkmycream.com/products/Suppion-Fashion-Chain-Headband-Head-Shiny-Piece-Hair-Band-Tassels-Gold.html)
 
 ### Positive Reviews

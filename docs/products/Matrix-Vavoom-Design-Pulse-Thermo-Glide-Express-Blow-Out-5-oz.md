@@ -1,12 +1,3 @@
----
-title: Matrix Vavoom Design Pulse Thermo Glide Express Blow Out 5 oz,
-description: Matrix Vavoom Design Pulse Thermo Glide Express Blow Out 5 oz,
-author: Suvojit Manna,
-tags: Matrix Vavoom Design Pulse Thermo Glide Express Blow Out 5 oz,
-publishedAt: Fri Jan 10 2020 15:00:18 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:18 GMT+0530 (India Standard Time),
----
-
 # [Matrix Vavoom Design Pulse Thermo Glide Express Blow Out 5 oz](https://products.checkmycream.com/products/Matrix-Vavoom-Design-Pulse-Thermo-Glide-Express-Blow-Out-5-oz.html)
 
 ### Positive Reviews

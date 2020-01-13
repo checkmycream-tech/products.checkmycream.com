@@ -1,12 +1,3 @@
----
-title: Neutrogena Hydro Boost Gel-Cream, Extra-Dry Skin,
-description: Neutrogena Hydro Boost Gel-Cream, Extra-Dry Skin,
-author: Suvojit Manna,
-tags: Neutrogena Hydro Boost Gel-Cream, Extra-Dry Skin,
-publishedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
----
-
 # [Neutrogena Hydro Boost Gel-Cream, Extra-Dry Skin](https://products.checkmycream.com/products/Neutrogena-Hydro-Boost-Gel-Cream-Extra-Dry-Skin.html)
 
 ### Positive Reviews

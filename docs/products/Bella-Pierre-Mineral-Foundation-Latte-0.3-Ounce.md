@@ -1,12 +1,3 @@
----
-title: Bella Pierre Mineral Foundation, Latte, 0.3-Ounce,
-description: Bella Pierre Mineral Foundation, Latte, 0.3-Ounce,
-author: Suvojit Manna,
-tags: Bella Pierre Mineral Foundation, Latte, 0.3-Ounce,
-publishedAt: Fri Jan 10 2020 14:59:37 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:37 GMT+0530 (India Standard Time),
----
-
 # [Bella Pierre Mineral Foundation, Latte, 0.3-Ounce](https://products.checkmycream.com/products/Bella-Pierre-Mineral-Foundation-Latte-0.3-Ounce.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Neutrogena Men Razor Defense Post Shave Lotion, 2.5 Ounce,
-description: Neutrogena Men Razor Defense Post Shave Lotion, 2.5 Ounce,
-author: Suvojit Manna,
-tags: Neutrogena Men Razor Defense Post Shave Lotion, 2.5 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:07 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:07 GMT+0530 (India Standard Time),
----
-
 # [Neutrogena Men Razor Defense Post Shave Lotion, 2.5 Ounce](https://products.checkmycream.com/products/Neutrogena-Men-Razor-Defense-Post-Shave-Lotion-2.5-Ounce.html)
 
 ### Positive Reviews

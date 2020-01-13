@@ -1,12 +1,3 @@
----
-title: Sunshiny Elegant Wedding Bridal Hair Comb Pearl Crystal Flower Design Hair Clip Side Comb Pin Bridal Headpiece for Bridesmaids,
-description: Sunshiny Elegant Wedding Bridal Hair Comb Pearl Crystal Flower Design Hair Clip Side Comb Pin Bridal Headpiece for Bridesmaids,
-author: Suvojit Manna,
-tags: Sunshiny Elegant Wedding Bridal Hair Comb Pearl Crystal Flower Design Hair Clip Side Comb Pin Bridal Headpiece for Bridesmaids,
-publishedAt: Fri Jan 10 2020 15:01:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:05 GMT+0530 (India Standard Time),
----
-
 # [Sunshiny Elegant Wedding Bridal Hair Comb Pearl Crystal Flower Design Hair Clip Side Comb Pin Bridal Headpiece for Bridesmaids](https://products.checkmycream.com/products/Sunshiny-Elegant-Wedding-Bridal-Hair-Comb-Pearl-Crystal-Flower-Design-Hair-Clip-Side-Comb-Pin-Bridal-Headpiece-for-Bridesmaids.html)
 
 ### Positive Reviews

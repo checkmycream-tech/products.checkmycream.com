@@ -1,12 +1,3 @@
----
-title: Apple Super Lash Mascara- Blue,
-description: Apple Super Lash Mascara- Blue,
-author: Suvojit Manna,
-tags: Apple Super Lash Mascara- Blue,
-publishedAt: Fri Jan 10 2020 14:59:53 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:53 GMT+0530 (India Standard Time),
----
-
 # [Apple Super Lash Mascara- Blue](https://products.checkmycream.com/products/Apple-Super-Lash-Mascara-Blue.html)
 
 ### Positive Reviews

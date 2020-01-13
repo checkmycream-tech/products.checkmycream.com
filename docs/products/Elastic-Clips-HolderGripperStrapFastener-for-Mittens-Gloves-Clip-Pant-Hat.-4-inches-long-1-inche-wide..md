@@ -1,12 +1,3 @@
----
-title: Elastic Clips Holder/Gripper/Strap/Fastener for Mittens, Gloves Clip, Pant, Hat. 4 inches long, 1 inche wide.,
-description: Elastic Clips Holder/Gripper/Strap/Fastener for Mittens, Gloves Clip, Pant, Hat. 4 inches long, 1 inche wide.,
-author: Suvojit Manna,
-tags: Elastic Clips Holder/Gripper/Strap/Fastener for Mittens, Gloves Clip, Pant, Hat. 4 inches long, 1 inche wide.,
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [Elastic Clips Holder/Gripper/Strap/Fastener for Mittens, Gloves Clip, Pant, Hat. 4 inches long, 1 inche wide.](https://products.checkmycream.com/products/Elastic-Clips-HolderGripperStrapFastener-for-Mittens-Gloves-Clip-Pant-Hat.-4-inches-long-1-inche-wide..html)
 
 ### Positive Reviews

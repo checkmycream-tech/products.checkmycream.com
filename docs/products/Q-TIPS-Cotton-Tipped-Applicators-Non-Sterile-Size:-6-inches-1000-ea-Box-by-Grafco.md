@@ -1,12 +1,3 @@
----
-title: Q-TIPS Cotton-Tipped Applicators, Non-Sterile, Size: 6 inches - 1000 ea / Box by Grafco,
-description: Q-TIPS Cotton-Tipped Applicators, Non-Sterile, Size: 6 inches - 1000 ea / Box by Grafco,
-author: Suvojit Manna,
-tags: Q-TIPS Cotton-Tipped Applicators, Non-Sterile, Size: 6 inches - 1000 ea / Box by Grafco,
-publishedAt: Fri Jan 10 2020 14:59:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:08 GMT+0530 (India Standard Time),
----
-
 # [Q-TIPS Cotton-Tipped Applicators, Non-Sterile, Size: 6 inches - 1000 ea / Box by Grafco](https://products.checkmycream.com/products/Q-TIPS-Cotton-Tipped-Applicators-Non-Sterile-Size:-6-inches-1000-ea-Box-by-Grafco.html)
 
 ### Positive Reviews

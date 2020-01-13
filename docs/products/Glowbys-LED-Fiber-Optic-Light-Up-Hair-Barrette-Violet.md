@@ -1,12 +1,3 @@
----
-title: Glowbys LED Fiber Optic Light-Up Hair Barrette - Violet,
-description: Glowbys LED Fiber Optic Light-Up Hair Barrette - Violet,
-author: Suvojit Manna,
-tags: Glowbys LED Fiber Optic Light-Up Hair Barrette - Violet,
-publishedAt: Fri Jan 10 2020 14:59:43 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:43 GMT+0530 (India Standard Time),
----
-
 # [Glowbys LED Fiber Optic Light-Up Hair Barrette - Violet](https://products.checkmycream.com/products/Glowbys-LED-Fiber-Optic-Light-Up-Hair-Barrette-Violet.html)
 
 ### Positive Reviews

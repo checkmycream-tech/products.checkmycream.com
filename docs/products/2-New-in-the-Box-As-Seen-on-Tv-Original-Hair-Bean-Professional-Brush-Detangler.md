@@ -1,12 +1,3 @@
----
-title: 2 New in the Box As Seen on Tv Original Hair Bean Professional Brush Detangler,
-description: 2 New in the Box As Seen on Tv Original Hair Bean Professional Brush Detangler,
-author: Suvojit Manna,
-tags: 2 New in the Box As Seen on Tv Original Hair Bean Professional Brush Detangler,
-publishedAt: Fri Jan 10 2020 15:00:32 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:32 GMT+0530 (India Standard Time),
----
-
 # [2 New in the Box As Seen on Tv Original Hair Bean Professional Brush Detangler](https://products.checkmycream.com/products/2-New-in-the-Box-As-Seen-on-Tv-Original-Hair-Bean-Professional-Brush-Detangler.html)
 
 ### Positive Reviews

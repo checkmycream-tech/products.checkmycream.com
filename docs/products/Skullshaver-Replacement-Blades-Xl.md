@@ -1,12 +1,3 @@
----
-title: Skullshaver Replacement Blades Xl,
-description: Skullshaver Replacement Blades Xl,
-author: Suvojit Manna,
-tags: Skullshaver Replacement Blades Xl,
-publishedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
----
-
 # [Skullshaver Replacement Blades Xl](https://products.checkmycream.com/products/Skullshaver-Replacement-Blades-Xl.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Fashion Women Big Skull Head Skeleton Soft Long Shawl Scarf Wrap Stole,
-description: Fashion Women Big Skull Head Skeleton Soft Long Shawl Scarf Wrap Stole,
-author: Suvojit Manna,
-tags: Fashion Women Big Skull Head Skeleton Soft Long Shawl Scarf Wrap Stole,
-publishedAt: Fri Jan 10 2020 15:00:37 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:37 GMT+0530 (India Standard Time),
----
-
 # [Fashion Women Big Skull Head Skeleton Soft Long Shawl Scarf Wrap Stole](https://products.checkmycream.com/products/Fashion-Women-Big-Skull-Head-Skeleton-Soft-Long-Shawl-Scarf-Wrap-Stole.html)
 
 ### Positive Reviews

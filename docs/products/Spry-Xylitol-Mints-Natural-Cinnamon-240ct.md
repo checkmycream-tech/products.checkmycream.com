@@ -1,12 +1,3 @@
----
-title: Spry Xylitol Mints, Natural Cinnamon, 240ct,
-description: Spry Xylitol Mints, Natural Cinnamon, 240ct,
-author: Suvojit Manna,
-tags: Spry Xylitol Mints, Natural Cinnamon, 240ct,
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [Spry Xylitol Mints, Natural Cinnamon, 240ct](https://products.checkmycream.com/products/Spry-Xylitol-Mints-Natural-Cinnamon-240ct.html)
 
 ### Positive Reviews

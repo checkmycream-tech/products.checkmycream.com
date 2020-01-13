@@ -1,12 +1,3 @@
----
-title: Nerium AD Age Defying Night and Day Cream Set by Nerium. Helps Your Skin Look Younger and Healthier,
-description: Nerium AD Age Defying Night and Day Cream Set by Nerium. Helps Your Skin Look Younger and Healthier,
-author: Suvojit Manna,
-tags: Nerium AD Age Defying Night and Day Cream Set by Nerium. Helps Your Skin Look Younger and Healthier,
-publishedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
----
-
 # [Nerium AD Age Defying Night and Day Cream Set by Nerium. Helps Your Skin Look Younger and Healthier](https://products.checkmycream.com/products/Nerium-AD-Age-Defying-Night-and-Day-Cream-Set-by-Nerium.-Helps-Your-Skin-Look-Younger-and-Healthier.html)
 
 ### Positive Reviews

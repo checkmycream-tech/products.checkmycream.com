@@ -1,12 +1,3 @@
----
-title: Paul Mitchell Extra Body Sculpting Foam, 16.9-Ounces Bottle,
-description: Paul Mitchell Extra Body Sculpting Foam, 16.9-Ounces Bottle,
-author: Suvojit Manna,
-tags: Paul Mitchell Extra Body Sculpting Foam, 16.9-Ounces Bottle,
-publishedAt: Fri Jan 10 2020 14:59:39 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:39 GMT+0530 (India Standard Time),
----
-
 # [Paul Mitchell Extra Body Sculpting Foam, 16.9-Ounces Bottle](https://products.checkmycream.com/products/Paul-Mitchell-Extra-Body-Sculpting-Foam-16.9-Ounces-Bottle.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Elizabeth Arden Eight Hour Cream Lip Protectant Stick Sheer Tint SPF 15- Blush,
-description: Elizabeth Arden Eight Hour Cream Lip Protectant Stick Sheer Tint SPF 15- Blush,
-author: Suvojit Manna,
-tags: Elizabeth Arden Eight Hour Cream Lip Protectant Stick Sheer Tint SPF 15- Blush,
-publishedAt: Fri Jan 10 2020 14:59:23 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:23 GMT+0530 (India Standard Time),
----
-
 # [Elizabeth Arden Eight Hour Cream Lip Protectant Stick Sheer Tint SPF 15- Blush](https://products.checkmycream.com/products/Elizabeth-Arden-Eight-Hour-Cream-Lip-Protectant-Stick-Sheer-Tint-SPF-15-Blush.html)
 
 ### Positive Reviews

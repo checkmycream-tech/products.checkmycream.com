@@ -1,12 +1,3 @@
----
-title: 5 Tattoo Practice Skin 8 X 6 Inches Large Sheets,
-description: 5 Tattoo Practice Skin 8 X 6 Inches Large Sheets,
-author: Suvojit Manna,
-tags: 5 Tattoo Practice Skin 8 X 6 Inches Large Sheets,
-publishedAt: Fri Jan 10 2020 14:59:44 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:44 GMT+0530 (India Standard Time),
----
-
 # [5 Tattoo Practice Skin 8 X 6 Inches Large Sheets](https://products.checkmycream.com/products/5-Tattoo-Practice-Skin-8-X-6-Inches-Large-Sheets.html)
 
 ### Positive Reviews

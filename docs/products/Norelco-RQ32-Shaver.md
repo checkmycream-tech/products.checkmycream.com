@@ -1,12 +1,3 @@
----
-title: Norelco RQ32 Shaver,
-description: Norelco RQ32 Shaver,
-author: Suvojit Manna,
-tags: Norelco RQ32 Shaver,
-publishedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
----
-
 # [Norelco RQ32 Shaver](https://products.checkmycream.com/products/Norelco-RQ32-Shaver.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Betty Dain Aliens Kid&#x27;s Hairstyling Cape,
-description: Betty Dain Aliens Kid&#x27;s Hairstyling Cape,
-author: Suvojit Manna,
-tags: Betty Dain Aliens Kid&#x27;s Hairstyling Cape,
-publishedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
----
-
 # [Betty Dain Aliens Kid&#x27;s Hairstyling Cape](https://products.checkmycream.com/products/Betty-Dain-Aliens-Kid&#x27;s-Hairstyling-Cape.html)
 
 ### Positive Reviews

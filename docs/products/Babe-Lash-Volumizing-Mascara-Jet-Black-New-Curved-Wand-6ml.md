@@ -1,12 +1,3 @@
----
-title: Babe Lash Volumizing Mascara - Jet Black - New Curved Wand - 6ml,
-description: Babe Lash Volumizing Mascara - Jet Black - New Curved Wand - 6ml,
-author: Suvojit Manna,
-tags: Babe Lash Volumizing Mascara - Jet Black - New Curved Wand - 6ml,
-publishedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
----
-
 # [Babe Lash Volumizing Mascara - Jet Black - New Curved Wand - 6ml](https://products.checkmycream.com/products/Babe-Lash-Volumizing-Mascara-Jet-Black-New-Curved-Wand-6ml.html)
 
 ### Positive Reviews

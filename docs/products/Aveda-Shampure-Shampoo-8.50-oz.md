@@ -1,12 +1,3 @@
----
-title: Aveda Shampure Shampoo 8.50 oz,
-description: Aveda Shampure Shampoo 8.50 oz,
-author: Suvojit Manna,
-tags: Aveda Shampure Shampoo 8.50 oz,
-publishedAt: Fri Jan 10 2020 14:59:25 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:25 GMT+0530 (India Standard Time),
----
-
 # [Aveda Shampure Shampoo 8.50 oz](https://products.checkmycream.com/products/Aveda-Shampure-Shampoo-8.50-oz.html)
 
 ### Positive Reviews

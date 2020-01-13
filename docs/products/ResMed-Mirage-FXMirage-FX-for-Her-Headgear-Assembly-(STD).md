@@ -1,12 +1,3 @@
----
-title: ResMed Mirage FX/Mirage FX for Her Headgear Assembly (STD),
-description: ResMed Mirage FX/Mirage FX for Her Headgear Assembly (STD),
-author: Suvojit Manna,
-tags: ResMed Mirage FX/Mirage FX for Her Headgear Assembly (STD),
-publishedAt: Fri Jan 10 2020 15:00:23 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:23 GMT+0530 (India Standard Time),
----
-
 # [ResMed Mirage FX/Mirage FX for Her Headgear Assembly (STD)](https://products.checkmycream.com/products/ResMed-Mirage-FXMirage-FX-for-Her-Headgear-Assembly-(STD).html)
 
 ### Positive Reviews

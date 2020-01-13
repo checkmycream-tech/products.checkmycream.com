@@ -1,12 +1,3 @@
----
-title: Voberry Silver Cat Ear Party Pearl Crystal Rhinestone Headband Headwear Punk Hair Wrap,
-description: Voberry Silver Cat Ear Party Pearl Crystal Rhinestone Headband Headwear Punk Hair Wrap,
-author: Suvojit Manna,
-tags: Voberry Silver Cat Ear Party Pearl Crystal Rhinestone Headband Headwear Punk Hair Wrap,
-publishedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
----
-
 # [Voberry Silver Cat Ear Party Pearl Crystal Rhinestone Headband Headwear Punk Hair Wrap](https://products.checkmycream.com/products/Voberry-Silver-Cat-Ear-Party-Pearl-Crystal-Rhinestone-Headband-Headwear-Punk-Hair-Wrap.html)
 
 ### Positive Reviews

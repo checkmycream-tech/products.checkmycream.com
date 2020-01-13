@@ -1,12 +1,3 @@
----
-title: Thymes Olive Leaf Body Wash,
-description: Thymes Olive Leaf Body Wash,
-author: Suvojit Manna,
-tags: Thymes Olive Leaf Body Wash,
-publishedAt: Fri Jan 10 2020 14:59:34 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:34 GMT+0530 (India Standard Time),
----
-
 # [Thymes Olive Leaf Body Wash](https://products.checkmycream.com/products/Thymes-Olive-Leaf-Body-Wash.html)
 
 ### Positive Reviews

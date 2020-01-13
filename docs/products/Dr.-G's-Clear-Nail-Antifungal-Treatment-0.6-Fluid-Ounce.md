@@ -1,12 +1,3 @@
----
-title: Dr. G&#x27;s Clear Nail Antifungal Treatment, 0.6 Fluid Ounce,
-description: Dr. G&#x27;s Clear Nail Antifungal Treatment, 0.6 Fluid Ounce,
-author: Suvojit Manna,
-tags: Dr. G&#x27;s Clear Nail Antifungal Treatment, 0.6 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 15:00:12 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:12 GMT+0530 (India Standard Time),
----
-
 # [Dr. G&#x27;s Clear Nail Antifungal Treatment, 0.6 Fluid Ounce](https://products.checkmycream.com/products/Dr.-G&#x27;s-Clear-Nail-Antifungal-Treatment-0.6-Fluid-Ounce.html)
 
 ### Positive Reviews

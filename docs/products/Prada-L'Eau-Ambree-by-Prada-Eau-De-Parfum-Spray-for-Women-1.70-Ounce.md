@@ -1,12 +1,3 @@
----
-title: Prada L&#x27;Eau Ambree by Prada Eau De Parfum Spray for Women, 1.70 Ounce,
-description: Prada L&#x27;Eau Ambree by Prada Eau De Parfum Spray for Women, 1.70 Ounce,
-author: Suvojit Manna,
-tags: Prada L&#x27;Eau Ambree by Prada Eau De Parfum Spray for Women, 1.70 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:39 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:39 GMT+0530 (India Standard Time),
----
-
 # [Prada L&#x27;Eau Ambree by Prada Eau De Parfum Spray for Women, 1.70 Ounce](https://products.checkmycream.com/products/Prada-L&#x27;Eau-Ambree-by-Prada-Eau-De-Parfum-Spray-for-Women-1.70-Ounce.html)
 
 ### Positive Reviews

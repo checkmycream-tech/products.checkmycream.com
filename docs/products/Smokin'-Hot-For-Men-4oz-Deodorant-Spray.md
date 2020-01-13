@@ -1,12 +1,3 @@
----
-title: Smokin&#x27; Hot For Men 4oz Deodorant Spray,
-description: Smokin&#x27; Hot For Men 4oz Deodorant Spray,
-author: Suvojit Manna,
-tags: Smokin&#x27; Hot For Men 4oz Deodorant Spray,
-publishedAt: Fri Jan 10 2020 14:59:12 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:12 GMT+0530 (India Standard Time),
----
-
 # [Smokin&#x27; Hot For Men 4oz Deodorant Spray](https://products.checkmycream.com/products/Smokin&#x27;-Hot-For-Men-4oz-Deodorant-Spray.html)
 
 ### Positive Reviews

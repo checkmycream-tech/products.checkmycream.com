@@ -1,12 +1,3 @@
----
-title: Instantly Ageless Moisture Lift- Anti Aging Face Cream (1.7 Ounces),
-description: Instantly Ageless Moisture Lift- Anti Aging Face Cream (1.7 Ounces),
-author: Suvojit Manna,
-tags: Instantly Ageless Moisture Lift- Anti Aging Face Cream (1.7 Ounces),
-publishedAt: Fri Jan 10 2020 15:00:20 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:20 GMT+0530 (India Standard Time),
----
-
 # [Instantly Ageless Moisture Lift- Anti Aging Face Cream (1.7 Ounces)](https://products.checkmycream.com/products/Instantly-Ageless-Moisture-Lift-Anti-Aging-Face-Cream-(1.7-Ounces).html)
 
 ### Positive Reviews

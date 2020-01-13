@@ -1,12 +1,3 @@
----
-title: Dial Lavender &amp; Twilight Jasmine Antibacterial Deodorant Soap, 4 oz. Bars,
-description: Dial Lavender &amp; Twilight Jasmine Antibacterial Deodorant Soap, 4 oz. Bars,
-author: Suvojit Manna,
-tags: Dial Lavender &amp; Twilight Jasmine Antibacterial Deodorant Soap, 4 oz. Bars,
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [Dial Lavender &amp; Twilight Jasmine Antibacterial Deodorant Soap, 4 oz. Bars](https://products.checkmycream.com/products/Dial-Lavender-and-Twilight-Jasmine-Antibacterial-Deodorant-Soap-4-oz.-Bars.html)
 
 ### Positive Reviews

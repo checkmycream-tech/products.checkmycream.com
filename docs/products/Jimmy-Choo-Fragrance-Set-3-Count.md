@@ -1,12 +1,3 @@
----
-title: Jimmy Choo Fragrance Set, 3 Count,
-description: Jimmy Choo Fragrance Set, 3 Count,
-author: Suvojit Manna,
-tags: Jimmy Choo Fragrance Set, 3 Count,
-publishedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
----
-
 # [Jimmy Choo Fragrance Set, 3 Count](https://products.checkmycream.com/products/Jimmy-Choo-Fragrance-Set-3-Count.html)
 
 ### Positive Reviews

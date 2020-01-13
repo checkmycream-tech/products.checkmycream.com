@@ -1,12 +1,3 @@
----
-title: Australian Gold SPF 30 Lip Balm, 0.15 Fl Oz (Pack of 4),
-description: Australian Gold SPF 30 Lip Balm, 0.15 Fl Oz (Pack of 4),
-author: Suvojit Manna,
-tags: Australian Gold SPF 30 Lip Balm, 0.15 Fl Oz (Pack of 4),
-publishedAt: Fri Jan 10 2020 15:00:16 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:16 GMT+0530 (India Standard Time),
----
-
 # [Australian Gold SPF 30 Lip Balm, 0.15 Fl Oz (Pack of 4)](https://products.checkmycream.com/products/Australian-Gold-SPF-30-Lip-Balm-0.15-Fl-Oz-(Pack-of-4).html)
 
 ### Positive Reviews

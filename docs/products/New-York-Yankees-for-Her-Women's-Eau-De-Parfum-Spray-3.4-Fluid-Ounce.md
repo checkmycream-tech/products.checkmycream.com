@@ -1,12 +1,3 @@
----
-title: New York Yankees for Her Women&#x27;s Eau De Parfum Spray, 3.4 Fluid Ounce,
-description: New York Yankees for Her Women&#x27;s Eau De Parfum Spray, 3.4 Fluid Ounce,
-author: Suvojit Manna,
-tags: New York Yankees for Her Women&#x27;s Eau De Parfum Spray, 3.4 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 15:00:23 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:23 GMT+0530 (India Standard Time),
----
-
 # [New York Yankees for Her Women&#x27;s Eau De Parfum Spray, 3.4 Fluid Ounce](https://products.checkmycream.com/products/New-York-Yankees-for-Her-Women&#x27;s-Eau-De-Parfum-Spray-3.4-Fluid-Ounce.html)
 
 ### Positive Reviews

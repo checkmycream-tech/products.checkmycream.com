@@ -1,12 +1,3 @@
----
-title: Creative Nail Liquid Retention, 8 Fluid Ounce,
-description: Creative Nail Liquid Retention, 8 Fluid Ounce,
-author: Suvojit Manna,
-tags: Creative Nail Liquid Retention, 8 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 14:59:17 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:17 GMT+0530 (India Standard Time),
----
-
 # [Creative Nail Liquid Retention, 8 Fluid Ounce](https://products.checkmycream.com/products/Creative-Nail-Liquid-Retention-8-Fluid-Ounce.html)
 
 ### Positive Reviews

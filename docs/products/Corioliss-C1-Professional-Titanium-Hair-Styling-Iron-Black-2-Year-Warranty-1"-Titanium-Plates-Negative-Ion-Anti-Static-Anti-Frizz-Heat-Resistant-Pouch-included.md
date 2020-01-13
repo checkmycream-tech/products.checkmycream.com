@@ -1,12 +1,3 @@
----
-title: Corioliss C1 Professional Titanium Hair Styling Iron, Black, 2 Year Warranty, 1” Titanium Plates, Negative Ion, Anti Static, Anti Frizz, Heat Resistant Pouch included,
-description: Corioliss C1 Professional Titanium Hair Styling Iron, Black, 2 Year Warranty, 1” Titanium Plates, Negative Ion, Anti Static, Anti Frizz, Heat Resistant Pouch included,
-author: Suvojit Manna,
-tags: Corioliss C1 Professional Titanium Hair Styling Iron, Black, 2 Year Warranty, 1” Titanium Plates, Negative Ion, Anti Static, Anti Frizz, Heat Resistant Pouch included,
-publishedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
----
-
 # [Corioliss C1 Professional Titanium Hair Styling Iron, Black, 2 Year Warranty, 1” Titanium Plates, Negative Ion, Anti Static, Anti Frizz, Heat Resistant Pouch included](https://products.checkmycream.com/products/Corioliss-C1-Professional-Titanium-Hair-Styling-Iron-Black-2-Year-Warranty-1&quot;-Titanium-Plates-Negative-Ion-Anti-Static-Anti-Frizz-Heat-Resistant-Pouch-included.html)
 
 ### Positive Reviews

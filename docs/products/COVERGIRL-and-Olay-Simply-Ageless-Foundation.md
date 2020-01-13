@@ -1,12 +1,3 @@
----
-title: COVERGIRL &amp; Olay Simply Ageless Foundation,
-description: COVERGIRL &amp; Olay Simply Ageless Foundation,
-author: Suvojit Manna,
-tags: COVERGIRL &amp; Olay Simply Ageless Foundation,
-publishedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
----
-
 # [COVERGIRL &amp; Olay Simply Ageless Foundation](https://products.checkmycream.com/products/COVERGIRL-and-Olay-Simply-Ageless-Foundation.html)
 
 ### Positive Reviews

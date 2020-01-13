@@ -1,12 +1,3 @@
----
-title: Doinshop Hard Silicone Shockproof Rubber Hybrid Case Cover Skin for Iphone 5c,
-description: Doinshop Hard Silicone Shockproof Rubber Hybrid Case Cover Skin for Iphone 5c,
-author: Suvojit Manna,
-tags: Doinshop Hard Silicone Shockproof Rubber Hybrid Case Cover Skin for Iphone 5c,
-publishedAt: Fri Jan 10 2020 15:01:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:08 GMT+0530 (India Standard Time),
----
-
 # [Doinshop Hard Silicone Shockproof Rubber Hybrid Case Cover Skin for Iphone 5c](https://products.checkmycream.com/products/Doinshop-Hard-Silicone-Shockproof-Rubber-Hybrid-Case-Cover-Skin-for-Iphone-5c.html)
 
 ### Positive Reviews

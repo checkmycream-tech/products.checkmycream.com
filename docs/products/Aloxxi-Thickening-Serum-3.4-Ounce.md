@@ -1,12 +1,3 @@
----
-title: Aloxxi Thickening Serum, 3.4 Ounce,
-description: Aloxxi Thickening Serum, 3.4 Ounce,
-author: Suvojit Manna,
-tags: Aloxxi Thickening Serum, 3.4 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
----
-
 # [Aloxxi Thickening Serum, 3.4 Ounce](https://products.checkmycream.com/products/Aloxxi-Thickening-Serum-3.4-Ounce.html)
 
 ### Positive Reviews

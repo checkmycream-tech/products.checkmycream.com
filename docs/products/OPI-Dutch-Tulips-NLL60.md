@@ -1,12 +1,3 @@
----
-title: OPI Dutch Tulips - NLL60,
-description: OPI Dutch Tulips - NLL60,
-author: Suvojit Manna,
-tags: OPI Dutch Tulips - NLL60,
-publishedAt: Fri Jan 10 2020 14:59:12 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:12 GMT+0530 (India Standard Time),
----
-
 # [OPI Dutch Tulips - NLL60](https://products.checkmycream.com/products/OPI-Dutch-Tulips-NLL60.html)
 
 ### Positive Reviews

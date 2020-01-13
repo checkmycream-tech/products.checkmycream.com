@@ -1,12 +1,3 @@
----
-title: Woody&#x27;s Pomade for Men, Pomade, 3.4 Ounce,
-description: Woody&#x27;s Pomade for Men, Pomade, 3.4 Ounce,
-author: Suvojit Manna,
-tags: Woody&#x27;s Pomade for Men, Pomade, 3.4 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:20 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:20 GMT+0530 (India Standard Time),
----
-
 # [Woody&#x27;s Pomade for Men, Pomade, 3.4 Ounce](https://products.checkmycream.com/products/Woody&#x27;s-Pomade-for-Men-Pomade-3.4-Ounce.html)
 
 ### Positive Reviews

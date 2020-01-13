@@ -1,12 +1,3 @@
----
-title: Metal Heart Design / 3 Tier Nail Polish Rack / Table Top Organizer Display- MyGift,
-description: Metal Heart Design / 3 Tier Nail Polish Rack / Table Top Organizer Display- MyGift,
-author: Suvojit Manna,
-tags: Metal Heart Design / 3 Tier Nail Polish Rack / Table Top Organizer Display- MyGift,
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [Metal Heart Design / 3 Tier Nail Polish Rack / Table Top Organizer Display- MyGift](https://products.checkmycream.com/products/Metal-Heart-Design-3-Tier-Nail-Polish-Rack-Table-Top-Organizer-Display-MyGift.html)
 
 ### Positive Reviews

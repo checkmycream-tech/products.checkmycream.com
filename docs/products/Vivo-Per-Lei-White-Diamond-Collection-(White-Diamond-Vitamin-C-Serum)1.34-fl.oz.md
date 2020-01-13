@@ -1,12 +1,3 @@
----
-title: Vivo Per Lei White Diamond Collection (White Diamond Vitamin C Serum)1.34 fl.oz,
-description: Vivo Per Lei White Diamond Collection (White Diamond Vitamin C Serum)1.34 fl.oz,
-author: Suvojit Manna,
-tags: Vivo Per Lei White Diamond Collection (White Diamond Vitamin C Serum)1.34 fl.oz,
-publishedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
----
-
 # [Vivo Per Lei White Diamond Collection (White Diamond Vitamin C Serum)1.34 fl.oz](https://products.checkmycream.com/products/Vivo-Per-Lei-White-Diamond-Collection-(White-Diamond-Vitamin-C-Serum)1.34-fl.oz.html)
 
 ### Positive Reviews

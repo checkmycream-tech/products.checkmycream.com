@@ -1,12 +1,3 @@
----
-title: Calvin Klein Women?s 4 PC Set -  0.5 Oz  Eternity, Obsession, CK One &amp; Escape,
-description: Calvin Klein Women?s 4 PC Set -  0.5 Oz  Eternity, Obsession, CK One &amp; Escape,
-author: Suvojit Manna,
-tags: Calvin Klein Women?s 4 PC Set -  0.5 Oz  Eternity, Obsession, CK One &amp; Escape,
-publishedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
----
-
 # [Calvin Klein Women?s 4 PC Set -  0.5 Oz  Eternity, Obsession, CK One &amp; Escape](https://products.checkmycream.com/products/Calvin-Klein-Womens-4-PC-Set-0.5-Oz-Eternity-Obsession-CK-One-and-Escape.html)
 
 ### Positive Reviews

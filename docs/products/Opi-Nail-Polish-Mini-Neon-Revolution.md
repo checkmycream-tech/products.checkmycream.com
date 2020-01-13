@@ -1,12 +1,3 @@
----
-title: Opi Nail Polish, Mini Neon Revolution,
-description: Opi Nail Polish, Mini Neon Revolution,
-author: Suvojit Manna,
-tags: Opi Nail Polish, Mini Neon Revolution,
-publishedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
----
-
 # [Opi Nail Polish, Mini Neon Revolution](https://products.checkmycream.com/products/Opi-Nail-Polish-Mini-Neon-Revolution.html)
 
 ### Positive Reviews

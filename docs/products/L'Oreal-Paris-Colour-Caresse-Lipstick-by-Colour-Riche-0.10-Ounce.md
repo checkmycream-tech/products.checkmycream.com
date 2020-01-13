@@ -1,12 +1,3 @@
----
-title: L&#x27;Oreal Paris Colour Caresse Lipstick by Colour Riche, 0.10 Ounce,
-description: L&#x27;Oreal Paris Colour Caresse Lipstick by Colour Riche, 0.10 Ounce,
-author: Suvojit Manna,
-tags: L&#x27;Oreal Paris Colour Caresse Lipstick by Colour Riche, 0.10 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:22 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:22 GMT+0530 (India Standard Time),
----
-
 # [L&#x27;Oreal Paris Colour Caresse Lipstick by Colour Riche, 0.10 Ounce](https://products.checkmycream.com/products/L&#x27;Oreal-Paris-Colour-Caresse-Lipstick-by-Colour-Riche-0.10-Ounce.html)
 
 ### Positive Reviews

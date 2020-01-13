@@ -1,12 +1,3 @@
----
-title: Lime 100% Pure Therapeutic Grade Essential Oil by Edens Garden,
-description: Lime 100% Pure Therapeutic Grade Essential Oil by Edens Garden,
-author: Suvojit Manna,
-tags: Lime 100% Pure Therapeutic Grade Essential Oil by Edens Garden,
-publishedAt: Fri Jan 10 2020 14:59:39 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:39 GMT+0530 (India Standard Time),
----
-
 # [Lime 100% Pure Therapeutic Grade Essential Oil by Edens Garden](https://products.checkmycream.com/products/Lime-100percent-Pure-Therapeutic-Grade-Essential-Oil-by-Edens-Garden.html)
 
 ### Positive Reviews

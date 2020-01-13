@@ -1,12 +1,3 @@
----
-title: EO Shower Gel Lemon Verbena 32 oz by EO Essentials,
-description: EO Shower Gel Lemon Verbena 32 oz by EO Essentials,
-author: Suvojit Manna,
-tags: EO Shower Gel Lemon Verbena 32 oz by EO Essentials,
-publishedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
----
-
 # [EO Shower Gel Lemon Verbena 32 oz by EO Essentials](https://products.checkmycream.com/products/EO-Shower-Gel-Lemon-Verbena-32-oz-by-EO-Essentials.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Bath &amp; Body Works Fresh Market Apple PocketBac Deep Cleansing Anti-Bacterial Hand Gel 1 oz (29 ml),
-description: Bath &amp; Body Works Fresh Market Apple PocketBac Deep Cleansing Anti-Bacterial Hand Gel 1 oz (29 ml),
-author: Suvojit Manna,
-tags: Bath &amp; Body Works Fresh Market Apple PocketBac Deep Cleansing Anti-Bacterial Hand Gel 1 oz (29 ml),
-publishedAt: Fri Jan 10 2020 14:59:48 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:48 GMT+0530 (India Standard Time),
----
-
 # [Bath &amp; Body Works Fresh Market Apple PocketBac Deep Cleansing Anti-Bacterial Hand Gel 1 oz (29 ml)](https://products.checkmycream.com/products/Bath-and-Body-Works-Fresh-Market-Apple-PocketBac-Deep-Cleansing-Anti-Bacterial-Hand-Gel-1-oz-(29-ml).html)
 
 ### Positive Reviews

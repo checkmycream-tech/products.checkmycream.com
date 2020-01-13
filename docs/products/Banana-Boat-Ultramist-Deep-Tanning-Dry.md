@@ -1,12 +1,3 @@
----
-title: Banana Boat Ultramist Deep Tanning Dry,
-description: Banana Boat Ultramist Deep Tanning Dry,
-author: Suvojit Manna,
-tags: Banana Boat Ultramist Deep Tanning Dry,
-publishedAt: Fri Jan 10 2020 14:59:32 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:32 GMT+0530 (India Standard Time),
----
-
 # [Banana Boat Ultramist Deep Tanning Dry](https://products.checkmycream.com/products/Banana-Boat-Ultramist-Deep-Tanning-Dry.html)
 
 ### Positive Reviews

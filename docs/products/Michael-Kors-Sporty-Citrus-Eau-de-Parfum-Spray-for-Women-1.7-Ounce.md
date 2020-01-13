@@ -1,12 +1,3 @@
----
-title: Michael Kors Sporty Citrus Eau de Parfum Spray for Women, 1.7 Ounce,
-description: Michael Kors Sporty Citrus Eau de Parfum Spray for Women, 1.7 Ounce,
-author: Suvojit Manna,
-tags: Michael Kors Sporty Citrus Eau de Parfum Spray for Women, 1.7 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
----
-
 # [Michael Kors Sporty Citrus Eau de Parfum Spray for Women, 1.7 Ounce](https://products.checkmycream.com/products/Michael-Kors-Sporty-Citrus-Eau-de-Parfum-Spray-for-Women-1.7-Ounce.html)
 
 ### Positive Reviews

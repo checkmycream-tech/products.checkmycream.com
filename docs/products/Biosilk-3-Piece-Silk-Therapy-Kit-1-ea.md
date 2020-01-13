@@ -1,12 +1,3 @@
----
-title: Biosilk 3 Piece Silk Therapy Kit, 1 ea,
-description: Biosilk 3 Piece Silk Therapy Kit, 1 ea,
-author: Suvojit Manna,
-tags: Biosilk 3 Piece Silk Therapy Kit, 1 ea,
-publishedAt: Fri Jan 10 2020 14:59:26 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:26 GMT+0530 (India Standard Time),
----
-
 # [Biosilk 3 Piece Silk Therapy Kit, 1 ea](https://products.checkmycream.com/products/Biosilk-3-Piece-Silk-Therapy-Kit-1-ea.html)
 
 ### Positive Reviews

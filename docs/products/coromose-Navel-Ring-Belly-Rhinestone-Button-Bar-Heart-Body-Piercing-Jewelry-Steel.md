@@ -1,12 +1,3 @@
----
-title: coromose Navel Ring Belly Rhinestone Button Bar Heart Body Piercing Jewelry Steel,
-description: coromose Navel Ring Belly Rhinestone Button Bar Heart Body Piercing Jewelry Steel,
-author: Suvojit Manna,
-tags: coromose Navel Ring Belly Rhinestone Button Bar Heart Body Piercing Jewelry Steel,
-publishedAt: Fri Jan 10 2020 15:01:04 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:04 GMT+0530 (India Standard Time),
----
-
 # [coromose Navel Ring Belly Rhinestone Button Bar Heart Body Piercing Jewelry Steel](https://products.checkmycream.com/products/coromose-Navel-Ring-Belly-Rhinestone-Button-Bar-Heart-Body-Piercing-Jewelry-Steel.html)
 
 ### Positive Reviews

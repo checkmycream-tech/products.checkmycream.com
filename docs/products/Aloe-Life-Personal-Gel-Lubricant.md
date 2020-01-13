@@ -1,12 +1,3 @@
----
-title: Aloe Life - Personal Gel Lubricant,
-description: Aloe Life - Personal Gel Lubricant,
-author: Suvojit Manna,
-tags: Aloe Life - Personal Gel Lubricant,
-publishedAt: Fri Jan 10 2020 14:59:32 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:32 GMT+0530 (India Standard Time),
----
-
 # [Aloe Life - Personal Gel Lubricant](https://products.checkmycream.com/products/Aloe-Life-Personal-Gel-Lubricant.html)
 
 ### Positive Reviews

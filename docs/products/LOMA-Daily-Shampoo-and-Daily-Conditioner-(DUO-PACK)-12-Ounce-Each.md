@@ -1,12 +1,3 @@
----
-title: LOMA Daily Shampoo and Daily Conditioner (DUO PACK) 12 Ounce Each,
-description: LOMA Daily Shampoo and Daily Conditioner (DUO PACK) 12 Ounce Each,
-author: Suvojit Manna,
-tags: LOMA Daily Shampoo and Daily Conditioner (DUO PACK) 12 Ounce Each,
-publishedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
----
-
 # [LOMA Daily Shampoo and Daily Conditioner (DUO PACK) 12 Ounce Each](https://products.checkmycream.com/products/LOMA-Daily-Shampoo-and-Daily-Conditioner-(DUO-PACK)-12-Ounce-Each.html)
 
 ### Positive Reviews

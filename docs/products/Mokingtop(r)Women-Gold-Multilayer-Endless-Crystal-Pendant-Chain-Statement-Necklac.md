@@ -1,12 +1,3 @@
----
-title: Mokingtop®Women Gold Multilayer Endless Crystal Pendant Chain Statement Necklac,
-description: Mokingtop®Women Gold Multilayer Endless Crystal Pendant Chain Statement Necklac,
-author: Suvojit Manna,
-tags: Mokingtop®Women Gold Multilayer Endless Crystal Pendant Chain Statement Necklac,
-publishedAt: Fri Jan 10 2020 15:01:04 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:04 GMT+0530 (India Standard Time),
----
-
 # [Mokingtop®Women Gold Multilayer Endless Crystal Pendant Chain Statement Necklac](https://products.checkmycream.com/products/Mokingtop(r)Women-Gold-Multilayer-Endless-Crystal-Pendant-Chain-Statement-Necklac.html)
 
 ### Positive Reviews

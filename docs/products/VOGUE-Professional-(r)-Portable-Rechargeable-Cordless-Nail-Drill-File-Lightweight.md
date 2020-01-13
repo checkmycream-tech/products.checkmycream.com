@@ -1,12 +1,3 @@
----
-title: VOGUE Professional ® Portable Rechargeable Cordless Nail Drill File Lightweight,
-description: VOGUE Professional ® Portable Rechargeable Cordless Nail Drill File Lightweight,
-author: Suvojit Manna,
-tags: VOGUE Professional ® Portable Rechargeable Cordless Nail Drill File Lightweight,
-publishedAt: Fri Jan 10 2020 15:00:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:05 GMT+0530 (India Standard Time),
----
-
 # [VOGUE Professional ® Portable Rechargeable Cordless Nail Drill File Lightweight](https://products.checkmycream.com/products/VOGUE-Professional-(r)-Portable-Rechargeable-Cordless-Nail-Drill-File-Lightweight.html)
 
 ### Positive Reviews

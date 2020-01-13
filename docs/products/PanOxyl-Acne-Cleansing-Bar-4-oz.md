@@ -1,12 +1,3 @@
----
-title: PanOxyl Acne Cleansing Bar 4 oz,
-description: PanOxyl Acne Cleansing Bar 4 oz,
-author: Suvojit Manna,
-tags: PanOxyl Acne Cleansing Bar 4 oz,
-publishedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
----
-
 # [PanOxyl Acne Cleansing Bar 4 oz](https://products.checkmycream.com/products/PanOxyl-Acne-Cleansing-Bar-4-oz.html)
 
 ### Positive Reviews

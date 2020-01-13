@@ -1,12 +1,3 @@
----
-title: Dr. Lewinn By Kinerase Instant Perfecting Bb Cream Sunscreen, 1.7 Oz,
-description: Dr. Lewinn By Kinerase Instant Perfecting Bb Cream Sunscreen, 1.7 Oz,
-author: Suvojit Manna,
-tags: Dr. Lewinn By Kinerase Instant Perfecting Bb Cream Sunscreen, 1.7 Oz,
-publishedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
----
-
 # [Dr. Lewinn By Kinerase Instant Perfecting Bb Cream Sunscreen, 1.7 Oz](https://products.checkmycream.com/products/Dr.-Lewinn-By-Kinerase-Instant-Perfecting-Bb-Cream-Sunscreen-1.7-Oz.html)
 
 ### Positive Reviews

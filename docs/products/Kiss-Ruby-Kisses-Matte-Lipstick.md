@@ -1,12 +1,3 @@
----
-title: Kiss Ruby Kisses Matte Lipstick,
-description: Kiss Ruby Kisses Matte Lipstick,
-author: Suvojit Manna,
-tags: Kiss Ruby Kisses Matte Lipstick,
-publishedAt: Fri Jan 10 2020 15:01:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:05 GMT+0530 (India Standard Time),
----
-
 # [Kiss Ruby Kisses Matte Lipstick](https://products.checkmycream.com/products/Kiss-Ruby-Kisses-Matte-Lipstick.html)
 
 ### Positive Reviews

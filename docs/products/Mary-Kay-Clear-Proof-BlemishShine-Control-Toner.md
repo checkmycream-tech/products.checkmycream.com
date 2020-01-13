@@ -1,12 +1,3 @@
----
-title: Mary Kay Clear Proof Blemish/Shine Control Toner,
-description: Mary Kay Clear Proof Blemish/Shine Control Toner,
-author: Suvojit Manna,
-tags: Mary Kay Clear Proof Blemish/Shine Control Toner,
-publishedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
----
-
 # [Mary Kay Clear Proof Blemish/Shine Control Toner](https://products.checkmycream.com/products/Mary-Kay-Clear-Proof-BlemishShine-Control-Toner.html)
 
 ### Positive Reviews

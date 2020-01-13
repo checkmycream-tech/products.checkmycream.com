@@ -1,12 +1,3 @@
----
-title: 7 Pck -GOLD COLLAGEN Crystal EYE Bag MASK - DARK CIRCLES, BAG FREE BONUS FEATHER HAIR EXTENSION WITH PURCHASE S, WRINKLES-Crystal Collagen Anti-Aging Eye Mask- Banish Bags, Dark Cricles, and Puffiness,
-description: 7 Pck -GOLD COLLAGEN Crystal EYE Bag MASK - DARK CIRCLES, BAG FREE BONUS FEATHER HAIR EXTENSION WITH PURCHASE S, WRINKLES-Crystal Collagen Anti-Aging Eye Mask- Banish Bags, Dark Cricles, and Puffiness,
-author: Suvojit Manna,
-tags: 7 Pck -GOLD COLLAGEN Crystal EYE Bag MASK - DARK CIRCLES, BAG FREE BONUS FEATHER HAIR EXTENSION WITH PURCHASE S, WRINKLES-Crystal Collagen Anti-Aging Eye Mask- Banish Bags, Dark Cricles, and Puffiness,
-publishedAt: Fri Jan 10 2020 15:00:12 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:12 GMT+0530 (India Standard Time),
----
-
 # [7 Pck -GOLD COLLAGEN Crystal EYE Bag MASK - DARK CIRCLES, BAG FREE BONUS FEATHER HAIR EXTENSION WITH PURCHASE S, WRINKLES-Crystal Collagen Anti-Aging Eye Mask- Banish Bags, Dark Cricles, and Puffiness](https://products.checkmycream.com/products/7-Pck-GOLD-COLLAGEN-Crystal-EYE-Bag-MASK-DARK-CIRCLES-BAG-FREE-BONUS-FEATHER-HAIR-EXTENSION-WITH-PURCHASE-S-WRINKLES-Crystal-Collagen-Anti-Aging-Eye-Mask-Banish-Bags-Dark-Cricles-and-Puffiness.html)
 
 ### Positive Reviews

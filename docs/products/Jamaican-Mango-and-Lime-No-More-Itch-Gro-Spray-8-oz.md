@@ -1,12 +1,3 @@
----
-title: Jamaican Mango &amp; Lime No More Itch Gro Spray, 8 oz,
-description: Jamaican Mango &amp; Lime No More Itch Gro Spray, 8 oz,
-author: Suvojit Manna,
-tags: Jamaican Mango &amp; Lime No More Itch Gro Spray, 8 oz,
-publishedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
----
-
 # [Jamaican Mango &amp; Lime No More Itch Gro Spray, 8 oz](https://products.checkmycream.com/products/Jamaican-Mango-and-Lime-No-More-Itch-Gro-Spray-8-oz.html)
 
 ### Positive Reviews

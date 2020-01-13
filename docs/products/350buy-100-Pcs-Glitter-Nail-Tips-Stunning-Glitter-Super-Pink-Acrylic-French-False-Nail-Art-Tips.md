@@ -1,12 +1,3 @@
----
-title: 350buy 100 Pcs Glitter Nail Tips Stunning Glitter Super Pink Acrylic French False Nail Art Tips,
-description: 350buy 100 Pcs Glitter Nail Tips Stunning Glitter Super Pink Acrylic French False Nail Art Tips,
-author: Suvojit Manna,
-tags: 350buy 100 Pcs Glitter Nail Tips Stunning Glitter Super Pink Acrylic French False Nail Art Tips,
-publishedAt: Fri Jan 10 2020 15:00:32 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:32 GMT+0530 (India Standard Time),
----
-
 # [350buy 100 Pcs Glitter Nail Tips Stunning Glitter Super Pink Acrylic French False Nail Art Tips](https://products.checkmycream.com/products/350buy-100-Pcs-Glitter-Nail-Tips-Stunning-Glitter-Super-Pink-Acrylic-French-False-Nail-Art-Tips.html)
 
 ### Positive Reviews

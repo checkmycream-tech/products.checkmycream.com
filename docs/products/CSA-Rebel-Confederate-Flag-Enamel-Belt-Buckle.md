@@ -1,12 +1,3 @@
----
-title: CSA Rebel Confederate Flag Enamel Belt Buckle,
-description: CSA Rebel Confederate Flag Enamel Belt Buckle,
-author: Suvojit Manna,
-tags: CSA Rebel Confederate Flag Enamel Belt Buckle,
-publishedAt: Fri Jan 10 2020 14:59:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:58 GMT+0530 (India Standard Time),
----
-
 # [CSA Rebel Confederate Flag Enamel Belt Buckle](https://products.checkmycream.com/products/CSA-Rebel-Confederate-Flag-Enamel-Belt-Buckle.html)
 
 ### Positive Reviews

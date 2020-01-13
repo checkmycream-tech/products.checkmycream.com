@@ -1,12 +1,3 @@
----
-title: Kenra Texturizing Taffy,
-description: Kenra Texturizing Taffy,
-author: Suvojit Manna,
-tags: Kenra Texturizing Taffy,
-publishedAt: Fri Jan 10 2020 14:59:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:08 GMT+0530 (India Standard Time),
----
-
 # [Kenra Texturizing Taffy](https://products.checkmycream.com/products/Kenra-Texturizing-Taffy.html)
 
 ### Positive Reviews

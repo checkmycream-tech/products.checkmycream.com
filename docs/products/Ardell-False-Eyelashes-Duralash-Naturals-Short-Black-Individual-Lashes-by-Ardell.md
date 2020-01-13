@@ -1,12 +1,3 @@
----
-title: Ardell False Eyelashes Duralash Naturals Short Black Individual Lashes by Ardell,
-description: Ardell False Eyelashes Duralash Naturals Short Black Individual Lashes by Ardell,
-author: Suvojit Manna,
-tags: Ardell False Eyelashes Duralash Naturals Short Black Individual Lashes by Ardell,
-publishedAt: Fri Jan 10 2020 14:59:26 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:26 GMT+0530 (India Standard Time),
----
-
 # [Ardell False Eyelashes Duralash Naturals Short Black Individual Lashes by Ardell](https://products.checkmycream.com/products/Ardell-False-Eyelashes-Duralash-Naturals-Short-Black-Individual-Lashes-by-Ardell.html)
 
 ### Positive Reviews

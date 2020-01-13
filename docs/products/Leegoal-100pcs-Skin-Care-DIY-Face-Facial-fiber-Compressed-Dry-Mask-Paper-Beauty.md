@@ -1,12 +1,3 @@
----
-title: Leegoal 100pcs Skin Care DIY Face Facial fiber Compressed Dry Mask Paper Beauty,
-description: Leegoal 100pcs Skin Care DIY Face Facial fiber Compressed Dry Mask Paper Beauty,
-author: Suvojit Manna,
-tags: Leegoal 100pcs Skin Care DIY Face Facial fiber Compressed Dry Mask Paper Beauty,
-publishedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
----
-
 # [Leegoal 100pcs Skin Care DIY Face Facial fiber Compressed Dry Mask Paper Beauty](https://products.checkmycream.com/products/Leegoal-100pcs-Skin-Care-DIY-Face-Facial-fiber-Compressed-Dry-Mask-Paper-Beauty.html)
 
 ### Positive Reviews

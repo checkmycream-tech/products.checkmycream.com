@@ -1,12 +1,3 @@
----
-title: 32 Color Design Neon Glitter &amp; Plain Eyeshadow Makeup Kit + Extra 32 Color Eyeshadow Set,
-description: 32 Color Design Neon Glitter &amp; Plain Eyeshadow Makeup Kit + Extra 32 Color Eyeshadow Set,
-author: Suvojit Manna,
-tags: 32 Color Design Neon Glitter &amp; Plain Eyeshadow Makeup Kit + Extra 32 Color Eyeshadow Set,
-publishedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
----
-
 # [32 Color Design Neon Glitter &amp; Plain Eyeshadow Makeup Kit + Extra 32 Color Eyeshadow Set](https://products.checkmycream.com/products/32-Color-Design-Neon-Glitter-and-Plain-Eyeshadow-Makeup-Kit-+-Extra-32-Color-Eyeshadow-Set.html)
 
 ### Positive Reviews

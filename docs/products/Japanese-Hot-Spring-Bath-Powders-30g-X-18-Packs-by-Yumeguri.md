@@ -1,12 +1,3 @@
----
-title: Japanese Hot Spring Bath Powders - 30g X 18 Packs by Yumeguri,
-description: Japanese Hot Spring Bath Powders - 30g X 18 Packs by Yumeguri,
-author: Suvojit Manna,
-tags: Japanese Hot Spring Bath Powders - 30g X 18 Packs by Yumeguri,
-publishedAt: Fri Jan 10 2020 14:59:07 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:07 GMT+0530 (India Standard Time),
----
-
 # [Japanese Hot Spring Bath Powders - 30g X 18 Packs by Yumeguri](https://products.checkmycream.com/products/Japanese-Hot-Spring-Bath-Powders-30g-X-18-Packs-by-Yumeguri.html)
 
 ### Positive Reviews

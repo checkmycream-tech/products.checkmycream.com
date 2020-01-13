@@ -1,12 +1,3 @@
----
-title: Lowpricenice(TM)for iPhone 5 / iPhone 5S Fresh Cute Flip Wallet Leather Case Cover+Case Bag Straps,
-description: Lowpricenice(TM)for iPhone 5 / iPhone 5S Fresh Cute Flip Wallet Leather Case Cover+Case Bag Straps,
-author: Suvojit Manna,
-tags: Lowpricenice(TM)for iPhone 5 / iPhone 5S Fresh Cute Flip Wallet Leather Case Cover+Case Bag Straps,
-publishedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
----
-
 # [Lowpricenice(TM)for iPhone 5 / iPhone 5S Fresh Cute Flip Wallet Leather Case Cover+Case Bag Straps](https://products.checkmycream.com/products/Lowpricenice(TM)for-iPhone-5-iPhone-5S-Fresh-Cute-Flip-Wallet-Leather-Case-Cover+Case-Bag-Straps.html)
 
 ### Positive Reviews

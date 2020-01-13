@@ -1,12 +1,3 @@
----
-title: BELO Essentials Whitening Body Bar 2 x 135g (set of 2),
-description: BELO Essentials Whitening Body Bar 2 x 135g (set of 2),
-author: Suvojit Manna,
-tags: BELO Essentials Whitening Body Bar 2 x 135g (set of 2),
-publishedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
----
-
 # [BELO Essentials Whitening Body Bar 2 x 135g (set of 2)](https://products.checkmycream.com/products/BELO-Essentials-Whitening-Body-Bar-2-x-135g-(set-of-2).html)
 
 ### Positive Reviews

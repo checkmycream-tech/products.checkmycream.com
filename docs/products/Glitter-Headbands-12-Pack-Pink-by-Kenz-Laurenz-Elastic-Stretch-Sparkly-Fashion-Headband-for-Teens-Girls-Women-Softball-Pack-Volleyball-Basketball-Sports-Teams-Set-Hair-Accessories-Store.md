@@ -1,12 +1,3 @@
----
-title: Glitter Headbands 12 Pack Pink by Kenz Laurenz - Elastic Stretch Sparkly Fashion Headband for Teens Girls Women Softball Pack Volleyball Basketball Sports Teams Set Hair Accessories Store,
-description: Glitter Headbands 12 Pack Pink by Kenz Laurenz - Elastic Stretch Sparkly Fashion Headband for Teens Girls Women Softball Pack Volleyball Basketball Sports Teams Set Hair Accessories Store,
-author: Suvojit Manna,
-tags: Glitter Headbands 12 Pack Pink by Kenz Laurenz - Elastic Stretch Sparkly Fashion Headband for Teens Girls Women Softball Pack Volleyball Basketball Sports Teams Set Hair Accessories Store,
-publishedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
----
-
 # [Glitter Headbands 12 Pack Pink by Kenz Laurenz - Elastic Stretch Sparkly Fashion Headband for Teens Girls Women Softball Pack Volleyball Basketball Sports Teams Set Hair Accessories Store](https://products.checkmycream.com/products/Glitter-Headbands-12-Pack-Pink-by-Kenz-Laurenz-Elastic-Stretch-Sparkly-Fashion-Headband-for-Teens-Girls-Women-Softball-Pack-Volleyball-Basketball-Sports-Teams-Set-Hair-Accessories-Store.html)
 
 ### Positive Reviews

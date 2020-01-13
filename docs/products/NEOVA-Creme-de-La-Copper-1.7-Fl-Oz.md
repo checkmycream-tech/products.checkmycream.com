@@ -1,12 +1,3 @@
----
-title: NEOVA Creme de La Copper, 1.7 Fl Oz,
-description: NEOVA Creme de La Copper, 1.7 Fl Oz,
-author: Suvojit Manna,
-tags: NEOVA Creme de La Copper, 1.7 Fl Oz,
-publishedAt: Fri Jan 10 2020 14:59:13 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:13 GMT+0530 (India Standard Time),
----
-
 # [NEOVA Creme de La Copper, 1.7 Fl Oz](https://products.checkmycream.com/products/NEOVA-Creme-de-La-Copper-1.7-Fl-Oz.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: The Doctor&#x27;s BrushPicks Toothpicks,
-description: The Doctor&#x27;s BrushPicks Toothpicks,
-author: Suvojit Manna,
-tags: The Doctor&#x27;s BrushPicks Toothpicks,
-publishedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
----
-
 # [The Doctor&#x27;s BrushPicks Toothpicks](https://products.checkmycream.com/products/The-Doctor&#x27;s-BrushPicks-Toothpicks.html)
 
 ### Positive Reviews

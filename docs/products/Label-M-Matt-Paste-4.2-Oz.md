@@ -1,12 +1,3 @@
----
-title: Label M Matt Paste, 4.2 Oz,
-description: Label M Matt Paste, 4.2 Oz,
-author: Suvojit Manna,
-tags: Label M Matt Paste, 4.2 Oz,
-publishedAt: Fri Jan 10 2020 14:59:33 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:33 GMT+0530 (India Standard Time),
----
-
 # [Label M Matt Paste, 4.2 Oz](https://products.checkmycream.com/products/Label-M-Matt-Paste-4.2-Oz.html)
 
 ### Positive Reviews

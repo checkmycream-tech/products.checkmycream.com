@@ -1,12 +1,3 @@
----
-title: L&#x27;Oreal Paris Age Perfect Glow Renewal Facial Day Lotion SPF 30,
-description: L&#x27;Oreal Paris Age Perfect Glow Renewal Facial Day Lotion SPF 30,
-author: Suvojit Manna,
-tags: L&#x27;Oreal Paris Age Perfect Glow Renewal Facial Day Lotion SPF 30,
-publishedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
----
-
 # [L&#x27;Oreal Paris Age Perfect Glow Renewal Facial Day Lotion SPF 30](https://products.checkmycream.com/products/L&#x27;Oreal-Paris-Age-Perfect-Glow-Renewal-Facial-Day-Lotion-SPF-30.html)
 
 ### Positive Reviews

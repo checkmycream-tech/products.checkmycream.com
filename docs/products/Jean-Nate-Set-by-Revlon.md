@@ -1,12 +1,3 @@
----
-title: Jean Nate Set by Revlon,
-description: Jean Nate Set by Revlon,
-author: Suvojit Manna,
-tags: Jean Nate Set by Revlon,
-publishedAt: Fri Jan 10 2020 14:59:46 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:46 GMT+0530 (India Standard Time),
----
-
 # [Jean Nate Set by Revlon](https://products.checkmycream.com/products/Jean-Nate-Set-by-Revlon.html)
 
 ### Positive Reviews

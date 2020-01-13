@@ -1,12 +1,3 @@
----
-title: KINGMAS 100 Pack Disposable Lip Brushes Lipstick Gloss Wands Applicator Makeup Tool Kits,
-description: KINGMAS 100 Pack Disposable Lip Brushes Lipstick Gloss Wands Applicator Makeup Tool Kits,
-author: Suvojit Manna,
-tags: KINGMAS 100 Pack Disposable Lip Brushes Lipstick Gloss Wands Applicator Makeup Tool Kits,
-publishedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
----
-
 # [KINGMAS 100 Pack Disposable Lip Brushes Lipstick Gloss Wands Applicator Makeup Tool Kits](https://products.checkmycream.com/products/KINGMAS-100-Pack-Disposable-Lip-Brushes-Lipstick-Gloss-Wands-Applicator-Makeup-Tool-Kits.html)
 
 ### Positive Reviews

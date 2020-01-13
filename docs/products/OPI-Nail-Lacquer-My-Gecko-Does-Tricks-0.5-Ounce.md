@@ -1,12 +1,3 @@
----
-title: OPI Nail Lacquer My Gecko Does Tricks, 0.5 Ounce,
-description: OPI Nail Lacquer My Gecko Does Tricks, 0.5 Ounce,
-author: Suvojit Manna,
-tags: OPI Nail Lacquer My Gecko Does Tricks, 0.5 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:37 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:37 GMT+0530 (India Standard Time),
----
-
 # [OPI Nail Lacquer My Gecko Does Tricks, 0.5 Ounce](https://products.checkmycream.com/products/OPI-Nail-Lacquer-My-Gecko-Does-Tricks-0.5-Ounce.html)
 
 ### Positive Reviews

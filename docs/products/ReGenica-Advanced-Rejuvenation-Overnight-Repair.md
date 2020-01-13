@@ -1,12 +1,3 @@
----
-title: ReGenica Advanced Rejuvenation Overnight Repair,
-description: ReGenica Advanced Rejuvenation Overnight Repair,
-author: Suvojit Manna,
-tags: ReGenica Advanced Rejuvenation Overnight Repair,
-publishedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
----
-
 # [ReGenica Advanced Rejuvenation Overnight Repair](https://products.checkmycream.com/products/ReGenica-Advanced-Rejuvenation-Overnight-Repair.html)
 
 ### Positive Reviews

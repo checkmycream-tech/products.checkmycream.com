@@ -1,12 +1,3 @@
----
-title: 2in1 Zebra Aluminum Makeup Cosmetic Train Rolling Case Hair Style Lockable Box,
-description: 2in1 Zebra Aluminum Makeup Cosmetic Train Rolling Case Hair Style Lockable Box,
-author: Suvojit Manna,
-tags: 2in1 Zebra Aluminum Makeup Cosmetic Train Rolling Case Hair Style Lockable Box,
-publishedAt: Fri Jan 10 2020 14:58:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:58:57 GMT+0530 (India Standard Time),
----
-
 # [2in1 Zebra Aluminum Makeup Cosmetic Train Rolling Case Hair Style Lockable Box](https://products.checkmycream.com/products/2in1-Zebra-Aluminum-Makeup-Cosmetic-Train-Rolling-Case-Hair-Style-Lockable-Box.html)
 
 ### Positive Reviews

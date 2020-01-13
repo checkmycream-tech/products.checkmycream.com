@@ -1,12 +1,3 @@
----
-title: OPI: Lacquer E76 My Paprika is Hotter, 0.5 oz,
-description: OPI: Lacquer E76 My Paprika is Hotter, 0.5 oz,
-author: Suvojit Manna,
-tags: OPI: Lacquer E76 My Paprika is Hotter, 0.5 oz,
-publishedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
----
-
 # [OPI: Lacquer E76 My Paprika is Hotter, 0.5 oz](https://products.checkmycream.com/products/OPI:-Lacquer-E76-My-Paprika-is-Hotter-0.5-oz.html)
 
 ### Positive Reviews

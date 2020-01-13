@@ -1,12 +1,3 @@
----
-title: KAO Megurizumu Good-Night Steam Back Patch With Lavender,
-description: KAO Megurizumu Good-Night Steam Back Patch With Lavender,
-author: Suvojit Manna,
-tags: KAO Megurizumu Good-Night Steam Back Patch With Lavender,
-publishedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
----
-
 # [KAO Megurizumu Good-Night Steam Back Patch With Lavender](https://products.checkmycream.com/products/KAO-Megurizumu-Good-Night-Steam-Back-Patch-With-Lavender.html)
 
 ### Positive Reviews

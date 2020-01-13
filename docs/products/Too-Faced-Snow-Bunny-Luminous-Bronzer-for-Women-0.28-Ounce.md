@@ -1,12 +1,3 @@
----
-title: Too Faced Snow Bunny Luminous Bronzer for Women, 0.28 Ounce,
-description: Too Faced Snow Bunny Luminous Bronzer for Women, 0.28 Ounce,
-author: Suvojit Manna,
-tags: Too Faced Snow Bunny Luminous Bronzer for Women, 0.28 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
----
-
 # [Too Faced Snow Bunny Luminous Bronzer for Women, 0.28 Ounce](https://products.checkmycream.com/products/Too-Faced-Snow-Bunny-Luminous-Bronzer-for-Women-0.28-Ounce.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Glass Dappen Dish with Stainless Metal Lid (Clear),
-description: Glass Dappen Dish with Stainless Metal Lid (Clear),
-author: Suvojit Manna,
-tags: Glass Dappen Dish with Stainless Metal Lid (Clear),
-publishedAt: Fri Jan 10 2020 15:00:17 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:17 GMT+0530 (India Standard Time),
----
-
 # [Glass Dappen Dish with Stainless Metal Lid (Clear)](https://products.checkmycream.com/products/Glass-Dappen-Dish-with-Stainless-Metal-Lid-(Clear).html)
 
 ### Positive Reviews

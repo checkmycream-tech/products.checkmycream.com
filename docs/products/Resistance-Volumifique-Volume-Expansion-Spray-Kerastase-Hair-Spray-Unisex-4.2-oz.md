@@ -1,12 +1,3 @@
----
-title: Resistance Volumifique Volume Expansion Spray Kerastase Hair Spray Unisex 4.2 oz,
-description: Resistance Volumifique Volume Expansion Spray Kerastase Hair Spray Unisex 4.2 oz,
-author: Suvojit Manna,
-tags: Resistance Volumifique Volume Expansion Spray Kerastase Hair Spray Unisex 4.2 oz,
-publishedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
----
-
 # [Resistance Volumifique Volume Expansion Spray Kerastase Hair Spray Unisex 4.2 oz](https://products.checkmycream.com/products/Resistance-Volumifique-Volume-Expansion-Spray-Kerastase-Hair-Spray-Unisex-4.2-oz.html)
 
 ### Positive Reviews

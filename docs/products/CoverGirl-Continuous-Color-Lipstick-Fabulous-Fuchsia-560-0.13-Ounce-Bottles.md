@@ -1,12 +1,3 @@
----
-title: CoverGirl Continuous Color Lipstick, Fabulous Fuchsia 560, 0.13-Ounce Bottles,
-description: CoverGirl Continuous Color Lipstick, Fabulous Fuchsia 560, 0.13-Ounce Bottles,
-author: Suvojit Manna,
-tags: CoverGirl Continuous Color Lipstick, Fabulous Fuchsia 560, 0.13-Ounce Bottles,
-publishedAt: Fri Jan 10 2020 14:59:21 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:21 GMT+0530 (India Standard Time),
----
-
 # [CoverGirl Continuous Color Lipstick, Fabulous Fuchsia 560, 0.13-Ounce Bottles](https://products.checkmycream.com/products/CoverGirl-Continuous-Color-Lipstick-Fabulous-Fuchsia-560-0.13-Ounce-Bottles.html)
 
 ### Positive Reviews

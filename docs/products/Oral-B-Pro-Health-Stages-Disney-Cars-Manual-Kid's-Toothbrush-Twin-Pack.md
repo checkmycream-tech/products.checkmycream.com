@@ -1,12 +1,3 @@
----
-title: Oral-B Pro-Health Stages Disney Cars Manual Kid&#x27;s Toothbrush Twin Pack,
-description: Oral-B Pro-Health Stages Disney Cars Manual Kid&#x27;s Toothbrush Twin Pack,
-author: Suvojit Manna,
-tags: Oral-B Pro-Health Stages Disney Cars Manual Kid&#x27;s Toothbrush Twin Pack,
-publishedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
----
-
 # [Oral-B Pro-Health Stages Disney Cars Manual Kid&#x27;s Toothbrush Twin Pack](https://products.checkmycream.com/products/Oral-B-Pro-Health-Stages-Disney-Cars-Manual-Kid&#x27;s-Toothbrush-Twin-Pack.html)
 
 ### Positive Reviews

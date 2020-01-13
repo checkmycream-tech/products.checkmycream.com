@@ -1,12 +1,3 @@
----
-title: Braun 40B CoolTec Shavers Series Replacement Shaving Foil Head and Cutter Cartridge, 1 Count,
-description: Braun 40B CoolTec Shavers Series Replacement Shaving Foil Head and Cutter Cartridge, 1 Count,
-author: Suvojit Manna,
-tags: Braun 40B CoolTec Shavers Series Replacement Shaving Foil Head and Cutter Cartridge, 1 Count,
-publishedAt: Fri Jan 10 2020 15:00:45 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:45 GMT+0530 (India Standard Time),
----
-
 # [Braun 40B CoolTec Shavers Series Replacement Shaving Foil Head and Cutter Cartridge, 1 Count](https://products.checkmycream.com/products/Braun-40B-CoolTec-Shavers-Series-Replacement-Shaving-Foil-Head-and-Cutter-Cartridge-1-Count.html)
 
 ### Positive Reviews

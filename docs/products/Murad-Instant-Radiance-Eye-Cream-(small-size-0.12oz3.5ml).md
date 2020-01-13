@@ -1,12 +1,3 @@
----
-title: Murad Instant Radiance Eye Cream (small size 0.12oz/3.5ml),
-description: Murad Instant Radiance Eye Cream (small size 0.12oz/3.5ml),
-author: Suvojit Manna,
-tags: Murad Instant Radiance Eye Cream (small size 0.12oz/3.5ml),
-publishedAt: Fri Jan 10 2020 15:00:45 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:45 GMT+0530 (India Standard Time),
----
-
 # [Murad Instant Radiance Eye Cream (small size 0.12oz/3.5ml)](https://products.checkmycream.com/products/Murad-Instant-Radiance-Eye-Cream-(small-size-0.12oz3.5ml).html)
 
 ### Positive Reviews

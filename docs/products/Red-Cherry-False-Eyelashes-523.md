@@ -1,12 +1,3 @@
----
-title: Red Cherry False Eyelashes #523,
-description: Red Cherry False Eyelashes #523,
-author: Suvojit Manna,
-tags: Red Cherry False Eyelashes #523,
-publishedAt: Fri Jan 10 2020 15:00:04 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:04 GMT+0530 (India Standard Time),
----
-
 # [Red Cherry False Eyelashes #523](https://products.checkmycream.com/products/Red-Cherry-False-Eyelashes-523.html)
 
 ### Positive Reviews

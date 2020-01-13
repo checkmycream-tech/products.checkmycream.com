@@ -1,12 +1,3 @@
----
-title: Cherishlook Professional 10packs Eyelashes - Flare Long Black,
-description: Cherishlook Professional 10packs Eyelashes - Flare Long Black,
-author: Suvojit Manna,
-tags: Cherishlook Professional 10packs Eyelashes - Flare Long Black,
-publishedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
----
-
 # [Cherishlook Professional 10packs Eyelashes - Flare Long Black](https://products.checkmycream.com/products/Cherishlook-Professional-10packs-Eyelashes-Flare-Long-Black.html)
 
 ### Positive Reviews

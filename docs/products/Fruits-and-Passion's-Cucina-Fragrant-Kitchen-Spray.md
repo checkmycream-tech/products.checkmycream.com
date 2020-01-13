@@ -1,12 +1,3 @@
----
-title: Fruits and Passion&#x27;s Cucina Fragrant Kitchen Spray,
-description: Fruits and Passion&#x27;s Cucina Fragrant Kitchen Spray,
-author: Suvojit Manna,
-tags: Fruits and Passion&#x27;s Cucina Fragrant Kitchen Spray,
-publishedAt: Fri Jan 10 2020 15:00:12 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:12 GMT+0530 (India Standard Time),
----
-
 # [Fruits and Passion&#x27;s Cucina Fragrant Kitchen Spray](https://products.checkmycream.com/products/Fruits-and-Passion&#x27;s-Cucina-Fragrant-Kitchen-Spray.html)
 
 ### Positive Reviews

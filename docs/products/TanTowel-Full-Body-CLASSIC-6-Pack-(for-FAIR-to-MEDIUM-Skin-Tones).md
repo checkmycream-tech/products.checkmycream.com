@@ -1,12 +1,3 @@
----
-title: TanTowel Full Body CLASSIC - 6 Pack (for FAIR to MEDIUM Skin Tones),
-description: TanTowel Full Body CLASSIC - 6 Pack (for FAIR to MEDIUM Skin Tones),
-author: Suvojit Manna,
-tags: TanTowel Full Body CLASSIC - 6 Pack (for FAIR to MEDIUM Skin Tones),
-publishedAt: Fri Jan 10 2020 14:59:45 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:45 GMT+0530 (India Standard Time),
----
-
 # [TanTowel Full Body CLASSIC - 6 Pack (for FAIR to MEDIUM Skin Tones)](https://products.checkmycream.com/products/TanTowel-Full-Body-CLASSIC-6-Pack-(for-FAIR-to-MEDIUM-Skin-Tones).html)
 
 ### Positive Reviews

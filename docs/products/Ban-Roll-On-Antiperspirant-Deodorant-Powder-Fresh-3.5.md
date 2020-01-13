@@ -1,12 +1,3 @@
----
-title: Ban Roll-On Antiperspirant Deodorant, Powder Fresh, 3.5,
-description: Ban Roll-On Antiperspirant Deodorant, Powder Fresh, 3.5,
-author: Suvojit Manna,
-tags: Ban Roll-On Antiperspirant Deodorant, Powder Fresh, 3.5,
-publishedAt: Fri Jan 10 2020 14:59:28 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:28 GMT+0530 (India Standard Time),
----
-
 # [Ban Roll-On Antiperspirant Deodorant, Powder Fresh, 3.5](https://products.checkmycream.com/products/Ban-Roll-On-Antiperspirant-Deodorant-Powder-Fresh-3.5.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: RuiChy Women Crochet Flower Bow Knitted Headband Warm Ear Warmer Headwrap,
-description: RuiChy Women Crochet Flower Bow Knitted Headband Warm Ear Warmer Headwrap,
-author: Suvojit Manna,
-tags: RuiChy Women Crochet Flower Bow Knitted Headband Warm Ear Warmer Headwrap,
-publishedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
----
-
 # [RuiChy Women Crochet Flower Bow Knitted Headband Warm Ear Warmer Headwrap](https://products.checkmycream.com/products/RuiChy-Women-Crochet-Flower-Bow-Knitted-Headband-Warm-Ear-Warmer-Headwrap.html)
 
 ### Positive Reviews

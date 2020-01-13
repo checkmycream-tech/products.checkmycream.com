@@ -1,12 +1,3 @@
----
-title: Konad Nail Art - Stamping Image Plate - M60,
-description: Konad Nail Art - Stamping Image Plate - M60,
-author: Suvojit Manna,
-tags: Konad Nail Art - Stamping Image Plate - M60,
-publishedAt: Fri Jan 10 2020 15:00:15 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:15 GMT+0530 (India Standard Time),
----
-
 # [Konad Nail Art - Stamping Image Plate - M60](https://products.checkmycream.com/products/Konad-Nail-Art-Stamping-Image-Plate-M60.html)
 
 ### Positive Reviews

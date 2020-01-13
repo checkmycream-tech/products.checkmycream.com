@@ -1,12 +1,3 @@
----
-title: Sand &amp; Sable Cologne Spray,
-description: Sand &amp; Sable Cologne Spray,
-author: Suvojit Manna,
-tags: Sand &amp; Sable Cologne Spray,
-publishedAt: Fri Jan 10 2020 14:59:28 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:28 GMT+0530 (India Standard Time),
----
-
 # [Sand &amp; Sable Cologne Spray](https://products.checkmycream.com/products/Sand-and-Sable-Cologne-Spray.html)
 
 ### Positive Reviews

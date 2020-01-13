@@ -1,12 +1,3 @@
----
-title: Bath Body Works Sweet Pea Pocketbac Gel 1 Ounce Older Square Style Bottle Design,
-description: Bath Body Works Sweet Pea Pocketbac Gel 1 Ounce Older Square Style Bottle Design,
-author: Suvojit Manna,
-tags: Bath Body Works Sweet Pea Pocketbac Gel 1 Ounce Older Square Style Bottle Design,
-publishedAt: Fri Jan 10 2020 14:59:50 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:50 GMT+0530 (India Standard Time),
----
-
 # [Bath Body Works Sweet Pea Pocketbac Gel 1 Ounce Older Square Style Bottle Design](https://products.checkmycream.com/products/Bath-Body-Works-Sweet-Pea-Pocketbac-Gel-1-Ounce-Older-Square-Style-Bottle-Design.html)
 
 ### Positive Reviews

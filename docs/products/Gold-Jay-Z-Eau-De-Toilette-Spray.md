@@ -1,12 +1,3 @@
----
-title: Gold Jay Z Eau De Toilette Spray,
-description: Gold Jay Z Eau De Toilette Spray,
-author: Suvojit Manna,
-tags: Gold Jay Z Eau De Toilette Spray,
-publishedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
----
-
 # [Gold Jay Z Eau De Toilette Spray](https://products.checkmycream.com/products/Gold-Jay-Z-Eau-De-Toilette-Spray.html)
 
 ### Positive Reviews

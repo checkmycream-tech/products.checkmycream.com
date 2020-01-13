@@ -1,12 +1,3 @@
----
-title: Cerruti 1881 Eau de Toilette for Women by Nino Cerruti,
-description: Cerruti 1881 Eau de Toilette for Women by Nino Cerruti,
-author: Suvojit Manna,
-tags: Cerruti 1881 Eau de Toilette for Women by Nino Cerruti,
-publishedAt: Fri Jan 10 2020 14:59:19 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:19 GMT+0530 (India Standard Time),
----
-
 # [Cerruti 1881 Eau de Toilette for Women by Nino Cerruti](https://products.checkmycream.com/products/Cerruti-1881-Eau-de-Toilette-for-Women-by-Nino-Cerruti.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: 5 X 2 Way Marbleizing Dotting Pen Set for Nail Art Manicure Pedicure,
-description: 5 X 2 Way Marbleizing Dotting Pen Set for Nail Art Manicure Pedicure,
-author: Suvojit Manna,
-tags: 5 X 2 Way Marbleizing Dotting Pen Set for Nail Art Manicure Pedicure,
-publishedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
----
-
 # [5 X 2 Way Marbleizing Dotting Pen Set for Nail Art Manicure Pedicure](https://products.checkmycream.com/products/5-X-2-Way-Marbleizing-Dotting-Pen-Set-for-Nail-Art-Manicure-Pedicure.html)
 
 ### Positive Reviews

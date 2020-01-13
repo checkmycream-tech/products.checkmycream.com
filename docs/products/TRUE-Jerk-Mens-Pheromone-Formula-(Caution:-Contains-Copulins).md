@@ -1,12 +1,3 @@
----
-title: TRUE Jerk Mens Pheromone Formula (Caution: Contains Copulins),
-description: TRUE Jerk Mens Pheromone Formula (Caution: Contains Copulins),
-author: Suvojit Manna,
-tags: TRUE Jerk Mens Pheromone Formula (Caution: Contains Copulins),
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [TRUE Jerk Mens Pheromone Formula (Caution: Contains Copulins)](https://products.checkmycream.com/products/TRUE-Jerk-Mens-Pheromone-Formula-(Caution:-Contains-Copulins).html)
 
 ### Positive Reviews

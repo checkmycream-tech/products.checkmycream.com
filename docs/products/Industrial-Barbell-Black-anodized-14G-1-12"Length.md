@@ -1,12 +1,3 @@
----
-title: Industrial Barbell Black anodized 14G 1 1/2&quot;Length,
-description: Industrial Barbell Black anodized 14G 1 1/2&quot;Length,
-author: Suvojit Manna,
-tags: Industrial Barbell Black anodized 14G 1 1/2&quot;Length,
-publishedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
----
-
 # [Industrial Barbell Black anodized 14G 1 1/2&quot;Length](https://products.checkmycream.com/products/Industrial-Barbell-Black-anodized-14G-1-12&quot;Length.html)
 
 ### Positive Reviews

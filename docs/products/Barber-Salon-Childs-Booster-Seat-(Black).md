@@ -1,12 +1,3 @@
----
-title: Barber Salon Childs Booster Seat (Black),
-description: Barber Salon Childs Booster Seat (Black),
-author: Suvojit Manna,
-tags: Barber Salon Childs Booster Seat (Black),
-publishedAt: Fri Jan 10 2020 15:00:32 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:32 GMT+0530 (India Standard Time),
----
-
 # [Barber Salon Childs Booster Seat (Black)](https://products.checkmycream.com/products/Barber-Salon-Childs-Booster-Seat-(Black).html)
 
 ### Positive Reviews

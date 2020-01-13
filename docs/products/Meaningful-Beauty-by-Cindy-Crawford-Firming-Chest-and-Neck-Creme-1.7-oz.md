@@ -1,12 +1,3 @@
----
-title: Meaningful Beauty by Cindy Crawford Firming Chest and Neck Creme 1.7 oz,
-description: Meaningful Beauty by Cindy Crawford Firming Chest and Neck Creme 1.7 oz,
-author: Suvojit Manna,
-tags: Meaningful Beauty by Cindy Crawford Firming Chest and Neck Creme 1.7 oz,
-publishedAt: Fri Jan 10 2020 15:00:16 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:16 GMT+0530 (India Standard Time),
----
-
 # [Meaningful Beauty by Cindy Crawford Firming Chest and Neck Creme 1.7 oz](https://products.checkmycream.com/products/Meaningful-Beauty-by-Cindy-Crawford-Firming-Chest-and-Neck-Creme-1.7-oz.html)
 
 ### Positive Reviews

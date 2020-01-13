@@ -1,12 +1,3 @@
----
-title: Gigi Natural Muslin Strips, Small, 100 Strips,
-description: Gigi Natural Muslin Strips, Small, 100 Strips,
-author: Suvojit Manna,
-tags: Gigi Natural Muslin Strips, Small, 100 Strips,
-publishedAt: Fri Jan 10 2020 14:59:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:02 GMT+0530 (India Standard Time),
----
-
 # [Gigi Natural Muslin Strips, Small, 100 Strips](https://products.checkmycream.com/products/Gigi-Natural-Muslin-Strips-Small-100-Strips.html)
 
 ### Positive Reviews

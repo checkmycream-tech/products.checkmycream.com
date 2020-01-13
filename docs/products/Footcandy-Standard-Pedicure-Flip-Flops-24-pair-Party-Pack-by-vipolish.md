@@ -1,12 +1,3 @@
----
-title: Footcandy Standard Pedicure Flip Flops 24-pair Party Pack by vipolish,
-description: Footcandy Standard Pedicure Flip Flops 24-pair Party Pack by vipolish,
-author: Suvojit Manna,
-tags: Footcandy Standard Pedicure Flip Flops 24-pair Party Pack by vipolish,
-publishedAt: Fri Jan 10 2020 14:59:47 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:47 GMT+0530 (India Standard Time),
----
-
 # [Footcandy Standard Pedicure Flip Flops 24-pair Party Pack by vipolish](https://products.checkmycream.com/products/Footcandy-Standard-Pedicure-Flip-Flops-24-pair-Party-Pack-by-vipolish.html)
 
 ### Positive Reviews

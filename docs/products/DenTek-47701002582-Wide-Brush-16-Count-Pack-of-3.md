@@ -1,12 +1,3 @@
----
-title: DenTek 47701002582 Wide Brush 16 Count, Pack of 3,
-description: DenTek 47701002582 Wide Brush 16 Count, Pack of 3,
-author: Suvojit Manna,
-tags: DenTek 47701002582 Wide Brush 16 Count, Pack of 3,
-publishedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
----
-
 # [DenTek 47701002582 Wide Brush 16 Count, Pack of 3](https://products.checkmycream.com/products/DenTek-47701002582-Wide-Brush-16-Count-Pack-of-3.html)
 
 ### Positive Reviews

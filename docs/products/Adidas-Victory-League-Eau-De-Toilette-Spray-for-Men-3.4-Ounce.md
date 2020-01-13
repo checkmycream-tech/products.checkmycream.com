@@ -1,12 +1,3 @@
----
-title: Adidas Victory League Eau De Toilette Spray for Men, 3.4 Ounce,
-description: Adidas Victory League Eau De Toilette Spray for Men, 3.4 Ounce,
-author: Suvojit Manna,
-tags: Adidas Victory League Eau De Toilette Spray for Men, 3.4 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:04 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:04 GMT+0530 (India Standard Time),
----
-
 # [Adidas Victory League Eau De Toilette Spray for Men, 3.4 Ounce](https://products.checkmycream.com/products/Adidas-Victory-League-Eau-De-Toilette-Spray-for-Men-3.4-Ounce.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: 360 White by Perry Ellis for Men Gift Set,
-description: 360 White by Perry Ellis for Men Gift Set,
-author: Suvojit Manna,
-tags: 360 White by Perry Ellis for Men Gift Set,
-publishedAt: Fri Jan 10 2020 15:00:07 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:07 GMT+0530 (India Standard Time),
----
-
 # [360 White by Perry Ellis for Men Gift Set](https://products.checkmycream.com/products/360-White-by-Perry-Ellis-for-Men-Gift-Set.html)
 
 ### Positive Reviews

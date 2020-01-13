@@ -1,12 +1,3 @@
----
-title: Hugo Dark Blue By Hugo Boss For Men. Eau De Toilette Spray 2.5 Ounces,
-description: Hugo Dark Blue By Hugo Boss For Men. Eau De Toilette Spray 2.5 Ounces,
-author: Suvojit Manna,
-tags: Hugo Dark Blue By Hugo Boss For Men. Eau De Toilette Spray 2.5 Ounces,
-publishedAt: Fri Jan 10 2020 14:59:13 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:13 GMT+0530 (India Standard Time),
----
-
 # [Hugo Dark Blue By Hugo Boss For Men. Eau De Toilette Spray 2.5 Ounces](https://products.checkmycream.com/products/Hugo-Dark-Blue-By-Hugo-Boss-For-Men.-Eau-De-Toilette-Spray-2.5-Ounces.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Mrs. Meyer&#x27;s Clean Day Soy Candle-Iowa Pine-4.9 oz,
-description: Mrs. Meyer&#x27;s Clean Day Soy Candle-Iowa Pine-4.9 oz,
-author: Suvojit Manna,
-tags: Mrs. Meyer&#x27;s Clean Day Soy Candle-Iowa Pine-4.9 oz,
-publishedAt: Fri Jan 10 2020 14:59:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:58 GMT+0530 (India Standard Time),
----
-
 # [Mrs. Meyer&#x27;s Clean Day Soy Candle-Iowa Pine-4.9 oz](https://products.checkmycream.com/products/Mrs.-Meyer&#x27;s-Clean-Day-Soy-Candle-Iowa-Pine-4.9-oz.html)
 
 ### Positive Reviews

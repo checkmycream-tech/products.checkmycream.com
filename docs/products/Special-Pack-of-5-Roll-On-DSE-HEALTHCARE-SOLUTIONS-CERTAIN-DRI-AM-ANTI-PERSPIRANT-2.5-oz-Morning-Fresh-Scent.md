@@ -1,12 +1,3 @@
----
-title: Special Pack of 5 Roll On DSE HEALTHCARE SOLUTIONS CERTAIN DRI AM ANTI PERSPIRANT 2.5 oz, Morning Fresh Scent,
-description: Special Pack of 5 Roll On DSE HEALTHCARE SOLUTIONS CERTAIN DRI AM ANTI PERSPIRANT 2.5 oz, Morning Fresh Scent,
-author: Suvojit Manna,
-tags: Special Pack of 5 Roll On DSE HEALTHCARE SOLUTIONS CERTAIN DRI AM ANTI PERSPIRANT 2.5 oz, Morning Fresh Scent,
-publishedAt: Fri Jan 10 2020 14:59:51 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:51 GMT+0530 (India Standard Time),
----
-
 # [Special Pack of 5 Roll On DSE HEALTHCARE SOLUTIONS CERTAIN DRI AM ANTI PERSPIRANT 2.5 oz, Morning Fresh Scent](https://products.checkmycream.com/products/Special-Pack-of-5-Roll-On-DSE-HEALTHCARE-SOLUTIONS-CERTAIN-DRI-AM-ANTI-PERSPIRANT-2.5-oz-Morning-Fresh-Scent.html)
 
 ### Positive Reviews

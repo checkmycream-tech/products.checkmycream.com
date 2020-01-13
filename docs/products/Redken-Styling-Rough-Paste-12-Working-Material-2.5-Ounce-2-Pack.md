@@ -1,12 +1,3 @@
----
-title: Redken Styling Rough Paste 12 Working Material 2.5 Ounce, 2 Pack,
-description: Redken Styling Rough Paste 12 Working Material 2.5 Ounce, 2 Pack,
-author: Suvojit Manna,
-tags: Redken Styling Rough Paste 12 Working Material 2.5 Ounce, 2 Pack,
-publishedAt: Fri Jan 10 2020 15:00:22 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:22 GMT+0530 (India Standard Time),
----
-
 # [Redken Styling Rough Paste 12 Working Material 2.5 Ounce, 2 Pack](https://products.checkmycream.com/products/Redken-Styling-Rough-Paste-12-Working-Material-2.5-Ounce-2-Pack.html)
 
 ### Positive Reviews

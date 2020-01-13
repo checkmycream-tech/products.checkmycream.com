@@ -1,12 +1,3 @@
----
-title: TriDerma Psoriasis Control Shampoo for Itchy Scalp, Dandruff, and Dermatitis Symptoms (6.2 oz),
-description: TriDerma Psoriasis Control Shampoo for Itchy Scalp, Dandruff, and Dermatitis Symptoms (6.2 oz),
-author: Suvojit Manna,
-tags: TriDerma Psoriasis Control Shampoo for Itchy Scalp, Dandruff, and Dermatitis Symptoms (6.2 oz),
-publishedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
----
-
 # [TriDerma Psoriasis Control Shampoo for Itchy Scalp, Dandruff, and Dermatitis Symptoms (6.2 oz)](https://products.checkmycream.com/products/TriDerma-Psoriasis-Control-Shampoo-for-Itchy-Scalp-Dandruff-and-Dermatitis-Symptoms-(6.2-oz).html)
 
 ### Positive Reviews

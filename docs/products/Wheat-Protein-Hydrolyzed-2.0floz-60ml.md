@@ -1,12 +1,3 @@
----
-title: Wheat Protein, Hydrolyzed - 2.0floz / 60ml,
-description: Wheat Protein, Hydrolyzed - 2.0floz / 60ml,
-author: Suvojit Manna,
-tags: Wheat Protein, Hydrolyzed - 2.0floz / 60ml,
-publishedAt: Fri Jan 10 2020 15:00:13 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:13 GMT+0530 (India Standard Time),
----
-
 # [Wheat Protein, Hydrolyzed - 2.0floz / 60ml](https://products.checkmycream.com/products/Wheat-Protein-Hydrolyzed-2.0floz-60ml.html)
 
 ### Positive Reviews

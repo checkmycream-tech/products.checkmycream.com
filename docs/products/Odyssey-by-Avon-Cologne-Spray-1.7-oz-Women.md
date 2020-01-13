@@ -1,12 +1,3 @@
----
-title: Odyssey by Avon Cologne Spray 1.7 oz Women,
-description: Odyssey by Avon Cologne Spray 1.7 oz Women,
-author: Suvojit Manna,
-tags: Odyssey by Avon Cologne Spray 1.7 oz Women,
-publishedAt: Fri Jan 10 2020 14:59:21 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:21 GMT+0530 (India Standard Time),
----
-
 # [Odyssey by Avon Cologne Spray 1.7 oz Women](https://products.checkmycream.com/products/Odyssey-by-Avon-Cologne-Spray-1.7-oz-Women.html)
 
 ### Positive Reviews

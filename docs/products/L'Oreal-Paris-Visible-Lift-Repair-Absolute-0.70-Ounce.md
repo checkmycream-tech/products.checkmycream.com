@@ -1,12 +1,3 @@
----
-title: L&#x27;Oreal Paris Visible Lift Repair Absolute, 0.70 Ounce,
-description: L&#x27;Oreal Paris Visible Lift Repair Absolute, 0.70 Ounce,
-author: Suvojit Manna,
-tags: L&#x27;Oreal Paris Visible Lift Repair Absolute, 0.70 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:22 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:22 GMT+0530 (India Standard Time),
----
-
 # [L&#x27;Oreal Paris Visible Lift Repair Absolute, 0.70 Ounce](https://products.checkmycream.com/products/L&#x27;Oreal-Paris-Visible-Lift-Repair-Absolute-0.70-Ounce.html)
 
 ### Positive Reviews

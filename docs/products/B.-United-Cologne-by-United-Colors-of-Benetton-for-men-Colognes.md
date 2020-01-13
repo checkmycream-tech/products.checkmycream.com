@@ -1,12 +1,3 @@
----
-title: B. United Cologne by United Colors of Benetton for men Colognes,
-description: B. United Cologne by United Colors of Benetton for men Colognes,
-author: Suvojit Manna,
-tags: B. United Cologne by United Colors of Benetton for men Colognes,
-publishedAt: Fri Jan 10 2020 14:59:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:08 GMT+0530 (India Standard Time),
----
-
 # [B. United Cologne by United Colors of Benetton for men Colognes](https://products.checkmycream.com/products/B.-United-Cologne-by-United-Colors-of-Benetton-for-men-Colognes.html)
 
 ### Positive Reviews

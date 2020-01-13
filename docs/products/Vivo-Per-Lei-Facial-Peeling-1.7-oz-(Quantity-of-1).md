@@ -1,12 +1,3 @@
----
-title: Vivo Per Lei Facial Peeling, 1.7 oz (Quantity of 1),
-description: Vivo Per Lei Facial Peeling, 1.7 oz (Quantity of 1),
-author: Suvojit Manna,
-tags: Vivo Per Lei Facial Peeling, 1.7 oz (Quantity of 1),
-publishedAt: Fri Jan 10 2020 15:00:30 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:30 GMT+0530 (India Standard Time),
----
-
 # [Vivo Per Lei Facial Peeling, 1.7 oz (Quantity of 1)](https://products.checkmycream.com/products/Vivo-Per-Lei-Facial-Peeling-1.7-oz-(Quantity-of-1).html)
 
 ### Positive Reviews

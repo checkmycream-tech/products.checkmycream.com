@@ -1,12 +1,3 @@
----
-title: MapofBeauty 40&quot; 100cm Dark Red Long Straight Cosplay Costume Wig Fashion Party Wig,
-description: MapofBeauty 40&quot; 100cm Dark Red Long Straight Cosplay Costume Wig Fashion Party Wig,
-author: Suvojit Manna,
-tags: MapofBeauty 40&quot; 100cm Dark Red Long Straight Cosplay Costume Wig Fashion Party Wig,
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [MapofBeauty 40&quot; 100cm Dark Red Long Straight Cosplay Costume Wig Fashion Party Wig](https://products.checkmycream.com/products/MapofBeauty-40&quot;-100cm-Dark-Red-Long-Straight-Cosplay-Costume-Wig-Fashion-Party-Wig.html)
 
 ### Positive Reviews

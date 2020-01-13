@@ -1,12 +1,3 @@
----
-title: Wella Koleston Perfect 6 Percent Creme Developer, 33.8 Ounce,
-description: Wella Koleston Perfect 6 Percent Creme Developer, 33.8 Ounce,
-author: Suvojit Manna,
-tags: Wella Koleston Perfect 6 Percent Creme Developer, 33.8 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:56 GMT+0530 (India Standard Time),
----
-
 # [Wella Koleston Perfect 6 Percent Creme Developer, 33.8 Ounce](https://products.checkmycream.com/products/Wella-Koleston-Perfect-6-Percent-Creme-Developer-33.8-Ounce.html)
 
 ### Positive Reviews

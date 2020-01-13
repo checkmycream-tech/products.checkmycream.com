@@ -1,12 +1,3 @@
----
-title: Lanza Healing Style Design Foam, 7.1 Ounce Bottle,
-description: Lanza Healing Style Design Foam, 7.1 Ounce Bottle,
-author: Suvojit Manna,
-tags: Lanza Healing Style Design Foam, 7.1 Ounce Bottle,
-publishedAt: Fri Jan 10 2020 14:59:39 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:39 GMT+0530 (India Standard Time),
----
-
 # [Lanza Healing Style Design Foam, 7.1 Ounce Bottle](https://products.checkmycream.com/products/Lanza-Healing-Style-Design-Foam-7.1-Ounce-Bottle.html)
 
 ### Positive Reviews

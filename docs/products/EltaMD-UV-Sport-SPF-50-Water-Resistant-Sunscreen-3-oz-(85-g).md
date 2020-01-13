@@ -1,12 +1,3 @@
----
-title: EltaMD UV Sport SPF 50 Water Resistant Sunscreen 3 oz (85 g),
-description: EltaMD UV Sport SPF 50 Water Resistant Sunscreen 3 oz (85 g),
-author: Suvojit Manna,
-tags: EltaMD UV Sport SPF 50 Water Resistant Sunscreen 3 oz (85 g),
-publishedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
----
-
 # [EltaMD UV Sport SPF 50 Water Resistant Sunscreen 3 oz (85 g)](https://products.checkmycream.com/products/EltaMD-UV-Sport-SPF-50-Water-Resistant-Sunscreen-3-oz-(85-g).html)
 
 ### Positive Reviews

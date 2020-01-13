@@ -1,12 +1,3 @@
----
-title: 20 Premium 3D Clear Rhinestones Bow Tie Manicure Nail Art Decorations By Cheeky®,
-description: 20 Premium 3D Clear Rhinestones Bow Tie Manicure Nail Art Decorations By Cheeky®,
-author: Suvojit Manna,
-tags: 20 Premium 3D Clear Rhinestones Bow Tie Manicure Nail Art Decorations By Cheeky®,
-publishedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
----
-
 # [20 Premium 3D Clear Rhinestones Bow Tie Manicure Nail Art Decorations By Cheeky®](https://products.checkmycream.com/products/20-Premium-3D-Clear-Rhinestones-Bow-Tie-Manicure-Nail-Art-Decorations-By-Cheeky(r).html)
 
 ### Positive Reviews

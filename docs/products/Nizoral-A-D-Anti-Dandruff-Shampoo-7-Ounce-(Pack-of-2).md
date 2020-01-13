@@ -1,12 +1,3 @@
----
-title: Nizoral A-D Anti-Dandruff Shampoo, 7 Ounce (Pack of 2),
-description: Nizoral A-D Anti-Dandruff Shampoo, 7 Ounce (Pack of 2),
-author: Suvojit Manna,
-tags: Nizoral A-D Anti-Dandruff Shampoo, 7 Ounce (Pack of 2),
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [Nizoral A-D Anti-Dandruff Shampoo, 7 Ounce (Pack of 2)](https://products.checkmycream.com/products/Nizoral-A-D-Anti-Dandruff-Shampoo-7-Ounce-(Pack-of-2).html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Philips Sonicare HX6013/64 Proresults Brush Head, Standard, 3 Count,
-description: Philips Sonicare HX6013/64 Proresults Brush Head, Standard, 3 Count,
-author: Suvojit Manna,
-tags: Philips Sonicare HX6013/64 Proresults Brush Head, Standard, 3 Count,
-publishedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
----
-
 # [Philips Sonicare HX6013/64 Proresults Brush Head, Standard, 3 Count](https://products.checkmycream.com/products/Philips-Sonicare-HX601364-Proresults-Brush-Head-Standard-3-Count.html)
 
 ### Positive Reviews

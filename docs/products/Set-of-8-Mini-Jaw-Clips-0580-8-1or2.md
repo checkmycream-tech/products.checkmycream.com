@@ -1,12 +1,3 @@
----
-title: Set of 8 Mini Jaw Clips 0580-8-1or2,
-description: Set of 8 Mini Jaw Clips 0580-8-1or2,
-author: Suvojit Manna,
-tags: Set of 8 Mini Jaw Clips 0580-8-1or2,
-publishedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
----
-
 # [Set of 8 Mini Jaw Clips 0580-8-1or2](https://products.checkmycream.com/products/Set-of-8-Mini-Jaw-Clips-0580-8-1or2.html)
 
 ### Positive Reviews

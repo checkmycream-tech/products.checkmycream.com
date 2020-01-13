@@ -1,12 +1,3 @@
----
-title: Bath &amp; Body Works Aromatherapy Body Wash &amp; Foam Bath Vanilla Verbena,
-description: Bath &amp; Body Works Aromatherapy Body Wash &amp; Foam Bath Vanilla Verbena,
-author: Suvojit Manna,
-tags: Bath &amp; Body Works Aromatherapy Body Wash &amp; Foam Bath Vanilla Verbena,
-publishedAt: Fri Jan 10 2020 15:00:13 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:13 GMT+0530 (India Standard Time),
----
-
 # [Bath &amp; Body Works Aromatherapy Body Wash &amp; Foam Bath Vanilla Verbena](https://products.checkmycream.com/products/Bath-and-Body-Works-Aromatherapy-Body-Wash-and-Foam-Bath-Vanilla-Verbena.html)
 
 ### Positive Reviews

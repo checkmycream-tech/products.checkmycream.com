@@ -1,12 +1,3 @@
----
-title: Set of 2 Avon Moisture Effective Eye Makeup Remover Lotion,60 ml/ 2 fl oz each,
-description: Set of 2 Avon Moisture Effective Eye Makeup Remover Lotion,60 ml/ 2 fl oz each,
-author: Suvojit Manna,
-tags: Set of 2 Avon Moisture Effective Eye Makeup Remover Lotion,60 ml/ 2 fl oz each,
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [Set of 2 Avon Moisture Effective Eye Makeup Remover Lotion,60 ml/ 2 fl oz each](https://products.checkmycream.com/products/Set-of-2-Avon-Moisture-Effective-Eye-Makeup-Remover-Lotion60-ml-2-fl-oz-each.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Liz Claiborne Mambo Eau De Colognes Splash for Men, Mini, 0.18 Ounce,
-description: Liz Claiborne Mambo Eau De Colognes Splash for Men, Mini, 0.18 Ounce,
-author: Suvojit Manna,
-tags: Liz Claiborne Mambo Eau De Colognes Splash for Men, Mini, 0.18 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:01 GMT+0530 (India Standard Time),
----
-
 # [Liz Claiborne Mambo Eau De Colognes Splash for Men, Mini, 0.18 Ounce](https://products.checkmycream.com/products/Liz-Claiborne-Mambo-Eau-De-Colognes-Splash-for-Men-Mini-0.18-Ounce.html)
 
 ### Positive Reviews

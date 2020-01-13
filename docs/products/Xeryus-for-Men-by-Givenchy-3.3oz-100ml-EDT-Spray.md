@@ -1,12 +1,3 @@
----
-title: Xeryus for Men by Givenchy 3.3oz 100ml EDT Spray,
-description: Xeryus for Men by Givenchy 3.3oz 100ml EDT Spray,
-author: Suvojit Manna,
-tags: Xeryus for Men by Givenchy 3.3oz 100ml EDT Spray,
-publishedAt: Fri Jan 10 2020 14:59:30 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:30 GMT+0530 (India Standard Time),
----
-
 # [Xeryus for Men by Givenchy 3.3oz 100ml EDT Spray](https://products.checkmycream.com/products/Xeryus-for-Men-by-Givenchy-3.3oz-100ml-EDT-Spray.html)
 
 ### Positive Reviews

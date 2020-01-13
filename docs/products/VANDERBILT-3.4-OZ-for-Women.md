@@ -1,12 +1,3 @@
----
-title: VANDERBILT 3.4 OZ for Women,
-description: VANDERBILT 3.4 OZ for Women,
-author: Suvojit Manna,
-tags: VANDERBILT 3.4 OZ for Women,
-publishedAt: Fri Jan 10 2020 14:58:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:58:57 GMT+0530 (India Standard Time),
----
-
 # [VANDERBILT 3.4 OZ for Women](https://products.checkmycream.com/products/VANDERBILT-3.4-OZ-for-Women.html)
 
 ### Positive Reviews

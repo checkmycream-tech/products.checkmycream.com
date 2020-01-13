@@ -1,12 +1,3 @@
----
-title: niceEshop(TM) Professional Wooden Handle Nylon Hairs Round Kabuki Makeup Cosmetic Brushes,
-description: niceEshop(TM) Professional Wooden Handle Nylon Hairs Round Kabuki Makeup Cosmetic Brushes,
-author: Suvojit Manna,
-tags: niceEshop(TM) Professional Wooden Handle Nylon Hairs Round Kabuki Makeup Cosmetic Brushes,
-publishedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
----
-
 # [niceEshop(TM) Professional Wooden Handle Nylon Hairs Round Kabuki Makeup Cosmetic Brushes](https://products.checkmycream.com/products/niceEshop(TM)-Professional-Wooden-Handle-Nylon-Hairs-Round-Kabuki-Makeup-Cosmetic-Brushes.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: ProTan Pro Tan Beautifully Dark Bronzer Indoor Tanning Salon Bronzing Tan Lotion 8.5 Ounce,
-description: ProTan Pro Tan Beautifully Dark Bronzer Indoor Tanning Salon Bronzing Tan Lotion 8.5 Ounce,
-author: Suvojit Manna,
-tags: ProTan Pro Tan Beautifully Dark Bronzer Indoor Tanning Salon Bronzing Tan Lotion 8.5 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:21 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:21 GMT+0530 (India Standard Time),
----
-
 # [ProTan Pro Tan Beautifully Dark Bronzer Indoor Tanning Salon Bronzing Tan Lotion 8.5 Ounce](https://products.checkmycream.com/products/ProTan-Pro-Tan-Beautifully-Dark-Bronzer-Indoor-Tanning-Salon-Bronzing-Tan-Lotion-8.5-Ounce.html)
 
 ### Positive Reviews

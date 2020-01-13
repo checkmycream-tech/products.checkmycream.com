@@ -1,12 +1,3 @@
----
-title: OPI New Summer 2011 Collection Come to Poppy,
-description: OPI New Summer 2011 Collection Come to Poppy,
-author: Suvojit Manna,
-tags: OPI New Summer 2011 Collection Come to Poppy,
-publishedAt: Fri Jan 10 2020 15:00:10 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:10 GMT+0530 (India Standard Time),
----
-
 # [OPI New Summer 2011 Collection Come to Poppy](https://products.checkmycream.com/products/OPI-New-Summer-2011-Collection-Come-to-Poppy.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Avon Basics Care Deeply with Aloe Lip Balm (10 Pack),
-description: Avon Basics Care Deeply with Aloe Lip Balm (10 Pack),
-author: Suvojit Manna,
-tags: Avon Basics Care Deeply with Aloe Lip Balm (10 Pack),
-publishedAt: Fri Jan 10 2020 15:00:10 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:10 GMT+0530 (India Standard Time),
----
-
 # [Avon Basics Care Deeply with Aloe Lip Balm (10 Pack)](https://products.checkmycream.com/products/Avon-Basics-Care-Deeply-with-Aloe-Lip-Balm-(10-Pack).html)
 
 ### Positive Reviews

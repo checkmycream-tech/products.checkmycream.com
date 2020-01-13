@@ -1,12 +1,3 @@
----
-title: OPI Matte Top Coat, 0.5 fl oz Body Care / Beauty Care / Bodycare / BeautyCare,
-description: OPI Matte Top Coat, 0.5 fl oz Body Care / Beauty Care / Bodycare / BeautyCare,
-author: Suvojit Manna,
-tags: OPI Matte Top Coat, 0.5 fl oz Body Care / Beauty Care / Bodycare / BeautyCare,
-publishedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
----
-
 # [OPI Matte Top Coat, 0.5 fl oz Body Care / Beauty Care / Bodycare / BeautyCare](https://products.checkmycream.com/products/OPI-Matte-Top-Coat-0.5-fl-oz-Body-Care-Beauty-Care-Bodycare-BeautyCare.html)
 
 ### Positive Reviews

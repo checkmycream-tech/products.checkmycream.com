@@ -1,12 +1,3 @@
----
-title: Mary Kay Creme Lipstick ~Mocha Freeze,
-description: Mary Kay Creme Lipstick ~Mocha Freeze,
-author: Suvojit Manna,
-tags: Mary Kay Creme Lipstick ~Mocha Freeze,
-publishedAt: Fri Jan 10 2020 14:59:46 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:46 GMT+0530 (India Standard Time),
----
-
 # [Mary Kay Creme Lipstick ~Mocha Freeze](https://products.checkmycream.com/products/Mary-Kay-Creme-Lipstick-~Mocha-Freeze.html)
 
 ### Positive Reviews

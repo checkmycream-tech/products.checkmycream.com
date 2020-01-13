@@ -1,12 +1,3 @@
----
-title: Light Blue Edt Spray For Women,
-description: Light Blue Edt Spray For Women,
-author: Suvojit Manna,
-tags: Light Blue Edt Spray For Women,
-publishedAt: Fri Jan 10 2020 14:59:13 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:13 GMT+0530 (India Standard Time),
----
-
 # [Light Blue Edt Spray For Women](https://products.checkmycream.com/products/Light-Blue-Edt-Spray-For-Women.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: 500 CHERRY French Acrylic False Artificial Tips Nail Art,
-description: 500 CHERRY French Acrylic False Artificial Tips Nail Art,
-author: Suvojit Manna,
-tags: 500 CHERRY French Acrylic False Artificial Tips Nail Art,
-publishedAt: Fri Jan 10 2020 14:59:29 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:29 GMT+0530 (India Standard Time),
----
-
 # [500 CHERRY French Acrylic False Artificial Tips Nail Art](https://products.checkmycream.com/products/500-CHERRY-French-Acrylic-False-Artificial-Tips-Nail-Art.html)
 
 ### Positive Reviews

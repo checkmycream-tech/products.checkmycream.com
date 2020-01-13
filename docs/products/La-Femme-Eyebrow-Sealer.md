@@ -1,12 +1,3 @@
----
-title: La Femme Eyebrow Sealer,
-description: La Femme Eyebrow Sealer,
-author: Suvojit Manna,
-tags: La Femme Eyebrow Sealer,
-publishedAt: Fri Jan 10 2020 15:00:28 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:28 GMT+0530 (India Standard Time),
----
-
 # [La Femme Eyebrow Sealer](https://products.checkmycream.com/products/La-Femme-Eyebrow-Sealer.html)
 
 ### Positive Reviews

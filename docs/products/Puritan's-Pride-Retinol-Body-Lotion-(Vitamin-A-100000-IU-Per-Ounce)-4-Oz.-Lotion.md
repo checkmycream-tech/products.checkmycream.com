@@ -1,12 +1,3 @@
----
-title: Puritan&#x27;s Pride Retinol Body Lotion (Vitamin A 100,000 IU Per Ounce)-4 Oz. Lotion,
-description: Puritan&#x27;s Pride Retinol Body Lotion (Vitamin A 100,000 IU Per Ounce)-4 Oz. Lotion,
-author: Suvojit Manna,
-tags: Puritan&#x27;s Pride Retinol Body Lotion (Vitamin A 100,000 IU Per Ounce)-4 Oz. Lotion,
-publishedAt: Fri Jan 10 2020 15:00:07 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:07 GMT+0530 (India Standard Time),
----
-
 # [Puritan&#x27;s Pride Retinol Body Lotion (Vitamin A 100,000 IU Per Ounce)-4 Oz. Lotion](https://products.checkmycream.com/products/Puritan&#x27;s-Pride-Retinol-Body-Lotion-(Vitamin-A-100000-IU-Per-Ounce)-4-Oz.-Lotion.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: CND Vinylux #150 Strawberry Smoothe Nail Polish Lacquer 0.5floz,
-description: CND Vinylux #150 Strawberry Smoothe Nail Polish Lacquer 0.5floz,
-author: Suvojit Manna,
-tags: CND Vinylux #150 Strawberry Smoothe Nail Polish Lacquer 0.5floz,
-publishedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
----
-
 # [CND Vinylux #150 Strawberry Smoothe Nail Polish Lacquer 0.5floz](https://products.checkmycream.com/products/CND-Vinylux-150-Strawberry-Smoothe-Nail-Polish-Lacquer-0.5floz.html)
 
 ### Positive Reviews

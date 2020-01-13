@@ -1,12 +1,3 @@
----
-title: 2-Side Foot Sander, Callus Remover Foot Rasp Files, Colors may vary by Eamee,
-description: 2-Side Foot Sander, Callus Remover Foot Rasp Files, Colors may vary by Eamee,
-author: Suvojit Manna,
-tags: 2-Side Foot Sander, Callus Remover Foot Rasp Files, Colors may vary by Eamee,
-publishedAt: Fri Jan 10 2020 15:00:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:03 GMT+0530 (India Standard Time),
----
-
 # [2-Side Foot Sander, Callus Remover Foot Rasp Files, Colors may vary by Eamee](https://products.checkmycream.com/products/2-Side-Foot-Sander-Callus-Remover-Foot-Rasp-Files-Colors-may-vary-by-Eamee.html)
 
 ### Positive Reviews

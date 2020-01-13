@@ -1,12 +1,3 @@
----
-title: Codi Green Tea Hand &amp; Body Lotion 750ml/25oz,
-description: Codi Green Tea Hand &amp; Body Lotion 750ml/25oz,
-author: Suvojit Manna,
-tags: Codi Green Tea Hand &amp; Body Lotion 750ml/25oz,
-publishedAt: Fri Jan 10 2020 15:00:21 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:21 GMT+0530 (India Standard Time),
----
-
 # [Codi Green Tea Hand &amp; Body Lotion 750ml/25oz](https://products.checkmycream.com/products/Codi-Green-Tea-Hand-and-Body-Lotion-750ml25oz.html)
 
 ### Positive Reviews

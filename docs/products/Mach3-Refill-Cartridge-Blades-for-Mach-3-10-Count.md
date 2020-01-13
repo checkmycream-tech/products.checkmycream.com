@@ -1,12 +1,3 @@
----
-title: Mach3 Refill Cartridge Blades for Mach 3, 10 Count,
-description: Mach3 Refill Cartridge Blades for Mach 3, 10 Count,
-author: Suvojit Manna,
-tags: Mach3 Refill Cartridge Blades for Mach 3, 10 Count,
-publishedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
----
-
 # [Mach3 Refill Cartridge Blades for Mach 3, 10 Count](https://products.checkmycream.com/products/Mach3-Refill-Cartridge-Blades-for-Mach-3-10-Count.html)
 
 ### Positive Reviews

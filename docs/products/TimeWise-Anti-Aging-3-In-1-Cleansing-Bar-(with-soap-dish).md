@@ -1,12 +1,3 @@
----
-title: TimeWise Anti-Aging 3-In-1 Cleansing Bar (with soap dish),
-description: TimeWise Anti-Aging 3-In-1 Cleansing Bar (with soap dish),
-author: Suvojit Manna,
-tags: TimeWise Anti-Aging 3-In-1 Cleansing Bar (with soap dish),
-publishedAt: Fri Jan 10 2020 14:59:04 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:04 GMT+0530 (India Standard Time),
----
-
 # [TimeWise Anti-Aging 3-In-1 Cleansing Bar (with soap dish)](https://products.checkmycream.com/products/TimeWise-Anti-Aging-3-In-1-Cleansing-Bar-(with-soap-dish).html)
 
 ### Positive Reviews

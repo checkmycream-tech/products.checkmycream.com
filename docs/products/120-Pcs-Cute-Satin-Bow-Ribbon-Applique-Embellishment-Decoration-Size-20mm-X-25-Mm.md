@@ -1,12 +1,3 @@
----
-title: 120 Pcs - Cute Satin Bow Ribbon Applique Embellishment Decoration - Size 20mm X 25 Mm,
-description: 120 Pcs - Cute Satin Bow Ribbon Applique Embellishment Decoration - Size 20mm X 25 Mm,
-author: Suvojit Manna,
-tags: 120 Pcs - Cute Satin Bow Ribbon Applique Embellishment Decoration - Size 20mm X 25 Mm,
-publishedAt: Fri Jan 10 2020 15:00:38 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:38 GMT+0530 (India Standard Time),
----
-
 # [120 Pcs - Cute Satin Bow Ribbon Applique Embellishment Decoration - Size 20mm X 25 Mm](https://products.checkmycream.com/products/120-Pcs-Cute-Satin-Bow-Ribbon-Applique-Embellishment-Decoration-Size-20mm-X-25-Mm.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Carolina Herrera 212 NYC Eau de Toilette Spray for Men, 6.75 Ounce,
-description: Carolina Herrera 212 NYC Eau de Toilette Spray for Men, 6.75 Ounce,
-author: Suvojit Manna,
-tags: Carolina Herrera 212 NYC Eau de Toilette Spray for Men, 6.75 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:47 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:47 GMT+0530 (India Standard Time),
----
-
 # [Carolina Herrera 212 NYC Eau de Toilette Spray for Men, 6.75 Ounce](https://products.checkmycream.com/products/Carolina-Herrera-212-NYC-Eau-de-Toilette-Spray-for-Men-6.75-Ounce.html)
 
 ### Positive Reviews

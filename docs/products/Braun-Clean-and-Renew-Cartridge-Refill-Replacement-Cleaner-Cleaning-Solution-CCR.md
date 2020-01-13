@@ -1,12 +1,3 @@
----
-title: Braun Clean and Renew Cartridge, Refill, Replacement Cleaner, Cleaning Solution CCR,
-description: Braun Clean and Renew Cartridge, Refill, Replacement Cleaner, Cleaning Solution CCR,
-author: Suvojit Manna,
-tags: Braun Clean and Renew Cartridge, Refill, Replacement Cleaner, Cleaning Solution CCR,
-publishedAt: Fri Jan 10 2020 14:59:13 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:13 GMT+0530 (India Standard Time),
----
-
 # [Braun Clean and Renew Cartridge, Refill, Replacement Cleaner, Cleaning Solution CCR](https://products.checkmycream.com/products/Braun-Clean-and-Renew-Cartridge-Refill-Replacement-Cleaner-Cleaning-Solution-CCR.html)
 
 ### Positive Reviews

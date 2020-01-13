@@ -1,12 +1,3 @@
----
-title: COVERGIRL &amp; Olay Pressed Powder, 0.39 Oz,
-description: COVERGIRL &amp; Olay Pressed Powder, 0.39 Oz,
-author: Suvojit Manna,
-tags: COVERGIRL &amp; Olay Pressed Powder, 0.39 Oz,
-publishedAt: Fri Jan 10 2020 15:00:30 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:30 GMT+0530 (India Standard Time),
----
-
 # [COVERGIRL &amp; Olay Pressed Powder, 0.39 Oz](https://products.checkmycream.com/products/COVERGIRL-and-Olay-Pressed-Powder-0.39-Oz.html)
 
 ### Positive Reviews

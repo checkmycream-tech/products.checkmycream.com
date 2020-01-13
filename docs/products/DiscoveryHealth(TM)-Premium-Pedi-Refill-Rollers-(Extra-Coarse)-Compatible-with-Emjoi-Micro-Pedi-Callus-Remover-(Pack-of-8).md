@@ -1,12 +1,3 @@
----
-title: DiscoveryHealth(TM) Premium Pedi Refill Rollers (Extra Coarse) Compatible with Emjoi Micro Pedi Callus Remover (Pack of 8),
-description: DiscoveryHealth(TM) Premium Pedi Refill Rollers (Extra Coarse) Compatible with Emjoi Micro Pedi Callus Remover (Pack of 8),
-author: Suvojit Manna,
-tags: DiscoveryHealth(TM) Premium Pedi Refill Rollers (Extra Coarse) Compatible with Emjoi Micro Pedi Callus Remover (Pack of 8),
-publishedAt: Fri Jan 10 2020 15:01:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:05 GMT+0530 (India Standard Time),
----
-
 # [DiscoveryHealth(TM) Premium Pedi Refill Rollers (Extra Coarse) Compatible with Emjoi Micro Pedi Callus Remover (Pack of 8)](https://products.checkmycream.com/products/DiscoveryHealth(TM)-Premium-Pedi-Refill-Rollers-(Extra-Coarse)-Compatible-with-Emjoi-Micro-Pedi-Callus-Remover-(Pack-of-8).html)
 
 ### Positive Reviews

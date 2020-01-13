@@ -1,12 +1,3 @@
----
-title: Davidoff Cool Water women&#x27;s fragrance by Davidoff Body Lotion 2.5 oz,
-description: Davidoff Cool Water women&#x27;s fragrance by Davidoff Body Lotion 2.5 oz,
-author: Suvojit Manna,
-tags: Davidoff Cool Water women&#x27;s fragrance by Davidoff Body Lotion 2.5 oz,
-publishedAt: Fri Jan 10 2020 15:00:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:05 GMT+0530 (India Standard Time),
----
-
 # [Davidoff Cool Water women&#x27;s fragrance by Davidoff Body Lotion 2.5 oz](https://products.checkmycream.com/products/Davidoff-Cool-Water-women&#x27;s-fragrance-by-Davidoff-Body-Lotion-2.5-oz.html)
 
 ### Positive Reviews

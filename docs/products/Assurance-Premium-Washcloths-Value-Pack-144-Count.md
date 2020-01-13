@@ -1,12 +1,3 @@
----
-title: Assurance Premium Washcloths Value Pack 144 Count,
-description: Assurance Premium Washcloths Value Pack 144 Count,
-author: Suvojit Manna,
-tags: Assurance Premium Washcloths Value Pack 144 Count,
-publishedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
----
-
 # [Assurance Premium Washcloths Value Pack 144 Count](https://products.checkmycream.com/products/Assurance-Premium-Washcloths-Value-Pack-144-Count.html)
 
 ### Positive Reviews

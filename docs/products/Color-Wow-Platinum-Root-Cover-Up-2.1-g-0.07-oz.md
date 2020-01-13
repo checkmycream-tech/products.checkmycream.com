@@ -1,12 +1,3 @@
----
-title: Color Wow Platinum Root Cover Up 2.1 g 0.07 oz,
-description: Color Wow Platinum Root Cover Up 2.1 g 0.07 oz,
-author: Suvojit Manna,
-tags: Color Wow Platinum Root Cover Up 2.1 g 0.07 oz,
-publishedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
----
-
 # [Color Wow Platinum Root Cover Up 2.1 g 0.07 oz](https://products.checkmycream.com/products/Color-Wow-Platinum-Root-Cover-Up-2.1-g-0.07-oz.html)
 
 ### Positive Reviews

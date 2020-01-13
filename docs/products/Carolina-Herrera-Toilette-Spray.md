@@ -1,12 +1,3 @@
----
-title: Carolina Herrera  Toilette Spray,
-description: Carolina Herrera  Toilette Spray,
-author: Suvojit Manna,
-tags: Carolina Herrera  Toilette Spray,
-publishedAt: Fri Jan 10 2020 15:00:10 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:10 GMT+0530 (India Standard Time),
----
-
 # [Carolina Herrera  Toilette Spray](https://products.checkmycream.com/products/Carolina-Herrera-Toilette-Spray.html)
 
 ### Positive Reviews

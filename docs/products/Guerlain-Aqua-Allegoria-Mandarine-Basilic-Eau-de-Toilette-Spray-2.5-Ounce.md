@@ -1,12 +1,3 @@
----
-title: Guerlain Aqua Allegoria Mandarine Basilic Eau de Toilette Spray, 2.5 Ounce,
-description: Guerlain Aqua Allegoria Mandarine Basilic Eau de Toilette Spray, 2.5 Ounce,
-author: Suvojit Manna,
-tags: Guerlain Aqua Allegoria Mandarine Basilic Eau de Toilette Spray, 2.5 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:13 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:13 GMT+0530 (India Standard Time),
----
-
 # [Guerlain Aqua Allegoria Mandarine Basilic Eau de Toilette Spray, 2.5 Ounce](https://products.checkmycream.com/products/Guerlain-Aqua-Allegoria-Mandarine-Basilic-Eau-de-Toilette-Spray-2.5-Ounce.html)
 
 ### Positive Reviews

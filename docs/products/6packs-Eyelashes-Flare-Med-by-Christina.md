@@ -1,12 +1,3 @@
----
-title: 6packs Eyelashes - Flare Med by Christina,
-description: 6packs Eyelashes - Flare Med by Christina,
-author: Suvojit Manna,
-tags: 6packs Eyelashes - Flare Med by Christina,
-publishedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
----
-
 # [6packs Eyelashes - Flare Med by Christina](https://products.checkmycream.com/products/6packs-Eyelashes-Flare-Med-by-Christina.html)
 
 ### Positive Reviews

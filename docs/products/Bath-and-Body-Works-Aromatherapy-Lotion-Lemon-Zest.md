@@ -1,12 +1,3 @@
----
-title: Bath &amp; Body Works Aromatherapy Lotion Lemon Zest,
-description: Bath &amp; Body Works Aromatherapy Lotion Lemon Zest,
-author: Suvojit Manna,
-tags: Bath &amp; Body Works Aromatherapy Lotion Lemon Zest,
-publishedAt: Fri Jan 10 2020 15:00:07 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:07 GMT+0530 (India Standard Time),
----
-
 # [Bath &amp; Body Works Aromatherapy Lotion Lemon Zest](https://products.checkmycream.com/products/Bath-and-Body-Works-Aromatherapy-Lotion-Lemon-Zest.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Proactiv 3 Step Acne Treatment System Starter Kit (30 Day),
-description: Proactiv 3 Step Acne Treatment System Starter Kit (30 Day),
-author: Suvojit Manna,
-tags: Proactiv 3 Step Acne Treatment System Starter Kit (30 Day),
-publishedAt: Fri Jan 10 2020 15:01:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:08 GMT+0530 (India Standard Time),
----
-
 # [Proactiv 3 Step Acne Treatment System Starter Kit (30 Day)](https://products.checkmycream.com/products/Proactiv-3-Step-Acne-Treatment-System-Starter-Kit-(30-Day).html)
 
 ### Positive Reviews

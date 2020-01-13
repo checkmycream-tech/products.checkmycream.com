@@ -1,12 +1,3 @@
----
-title: 3D Fiber Lashes Mascara - 2 Sets (4 tubes) Angel Mask AM368 environmental friendly pack Mascara Set,
-description: 3D Fiber Lashes Mascara - 2 Sets (4 tubes) Angel Mask AM368 environmental friendly pack Mascara Set,
-author: Suvojit Manna,
-tags: 3D Fiber Lashes Mascara - 2 Sets (4 tubes) Angel Mask AM368 environmental friendly pack Mascara Set,
-publishedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
----
-
 # [3D Fiber Lashes Mascara - 2 Sets (4 tubes) Angel Mask AM368 environmental friendly pack Mascara Set](https://products.checkmycream.com/products/3D-Fiber-Lashes-Mascara-2-Sets-(4-tubes)-Angel-Mask-AM368-environmental-friendly-pack-Mascara-Set.html)
 
 ### Positive Reviews

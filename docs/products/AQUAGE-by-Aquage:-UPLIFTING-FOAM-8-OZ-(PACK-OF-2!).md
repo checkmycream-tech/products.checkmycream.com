@@ -1,12 +1,3 @@
----
-title: AQUAGE by Aquage: UPLIFTING FOAM 8 OZ (PACK OF 2!),
-description: AQUAGE by Aquage: UPLIFTING FOAM 8 OZ (PACK OF 2!),
-author: Suvojit Manna,
-tags: AQUAGE by Aquage: UPLIFTING FOAM 8 OZ (PACK OF 2!),
-publishedAt: Fri Jan 10 2020 15:00:22 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:22 GMT+0530 (India Standard Time),
----
-
 # [AQUAGE by Aquage: UPLIFTING FOAM 8 OZ (PACK OF 2!)](https://products.checkmycream.com/products/AQUAGE-by-Aquage:-UPLIFTING-FOAM-8-OZ-(PACK-OF-2!).html)
 
 ### Positive Reviews

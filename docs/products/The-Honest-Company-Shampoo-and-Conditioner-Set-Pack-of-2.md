@@ -1,12 +1,3 @@
----
-title: The Honest Company Shampoo &amp; Conditioner Set, Pack of 2,
-description: The Honest Company Shampoo &amp; Conditioner Set, Pack of 2,
-author: Suvojit Manna,
-tags: The Honest Company Shampoo &amp; Conditioner Set, Pack of 2,
-publishedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
----
-
 # [The Honest Company Shampoo &amp; Conditioner Set, Pack of 2](https://products.checkmycream.com/products/The-Honest-Company-Shampoo-and-Conditioner-Set-Pack-of-2.html)
 
 ### Positive Reviews

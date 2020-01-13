@@ -1,12 +1,3 @@
----
-title: Kerastase Age Premium Bain Substantif Rejuvenating Shampoo Unisex Shampoo by Kerastase, 34 Ounce,
-description: Kerastase Age Premium Bain Substantif Rejuvenating Shampoo Unisex Shampoo by Kerastase, 34 Ounce,
-author: Suvojit Manna,
-tags: Kerastase Age Premium Bain Substantif Rejuvenating Shampoo Unisex Shampoo by Kerastase, 34 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:48 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:48 GMT+0530 (India Standard Time),
----
-
 # [Kerastase Age Premium Bain Substantif Rejuvenating Shampoo Unisex Shampoo by Kerastase, 34 Ounce](https://products.checkmycream.com/products/Kerastase-Age-Premium-Bain-Substantif-Rejuvenating-Shampoo-Unisex-Shampoo-by-Kerastase-34-Ounce.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: ROBERTO CAVALLI For Men By ROBERTO CAVALLI Eau De Toilette Spray,
-description: ROBERTO CAVALLI For Men By ROBERTO CAVALLI Eau De Toilette Spray,
-author: Suvojit Manna,
-tags: ROBERTO CAVALLI For Men By ROBERTO CAVALLI Eau De Toilette Spray,
-publishedAt: Fri Jan 10 2020 14:59:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:05 GMT+0530 (India Standard Time),
----
-
 # [ROBERTO CAVALLI For Men By ROBERTO CAVALLI Eau De Toilette Spray](https://products.checkmycream.com/products/ROBERTO-CAVALLI-For-Men-By-ROBERTO-CAVALLI-Eau-De-Toilette-Spray.html)
 
 ### Positive Reviews

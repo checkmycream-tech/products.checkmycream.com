@@ -1,12 +1,3 @@
----
-title: 212 Sexy Men Cologne by Carolina Herrera for men Colognes,
-description: 212 Sexy Men Cologne by Carolina Herrera for men Colognes,
-author: Suvojit Manna,
-tags: 212 Sexy Men Cologne by Carolina Herrera for men Colognes,
-publishedAt: Fri Jan 10 2020 14:59:29 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:29 GMT+0530 (India Standard Time),
----
-
 # [212 Sexy Men Cologne by Carolina Herrera for men Colognes](https://products.checkmycream.com/products/212-Sexy-Men-Cologne-by-Carolina-Herrera-for-men-Colognes.html)
 
 ### Positive Reviews

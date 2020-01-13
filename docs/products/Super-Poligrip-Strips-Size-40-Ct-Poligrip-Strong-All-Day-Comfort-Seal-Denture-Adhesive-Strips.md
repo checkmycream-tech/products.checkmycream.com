@@ -1,12 +1,3 @@
----
-title: Super Poligrip Strips Size 40 Ct Poligrip Strong All Day Comfort Seal Denture Adhesive Strips,
-description: Super Poligrip Strips Size 40 Ct Poligrip Strong All Day Comfort Seal Denture Adhesive Strips,
-author: Suvojit Manna,
-tags: Super Poligrip Strips Size 40 Ct Poligrip Strong All Day Comfort Seal Denture Adhesive Strips,
-publishedAt: Fri Jan 10 2020 14:59:21 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:21 GMT+0530 (India Standard Time),
----
-
 # [Super Poligrip Strips Size 40 Ct Poligrip Strong All Day Comfort Seal Denture Adhesive Strips](https://products.checkmycream.com/products/Super-Poligrip-Strips-Size-40-Ct-Poligrip-Strong-All-Day-Comfort-Seal-Denture-Adhesive-Strips.html)
 
 ### Positive Reviews

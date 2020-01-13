@@ -1,12 +1,3 @@
----
-title: Diesel Zero Plus Masculine Cologne by Diesel for men Colognes,
-description: Diesel Zero Plus Masculine Cologne by Diesel for men Colognes,
-author: Suvojit Manna,
-tags: Diesel Zero Plus Masculine Cologne by Diesel for men Colognes,
-publishedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
----
-
 # [Diesel Zero Plus Masculine Cologne by Diesel for men Colognes](https://products.checkmycream.com/products/Diesel-Zero-Plus-Masculine-Cologne-by-Diesel-for-men-Colognes.html)
 
 ### Positive Reviews

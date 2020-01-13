@@ -1,12 +1,3 @@
----
-title: Aquasentials Terry Cloth Spa Slippers,
-description: Aquasentials Terry Cloth Spa Slippers,
-author: Suvojit Manna,
-tags: Aquasentials Terry Cloth Spa Slippers,
-publishedAt: Fri Jan 10 2020 15:00:12 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:12 GMT+0530 (India Standard Time),
----
-
 # [Aquasentials Terry Cloth Spa Slippers](https://products.checkmycream.com/products/Aquasentials-Terry-Cloth-Spa-Slippers.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Usher By Usher For Men. Eau De Toilette .17-Ounce Mini,
-description: Usher By Usher For Men. Eau De Toilette .17-Ounce Mini,
-author: Suvojit Manna,
-tags: Usher By Usher For Men. Eau De Toilette .17-Ounce Mini,
-publishedAt: Fri Jan 10 2020 14:59:24 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:24 GMT+0530 (India Standard Time),
----
-
 # [Usher By Usher For Men. Eau De Toilette .17-Ounce Mini](https://products.checkmycream.com/products/Usher-By-Usher-For-Men.-Eau-De-Toilette-.17-Ounce-Mini.html)
 
 ### Positive Reviews

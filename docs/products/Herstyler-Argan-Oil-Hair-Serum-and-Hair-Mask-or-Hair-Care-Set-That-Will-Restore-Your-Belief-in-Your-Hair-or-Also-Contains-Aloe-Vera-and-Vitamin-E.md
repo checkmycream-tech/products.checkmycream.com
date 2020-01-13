@@ -1,12 +1,3 @@
----
-title: Herstyler Argan Oil Hair Serum and Hair Mask | Hair Care Set That Will Restore Your Belief in Your Hair | Also Contains Aloe Vera and Vitamin E,
-description: Herstyler Argan Oil Hair Serum and Hair Mask | Hair Care Set That Will Restore Your Belief in Your Hair | Also Contains Aloe Vera and Vitamin E,
-author: Suvojit Manna,
-tags: Herstyler Argan Oil Hair Serum and Hair Mask | Hair Care Set That Will Restore Your Belief in Your Hair | Also Contains Aloe Vera and Vitamin E,
-publishedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
----
-
 # [Herstyler Argan Oil Hair Serum and Hair Mask | Hair Care Set That Will Restore Your Belief in Your Hair | Also Contains Aloe Vera and Vitamin E](https://products.checkmycream.com/products/Herstyler-Argan-Oil-Hair-Serum-and-Hair-Mask-or-Hair-Care-Set-That-Will-Restore-Your-Belief-in-Your-Hair-or-Also-Contains-Aloe-Vera-and-Vitamin-E.html)
 
 ### Positive Reviews

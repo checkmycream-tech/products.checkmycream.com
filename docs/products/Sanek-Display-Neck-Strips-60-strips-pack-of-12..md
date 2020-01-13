@@ -1,12 +1,3 @@
----
-title: Sanek Display Neck Strips, 60 strips pack of 12.,
-description: Sanek Display Neck Strips, 60 strips pack of 12.,
-author: Suvojit Manna,
-tags: Sanek Display Neck Strips, 60 strips pack of 12.,
-publishedAt: Fri Jan 10 2020 14:59:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:00 GMT+0530 (India Standard Time),
----
-
 # [Sanek Display Neck Strips, 60 strips pack of 12.](https://products.checkmycream.com/products/Sanek-Display-Neck-Strips-60-strips-pack-of-12..html)
 
 ### Positive Reviews

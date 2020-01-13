@@ -1,12 +1,3 @@
----
-title: Kerastase Densifique Replenishing Gel Mask, 6.8 Ounce,
-description: Kerastase Densifique Replenishing Gel Mask, 6.8 Ounce,
-author: Suvojit Manna,
-tags: Kerastase Densifique Replenishing Gel Mask, 6.8 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
----
-
 # [Kerastase Densifique Replenishing Gel Mask, 6.8 Ounce](https://products.checkmycream.com/products/Kerastase-Densifique-Replenishing-Gel-Mask-6.8-Ounce.html)
 
 ### Positive Reviews

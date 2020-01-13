@@ -1,12 +1,3 @@
----
-title: Eminence Caramel Latte Tinted Moisturizer Spf 25 (Light To Medium), 1.2 Ounce,
-description: Eminence Caramel Latte Tinted Moisturizer Spf 25 (Light To Medium), 1.2 Ounce,
-author: Suvojit Manna,
-tags: Eminence Caramel Latte Tinted Moisturizer Spf 25 (Light To Medium), 1.2 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:29 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:29 GMT+0530 (India Standard Time),
----
-
 # [Eminence Caramel Latte Tinted Moisturizer Spf 25 (Light To Medium), 1.2 Ounce](https://products.checkmycream.com/products/Eminence-Caramel-Latte-Tinted-Moisturizer-Spf-25-(Light-To-Medium)-1.2-Ounce.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Aunt Jackie&#x27;s Curl La La, Lightweight Curl Defining Custard, Creates Long Lasting Curly Hair with Mega-moisture Humectants, Enriched with Shea Butter and Olive Oil, 15 Ounce Jar,
-description: Aunt Jackie&#x27;s Curl La La, Lightweight Curl Defining Custard, Creates Long Lasting Curly Hair with Mega-moisture Humectants, Enriched with Shea Butter and Olive Oil, 15 Ounce Jar,
-author: Suvojit Manna,
-tags: Aunt Jackie&#x27;s Curl La La, Lightweight Curl Defining Custard, Creates Long Lasting Curly Hair with Mega-moisture Humectants, Enriched with Shea Butter and Olive Oil, 15 Ounce Jar,
-publishedAt: Fri Jan 10 2020 15:01:04 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:04 GMT+0530 (India Standard Time),
----
-
 # [Aunt Jackie&#x27;s Curl La La, Lightweight Curl Defining Custard, Creates Long Lasting Curly Hair with Mega-moisture Humectants, Enriched with Shea Butter and Olive Oil, 15 Ounce Jar](https://products.checkmycream.com/products/Aunt-Jackie&#x27;s-Curl-La-La-Lightweight-Curl-Defining-Custard-Creates-Long-Lasting-Curly-Hair-with-Mega-moisture-Humectants-Enriched-with-Shea-Butter-and-Olive-Oil-15-Ounce-Jar.html)
 
 ### Positive Reviews

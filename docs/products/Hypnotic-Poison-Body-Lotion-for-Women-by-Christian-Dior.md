@@ -1,12 +1,3 @@
----
-title: Hypnotic Poison Body Lotion for Women by Christian Dior,
-description: Hypnotic Poison Body Lotion for Women by Christian Dior,
-author: Suvojit Manna,
-tags: Hypnotic Poison Body Lotion for Women by Christian Dior,
-publishedAt: Fri Jan 10 2020 14:59:12 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:12 GMT+0530 (India Standard Time),
----
-
 # [Hypnotic Poison Body Lotion for Women by Christian Dior](https://products.checkmycream.com/products/Hypnotic-Poison-Body-Lotion-for-Women-by-Christian-Dior.html)
 
 ### Positive Reviews

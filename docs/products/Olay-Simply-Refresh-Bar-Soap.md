@@ -1,12 +1,3 @@
----
-title: Olay Simply Refresh Bar Soap,
-description: Olay Simply Refresh Bar Soap,
-author: Suvojit Manna,
-tags: Olay Simply Refresh Bar Soap,
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [Olay Simply Refresh Bar Soap](https://products.checkmycream.com/products/Olay-Simply-Refresh-Bar-Soap.html)
 
 ### Positive Reviews

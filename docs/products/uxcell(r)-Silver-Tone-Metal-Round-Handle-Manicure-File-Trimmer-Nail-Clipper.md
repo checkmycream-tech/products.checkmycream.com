@@ -1,12 +1,3 @@
----
-title: uxcell® Silver Tone Metal Round Handle Manicure File Trimmer Nail Clipper,
-description: uxcell® Silver Tone Metal Round Handle Manicure File Trimmer Nail Clipper,
-author: Suvojit Manna,
-tags: uxcell® Silver Tone Metal Round Handle Manicure File Trimmer Nail Clipper,
-publishedAt: Fri Jan 10 2020 15:00:37 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:37 GMT+0530 (India Standard Time),
----
-
 # [uxcell® Silver Tone Metal Round Handle Manicure File Trimmer Nail Clipper](https://products.checkmycream.com/products/uxcell(r)-Silver-Tone-Metal-Round-Handle-Manicure-File-Trimmer-Nail-Clipper.html)
 
 ### Positive Reviews

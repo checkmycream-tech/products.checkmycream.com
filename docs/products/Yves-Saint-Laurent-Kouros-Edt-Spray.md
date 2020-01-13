@@ -1,12 +1,3 @@
----
-title: Yves Saint Laurent Kouros Edt Spray,
-description: Yves Saint Laurent Kouros Edt Spray,
-author: Suvojit Manna,
-tags: Yves Saint Laurent Kouros Edt Spray,
-publishedAt: Fri Jan 10 2020 14:59:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:05 GMT+0530 (India Standard Time),
----
-
 # [Yves Saint Laurent Kouros Edt Spray](https://products.checkmycream.com/products/Yves-Saint-Laurent-Kouros-Edt-Spray.html)
 
 ### Positive Reviews

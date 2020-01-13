@@ -1,12 +1,3 @@
----
-title: Hylands Homeopathic: Calms Forte Sleep Aid, 100 tab,
-description: Hylands Homeopathic: Calms Forte Sleep Aid, 100 tab,
-author: Suvojit Manna,
-tags: Hylands Homeopathic: Calms Forte Sleep Aid, 100 tab,
-publishedAt: Fri Jan 10 2020 14:59:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:56 GMT+0530 (India Standard Time),
----
-
 # [Hylands Homeopathic: Calms Forte Sleep Aid, 100 tab](https://products.checkmycream.com/products/Hylands-Homeopathic:-Calms-Forte-Sleep-Aid-100-tab.html)
 
 ### Positive Reviews

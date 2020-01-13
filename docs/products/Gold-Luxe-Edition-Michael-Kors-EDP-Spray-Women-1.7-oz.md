@@ -1,12 +1,3 @@
----
-title: Gold Luxe Edition Michael Kors EDP Spray Women 1.7 oz,
-description: Gold Luxe Edition Michael Kors EDP Spray Women 1.7 oz,
-author: Suvojit Manna,
-tags: Gold Luxe Edition Michael Kors EDP Spray Women 1.7 oz,
-publishedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
----
-
 # [Gold Luxe Edition Michael Kors EDP Spray Women 1.7 oz](https://products.checkmycream.com/products/Gold-Luxe-Edition-Michael-Kors-EDP-Spray-Women-1.7-oz.html)
 
 ### Positive Reviews

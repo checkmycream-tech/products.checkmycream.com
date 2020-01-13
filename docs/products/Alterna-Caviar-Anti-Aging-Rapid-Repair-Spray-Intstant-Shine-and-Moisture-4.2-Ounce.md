@@ -1,12 +1,3 @@
----
-title: Alterna Caviar Anti Aging Rapid Repair Spray Intstant Shine and Moisture, 4.2 Ounce,
-description: Alterna Caviar Anti Aging Rapid Repair Spray Intstant Shine and Moisture, 4.2 Ounce,
-author: Suvojit Manna,
-tags: Alterna Caviar Anti Aging Rapid Repair Spray Intstant Shine and Moisture, 4.2 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:20 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:20 GMT+0530 (India Standard Time),
----
-
 # [Alterna Caviar Anti Aging Rapid Repair Spray Intstant Shine and Moisture, 4.2 Ounce](https://products.checkmycream.com/products/Alterna-Caviar-Anti-Aging-Rapid-Repair-Spray-Intstant-Shine-and-Moisture-4.2-Ounce.html)
 
 ### Positive Reviews

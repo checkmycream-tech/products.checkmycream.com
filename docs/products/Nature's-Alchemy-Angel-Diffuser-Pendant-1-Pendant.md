@@ -1,12 +1,3 @@
----
-title: Nature&#x27;s Alchemy Angel Diffuser Pendant, 1 Pendant,
-description: Nature&#x27;s Alchemy Angel Diffuser Pendant, 1 Pendant,
-author: Suvojit Manna,
-tags: Nature&#x27;s Alchemy Angel Diffuser Pendant, 1 Pendant,
-publishedAt: Fri Jan 10 2020 14:59:12 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:12 GMT+0530 (India Standard Time),
----
-
 # [Nature&#x27;s Alchemy Angel Diffuser Pendant, 1 Pendant](https://products.checkmycream.com/products/Nature&#x27;s-Alchemy-Angel-Diffuser-Pendant-1-Pendant.html)
 
 ### Positive Reviews

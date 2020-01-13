@@ -1,12 +1,3 @@
----
-title: TimeWise® 3-In-1 Cleansing Bar,
-description: TimeWise® 3-In-1 Cleansing Bar,
-author: Suvojit Manna,
-tags: TimeWise® 3-In-1 Cleansing Bar,
-publishedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
----
-
 # [TimeWise® 3-In-1 Cleansing Bar](https://products.checkmycream.com/products/TimeWise(r)-3-In-1-Cleansing-Bar.html)
 
 ### Positive Reviews

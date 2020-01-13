@@ -1,12 +1,3 @@
----
-title: Salvatore Ferragamo Edp Spray For Women,
-description: Salvatore Ferragamo Edp Spray For Women,
-author: Suvojit Manna,
-tags: Salvatore Ferragamo Edp Spray For Women,
-publishedAt: Fri Jan 10 2020 14:59:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:03 GMT+0530 (India Standard Time),
----
-
 # [Salvatore Ferragamo Edp Spray For Women](https://products.checkmycream.com/products/Salvatore-Ferragamo-Edp-Spray-For-Women.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: HeroNeo® Nail Stamping Plate Image Stamps Plate Stamping Nail Printing Art Decor Manicure,
-description: HeroNeo® Nail Stamping Plate Image Stamps Plate Stamping Nail Printing Art Decor Manicure,
-author: Suvojit Manna,
-tags: HeroNeo® Nail Stamping Plate Image Stamps Plate Stamping Nail Printing Art Decor Manicure,
-publishedAt: Fri Jan 10 2020 15:01:07 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:07 GMT+0530 (India Standard Time),
----
-
 # [HeroNeo® Nail Stamping Plate Image Stamps Plate Stamping Nail Printing Art Decor Manicure](https://products.checkmycream.com/products/HeroNeo(r)-Nail-Stamping-Plate-Image-Stamps-Plate-Stamping-Nail-Printing-Art-Decor-Manicure.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Nylon &amp; Spandex Ladies Slimming Arm Shaper Cellulite Fat Buster Wrap/Belt,
-description: Nylon &amp; Spandex Ladies Slimming Arm Shaper Cellulite Fat Buster Wrap/Belt,
-author: Suvojit Manna,
-tags: Nylon &amp; Spandex Ladies Slimming Arm Shaper Cellulite Fat Buster Wrap/Belt,
-publishedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
----
-
 # [Nylon &amp; Spandex Ladies Slimming Arm Shaper Cellulite Fat Buster Wrap/Belt](https://products.checkmycream.com/products/Nylon-and-Spandex-Ladies-Slimming-Arm-Shaper-Cellulite-Fat-Buster-WrapBelt.html)
 
 ### Positive Reviews

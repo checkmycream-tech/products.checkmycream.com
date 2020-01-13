@@ -1,12 +1,3 @@
----
-title: surface AWAKEN PROTEIN MOUSSE 8.8oz / 250G,
-description: surface AWAKEN PROTEIN MOUSSE 8.8oz / 250G,
-author: Suvojit Manna,
-tags: surface AWAKEN PROTEIN MOUSSE 8.8oz / 250G,
-publishedAt: Fri Jan 10 2020 15:00:32 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:32 GMT+0530 (India Standard Time),
----
-
 # [surface AWAKEN PROTEIN MOUSSE 8.8oz / 250G](https://products.checkmycream.com/products/surface-AWAKEN-PROTEIN-MOUSSE-8.8oz-250G.html)
 
 ### Positive Reviews

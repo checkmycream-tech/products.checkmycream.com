@@ -1,12 +1,3 @@
----
-title: Lot of 12 Double Jeweled Crystal Belly Button Navel Rings Piercing,
-description: Lot of 12 Double Jeweled Crystal Belly Button Navel Rings Piercing,
-author: Suvojit Manna,
-tags: Lot of 12 Double Jeweled Crystal Belly Button Navel Rings Piercing,
-publishedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
----
-
 # [Lot of 12 Double Jeweled Crystal Belly Button Navel Rings Piercing](https://products.checkmycream.com/products/Lot-of-12-Double-Jeweled-Crystal-Belly-Button-Navel-Rings-Piercing.html)
 
 ### Positive Reviews

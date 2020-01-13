@@ -1,12 +1,3 @@
----
-title: Prada Milano Infusion D&#x27;Iris Eau-de-toilette Spray,
-description: Prada Milano Infusion D&#x27;Iris Eau-de-toilette Spray,
-author: Suvojit Manna,
-tags: Prada Milano Infusion D&#x27;Iris Eau-de-toilette Spray,
-publishedAt: Fri Jan 10 2020 14:59:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:56 GMT+0530 (India Standard Time),
----
-
 # [Prada Milano Infusion D&#x27;Iris Eau-de-toilette Spray](https://products.checkmycream.com/products/Prada-Milano-Infusion-D&#x27;Iris-Eau-de-toilette-Spray.html)
 
 ### Positive Reviews

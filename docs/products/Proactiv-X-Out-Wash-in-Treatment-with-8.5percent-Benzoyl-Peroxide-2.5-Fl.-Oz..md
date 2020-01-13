@@ -1,12 +1,3 @@
----
-title: Proactiv X Out Wash in Treatment with 8.5% Benzoyl Peroxide 2.5 Fl. Oz.,
-description: Proactiv X Out Wash in Treatment with 8.5% Benzoyl Peroxide 2.5 Fl. Oz.,
-author: Suvojit Manna,
-tags: Proactiv X Out Wash in Treatment with 8.5% Benzoyl Peroxide 2.5 Fl. Oz.,
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [Proactiv X Out Wash in Treatment with 8.5% Benzoyl Peroxide 2.5 Fl. Oz.](https://products.checkmycream.com/products/Proactiv-X-Out-Wash-in-Treatment-with-8.5percent-Benzoyl-Peroxide-2.5-Fl.-Oz..html)
 
 ### Positive Reviews

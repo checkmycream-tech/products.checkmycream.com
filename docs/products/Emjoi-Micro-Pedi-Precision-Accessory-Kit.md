@@ -1,12 +1,3 @@
----
-title: Emjoi Micro-Pedi Precision Accessory Kit,
-description: Emjoi Micro-Pedi Precision Accessory Kit,
-author: Suvojit Manna,
-tags: Emjoi Micro-Pedi Precision Accessory Kit,
-publishedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
----
-
 # [Emjoi Micro-Pedi Precision Accessory Kit](https://products.checkmycream.com/products/Emjoi-Micro-Pedi-Precision-Accessory-Kit.html)
 
 ### Positive Reviews

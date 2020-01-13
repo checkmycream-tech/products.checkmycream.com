@@ -1,12 +1,3 @@
----
-title: Pacifica 8 oz Body Wash,
-description: Pacifica 8 oz Body Wash,
-author: Suvojit Manna,
-tags: Pacifica 8 oz Body Wash,
-publishedAt: Fri Jan 10 2020 15:00:06 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:06 GMT+0530 (India Standard Time),
----
-
 # [Pacifica 8 oz Body Wash](https://products.checkmycream.com/products/Pacifica-8-oz-Body-Wash.html)
 
 ### Positive Reviews

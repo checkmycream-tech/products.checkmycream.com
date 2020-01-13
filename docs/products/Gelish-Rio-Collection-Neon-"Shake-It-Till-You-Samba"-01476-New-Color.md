@@ -1,12 +1,3 @@
----
-title: Gelish Rio Collection Neon &quot;Shake It Till You Samba&quot; #01476 New Color,
-description: Gelish Rio Collection Neon &quot;Shake It Till You Samba&quot; #01476 New Color,
-author: Suvojit Manna,
-tags: Gelish Rio Collection Neon &quot;Shake It Till You Samba&quot; #01476 New Color,
-publishedAt: Fri Jan 10 2020 15:00:15 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:15 GMT+0530 (India Standard Time),
----
-
 # [Gelish Rio Collection Neon &quot;Shake It Till You Samba&quot; #01476 New Color](https://products.checkmycream.com/products/Gelish-Rio-Collection-Neon-&quot;Shake-It-Till-You-Samba&quot;-01476-New-Color.html)
 
 ### Positive Reviews

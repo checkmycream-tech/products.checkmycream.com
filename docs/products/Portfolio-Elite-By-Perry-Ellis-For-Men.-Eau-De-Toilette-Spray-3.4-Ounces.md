@@ -1,12 +1,3 @@
----
-title: Portfolio Elite By Perry Ellis For Men. Eau De Toilette Spray 3.4 Ounces,
-description: Portfolio Elite By Perry Ellis For Men. Eau De Toilette Spray 3.4 Ounces,
-author: Suvojit Manna,
-tags: Portfolio Elite By Perry Ellis For Men. Eau De Toilette Spray 3.4 Ounces,
-publishedAt: Fri Jan 10 2020 14:59:06 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:06 GMT+0530 (India Standard Time),
----
-
 # [Portfolio Elite By Perry Ellis For Men. Eau De Toilette Spray 3.4 Ounces](https://products.checkmycream.com/products/Portfolio-Elite-By-Perry-Ellis-For-Men.-Eau-De-Toilette-Spray-3.4-Ounces.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Voberry® Hair Curl Straightener Crimper Pink Mini Ceramic Flat Iron Perm Splint, Mini Flat Iron, Grande Baby Curl，Generic US Plug,
-description: Voberry® Hair Curl Straightener Crimper Pink Mini Ceramic Flat Iron Perm Splint, Mini Flat Iron, Grande Baby Curl，Generic US Plug,
-author: Suvojit Manna,
-tags: Voberry® Hair Curl Straightener Crimper Pink Mini Ceramic Flat Iron Perm Splint, Mini Flat Iron, Grande Baby Curl，Generic US Plug,
-publishedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
----
-
 # [Voberry® Hair Curl Straightener Crimper Pink Mini Ceramic Flat Iron Perm Splint, Mini Flat Iron, Grande Baby Curl，Generic US Plug](https://products.checkmycream.com/products/Voberry(r)-Hair-Curl-Straightener-Crimper-Pink-Mini-Ceramic-Flat-Iron-Perm-Splint-Mini-Flat-Iron-Grande-Baby-CurlGeneric-US-Plug.html)
 
 ### Positive Reviews

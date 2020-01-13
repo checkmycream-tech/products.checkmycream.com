@@ -1,12 +1,3 @@
----
-title: Stetson Original Aftershave Wow, 8 Fluid Ounce,
-description: Stetson Original Aftershave Wow, 8 Fluid Ounce,
-author: Suvojit Manna,
-tags: Stetson Original Aftershave Wow, 8 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
----
-
 # [Stetson Original Aftershave Wow, 8 Fluid Ounce](https://products.checkmycream.com/products/Stetson-Original-Aftershave-Wow-8-Fluid-Ounce.html)
 
 ### Positive Reviews

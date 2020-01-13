@@ -1,12 +1,3 @@
----
-title: Schick Hydro 5 Blade Refill, 12 Count,
-description: Schick Hydro 5 Blade Refill, 12 Count,
-author: Suvojit Manna,
-tags: Schick Hydro 5 Blade Refill, 12 Count,
-publishedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
----
-
 # [Schick Hydro 5 Blade Refill, 12 Count](https://products.checkmycream.com/products/Schick-Hydro-5-Blade-Refill-12-Count.html)
 
 ### Positive Reviews

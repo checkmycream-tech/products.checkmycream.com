@@ -1,12 +1,3 @@
----
-title: Lady Shaver Wet and Dry Trimmer,
-description: Lady Shaver Wet and Dry Trimmer,
-author: Suvojit Manna,
-tags: Lady Shaver Wet and Dry Trimmer,
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [Lady Shaver Wet and Dry Trimmer](https://products.checkmycream.com/products/Lady-Shaver-Wet-and-Dry-Trimmer.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Air Lift, Spray Voluminizer from John Sahag [8.5 fl. oz.],
-description: Air Lift, Spray Voluminizer from John Sahag [8.5 fl. oz.],
-author: Suvojit Manna,
-tags: Air Lift, Spray Voluminizer from John Sahag [8.5 fl. oz.],
-publishedAt: Fri Jan 10 2020 14:59:10 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:10 GMT+0530 (India Standard Time),
----
-
 # [Air Lift, Spray Voluminizer from John Sahag [8.5 fl. oz.]](https://products.checkmycream.com/products/Air-Lift-Spray-Voluminizer-from-John-Sahag-8.5-fl.-oz..html)
 
 ### Positive Reviews

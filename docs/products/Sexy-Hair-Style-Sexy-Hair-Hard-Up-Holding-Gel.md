@@ -1,12 +1,3 @@
----
-title: Sexy Hair Style Sexy Hair Hard Up Holding Gel,
-description: Sexy Hair Style Sexy Hair Hard Up Holding Gel,
-author: Suvojit Manna,
-tags: Sexy Hair Style Sexy Hair Hard Up Holding Gel,
-publishedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
----
-
 # [Sexy Hair Style Sexy Hair Hard Up Holding Gel](https://products.checkmycream.com/products/Sexy-Hair-Style-Sexy-Hair-Hard-Up-Holding-Gel.html)
 
 ### Positive Reviews

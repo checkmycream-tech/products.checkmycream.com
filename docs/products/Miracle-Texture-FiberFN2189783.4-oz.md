@@ -1,12 +1,3 @@
----
-title: Miracle Texture Fiber/FN218978/3.4 oz//,
-description: Miracle Texture Fiber/FN218978/3.4 oz//,
-author: Suvojit Manna,
-tags: Miracle Texture Fiber/FN218978/3.4 oz//,
-publishedAt: Fri Jan 10 2020 14:59:59 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:59 GMT+0530 (India Standard Time),
----
-
 # [Miracle Texture Fiber/FN218978/3.4 oz//](https://products.checkmycream.com/products/Miracle-Texture-FiberFN2189783.4-oz.html)
 
 ### Positive Reviews

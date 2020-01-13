@@ -1,12 +1,3 @@
----
-title: Electric Nose Hair Trimmer and Ear Hair Trimmer for Men with LED Light (Water Resistant),
-description: Electric Nose Hair Trimmer and Ear Hair Trimmer for Men with LED Light (Water Resistant),
-author: Suvojit Manna,
-tags: Electric Nose Hair Trimmer and Ear Hair Trimmer for Men with LED Light (Water Resistant),
-publishedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
----
-
 # [Electric Nose Hair Trimmer and Ear Hair Trimmer for Men with LED Light (Water Resistant)](https://products.checkmycream.com/products/Electric-Nose-Hair-Trimmer-and-Ear-Hair-Trimmer-for-Men-with-LED-Light-(Water-Resistant).html)
 
 ### Positive Reviews

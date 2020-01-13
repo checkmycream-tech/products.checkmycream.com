@@ -1,12 +1,3 @@
----
-title: Diane Combo Control Clips, Assorted Colors,
-description: Diane Combo Control Clips, Assorted Colors,
-author: Suvojit Manna,
-tags: Diane Combo Control Clips, Assorted Colors,
-publishedAt: Fri Jan 10 2020 15:00:16 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:16 GMT+0530 (India Standard Time),
----
-
 # [Diane Combo Control Clips, Assorted Colors](https://products.checkmycream.com/products/Diane-Combo-Control-Clips-Assorted-Colors.html)
 
 ### Positive Reviews

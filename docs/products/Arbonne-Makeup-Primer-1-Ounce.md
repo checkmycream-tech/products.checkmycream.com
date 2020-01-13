@@ -1,12 +1,3 @@
----
-title: Arbonne Makeup Primer, 1 Ounce,
-description: Arbonne Makeup Primer, 1 Ounce,
-author: Suvojit Manna,
-tags: Arbonne Makeup Primer, 1 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
----
-
 # [Arbonne Makeup Primer, 1 Ounce](https://products.checkmycream.com/products/Arbonne-Makeup-Primer-1-Ounce.html)
 
 ### Positive Reviews

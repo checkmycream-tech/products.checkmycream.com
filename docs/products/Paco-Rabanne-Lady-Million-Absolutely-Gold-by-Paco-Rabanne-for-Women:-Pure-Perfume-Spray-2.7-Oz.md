@@ -1,12 +1,3 @@
----
-title: Paco Rabanne Lady Million Absolutely Gold by Paco Rabanne for Women: Pure Perfume Spray 2.7 Oz,
-description: Paco Rabanne Lady Million Absolutely Gold by Paco Rabanne for Women: Pure Perfume Spray 2.7 Oz,
-author: Suvojit Manna,
-tags: Paco Rabanne Lady Million Absolutely Gold by Paco Rabanne for Women: Pure Perfume Spray 2.7 Oz,
-publishedAt: Fri Jan 10 2020 15:00:37 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:37 GMT+0530 (India Standard Time),
----
-
 # [Paco Rabanne Lady Million Absolutely Gold by Paco Rabanne for Women: Pure Perfume Spray 2.7 Oz](https://products.checkmycream.com/products/Paco-Rabanne-Lady-Million-Absolutely-Gold-by-Paco-Rabanne-for-Women:-Pure-Perfume-Spray-2.7-Oz.html)
 
 ### Positive Reviews

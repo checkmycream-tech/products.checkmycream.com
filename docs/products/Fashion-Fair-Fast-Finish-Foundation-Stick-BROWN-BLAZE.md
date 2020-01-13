@@ -1,12 +1,3 @@
----
-title: Fashion Fair Fast Finish Foundation Stick - BROWN BLAZE,
-description: Fashion Fair Fast Finish Foundation Stick - BROWN BLAZE,
-author: Suvojit Manna,
-tags: Fashion Fair Fast Finish Foundation Stick - BROWN BLAZE,
-publishedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
----
-
 # [Fashion Fair Fast Finish Foundation Stick - BROWN BLAZE](https://products.checkmycream.com/products/Fashion-Fair-Fast-Finish-Foundation-Stick-BROWN-BLAZE.html)
 
 ### Positive Reviews

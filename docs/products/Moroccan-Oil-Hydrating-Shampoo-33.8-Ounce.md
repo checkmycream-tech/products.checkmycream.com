@@ -1,12 +1,3 @@
----
-title: Moroccan Oil Hydrating Shampoo, 33.8 Ounce,
-description: Moroccan Oil Hydrating Shampoo, 33.8 Ounce,
-author: Suvojit Manna,
-tags: Moroccan Oil Hydrating Shampoo, 33.8 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
----
-
 # [Moroccan Oil Hydrating Shampoo, 33.8 Ounce](https://products.checkmycream.com/products/Moroccan-Oil-Hydrating-Shampoo-33.8-Ounce.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Vidal Sassoon Pro Series Pro Series Mousse, Extra Firm Hold 10 oz,
-description: Vidal Sassoon Pro Series Pro Series Mousse, Extra Firm Hold 10 oz,
-author: Suvojit Manna,
-tags: Vidal Sassoon Pro Series Pro Series Mousse, Extra Firm Hold 10 oz,
-publishedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
----
-
 # [Vidal Sassoon Pro Series Pro Series Mousse, Extra Firm Hold 10 oz](https://products.checkmycream.com/products/Vidal-Sassoon-Pro-Series-Pro-Series-Mousse-Extra-Firm-Hold-10-oz.html)
 
 ### Positive Reviews

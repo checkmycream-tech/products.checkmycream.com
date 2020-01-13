@@ -1,12 +1,3 @@
----
-title: EQLEF® Red sandalwood no static handmade comb, Pocket comb (beard),
-description: EQLEF® Red sandalwood no static handmade comb, Pocket comb (beard),
-author: Suvojit Manna,
-tags: EQLEF® Red sandalwood no static handmade comb, Pocket comb (beard),
-publishedAt: Fri Jan 10 2020 15:01:07 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:07 GMT+0530 (India Standard Time),
----
-
 # [EQLEF® Red sandalwood no static handmade comb, Pocket comb (beard)](https://products.checkmycream.com/products/EQLEF(r)-Red-sandalwood-no-static-handmade-comb-Pocket-comb-(beard).html)
 
 ### Positive Reviews

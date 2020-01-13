@@ -1,12 +1,3 @@
----
-title: Jamican Mango &amp; Lime Locking Gel,
-description: Jamican Mango &amp; Lime Locking Gel,
-author: Suvojit Manna,
-tags: Jamican Mango &amp; Lime Locking Gel,
-publishedAt: Fri Jan 10 2020 14:59:39 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:39 GMT+0530 (India Standard Time),
----
-
 # [Jamican Mango &amp; Lime Locking Gel](https://products.checkmycream.com/products/Jamican-Mango-and-Lime-Locking-Gel.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Curve Kicks By Liz Claiborne For Men, Cologne Spray, 4.2-Ounce Bottle,
-description: Curve Kicks By Liz Claiborne For Men, Cologne Spray, 4.2-Ounce Bottle,
-author: Suvojit Manna,
-tags: Curve Kicks By Liz Claiborne For Men, Cologne Spray, 4.2-Ounce Bottle,
-publishedAt: Fri Jan 10 2020 14:59:16 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:16 GMT+0530 (India Standard Time),
----
-
 # [Curve Kicks By Liz Claiborne For Men, Cologne Spray, 4.2-Ounce Bottle](https://products.checkmycream.com/products/Curve-Kicks-By-Liz-Claiborne-For-Men-Cologne-Spray-4.2-Ounce-Bottle.html)
 
 ### Positive Reviews

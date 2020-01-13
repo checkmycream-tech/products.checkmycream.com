@@ -1,12 +1,3 @@
----
-title: Ocean Potion Suncare Dark Tanning Xtreme Amplifier Oil, SPF 4 with Carrots &amp; Coconut Oil 8.5 fl oz (,
-description: Ocean Potion Suncare Dark Tanning Xtreme Amplifier Oil, SPF 4 with Carrots &amp; Coconut Oil 8.5 fl oz (,
-author: Suvojit Manna,
-tags: Ocean Potion Suncare Dark Tanning Xtreme Amplifier Oil, SPF 4 with Carrots &amp; Coconut Oil 8.5 fl oz (,
-publishedAt: Fri Jan 10 2020 14:59:42 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:42 GMT+0530 (India Standard Time),
----
-
 # [Ocean Potion Suncare Dark Tanning Xtreme Amplifier Oil, SPF 4 with Carrots &amp; Coconut Oil 8.5 fl oz (](https://products.checkmycream.com/products/Ocean-Potion-Suncare-Dark-Tanning-Xtreme-Amplifier-Oil-SPF-4-with-Carrots-and-Coconut-Oil-8.5-fl-oz-(.html)
 
 ### Positive Reviews

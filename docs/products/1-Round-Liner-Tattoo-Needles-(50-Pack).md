@@ -1,12 +1,3 @@
----
-title: 1 Round Liner Tattoo Needles (50 Pack),
-description: 1 Round Liner Tattoo Needles (50 Pack),
-author: Suvojit Manna,
-tags: 1 Round Liner Tattoo Needles (50 Pack),
-publishedAt: Fri Jan 10 2020 14:59:26 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:26 GMT+0530 (India Standard Time),
----
-
 # [1 Round Liner Tattoo Needles (50 Pack)](https://products.checkmycream.com/products/1-Round-Liner-Tattoo-Needles-(50-Pack).html)
 
 ### Positive Reviews

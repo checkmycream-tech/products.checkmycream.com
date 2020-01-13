@@ -1,12 +1,3 @@
----
-title: 2 PCS of Baby Shower Cap, Shampoo Visor, A PINK + A BLUE,
-description: 2 PCS of Baby Shower Cap, Shampoo Visor, A PINK + A BLUE,
-author: Suvojit Manna,
-tags: 2 PCS of Baby Shower Cap, Shampoo Visor, A PINK + A BLUE,
-publishedAt: Fri Jan 10 2020 14:59:31 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:31 GMT+0530 (India Standard Time),
----
-
 # [2 PCS of Baby Shower Cap, Shampoo Visor, A PINK + A BLUE](https://products.checkmycream.com/products/2-PCS-of-Baby-Shower-Cap-Shampoo-Visor-A-PINK-+-A-BLUE.html)
 
 ### Positive Reviews

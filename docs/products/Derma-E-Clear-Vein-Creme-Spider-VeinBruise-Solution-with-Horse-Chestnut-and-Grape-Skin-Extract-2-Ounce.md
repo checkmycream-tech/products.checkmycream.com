@@ -1,12 +1,3 @@
----
-title: Derma E Clear Vein Creme, Spider Vein/Bruise Solution with Horse Chestnut and Grape Skin Extract, 2 Ounce,
-description: Derma E Clear Vein Creme, Spider Vein/Bruise Solution with Horse Chestnut and Grape Skin Extract, 2 Ounce,
-author: Suvojit Manna,
-tags: Derma E Clear Vein Creme, Spider Vein/Bruise Solution with Horse Chestnut and Grape Skin Extract, 2 Ounce,
-publishedAt: Fri Jan 10 2020 14:58:59 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:58:59 GMT+0530 (India Standard Time),
----
-
 # [Derma E Clear Vein Creme, Spider Vein/Bruise Solution with Horse Chestnut and Grape Skin Extract, 2 Ounce](https://products.checkmycream.com/products/Derma-E-Clear-Vein-Creme-Spider-VeinBruise-Solution-with-Horse-Chestnut-and-Grape-Skin-Extract-2-Ounce.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Guy Laroche Drakkar Gift Set,
-description: Guy Laroche Drakkar Gift Set,
-author: Suvojit Manna,
-tags: Guy Laroche Drakkar Gift Set,
-publishedAt: Fri Jan 10 2020 15:00:12 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:12 GMT+0530 (India Standard Time),
----
-
 # [Guy Laroche Drakkar Gift Set](https://products.checkmycream.com/products/Guy-Laroche-Drakkar-Gift-Set.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: OPI Germany Collection, Berlin There Done That,
-description: OPI Germany Collection, Berlin There Done That,
-author: Suvojit Manna,
-tags: OPI Germany Collection, Berlin There Done That,
-publishedAt: Fri Jan 10 2020 15:00:32 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:32 GMT+0530 (India Standard Time),
----
-
 # [OPI Germany Collection, Berlin There Done That](https://products.checkmycream.com/products/OPI-Germany-Collection-Berlin-There-Done-That.html)
 
 ### Positive Reviews

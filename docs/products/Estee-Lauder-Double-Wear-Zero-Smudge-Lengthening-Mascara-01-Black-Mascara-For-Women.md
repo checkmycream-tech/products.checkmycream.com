@@ -1,12 +1,3 @@
----
-title: Estee Lauder Double Wear Zero-Smudge Lengthening Mascara - # 01 Black Mascara For Women,
-description: Estee Lauder Double Wear Zero-Smudge Lengthening Mascara - # 01 Black Mascara For Women,
-author: Suvojit Manna,
-tags: Estee Lauder Double Wear Zero-Smudge Lengthening Mascara - # 01 Black Mascara For Women,
-publishedAt: Fri Jan 10 2020 15:00:16 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:16 GMT+0530 (India Standard Time),
----
-
 # [Estee Lauder Double Wear Zero-Smudge Lengthening Mascara - # 01 Black Mascara For Women](https://products.checkmycream.com/products/Estee-Lauder-Double-Wear-Zero-Smudge-Lengthening-Mascara-01-Black-Mascara-For-Women.html)
 
 ### Positive Reviews

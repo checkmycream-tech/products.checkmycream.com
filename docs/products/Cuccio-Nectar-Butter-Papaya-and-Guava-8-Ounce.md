@@ -1,12 +1,3 @@
----
-title: Cuccio Nectar Butter, Papaya and Guava, 8 Ounce,
-description: Cuccio Nectar Butter, Papaya and Guava, 8 Ounce,
-author: Suvojit Manna,
-tags: Cuccio Nectar Butter, Papaya and Guava, 8 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:23 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:23 GMT+0530 (India Standard Time),
----
-
 # [Cuccio Nectar Butter, Papaya and Guava, 8 Ounce](https://products.checkmycream.com/products/Cuccio-Nectar-Butter-Papaya-and-Guava-8-Ounce.html)
 
 ### Positive Reviews

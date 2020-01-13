@@ -1,12 +1,3 @@
----
-title: Philips Norelco 1200 Series Plastic Protective Cap,
-description: Philips Norelco 1200 Series Plastic Protective Cap,
-author: Suvojit Manna,
-tags: Philips Norelco 1200 Series Plastic Protective Cap,
-publishedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
----
-
 # [Philips Norelco 1200 Series Plastic Protective Cap](https://products.checkmycream.com/products/Philips-Norelco-1200-Series-Plastic-Protective-Cap.html)
 
 ### Positive Reviews

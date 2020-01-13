@@ -1,12 +1,3 @@
----
-title: FEG Eyelash Rapid Eye Lash Growth Serum - For Eye Lash and Brow Fast Effective Growth Creates Longer &amp; Darker Eyelashes - Best Natural Eyelash Serum in the Market by FEG,
-description: FEG Eyelash Rapid Eye Lash Growth Serum - For Eye Lash and Brow Fast Effective Growth Creates Longer &amp; Darker Eyelashes - Best Natural Eyelash Serum in the Market by FEG,
-author: Suvojit Manna,
-tags: FEG Eyelash Rapid Eye Lash Growth Serum - For Eye Lash and Brow Fast Effective Growth Creates Longer &amp; Darker Eyelashes - Best Natural Eyelash Serum in the Market by FEG,
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [FEG Eyelash Rapid Eye Lash Growth Serum - For Eye Lash and Brow Fast Effective Growth Creates Longer &amp; Darker Eyelashes - Best Natural Eyelash Serum in the Market by FEG](https://products.checkmycream.com/products/FEG-Eyelash-Rapid-Eye-Lash-Growth-Serum-For-Eye-Lash-and-Brow-Fast-Effective-Growth-Creates-Longer-and-Darker-Eyelashes-Best-Natural-Eyelash-Serum-in-the-Market-by-FEG.html)
 
 ### Positive Reviews

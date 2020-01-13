@@ -1,12 +1,3 @@
----
-title: Biomega Moisture Shampoo/FN235745/32 oz//,
-description: Biomega Moisture Shampoo/FN235745/32 oz//,
-author: Suvojit Manna,
-tags: Biomega Moisture Shampoo/FN235745/32 oz//,
-publishedAt: Fri Jan 10 2020 15:00:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:03 GMT+0530 (India Standard Time),
----
-
 # [Biomega Moisture Shampoo/FN235745/32 oz//](https://products.checkmycream.com/products/Biomega-Moisture-ShampooFN23574532-oz.html)
 
 ### Positive Reviews

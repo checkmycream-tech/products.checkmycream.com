@@ -1,12 +1,3 @@
----
-title: Best Foundation , Concealer , Contouring Stippling Precision , Cheek Blush Contour and Bronzer Kabuki by New8Beauty,
-description: Best Foundation , Concealer , Contouring Stippling Precision , Cheek Blush Contour and Bronzer Kabuki by New8Beauty,
-author: Suvojit Manna,
-tags: Best Foundation , Concealer , Contouring Stippling Precision , Cheek Blush Contour and Bronzer Kabuki by New8Beauty,
-publishedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
----
-
 # [Best Foundation , Concealer , Contouring Stippling Precision , Cheek Blush Contour and Bronzer Kabuki by New8Beauty](https://products.checkmycream.com/products/Best-Foundation-Concealer-Contouring-Stippling-Precision-Cheek-Blush-Contour-and-Bronzer-Kabuki-by-New8Beauty.html)
 
 ### Positive Reviews

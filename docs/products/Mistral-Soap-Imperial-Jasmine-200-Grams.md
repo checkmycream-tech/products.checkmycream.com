@@ -1,12 +1,3 @@
----
-title: Mistral Soap, Imperial Jasmine, 200 Grams,
-description: Mistral Soap, Imperial Jasmine, 200 Grams,
-author: Suvojit Manna,
-tags: Mistral Soap, Imperial Jasmine, 200 Grams,
-publishedAt: Fri Jan 10 2020 14:59:43 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:43 GMT+0530 (India Standard Time),
----
-
 # [Mistral Soap, Imperial Jasmine, 200 Grams](https://products.checkmycream.com/products/Mistral-Soap-Imperial-Jasmine-200-Grams.html)
 
 ### Positive Reviews

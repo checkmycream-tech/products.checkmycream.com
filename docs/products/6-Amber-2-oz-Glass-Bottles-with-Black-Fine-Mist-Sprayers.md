@@ -1,12 +1,3 @@
----
-title: 6, Amber, 2 oz Glass Bottles, with Black Fine Mist Sprayers,
-description: 6, Amber, 2 oz Glass Bottles, with Black Fine Mist Sprayers,
-author: Suvojit Manna,
-tags: 6, Amber, 2 oz Glass Bottles, with Black Fine Mist Sprayers,
-publishedAt: Fri Jan 10 2020 15:01:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:08 GMT+0530 (India Standard Time),
----
-
 # [6, Amber, 2 oz Glass Bottles, with Black Fine Mist Sprayers](https://products.checkmycream.com/products/6-Amber-2-oz-Glass-Bottles-with-Black-Fine-Mist-Sprayers.html)
 
 ### Positive Reviews

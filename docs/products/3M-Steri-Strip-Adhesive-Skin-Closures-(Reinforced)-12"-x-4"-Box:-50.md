@@ -1,12 +1,3 @@
----
-title: 3M Steri-Strip Adhesive Skin Closures (Reinforced) 1/2&quot; x 4&quot; Box: 50,
-description: 3M Steri-Strip Adhesive Skin Closures (Reinforced) 1/2&quot; x 4&quot; Box: 50,
-author: Suvojit Manna,
-tags: 3M Steri-Strip Adhesive Skin Closures (Reinforced) 1/2&quot; x 4&quot; Box: 50,
-publishedAt: Fri Jan 10 2020 14:59:09 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:09 GMT+0530 (India Standard Time),
----
-
 # [3M Steri-Strip Adhesive Skin Closures (Reinforced) 1/2&quot; x 4&quot; Box: 50](https://products.checkmycream.com/products/3M-Steri-Strip-Adhesive-Skin-Closures-(Reinforced)-12&quot;-x-4&quot;-Box:-50.html)
 
 ### Positive Reviews

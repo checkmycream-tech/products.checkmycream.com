@@ -1,12 +1,3 @@
----
-title: Chloe L&#x27;eau De Chloe By Chloe Edt Spray/FN228210/1.7 oz/women/,
-description: Chloe L&#x27;eau De Chloe By Chloe Edt Spray/FN228210/1.7 oz/women/,
-author: Suvojit Manna,
-tags: Chloe L&#x27;eau De Chloe By Chloe Edt Spray/FN228210/1.7 oz/women/,
-publishedAt: Fri Jan 10 2020 15:00:15 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:15 GMT+0530 (India Standard Time),
----
-
 # [Chloe L&#x27;eau De Chloe By Chloe Edt Spray/FN228210/1.7 oz/women/](https://products.checkmycream.com/products/Chloe-L&#x27;eau-De-Chloe-By-Chloe-Edt-SprayFN2282101.7-ozwomen.html)
 
 ### Positive Reviews

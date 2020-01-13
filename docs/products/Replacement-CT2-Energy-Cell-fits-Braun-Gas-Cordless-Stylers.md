@@ -1,12 +1,3 @@
----
-title: Replacement CT2 Energy Cell fits Braun Gas Cordless Stylers,
-description: Replacement CT2 Energy Cell fits Braun Gas Cordless Stylers,
-author: Suvojit Manna,
-tags: Replacement CT2 Energy Cell fits Braun Gas Cordless Stylers,
-publishedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
----
-
 # [Replacement CT2 Energy Cell fits Braun Gas Cordless Stylers](https://products.checkmycream.com/products/Replacement-CT2-Energy-Cell-fits-Braun-Gas-Cordless-Stylers.html)
 
 ### Positive Reviews

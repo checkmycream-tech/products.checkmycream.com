@@ -1,12 +1,3 @@
----
-title: UNA Vitamin Leave-in Treatment 250ml,
-description: UNA Vitamin Leave-in Treatment 250ml,
-author: Suvojit Manna,
-tags: UNA Vitamin Leave-in Treatment 250ml,
-publishedAt: Fri Jan 10 2020 14:59:24 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:24 GMT+0530 (India Standard Time),
----
-
 # [UNA Vitamin Leave-in Treatment 250ml](https://products.checkmycream.com/products/UNA-Vitamin-Leave-in-Treatment-250ml.html)
 
 ### Positive Reviews

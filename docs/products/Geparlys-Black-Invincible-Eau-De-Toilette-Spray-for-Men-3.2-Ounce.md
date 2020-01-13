@@ -1,12 +1,3 @@
----
-title: Geparlys Black Invincible Eau De Toilette Spray for Men, 3.2 Ounce,
-description: Geparlys Black Invincible Eau De Toilette Spray for Men, 3.2 Ounce,
-author: Suvojit Manna,
-tags: Geparlys Black Invincible Eau De Toilette Spray for Men, 3.2 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:57 GMT+0530 (India Standard Time),
----
-
 # [Geparlys Black Invincible Eau De Toilette Spray for Men, 3.2 Ounce](https://products.checkmycream.com/products/Geparlys-Black-Invincible-Eau-De-Toilette-Spray-for-Men-3.2-Ounce.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Colgate Max White Sonic Power Toothbrush, Soft, 2 Count,
-description: Colgate Max White Sonic Power Toothbrush, Soft, 2 Count,
-author: Suvojit Manna,
-tags: Colgate Max White Sonic Power Toothbrush, Soft, 2 Count,
-publishedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
----
-
 # [Colgate Max White Sonic Power Toothbrush, Soft, 2 Count](https://products.checkmycream.com/products/Colgate-Max-White-Sonic-Power-Toothbrush-Soft-2-Count.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Bvlgari au the vert (Green Tea) Body Lotion 2.5oz Set of 6,
-description: Bvlgari au the vert (Green Tea) Body Lotion 2.5oz Set of 6,
-author: Suvojit Manna,
-tags: Bvlgari au the vert (Green Tea) Body Lotion 2.5oz Set of 6,
-publishedAt: Fri Jan 10 2020 15:00:31 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:31 GMT+0530 (India Standard Time),
----
-
 # [Bvlgari au the vert (Green Tea) Body Lotion 2.5oz Set of 6](https://products.checkmycream.com/products/Bvlgari-au-the-vert-(Green-Tea)-Body-Lotion-2.5oz-Set-of-6.html)
 
 ### Positive Reviews

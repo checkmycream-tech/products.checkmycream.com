@@ -1,12 +1,3 @@
----
-title: Victoria&#x27;s Secret Wild Raspberry and Bright Strawberry Juiced Berry Beauty Rush Daily Moisture Body Lotion 6.7oz,
-description: Victoria&#x27;s Secret Wild Raspberry and Bright Strawberry Juiced Berry Beauty Rush Daily Moisture Body Lotion 6.7oz,
-author: Suvojit Manna,
-tags: Victoria&#x27;s Secret Wild Raspberry and Bright Strawberry Juiced Berry Beauty Rush Daily Moisture Body Lotion 6.7oz,
-publishedAt: Fri Jan 10 2020 15:00:18 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:18 GMT+0530 (India Standard Time),
----
-
 # [Victoria&#x27;s Secret Wild Raspberry and Bright Strawberry Juiced Berry Beauty Rush Daily Moisture Body Lotion 6.7oz](https://products.checkmycream.com/products/Victoria&#x27;s-Secret-Wild-Raspberry-and-Bright-Strawberry-Juiced-Berry-Beauty-Rush-Daily-Moisture-Body-Lotion-6.7oz.html)
 
 ### Positive Reviews

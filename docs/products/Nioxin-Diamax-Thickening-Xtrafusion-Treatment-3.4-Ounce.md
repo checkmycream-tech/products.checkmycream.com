@@ -1,12 +1,3 @@
----
-title: Nioxin Diamax Thickening Xtrafusion Treatment, 3.4 Ounce,
-description: Nioxin Diamax Thickening Xtrafusion Treatment, 3.4 Ounce,
-author: Suvojit Manna,
-tags: Nioxin Diamax Thickening Xtrafusion Treatment, 3.4 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:37 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:37 GMT+0530 (India Standard Time),
----
-
 # [Nioxin Diamax Thickening Xtrafusion Treatment, 3.4 Ounce](https://products.checkmycream.com/products/Nioxin-Diamax-Thickening-Xtrafusion-Treatment-3.4-Ounce.html)
 
 ### Positive Reviews

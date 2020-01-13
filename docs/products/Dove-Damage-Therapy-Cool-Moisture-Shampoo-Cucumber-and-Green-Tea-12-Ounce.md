@@ -1,12 +1,3 @@
----
-title: Dove Damage Therapy Cool Moisture Shampoo, Cucumber and Green Tea, 12 Ounce,
-description: Dove Damage Therapy Cool Moisture Shampoo, Cucumber and Green Tea, 12 Ounce,
-author: Suvojit Manna,
-tags: Dove Damage Therapy Cool Moisture Shampoo, Cucumber and Green Tea, 12 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
----
-
 # [Dove Damage Therapy Cool Moisture Shampoo, Cucumber and Green Tea, 12 Ounce](https://products.checkmycream.com/products/Dove-Damage-Therapy-Cool-Moisture-Shampoo-Cucumber-and-Green-Tea-12-Ounce.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Four 2-Count (8) Cashmere Bouquet Mild Beauty/Bath Bar Soap, 4 oz. ea.,
-description: Four 2-Count (8) Cashmere Bouquet Mild Beauty/Bath Bar Soap, 4 oz. ea.,
-author: Suvojit Manna,
-tags: Four 2-Count (8) Cashmere Bouquet Mild Beauty/Bath Bar Soap, 4 oz. ea.,
-publishedAt: Fri Jan 10 2020 15:00:07 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:07 GMT+0530 (India Standard Time),
----
-
 # [Four 2-Count (8) Cashmere Bouquet Mild Beauty/Bath Bar Soap, 4 oz. ea.](https://products.checkmycream.com/products/Four-2-Count-(8)-Cashmere-Bouquet-Mild-BeautyBath-Bar-Soap-4-oz.-ea..html)
 
 ### Positive Reviews

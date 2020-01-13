@@ -1,12 +1,3 @@
----
-title: KLOUD City® Professional Hair Cutting Scissors Shears Barber Thinning Set Kit with a Case,
-description: KLOUD City® Professional Hair Cutting Scissors Shears Barber Thinning Set Kit with a Case,
-author: Suvojit Manna,
-tags: KLOUD City® Professional Hair Cutting Scissors Shears Barber Thinning Set Kit with a Case,
-publishedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
----
-
 # [KLOUD City® Professional Hair Cutting Scissors Shears Barber Thinning Set Kit with a Case](https://products.checkmycream.com/products/KLOUD-City(r)-Professional-Hair-Cutting-Scissors-Shears-Barber-Thinning-Set-Kit-with-a-Case.html)
 
 ### Positive Reviews

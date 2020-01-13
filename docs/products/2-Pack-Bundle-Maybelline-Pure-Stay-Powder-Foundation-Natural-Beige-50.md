@@ -1,12 +1,3 @@
----
-title: 2 Pack Bundle Maybelline Pure Stay Powder Foundation Natural Beige #50,
-description: 2 Pack Bundle Maybelline Pure Stay Powder Foundation Natural Beige #50,
-author: Suvojit Manna,
-tags: 2 Pack Bundle Maybelline Pure Stay Powder Foundation Natural Beige #50,
-publishedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
----
-
 # [2 Pack Bundle Maybelline Pure Stay Powder Foundation Natural Beige #50](https://products.checkmycream.com/products/2-Pack-Bundle-Maybelline-Pure-Stay-Powder-Foundation-Natural-Beige-50.html)
 
 ### Positive Reviews

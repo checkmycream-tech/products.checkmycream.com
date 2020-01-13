@@ -1,12 +1,3 @@
----
-title: LEMO® Lipsticks Clitoral Vibrator Waterproof Discreet Female Masturbating Massager Sex Toys for Women,
-description: LEMO® Lipsticks Clitoral Vibrator Waterproof Discreet Female Masturbating Massager Sex Toys for Women,
-author: Suvojit Manna,
-tags: LEMO® Lipsticks Clitoral Vibrator Waterproof Discreet Female Masturbating Massager Sex Toys for Women,
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [LEMO® Lipsticks Clitoral Vibrator Waterproof Discreet Female Masturbating Massager Sex Toys for Women](https://products.checkmycream.com/products/LEMO(r)-Lipsticks-Clitoral-Vibrator-Waterproof-Discreet-Female-Masturbating-Massager-Sex-Toys-for-Women.html)
 
 ### Positive Reviews

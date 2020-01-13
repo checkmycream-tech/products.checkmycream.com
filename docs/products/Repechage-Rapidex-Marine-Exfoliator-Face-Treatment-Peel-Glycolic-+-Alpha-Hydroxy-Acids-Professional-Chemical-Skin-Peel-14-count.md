@@ -1,12 +1,3 @@
----
-title: Repechage Rapidex Marine Exfoliator - Face Treatment Peel- Glycolic + Alpha Hydroxy Acids Professional Chemical Skin Peel - 14 count,
-description: Repechage Rapidex Marine Exfoliator - Face Treatment Peel- Glycolic + Alpha Hydroxy Acids Professional Chemical Skin Peel - 14 count,
-author: Suvojit Manna,
-tags: Repechage Rapidex Marine Exfoliator - Face Treatment Peel- Glycolic + Alpha Hydroxy Acids Professional Chemical Skin Peel - 14 count,
-publishedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
----
-
 # [Repechage Rapidex Marine Exfoliator - Face Treatment Peel- Glycolic + Alpha Hydroxy Acids Professional Chemical Skin Peel - 14 count](https://products.checkmycream.com/products/Repechage-Rapidex-Marine-Exfoliator-Face-Treatment-Peel-Glycolic-+-Alpha-Hydroxy-Acids-Professional-Chemical-Skin-Peel-14-count.html)
 
 ### Positive Reviews

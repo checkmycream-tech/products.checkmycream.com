@@ -1,12 +1,3 @@
----
-title: Norelco Philips Bodygroom Screen and Cutter Set,
-description: Norelco Philips Bodygroom Screen and Cutter Set,
-author: Suvojit Manna,
-tags: Norelco Philips Bodygroom Screen and Cutter Set,
-publishedAt: Fri Jan 10 2020 14:59:42 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:42 GMT+0530 (India Standard Time),
----
-
 # [Norelco Philips Bodygroom Screen and Cutter Set](https://products.checkmycream.com/products/Norelco-Philips-Bodygroom-Screen-and-Cutter-Set.html)
 
 ### Positive Reviews

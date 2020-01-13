@@ -1,12 +1,3 @@
----
-title: 360 Red by Perry Ellis for Men, 4 Count,
-description: 360 Red by Perry Ellis for Men, 4 Count,
-author: Suvojit Manna,
-tags: 360 Red by Perry Ellis for Men, 4 Count,
-publishedAt: Fri Jan 10 2020 14:59:25 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:25 GMT+0530 (India Standard Time),
----
-
 # [360 Red by Perry Ellis for Men, 4 Count](https://products.checkmycream.com/products/360-Red-by-Perry-Ellis-for-Men-4-Count.html)
 
 ### Positive Reviews

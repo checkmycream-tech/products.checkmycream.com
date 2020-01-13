@@ -1,12 +1,3 @@
----
-title: LECHAT Perfect Match Mood Gel Polish,
-description: LECHAT Perfect Match Mood Gel Polish,
-author: Suvojit Manna,
-tags: LECHAT Perfect Match Mood Gel Polish,
-publishedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
----
-
 # [LECHAT Perfect Match Mood Gel Polish](https://products.checkmycream.com/products/LECHAT-Perfect-Match-Mood-Gel-Polish.html)
 
 ### Positive Reviews

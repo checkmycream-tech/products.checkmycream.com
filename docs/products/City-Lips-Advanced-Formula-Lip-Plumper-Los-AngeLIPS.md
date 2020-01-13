@@ -1,12 +1,3 @@
----
-title: City Lips Advanced Formula Lip Plumper Los AngeLIPS,
-description: City Lips Advanced Formula Lip Plumper Los AngeLIPS,
-author: Suvojit Manna,
-tags: City Lips Advanced Formula Lip Plumper Los AngeLIPS,
-publishedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
----
-
 # [City Lips Advanced Formula Lip Plumper Los AngeLIPS](https://products.checkmycream.com/products/City-Lips-Advanced-Formula-Lip-Plumper-Los-AngeLIPS.html)
 
 ### Positive Reviews

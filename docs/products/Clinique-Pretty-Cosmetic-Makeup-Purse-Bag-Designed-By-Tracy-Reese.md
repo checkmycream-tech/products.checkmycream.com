@@ -1,12 +1,3 @@
----
-title: Clinique Pretty Cosmetic Makeup Purse Bag Designed By Tracy Reese,
-description: Clinique Pretty Cosmetic Makeup Purse Bag Designed By Tracy Reese,
-author: Suvojit Manna,
-tags: Clinique Pretty Cosmetic Makeup Purse Bag Designed By Tracy Reese,
-publishedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
----
-
 # [Clinique Pretty Cosmetic Makeup Purse Bag Designed By Tracy Reese](https://products.checkmycream.com/products/Clinique-Pretty-Cosmetic-Makeup-Purse-Bag-Designed-By-Tracy-Reese.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Nivea Women&#x27;s Roll-On Antiperspirant &amp; Deodorant,
-description: Nivea Women&#x27;s Roll-On Antiperspirant &amp; Deodorant,
-author: Suvojit Manna,
-tags: Nivea Women&#x27;s Roll-On Antiperspirant &amp; Deodorant,
-publishedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
----
-
 # [Nivea Women&#x27;s Roll-On Antiperspirant &amp; Deodorant](https://products.checkmycream.com/products/Nivea-Women&#x27;s-Roll-On-Antiperspirant-and-Deodorant.html)
 
 ### Positive Reviews

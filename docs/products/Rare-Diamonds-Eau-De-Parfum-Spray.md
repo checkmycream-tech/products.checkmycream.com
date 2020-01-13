@@ -1,12 +1,3 @@
----
-title: Rare Diamonds Eau De Parfum Spray,
-description: Rare Diamonds Eau De Parfum Spray,
-author: Suvojit Manna,
-tags: Rare Diamonds Eau De Parfum Spray,
-publishedAt: Fri Jan 10 2020 14:59:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:55 GMT+0530 (India Standard Time),
----
-
 # [Rare Diamonds Eau De Parfum Spray](https://products.checkmycream.com/products/Rare-Diamonds-Eau-De-Parfum-Spray.html)
 
 ### Positive Reviews

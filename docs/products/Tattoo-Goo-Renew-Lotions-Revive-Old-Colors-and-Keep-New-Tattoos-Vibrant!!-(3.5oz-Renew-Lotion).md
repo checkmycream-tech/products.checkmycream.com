@@ -1,12 +1,3 @@
----
-title: Tattoo Goo Renew Lotions-- Revive Old Colors &amp; Keep New Tattoos Vibrant!! (3.5oz, Renew Lotion),
-description: Tattoo Goo Renew Lotions-- Revive Old Colors &amp; Keep New Tattoos Vibrant!! (3.5oz, Renew Lotion),
-author: Suvojit Manna,
-tags: Tattoo Goo Renew Lotions-- Revive Old Colors &amp; Keep New Tattoos Vibrant!! (3.5oz, Renew Lotion),
-publishedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
----
-
 # [Tattoo Goo Renew Lotions-- Revive Old Colors &amp; Keep New Tattoos Vibrant!! (3.5oz, Renew Lotion)](https://products.checkmycream.com/products/Tattoo-Goo-Renew-Lotions-Revive-Old-Colors-and-Keep-New-Tattoos-Vibrant!!-(3.5oz-Renew-Lotion).html)
 
 ### Positive Reviews

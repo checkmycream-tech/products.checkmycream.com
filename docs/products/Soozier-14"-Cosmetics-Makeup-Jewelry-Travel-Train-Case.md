@@ -1,12 +1,3 @@
----
-title: Soozier 14&quot; Cosmetics Makeup / Jewelry Travel Train Case,
-description: Soozier 14&quot; Cosmetics Makeup / Jewelry Travel Train Case,
-author: Suvojit Manna,
-tags: Soozier 14&quot; Cosmetics Makeup / Jewelry Travel Train Case,
-publishedAt: Fri Jan 10 2020 15:00:30 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:30 GMT+0530 (India Standard Time),
----
-
 # [Soozier 14&quot; Cosmetics Makeup / Jewelry Travel Train Case](https://products.checkmycream.com/products/Soozier-14&quot;-Cosmetics-Makeup-Jewelry-Travel-Train-Case.html)
 
 ### Positive Reviews

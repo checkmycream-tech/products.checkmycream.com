@@ -1,12 +1,3 @@
----
-title: 1000x Elastic Hair Bands Braiding Rubber Colour Mix Tiny Poly Small,
-description: 1000x Elastic Hair Bands Braiding Rubber Colour Mix Tiny Poly Small,
-author: Suvojit Manna,
-tags: 1000x Elastic Hair Bands Braiding Rubber Colour Mix Tiny Poly Small,
-publishedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
----
-
 # [1000x Elastic Hair Bands Braiding Rubber Colour Mix Tiny Poly Small](https://products.checkmycream.com/products/1000x-Elastic-Hair-Bands-Braiding-Rubber-Colour-Mix-Tiny-Poly-Small.html)
 
 ### Positive Reviews

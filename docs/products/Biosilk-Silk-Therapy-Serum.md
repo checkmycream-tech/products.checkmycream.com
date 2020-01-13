@@ -1,12 +1,3 @@
----
-title: Biosilk Silk Therapy Serum,
-description: Biosilk Silk Therapy Serum,
-author: Suvojit Manna,
-tags: Biosilk Silk Therapy Serum,
-publishedAt: Fri Jan 10 2020 15:01:06 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:06 GMT+0530 (India Standard Time),
----
-
 # [Biosilk Silk Therapy Serum](https://products.checkmycream.com/products/Biosilk-Silk-Therapy-Serum.html)
 
 ### Positive Reviews

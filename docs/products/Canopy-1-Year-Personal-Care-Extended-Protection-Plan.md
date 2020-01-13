@@ -1,12 +1,3 @@
----
-title: Canopy 1-Year Personal Care Extended Protection Plan,
-description: Canopy 1-Year Personal Care Extended Protection Plan,
-author: Suvojit Manna,
-tags: Canopy 1-Year Personal Care Extended Protection Plan,
-publishedAt: Fri Jan 10 2020 15:00:18 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:18 GMT+0530 (India Standard Time),
----
-
 # [Canopy 1-Year Personal Care Extended Protection Plan](https://products.checkmycream.com/products/Canopy-1-Year-Personal-Care-Extended-Protection-Plan.html)
 
 ### Positive Reviews

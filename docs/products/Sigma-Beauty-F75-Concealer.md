@@ -1,12 +1,3 @@
----
-title: Sigma Beauty F75 - Concealer,
-description: Sigma Beauty F75 - Concealer,
-author: Suvojit Manna,
-tags: Sigma Beauty F75 - Concealer,
-publishedAt: Fri Jan 10 2020 15:00:12 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:12 GMT+0530 (India Standard Time),
----
-
 # [Sigma Beauty F75 - Concealer](https://products.checkmycream.com/products/Sigma-Beauty-F75-Concealer.html)
 
 ### Positive Reviews

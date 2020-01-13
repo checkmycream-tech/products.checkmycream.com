@@ -1,12 +1,3 @@
----
-title: Tattoo Parlour by Ed Hardy Men&#x27;s Deodorant Body Spray - 6 oz,
-description: Tattoo Parlour by Ed Hardy Men&#x27;s Deodorant Body Spray - 6 oz,
-author: Suvojit Manna,
-tags: Tattoo Parlour by Ed Hardy Men&#x27;s Deodorant Body Spray - 6 oz,
-publishedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
----
-
 # [Tattoo Parlour by Ed Hardy Men&#x27;s Deodorant Body Spray - 6 oz](https://products.checkmycream.com/products/Tattoo-Parlour-by-Ed-Hardy-Men&#x27;s-Deodorant-Body-Spray-6-oz.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Framesi Be Yourself Lava Sparkling Mousse, Strong, 6.9 Ounce,
-description: Framesi Be Yourself Lava Sparkling Mousse, Strong, 6.9 Ounce,
-author: Suvojit Manna,
-tags: Framesi Be Yourself Lava Sparkling Mousse, Strong, 6.9 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:14 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:14 GMT+0530 (India Standard Time),
----
-
 # [Framesi Be Yourself Lava Sparkling Mousse, Strong, 6.9 Ounce](https://products.checkmycream.com/products/Framesi-Be-Yourself-Lava-Sparkling-Mousse-Strong-6.9-Ounce.html)
 
 ### Positive Reviews

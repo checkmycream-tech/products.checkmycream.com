@@ -1,12 +1,3 @@
----
-title: Mary Kay Matte Wear Liquid Foundation Combination to Oily Skin,
-description: Mary Kay Matte Wear Liquid Foundation Combination to Oily Skin,
-author: Suvojit Manna,
-tags: Mary Kay Matte Wear Liquid Foundation Combination to Oily Skin,
-publishedAt: Fri Jan 10 2020 15:00:04 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:04 GMT+0530 (India Standard Time),
----
-
 # [Mary Kay Matte Wear Liquid Foundation Combination to Oily Skin](https://products.checkmycream.com/products/Mary-Kay-Matte-Wear-Liquid-Foundation-Combination-to-Oily-Skin.html)
 
 ### Positive Reviews

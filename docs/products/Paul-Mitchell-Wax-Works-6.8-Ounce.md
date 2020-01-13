@@ -1,12 +1,3 @@
----
-title: Paul Mitchell Wax Works, 6.8 Ounce,
-description: Paul Mitchell Wax Works, 6.8 Ounce,
-author: Suvojit Manna,
-tags: Paul Mitchell Wax Works, 6.8 Ounce,
-publishedAt: Fri Jan 10 2020 14:58:59 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:58:59 GMT+0530 (India Standard Time),
----
-
 # [Paul Mitchell Wax Works, 6.8 Ounce](https://products.checkmycream.com/products/Paul-Mitchell-Wax-Works-6.8-Ounce.html)
 
 ### Positive Reviews

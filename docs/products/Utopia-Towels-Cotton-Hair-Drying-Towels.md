@@ -1,12 +1,3 @@
----
-title: Utopia Towels Cotton Hair Drying Towels,
-description: Utopia Towels Cotton Hair Drying Towels,
-author: Suvojit Manna,
-tags: Utopia Towels Cotton Hair Drying Towels,
-publishedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
----
-
 # [Utopia Towels Cotton Hair Drying Towels](https://products.checkmycream.com/products/Utopia-Towels-Cotton-Hair-Drying-Towels.html)
 
 ### Positive Reviews

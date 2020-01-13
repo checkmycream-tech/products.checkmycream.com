@@ -1,12 +1,3 @@
----
-title: Envy Body Shop Bra Nipple Cover Pasties S for Ab Cup Nude,
-description: Envy Body Shop Bra Nipple Cover Pasties S for Ab Cup Nude,
-author: Suvojit Manna,
-tags: Envy Body Shop Bra Nipple Cover Pasties S for Ab Cup Nude,
-publishedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
----
-
 # [Envy Body Shop Bra Nipple Cover Pasties S for Ab Cup Nude](https://products.checkmycream.com/products/Envy-Body-Shop-Bra-Nipple-Cover-Pasties-S-for-Ab-Cup-Nude.html)
 
 ### Positive Reviews

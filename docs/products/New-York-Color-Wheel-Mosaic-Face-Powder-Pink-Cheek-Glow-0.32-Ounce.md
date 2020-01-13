@@ -1,12 +1,3 @@
----
-title: New York Color Wheel Mosaic Face Powder, Pink Cheek Glow, 0.32 Ounce,
-description: New York Color Wheel Mosaic Face Powder, Pink Cheek Glow, 0.32 Ounce,
-author: Suvojit Manna,
-tags: New York Color Wheel Mosaic Face Powder, Pink Cheek Glow, 0.32 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:16 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:16 GMT+0530 (India Standard Time),
----
-
 # [New York Color Wheel Mosaic Face Powder, Pink Cheek Glow, 0.32 Ounce](https://products.checkmycream.com/products/New-York-Color-Wheel-Mosaic-Face-Powder-Pink-Cheek-Glow-0.32-Ounce.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Tweezerman Nail Clipper Set,
-description: Tweezerman Nail Clipper Set,
-author: Suvojit Manna,
-tags: Tweezerman Nail Clipper Set,
-publishedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
----
-
 # [Tweezerman Nail Clipper Set](https://products.checkmycream.com/products/Tweezerman-Nail-Clipper-Set.html)
 
 ### Positive Reviews

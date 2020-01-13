@@ -1,12 +1,3 @@
----
-title: Bump Fighter Set: 1 Razor Handle with 17 Refill Blades,
-description: Bump Fighter Set: 1 Razor Handle with 17 Refill Blades,
-author: Suvojit Manna,
-tags: Bump Fighter Set: 1 Razor Handle with 17 Refill Blades,
-publishedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
----
-
 # [Bump Fighter Set: 1 Razor Handle with 17 Refill Blades](https://products.checkmycream.com/products/Bump-Fighter-Set:-1-Razor-Handle-with-17-Refill-Blades.html)
 
 ### Positive Reviews

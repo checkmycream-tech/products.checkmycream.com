@@ -1,12 +1,3 @@
----
-title: Anastasia Tinted Brow Gel-Brunette,
-description: Anastasia Tinted Brow Gel-Brunette,
-author: Suvojit Manna,
-tags: Anastasia Tinted Brow Gel-Brunette,
-publishedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
----
-
 # [Anastasia Tinted Brow Gel-Brunette](https://products.checkmycream.com/products/Anastasia-Tinted-Brow-Gel-Brunette.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Michel Mercier Kids Detangling Brush White/Purple - For Thick Hair,
-description: Michel Mercier Kids Detangling Brush White/Purple - For Thick Hair,
-author: Suvojit Manna,
-tags: Michel Mercier Kids Detangling Brush White/Purple - For Thick Hair,
-publishedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
----
-
 # [Michel Mercier Kids Detangling Brush White/Purple - For Thick Hair](https://products.checkmycream.com/products/Michel-Mercier-Kids-Detangling-Brush-WhitePurple-For-Thick-Hair.html)
 
 ### Positive Reviews

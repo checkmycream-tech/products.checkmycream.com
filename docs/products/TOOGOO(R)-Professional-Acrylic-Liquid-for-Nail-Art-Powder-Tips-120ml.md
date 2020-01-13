@@ -1,12 +1,3 @@
----
-title: TOOGOO(R) Professional Acrylic Liquid for Nail Art Powder Tips 120ml,
-description: TOOGOO(R) Professional Acrylic Liquid for Nail Art Powder Tips 120ml,
-author: Suvojit Manna,
-tags: TOOGOO(R) Professional Acrylic Liquid for Nail Art Powder Tips 120ml,
-publishedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
----
-
 # [TOOGOO(R) Professional Acrylic Liquid for Nail Art Powder Tips 120ml](https://products.checkmycream.com/products/TOOGOO(R)-Professional-Acrylic-Liquid-for-Nail-Art-Powder-Tips-120ml.html)
 
 ### Positive Reviews

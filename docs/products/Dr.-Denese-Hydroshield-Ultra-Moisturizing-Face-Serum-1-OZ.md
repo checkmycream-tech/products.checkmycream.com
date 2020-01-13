@@ -1,12 +1,3 @@
----
-title: Dr. Denese Hydroshield Ultra Moisturizing Face Serum 1 OZ,
-description: Dr. Denese Hydroshield Ultra Moisturizing Face Serum 1 OZ,
-author: Suvojit Manna,
-tags: Dr. Denese Hydroshield Ultra Moisturizing Face Serum 1 OZ,
-publishedAt: Fri Jan 10 2020 14:59:50 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:50 GMT+0530 (India Standard Time),
----
-
 # [Dr. Denese Hydroshield Ultra Moisturizing Face Serum 1 OZ](https://products.checkmycream.com/products/Dr.-Denese-Hydroshield-Ultra-Moisturizing-Face-Serum-1-OZ.html)
 
 ### Positive Reviews

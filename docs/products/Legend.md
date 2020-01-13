@@ -1,12 +1,3 @@
----
-title: Legend,
-description: Legend,
-author: Suvojit Manna,
-tags: Legend,
-publishedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
----
-
 # [Legend](https://products.checkmycream.com/products/Legend.html)
 
 ### Positive Reviews

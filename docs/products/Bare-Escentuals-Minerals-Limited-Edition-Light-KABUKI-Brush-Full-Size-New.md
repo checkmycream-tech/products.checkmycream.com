@@ -1,12 +1,3 @@
----
-title: Bare Escentuals Minerals Limited Edition Light KABUKI Brush Full Size New,
-description: Bare Escentuals Minerals Limited Edition Light KABUKI Brush Full Size New,
-author: Suvojit Manna,
-tags: Bare Escentuals Minerals Limited Edition Light KABUKI Brush Full Size New,
-publishedAt: Fri Jan 10 2020 15:00:37 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:37 GMT+0530 (India Standard Time),
----
-
 # [Bare Escentuals Minerals Limited Edition Light KABUKI Brush Full Size New](https://products.checkmycream.com/products/Bare-Escentuals-Minerals-Limited-Edition-Light-KABUKI-Brush-Full-Size-New.html)
 
 ### Positive Reviews

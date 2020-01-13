@@ -1,12 +1,3 @@
----
-title: SharpStone® 3/4 Inch Silver Aluminum Pollen Press,
-description: SharpStone® 3/4 Inch Silver Aluminum Pollen Press,
-author: Suvojit Manna,
-tags: SharpStone® 3/4 Inch Silver Aluminum Pollen Press,
-publishedAt: Fri Jan 10 2020 15:00:16 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:16 GMT+0530 (India Standard Time),
----
-
 # [SharpStone® 3/4 Inch Silver Aluminum Pollen Press](https://products.checkmycream.com/products/SharpStone(r)-34-Inch-Silver-Aluminum-Pollen-Press.html)
 
 ### Positive Reviews

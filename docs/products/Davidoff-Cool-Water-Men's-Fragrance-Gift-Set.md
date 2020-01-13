@@ -1,12 +1,3 @@
----
-title: Davidoff Cool Water Men&#x27;s Fragrance Gift Set,
-description: Davidoff Cool Water Men&#x27;s Fragrance Gift Set,
-author: Suvojit Manna,
-tags: Davidoff Cool Water Men&#x27;s Fragrance Gift Set,
-publishedAt: Fri Jan 10 2020 15:00:37 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:37 GMT+0530 (India Standard Time),
----
-
 # [Davidoff Cool Water Men&#x27;s Fragrance Gift Set](https://products.checkmycream.com/products/Davidoff-Cool-Water-Men&#x27;s-Fragrance-Gift-Set.html)
 
 ### Positive Reviews

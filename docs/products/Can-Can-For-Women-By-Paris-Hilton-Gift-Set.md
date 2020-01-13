@@ -1,12 +1,3 @@
----
-title: Can Can For Women By Paris Hilton Gift Set,
-description: Can Can For Women By Paris Hilton Gift Set,
-author: Suvojit Manna,
-tags: Can Can For Women By Paris Hilton Gift Set,
-publishedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
----
-
 # [Can Can For Women By Paris Hilton Gift Set](https://products.checkmycream.com/products/Can-Can-For-Women-By-Paris-Hilton-Gift-Set.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Vktech® Nail Art Soft Practice Hand Flexible Silicone Prosthetic Hand Manicure Tool,
-description: Vktech® Nail Art Soft Practice Hand Flexible Silicone Prosthetic Hand Manicure Tool,
-author: Suvojit Manna,
-tags: Vktech® Nail Art Soft Practice Hand Flexible Silicone Prosthetic Hand Manicure Tool,
-publishedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
----
-
 # [Vktech® Nail Art Soft Practice Hand Flexible Silicone Prosthetic Hand Manicure Tool](https://products.checkmycream.com/products/Vktech(r)-Nail-Art-Soft-Practice-Hand-Flexible-Silicone-Prosthetic-Hand-Manicure-Tool.html)
 
 ### Positive Reviews

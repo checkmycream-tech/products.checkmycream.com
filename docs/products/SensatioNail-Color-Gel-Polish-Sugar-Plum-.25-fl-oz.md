@@ -1,12 +1,3 @@
----
-title: SensatioNail Color Gel Polish Sugar Plum .25 fl oz,
-description: SensatioNail Color Gel Polish Sugar Plum .25 fl oz,
-author: Suvojit Manna,
-tags: SensatioNail Color Gel Polish Sugar Plum .25 fl oz,
-publishedAt: Fri Jan 10 2020 15:00:21 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:21 GMT+0530 (India Standard Time),
----
-
 # [SensatioNail Color Gel Polish Sugar Plum .25 fl oz](https://products.checkmycream.com/products/SensatioNail-Color-Gel-Polish-Sugar-Plum-.25-fl-oz.html)
 
 ### Positive Reviews

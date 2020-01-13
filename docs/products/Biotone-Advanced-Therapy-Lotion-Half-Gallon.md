@@ -1,12 +1,3 @@
----
-title: Biotone Advanced Therapy Lotion - Half Gallon,
-description: Biotone Advanced Therapy Lotion - Half Gallon,
-author: Suvojit Manna,
-tags: Biotone Advanced Therapy Lotion - Half Gallon,
-publishedAt: Fri Jan 10 2020 14:59:21 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:21 GMT+0530 (India Standard Time),
----
-
 # [Biotone Advanced Therapy Lotion - Half Gallon](https://products.checkmycream.com/products/Biotone-Advanced-Therapy-Lotion-Half-Gallon.html)
 
 ### Positive Reviews

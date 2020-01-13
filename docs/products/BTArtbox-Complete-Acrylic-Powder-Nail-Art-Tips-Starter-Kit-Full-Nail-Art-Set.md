@@ -1,12 +1,3 @@
----
-title: BTArtbox Complete Acrylic Powder Nail Art Tips Starter Kit Full Nail Art Set,
-description: BTArtbox Complete Acrylic Powder Nail Art Tips Starter Kit Full Nail Art Set,
-author: Suvojit Manna,
-tags: BTArtbox Complete Acrylic Powder Nail Art Tips Starter Kit Full Nail Art Set,
-publishedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
----
-
 # [BTArtbox Complete Acrylic Powder Nail Art Tips Starter Kit Full Nail Art Set](https://products.checkmycream.com/products/BTArtbox-Complete-Acrylic-Powder-Nail-Art-Tips-Starter-Kit-Full-Nail-Art-Set.html)
 
 ### Positive Reviews

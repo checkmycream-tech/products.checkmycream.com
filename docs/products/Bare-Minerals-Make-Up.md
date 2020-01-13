@@ -1,12 +1,3 @@
----
-title: Bare Minerals Make Up,
-description: Bare Minerals Make Up,
-author: Suvojit Manna,
-tags: Bare Minerals Make Up,
-publishedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
----
-
 # [Bare Minerals Make Up](https://products.checkmycream.com/products/Bare-Minerals-Make-Up.html)
 
 ### Positive Reviews

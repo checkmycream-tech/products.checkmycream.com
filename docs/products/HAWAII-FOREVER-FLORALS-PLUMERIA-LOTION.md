@@ -1,12 +1,3 @@
----
-title: HAWAII FOREVER FLORALS PLUMERIA LOTION,
-description: HAWAII FOREVER FLORALS PLUMERIA LOTION,
-author: Suvojit Manna,
-tags: HAWAII FOREVER FLORALS PLUMERIA LOTION,
-publishedAt: Fri Jan 10 2020 14:59:37 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:37 GMT+0530 (India Standard Time),
----
-
 # [HAWAII FOREVER FLORALS PLUMERIA LOTION](https://products.checkmycream.com/products/HAWAII-FOREVER-FLORALS-PLUMERIA-LOTION.html)
 
 ### Positive Reviews

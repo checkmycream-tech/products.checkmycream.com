@@ -1,12 +1,3 @@
----
-title: Old Spice Red Zone Collection Invisible Solid Swagger Scent Men&#x27;s Antiperspirant &amp; Deodorant, 2.6 Oz (Pack of 6),
-description: Old Spice Red Zone Collection Invisible Solid Swagger Scent Men&#x27;s Antiperspirant &amp; Deodorant, 2.6 Oz (Pack of 6),
-author: Suvojit Manna,
-tags: Old Spice Red Zone Collection Invisible Solid Swagger Scent Men&#x27;s Antiperspirant &amp; Deodorant, 2.6 Oz (Pack of 6),
-publishedAt: Fri Jan 10 2020 14:59:24 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:24 GMT+0530 (India Standard Time),
----
-
 # [Old Spice Red Zone Collection Invisible Solid Swagger Scent Men&#x27;s Antiperspirant &amp; Deodorant, 2.6 Oz (Pack of 6)](https://products.checkmycream.com/products/Old-Spice-Red-Zone-Collection-Invisible-Solid-Swagger-Scent-Men&#x27;s-Antiperspirant-and-Deodorant-2.6-Oz-(Pack-of-6).html)
 
 ### Positive Reviews

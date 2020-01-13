@@ -1,12 +1,3 @@
----
-title: Provent Skin Tag Remover, 0.34 Fluid Ounce,
-description: Provent Skin Tag Remover, 0.34 Fluid Ounce,
-author: Suvojit Manna,
-tags: Provent Skin Tag Remover, 0.34 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
----
-
 # [Provent Skin Tag Remover, 0.34 Fluid Ounce](https://products.checkmycream.com/products/Provent-Skin-Tag-Remover-0.34-Fluid-Ounce.html)
 
 ### Positive Reviews

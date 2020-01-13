@@ -1,12 +1,3 @@
----
-title: Nivea For Men Dry Impact Antiperspirant Deodorant Roll-on 50ml - by Nivea,
-description: Nivea For Men Dry Impact Antiperspirant Deodorant Roll-on 50ml - by Nivea,
-author: Suvojit Manna,
-tags: Nivea For Men Dry Impact Antiperspirant Deodorant Roll-on 50ml - by Nivea,
-publishedAt: Fri Jan 10 2020 15:00:22 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:22 GMT+0530 (India Standard Time),
----
-
 # [Nivea For Men Dry Impact Antiperspirant Deodorant Roll-on 50ml - by Nivea](https://products.checkmycream.com/products/Nivea-For-Men-Dry-Impact-Antiperspirant-Deodorant-Roll-on-50ml-by-Nivea.html)
 
 ### Positive Reviews

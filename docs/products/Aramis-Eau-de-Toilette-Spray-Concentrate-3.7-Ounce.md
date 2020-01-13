@@ -1,12 +1,3 @@
----
-title: Aramis Eau de Toilette Spray, Concentrate, 3.7 Ounce,
-description: Aramis Eau de Toilette Spray, Concentrate, 3.7 Ounce,
-author: Suvojit Manna,
-tags: Aramis Eau de Toilette Spray, Concentrate, 3.7 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:00 GMT+0530 (India Standard Time),
----
-
 # [Aramis Eau de Toilette Spray, Concentrate, 3.7 Ounce](https://products.checkmycream.com/products/Aramis-Eau-de-Toilette-Spray-Concentrate-3.7-Ounce.html)
 
 ### Positive Reviews

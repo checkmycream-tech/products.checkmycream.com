@@ -1,12 +1,3 @@
----
-title: Professional 2 Tattoo Gun Tattoo Kit with Tattoo Power Supply/20 Colors Tattoo Ink/Tattoo Needles/2 Tattoo Machine/other Tattoo Supplies MGT29,
-description: Professional 2 Tattoo Gun Tattoo Kit with Tattoo Power Supply/20 Colors Tattoo Ink/Tattoo Needles/2 Tattoo Machine/other Tattoo Supplies MGT29,
-author: Suvojit Manna,
-tags: Professional 2 Tattoo Gun Tattoo Kit with Tattoo Power Supply/20 Colors Tattoo Ink/Tattoo Needles/2 Tattoo Machine/other Tattoo Supplies MGT29,
-publishedAt: Fri Jan 10 2020 15:00:15 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:15 GMT+0530 (India Standard Time),
----
-
 # [Professional 2 Tattoo Gun Tattoo Kit with Tattoo Power Supply/20 Colors Tattoo Ink/Tattoo Needles/2 Tattoo Machine/other Tattoo Supplies MGT29](https://products.checkmycream.com/products/Professional-2-Tattoo-Gun-Tattoo-Kit-with-Tattoo-Power-Supply20-Colors-Tattoo-InkTattoo-Needles2-Tattoo-Machineother-Tattoo-Supplies-MGT29.html)
 
 ### Positive Reviews

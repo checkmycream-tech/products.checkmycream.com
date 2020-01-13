@@ -1,12 +1,3 @@
----
-title: Unite Wicked Wax Finishing Pomade 2 Oz (unisex),
-description: Unite Wicked Wax Finishing Pomade 2 Oz (unisex),
-author: Suvojit Manna,
-tags: Unite Wicked Wax Finishing Pomade 2 Oz (unisex),
-publishedAt: Fri Jan 10 2020 14:59:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:55 GMT+0530 (India Standard Time),
----
-
 # [Unite Wicked Wax Finishing Pomade 2 Oz (unisex)](https://products.checkmycream.com/products/Unite-Wicked-Wax-Finishing-Pomade-2-Oz-(unisex).html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Suppion 1pc New Fashion Wallet Case for Iphone 5 5s,
-description: Suppion 1pc New Fashion Wallet Case for Iphone 5 5s,
-author: Suvojit Manna,
-tags: Suppion 1pc New Fashion Wallet Case for Iphone 5 5s,
-publishedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
----
-
 # [Suppion 1pc New Fashion Wallet Case for Iphone 5 5s](https://products.checkmycream.com/products/Suppion-1pc-New-Fashion-Wallet-Case-for-Iphone-5-5s.html)
 
 ### Positive Reviews

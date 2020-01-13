@@ -1,12 +1,3 @@
----
-title: Leegoal Vintage Jewelry Crystal Peacock Hair Clips Hairpins- For Hair Clip Beauty Tools,
-description: Leegoal Vintage Jewelry Crystal Peacock Hair Clips Hairpins- For Hair Clip Beauty Tools,
-author: Suvojit Manna,
-tags: Leegoal Vintage Jewelry Crystal Peacock Hair Clips Hairpins- For Hair Clip Beauty Tools,
-publishedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
----
-
 # [Leegoal Vintage Jewelry Crystal Peacock Hair Clips Hairpins- For Hair Clip Beauty Tools](https://products.checkmycream.com/products/Leegoal-Vintage-Jewelry-Crystal-Peacock-Hair-Clips-Hairpins-For-Hair-Clip-Beauty-Tools.html)
 
 ### Positive Reviews

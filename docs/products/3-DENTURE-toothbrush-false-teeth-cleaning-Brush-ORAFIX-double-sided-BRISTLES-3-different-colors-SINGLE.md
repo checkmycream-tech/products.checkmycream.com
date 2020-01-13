@@ -1,12 +1,3 @@
----
-title: 3 DENTURE toothbrush false teeth cleaning Brush ORAFIX double sided BRISTLES - 3 different colors - SINGLE,
-description: 3 DENTURE toothbrush false teeth cleaning Brush ORAFIX double sided BRISTLES - 3 different colors - SINGLE,
-author: Suvojit Manna,
-tags: 3 DENTURE toothbrush false teeth cleaning Brush ORAFIX double sided BRISTLES - 3 different colors - SINGLE,
-publishedAt: Fri Jan 10 2020 15:00:06 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:06 GMT+0530 (India Standard Time),
----
-
 # [3 DENTURE toothbrush false teeth cleaning Brush ORAFIX double sided BRISTLES - 3 different colors - SINGLE](https://products.checkmycream.com/products/3-DENTURE-toothbrush-false-teeth-cleaning-Brush-ORAFIX-double-sided-BRISTLES-3-different-colors-SINGLE.html)
 
 ### Positive Reviews

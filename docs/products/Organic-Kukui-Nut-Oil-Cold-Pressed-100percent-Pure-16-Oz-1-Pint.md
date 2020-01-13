@@ -1,12 +1,3 @@
----
-title: Organic Kukui Nut Oil Cold Pressed 100% Pure 16 Oz / 1 Pint,
-description: Organic Kukui Nut Oil Cold Pressed 100% Pure 16 Oz / 1 Pint,
-author: Suvojit Manna,
-tags: Organic Kukui Nut Oil Cold Pressed 100% Pure 16 Oz / 1 Pint,
-publishedAt: Fri Jan 10 2020 15:00:37 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:37 GMT+0530 (India Standard Time),
----
-
 # [Organic Kukui Nut Oil Cold Pressed 100% Pure 16 Oz / 1 Pint](https://products.checkmycream.com/products/Organic-Kukui-Nut-Oil-Cold-Pressed-100percent-Pure-16-Oz-1-Pint.html)
 
 ### Positive Reviews

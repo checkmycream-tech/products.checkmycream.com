@@ -1,12 +1,3 @@
----
-title: Very Sexy By Victoria&#x27;S Secret Cologne Spray 3.4 Oz For Men,
-description: Very Sexy By Victoria&#x27;S Secret Cologne Spray 3.4 Oz For Men,
-author: Suvojit Manna,
-tags: Very Sexy By Victoria&#x27;S Secret Cologne Spray 3.4 Oz For Men,
-publishedAt: Fri Jan 10 2020 15:00:10 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:10 GMT+0530 (India Standard Time),
----
-
 # [Very Sexy By Victoria&#x27;S Secret Cologne Spray 3.4 Oz For Men](https://products.checkmycream.com/products/Very-Sexy-By-Victoria&#x27;S-Secret-Cologne-Spray-3.4-Oz-For-Men.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Royal Copenhagen Cologne Spray,
-description: Royal Copenhagen Cologne Spray,
-author: Suvojit Manna,
-tags: Royal Copenhagen Cologne Spray,
-publishedAt: Fri Jan 10 2020 14:59:17 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:17 GMT+0530 (India Standard Time),
----
-
 # [Royal Copenhagen Cologne Spray](https://products.checkmycream.com/products/Royal-Copenhagen-Cologne-Spray.html)
 
 ### Positive Reviews

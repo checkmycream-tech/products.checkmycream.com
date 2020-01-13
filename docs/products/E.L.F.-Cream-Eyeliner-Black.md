@@ -1,12 +1,3 @@
----
-title: E.L.F. Cream Eyeliner - Black,
-description: E.L.F. Cream Eyeliner - Black,
-author: Suvojit Manna,
-tags: E.L.F. Cream Eyeliner - Black,
-publishedAt: Fri Jan 10 2020 15:00:38 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:38 GMT+0530 (India Standard Time),
----
-
 # [E.L.F. Cream Eyeliner - Black](https://products.checkmycream.com/products/E.L.F.-Cream-Eyeliner-Black.html)
 
 ### Positive Reviews

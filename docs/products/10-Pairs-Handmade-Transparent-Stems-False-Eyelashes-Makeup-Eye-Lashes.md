@@ -1,12 +1,3 @@
----
-title: 10 Pairs Handmade Transparent Stems False Eyelashes Makeup Eye Lashes,
-description: 10 Pairs Handmade Transparent Stems False Eyelashes Makeup Eye Lashes,
-author: Suvojit Manna,
-tags: 10 Pairs Handmade Transparent Stems False Eyelashes Makeup Eye Lashes,
-publishedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
----
-
 # [10 Pairs Handmade Transparent Stems False Eyelashes Makeup Eye Lashes](https://products.checkmycream.com/products/10-Pairs-Handmade-Transparent-Stems-False-Eyelashes-Makeup-Eye-Lashes.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Sebamed Body Lotion &amp; Body Wash 2 Pack Sets,
-description: Sebamed Body Lotion &amp; Body Wash 2 Pack Sets,
-author: Suvojit Manna,
-tags: Sebamed Body Lotion &amp; Body Wash 2 Pack Sets,
-publishedAt: Fri Jan 10 2020 15:00:28 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:28 GMT+0530 (India Standard Time),
----
-
 # [Sebamed Body Lotion &amp; Body Wash 2 Pack Sets](https://products.checkmycream.com/products/Sebamed-Body-Lotion-and-Body-Wash-2-Pack-Sets.html)
 
 ### Positive Reviews

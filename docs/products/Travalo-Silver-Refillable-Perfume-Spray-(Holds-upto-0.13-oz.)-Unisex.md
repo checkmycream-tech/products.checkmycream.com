@@ -1,12 +1,3 @@
----
-title: Travalo Silver Refillable Perfume Spray (Holds upto 0.13 oz.) Unisex,
-description: Travalo Silver Refillable Perfume Spray (Holds upto 0.13 oz.) Unisex,
-author: Suvojit Manna,
-tags: Travalo Silver Refillable Perfume Spray (Holds upto 0.13 oz.) Unisex,
-publishedAt: Fri Jan 10 2020 15:00:32 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:32 GMT+0530 (India Standard Time),
----
-
 # [Travalo Silver Refillable Perfume Spray (Holds upto 0.13 oz.) Unisex](https://products.checkmycream.com/products/Travalo-Silver-Refillable-Perfume-Spray-(Holds-upto-0.13-oz.)-Unisex.html)
 
 ### Positive Reviews

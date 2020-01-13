@@ -1,12 +1,3 @@
----
-title: BIC Comfort Twin Blade Sensitive Shaver, Men, 5-Count,
-description: BIC Comfort Twin Blade Sensitive Shaver, Men, 5-Count,
-author: Suvojit Manna,
-tags: BIC Comfort Twin Blade Sensitive Shaver, Men, 5-Count,
-publishedAt: Fri Jan 10 2020 14:59:28 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:28 GMT+0530 (India Standard Time),
----
-
 # [BIC Comfort Twin Blade Sensitive Shaver, Men, 5-Count](https://products.checkmycream.com/products/BIC-Comfort-Twin-Blade-Sensitive-Shaver-Men-5-Count.html)
 
 ### Positive Reviews

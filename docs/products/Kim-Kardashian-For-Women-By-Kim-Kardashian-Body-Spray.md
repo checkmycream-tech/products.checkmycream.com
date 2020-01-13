@@ -1,12 +1,3 @@
----
-title: Kim Kardashian For Women By Kim Kardashian Body Spray,
-description: Kim Kardashian For Women By Kim Kardashian Body Spray,
-author: Suvojit Manna,
-tags: Kim Kardashian For Women By Kim Kardashian Body Spray,
-publishedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
----
-
 # [Kim Kardashian For Women By Kim Kardashian Body Spray](https://products.checkmycream.com/products/Kim-Kardashian-For-Women-By-Kim-Kardashian-Body-Spray.html)
 
 ### Positive Reviews

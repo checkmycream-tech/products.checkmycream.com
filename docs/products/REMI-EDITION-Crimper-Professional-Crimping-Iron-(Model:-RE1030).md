@@ -1,12 +1,3 @@
----
-title: REMI EDITION Crimper Professional Crimping Iron (Model: RE1030),
-description: REMI EDITION Crimper Professional Crimping Iron (Model: RE1030),
-author: Suvojit Manna,
-tags: REMI EDITION Crimper Professional Crimping Iron (Model: RE1030),
-publishedAt: Fri Jan 10 2020 15:00:21 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:21 GMT+0530 (India Standard Time),
----
-
 # [REMI EDITION Crimper Professional Crimping Iron (Model: RE1030)](https://products.checkmycream.com/products/REMI-EDITION-Crimper-Professional-Crimping-Iron-(Model:-RE1030).html)
 
 ### Positive Reviews

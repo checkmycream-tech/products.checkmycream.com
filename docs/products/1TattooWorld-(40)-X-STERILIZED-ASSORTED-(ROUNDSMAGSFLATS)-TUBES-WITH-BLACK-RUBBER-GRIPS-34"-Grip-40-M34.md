@@ -1,12 +1,3 @@
----
-title: 1TattooWorld (40) X STERILIZED ASSORTED (ROUNDS/MAGS/FLATS) TUBES WITH BLACK RUBBER GRIPS 3/4&quot;, Grip-40-M34,
-description: 1TattooWorld (40) X STERILIZED ASSORTED (ROUNDS/MAGS/FLATS) TUBES WITH BLACK RUBBER GRIPS 3/4&quot;, Grip-40-M34,
-author: Suvojit Manna,
-tags: 1TattooWorld (40) X STERILIZED ASSORTED (ROUNDS/MAGS/FLATS) TUBES WITH BLACK RUBBER GRIPS 3/4&quot;, Grip-40-M34,
-publishedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
----
-
 # [1TattooWorld (40) X STERILIZED ASSORTED (ROUNDS/MAGS/FLATS) TUBES WITH BLACK RUBBER GRIPS 3/4&quot;, Grip-40-M34](https://products.checkmycream.com/products/1TattooWorld-(40)-X-STERILIZED-ASSORTED-(ROUNDSMAGSFLATS)-TUBES-WITH-BLACK-RUBBER-GRIPS-34&quot;-Grip-40-M34.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Calvin Klein One Eau de Toilette Spray for Men, 6.7 Fluid Ounce,
-description: Calvin Klein One Eau de Toilette Spray for Men, 6.7 Fluid Ounce,
-author: Suvojit Manna,
-tags: Calvin Klein One Eau de Toilette Spray for Men, 6.7 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 14:59:59 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:59 GMT+0530 (India Standard Time),
----
-
 # [Calvin Klein One Eau de Toilette Spray for Men, 6.7 Fluid Ounce](https://products.checkmycream.com/products/Calvin-Klein-One-Eau-de-Toilette-Spray-for-Men-6.7-Fluid-Ounce.html)
 
 ### Positive Reviews

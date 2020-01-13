@@ -1,12 +1,3 @@
----
-title: Botox Alternative DermaGen H2 Full Coverage Anti-Wrinkle Patches With Firming Gel - Free Shipping,
-description: Botox Alternative DermaGen H2 Full Coverage Anti-Wrinkle Patches With Firming Gel - Free Shipping,
-author: Suvojit Manna,
-tags: Botox Alternative DermaGen H2 Full Coverage Anti-Wrinkle Patches With Firming Gel - Free Shipping,
-publishedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
----
-
 # [Botox Alternative DermaGen H2 Full Coverage Anti-Wrinkle Patches With Firming Gel - Free Shipping](https://products.checkmycream.com/products/Botox-Alternative-DermaGen-H2-Full-Coverage-Anti-Wrinkle-Patches-With-Firming-Gel-Free-Shipping.html)
 
 ### Positive Reviews

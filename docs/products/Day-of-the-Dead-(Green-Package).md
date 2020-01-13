@@ -1,12 +1,3 @@
----
-title: Day of the Dead - (Green Package),
-description: Day of the Dead - (Green Package),
-author: Suvojit Manna,
-tags: Day of the Dead - (Green Package),
-publishedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
----
-
 # [Day of the Dead - (Green Package)](https://products.checkmycream.com/products/Day-of-the-Dead-(Green-Package).html)
 
 ### Positive Reviews

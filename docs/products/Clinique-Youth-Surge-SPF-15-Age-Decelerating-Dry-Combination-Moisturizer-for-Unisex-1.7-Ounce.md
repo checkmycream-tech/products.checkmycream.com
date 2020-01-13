@@ -1,12 +1,3 @@
----
-title: Clinique Youth Surge SPF 15 Age Decelerating Dry Combination Moisturizer for Unisex, 1.7 Ounce,
-description: Clinique Youth Surge SPF 15 Age Decelerating Dry Combination Moisturizer for Unisex, 1.7 Ounce,
-author: Suvojit Manna,
-tags: Clinique Youth Surge SPF 15 Age Decelerating Dry Combination Moisturizer for Unisex, 1.7 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:37 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:37 GMT+0530 (India Standard Time),
----
-
 # [Clinique Youth Surge SPF 15 Age Decelerating Dry Combination Moisturizer for Unisex, 1.7 Ounce](https://products.checkmycream.com/products/Clinique-Youth-Surge-SPF-15-Age-Decelerating-Dry-Combination-Moisturizer-for-Unisex-1.7-Ounce.html)
 
 ### Positive Reviews

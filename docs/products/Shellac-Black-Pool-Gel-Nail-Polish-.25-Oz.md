@@ -1,12 +1,3 @@
----
-title: Shellac Black Pool Gel Nail Polish .25 Oz,
-description: Shellac Black Pool Gel Nail Polish .25 Oz,
-author: Suvojit Manna,
-tags: Shellac Black Pool Gel Nail Polish .25 Oz,
-publishedAt: Fri Jan 10 2020 15:00:11 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:11 GMT+0530 (India Standard Time),
----
-
 # [Shellac Black Pool Gel Nail Polish .25 Oz](https://products.checkmycream.com/products/Shellac-Black-Pool-Gel-Nail-Polish-.25-Oz.html)
 
 ### Positive Reviews

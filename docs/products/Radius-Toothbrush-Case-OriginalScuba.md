@@ -1,12 +1,3 @@
----
-title: Radius Toothbrush Case, Original/Scuba,
-description: Radius Toothbrush Case, Original/Scuba,
-author: Suvojit Manna,
-tags: Radius Toothbrush Case, Original/Scuba,
-publishedAt: Fri Jan 10 2020 14:59:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:56 GMT+0530 (India Standard Time),
----
-
 # [Radius Toothbrush Case, Original/Scuba](https://products.checkmycream.com/products/Radius-Toothbrush-Case-OriginalScuba.html)
 
 ### Positive Reviews

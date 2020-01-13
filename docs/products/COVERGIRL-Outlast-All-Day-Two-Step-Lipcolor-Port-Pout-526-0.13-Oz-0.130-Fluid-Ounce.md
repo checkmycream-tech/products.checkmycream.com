@@ -1,12 +1,3 @@
----
-title: COVERGIRL Outlast All Day Two-Step Lipcolor Port Pout 526, 0.13 Oz, 0.130-Fluid Ounce,
-description: COVERGIRL Outlast All Day Two-Step Lipcolor Port Pout 526, 0.13 Oz, 0.130-Fluid Ounce,
-author: Suvojit Manna,
-tags: COVERGIRL Outlast All Day Two-Step Lipcolor Port Pout 526, 0.13 Oz, 0.130-Fluid Ounce,
-publishedAt: Fri Jan 10 2020 15:00:32 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:32 GMT+0530 (India Standard Time),
----
-
 # [COVERGIRL Outlast All Day Two-Step Lipcolor Port Pout 526, 0.13 Oz, 0.130-Fluid Ounce](https://products.checkmycream.com/products/COVERGIRL-Outlast-All-Day-Two-Step-Lipcolor-Port-Pout-526-0.13-Oz-0.130-Fluid-Ounce.html)
 
 ### Positive Reviews

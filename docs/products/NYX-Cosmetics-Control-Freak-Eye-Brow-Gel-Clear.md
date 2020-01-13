@@ -1,12 +1,3 @@
----
-title: NYX Cosmetics Control Freak Eye Brow Gel Clear,
-description: NYX Cosmetics Control Freak Eye Brow Gel Clear,
-author: Suvojit Manna,
-tags: NYX Cosmetics Control Freak Eye Brow Gel Clear,
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [NYX Cosmetics Control Freak Eye Brow Gel Clear](https://products.checkmycream.com/products/NYX-Cosmetics-Control-Freak-Eye-Brow-Gel-Clear.html)
 
 ### Positive Reviews

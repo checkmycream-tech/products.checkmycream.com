@@ -1,12 +1,3 @@
----
-title: Colgate Extra Clean Full Head, Medium Toothbrush, 6 Count,
-description: Colgate Extra Clean Full Head, Medium Toothbrush, 6 Count,
-author: Suvojit Manna,
-tags: Colgate Extra Clean Full Head, Medium Toothbrush, 6 Count,
-publishedAt: Fri Jan 10 2020 15:00:31 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:31 GMT+0530 (India Standard Time),
----
-
 # [Colgate Extra Clean Full Head, Medium Toothbrush, 6 Count](https://products.checkmycream.com/products/Colgate-Extra-Clean-Full-Head-Medium-Toothbrush-6-Count.html)
 
 ### Positive Reviews

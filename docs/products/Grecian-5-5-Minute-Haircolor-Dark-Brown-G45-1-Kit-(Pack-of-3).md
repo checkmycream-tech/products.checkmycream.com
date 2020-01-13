@@ -1,12 +1,3 @@
----
-title: Grecian 5 5-Minute Haircolor, Dark Brown G45, 1 Kit (Pack of 3),
-description: Grecian 5 5-Minute Haircolor, Dark Brown G45, 1 Kit (Pack of 3),
-author: Suvojit Manna,
-tags: Grecian 5 5-Minute Haircolor, Dark Brown G45, 1 Kit (Pack of 3),
-publishedAt: Fri Jan 10 2020 14:59:11 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:11 GMT+0530 (India Standard Time),
----
-
 # [Grecian 5 5-Minute Haircolor, Dark Brown G45, 1 Kit (Pack of 3)](https://products.checkmycream.com/products/Grecian-5-5-Minute-Haircolor-Dark-Brown-G45-1-Kit-(Pack-of-3).html)
 
 ### Positive Reviews

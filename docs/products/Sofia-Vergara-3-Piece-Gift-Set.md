@@ -1,12 +1,3 @@
----
-title: Sofia Vergara 3 Piece Gift Set,
-description: Sofia Vergara 3 Piece Gift Set,
-author: Suvojit Manna,
-tags: Sofia Vergara 3 Piece Gift Set,
-publishedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
----
-
 # [Sofia Vergara 3 Piece Gift Set](https://products.checkmycream.com/products/Sofia-Vergara-3-Piece-Gift-Set.html)
 
 ### Positive Reviews

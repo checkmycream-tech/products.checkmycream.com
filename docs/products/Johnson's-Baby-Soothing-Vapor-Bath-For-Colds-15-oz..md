@@ -1,12 +1,3 @@
----
-title: Johnson&#x27;s Baby Soothing Vapor Bath For Colds, 15 oz.,
-description: Johnson&#x27;s Baby Soothing Vapor Bath For Colds, 15 oz.,
-author: Suvojit Manna,
-tags: Johnson&#x27;s Baby Soothing Vapor Bath For Colds, 15 oz.,
-publishedAt: Fri Jan 10 2020 15:00:11 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:11 GMT+0530 (India Standard Time),
----
-
 # [Johnson&#x27;s Baby Soothing Vapor Bath For Colds, 15 oz.](https://products.checkmycream.com/products/Johnson&#x27;s-Baby-Soothing-Vapor-Bath-For-Colds-15-oz..html)
 
 ### Positive Reviews

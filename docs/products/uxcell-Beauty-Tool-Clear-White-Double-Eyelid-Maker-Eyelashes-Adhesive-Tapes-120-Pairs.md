@@ -1,12 +1,3 @@
----
-title: uxcell Beauty Tool Clear White Double Eyelid Maker Eyelashes Adhesive Tapes 120 Pairs,
-description: uxcell Beauty Tool Clear White Double Eyelid Maker Eyelashes Adhesive Tapes 120 Pairs,
-author: Suvojit Manna,
-tags: uxcell Beauty Tool Clear White Double Eyelid Maker Eyelashes Adhesive Tapes 120 Pairs,
-publishedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
----
-
 # [uxcell Beauty Tool Clear White Double Eyelid Maker Eyelashes Adhesive Tapes 120 Pairs](https://products.checkmycream.com/products/uxcell-Beauty-Tool-Clear-White-Double-Eyelid-Maker-Eyelashes-Adhesive-Tapes-120-Pairs.html)
 
 ### Positive Reviews

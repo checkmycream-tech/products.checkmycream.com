@@ -1,12 +1,3 @@
----
-title: 350BUY 100 Spring Butterfly Style Acrylic False French Nail Tips,
-description: 350BUY 100 Spring Butterfly Style Acrylic False French Nail Tips,
-author: Suvojit Manna,
-tags: 350BUY 100 Spring Butterfly Style Acrylic False French Nail Tips,
-publishedAt: Fri Jan 10 2020 15:00:32 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:32 GMT+0530 (India Standard Time),
----
-
 # [350BUY 100 Spring Butterfly Style Acrylic False French Nail Tips](https://products.checkmycream.com/products/350BUY-100-Spring-Butterfly-Style-Acrylic-False-French-Nail-Tips.html)
 
 ### Positive Reviews

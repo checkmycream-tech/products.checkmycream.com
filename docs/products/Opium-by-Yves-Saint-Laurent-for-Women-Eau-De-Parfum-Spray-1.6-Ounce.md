@@ -1,12 +1,3 @@
----
-title: Opium by Yves Saint Laurent for Women Eau De Parfum Spray, 1.6 Ounce,
-description: Opium by Yves Saint Laurent for Women Eau De Parfum Spray, 1.6 Ounce,
-author: Suvojit Manna,
-tags: Opium by Yves Saint Laurent for Women Eau De Parfum Spray, 1.6 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:49 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:49 GMT+0530 (India Standard Time),
----
-
 # [Opium by Yves Saint Laurent for Women Eau De Parfum Spray, 1.6 Ounce](https://products.checkmycream.com/products/Opium-by-Yves-Saint-Laurent-for-Women-Eau-De-Parfum-Spray-1.6-Ounce.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Gum Gum Go-Betweens Proxabrush Cleaners Moderate,
-description: Gum Gum Go-Betweens Proxabrush Cleaners Moderate,
-author: Suvojit Manna,
-tags: Gum Gum Go-Betweens Proxabrush Cleaners Moderate,
-publishedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
----
-
 # [Gum Gum Go-Betweens Proxabrush Cleaners Moderate](https://products.checkmycream.com/products/Gum-Gum-Go-Betweens-Proxabrush-Cleaners-Moderate.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: ROLECOS Womens Long Wavy Wigs Fashion Synthetic Hair Wig,
-description: ROLECOS Womens Long Wavy Wigs Fashion Synthetic Hair Wig,
-author: Suvojit Manna,
-tags: ROLECOS Womens Long Wavy Wigs Fashion Synthetic Hair Wig,
-publishedAt: Fri Jan 10 2020 15:00:29 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:29 GMT+0530 (India Standard Time),
----
-
 # [ROLECOS Womens Long Wavy Wigs Fashion Synthetic Hair Wig](https://products.checkmycream.com/products/ROLECOS-Womens-Long-Wavy-Wigs-Fashion-Synthetic-Hair-Wig.html)
 
 ### Positive Reviews

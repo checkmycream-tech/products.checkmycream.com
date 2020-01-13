@@ -1,12 +1,3 @@
----
-title: Wheat Germ Oil Cold Pressed Organic Pure 4 Oz,
-description: Wheat Germ Oil Cold Pressed Organic Pure 4 Oz,
-author: Suvojit Manna,
-tags: Wheat Germ Oil Cold Pressed Organic Pure 4 Oz,
-publishedAt: Fri Jan 10 2020 15:00:12 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:12 GMT+0530 (India Standard Time),
----
-
 # [Wheat Germ Oil Cold Pressed Organic Pure 4 Oz](https://products.checkmycream.com/products/Wheat-Germ-Oil-Cold-Pressed-Organic-Pure-4-Oz.html)
 
 ### Positive Reviews

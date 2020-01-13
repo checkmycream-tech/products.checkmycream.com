@@ -1,12 +1,3 @@
----
-title: PURELL Sanitizing Hand Wipes Individually Wrapped 100-ct. Box (Pack Of 2) by Gojo,
-description: PURELL Sanitizing Hand Wipes Individually Wrapped 100-ct. Box (Pack Of 2) by Gojo,
-author: Suvojit Manna,
-tags: PURELL Sanitizing Hand Wipes Individually Wrapped 100-ct. Box (Pack Of 2) by Gojo,
-publishedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
----
-
 # [PURELL Sanitizing Hand Wipes Individually Wrapped 100-ct. Box (Pack Of 2) by Gojo](https://products.checkmycream.com/products/PURELL-Sanitizing-Hand-Wipes-Individually-Wrapped-100-ct.-Box-(Pack-Of-2)-by-Gojo.html)
 
 ### Positive Reviews

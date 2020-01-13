@@ -1,12 +1,3 @@
----
-title: Studio Basics Expert Complexion Sponge, (colors may vary); Foam for a Smooth Surface Allowing for Streak-Free Application,
-description: Studio Basics Expert Complexion Sponge, (colors may vary); Foam for a Smooth Surface Allowing for Streak-Free Application,
-author: Suvojit Manna,
-tags: Studio Basics Expert Complexion Sponge, (colors may vary); Foam for a Smooth Surface Allowing for Streak-Free Application,
-publishedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
----
-
 # [Studio Basics Expert Complexion Sponge, (colors may vary); Foam for a Smooth Surface Allowing for Streak-Free Application](https://products.checkmycream.com/products/Studio-Basics-Expert-Complexion-Sponge-(colors-may-vary)-Foam-for-a-Smooth-Surface-Allowing-for-Streak-Free-Application.html)
 
 ### Positive Reviews

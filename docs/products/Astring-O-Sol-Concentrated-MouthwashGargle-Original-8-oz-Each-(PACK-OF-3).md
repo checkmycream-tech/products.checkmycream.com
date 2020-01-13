@@ -1,12 +1,3 @@
----
-title: Astring-O-Sol Concentrated Mouthwash/Gargle, Original - 8 oz Each (PACK OF 3),
-description: Astring-O-Sol Concentrated Mouthwash/Gargle, Original - 8 oz Each (PACK OF 3),
-author: Suvojit Manna,
-tags: Astring-O-Sol Concentrated Mouthwash/Gargle, Original - 8 oz Each (PACK OF 3),
-publishedAt: Fri Jan 10 2020 15:00:09 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:09 GMT+0530 (India Standard Time),
----
-
 # [Astring-O-Sol Concentrated Mouthwash/Gargle, Original - 8 oz Each (PACK OF 3)](https://products.checkmycream.com/products/Astring-O-Sol-Concentrated-MouthwashGargle-Original-8-oz-Each-(PACK-OF-3).html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: HeroNeo® New 7.2cm Stainless Steel Metal Men&#x27;s Shaving Mug Bowl Cup For Shave Brush,
-description: HeroNeo® New 7.2cm Stainless Steel Metal Men&#x27;s Shaving Mug Bowl Cup For Shave Brush,
-author: Suvojit Manna,
-tags: HeroNeo® New 7.2cm Stainless Steel Metal Men&#x27;s Shaving Mug Bowl Cup For Shave Brush,
-publishedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
----
-
 # [HeroNeo® New 7.2cm Stainless Steel Metal Men&#x27;s Shaving Mug Bowl Cup For Shave Brush](https://products.checkmycream.com/products/HeroNeo(r)-New-7.2cm-Stainless-Steel-Metal-Men&#x27;s-Shaving-Mug-Bowl-Cup-For-Shave-Brush.html)
 
 ### Positive Reviews

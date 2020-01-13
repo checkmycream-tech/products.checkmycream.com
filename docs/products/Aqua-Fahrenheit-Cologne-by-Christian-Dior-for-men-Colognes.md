@@ -1,12 +1,3 @@
----
-title: Aqua Fahrenheit Cologne by Christian Dior for men Colognes,
-description: Aqua Fahrenheit Cologne by Christian Dior for men Colognes,
-author: Suvojit Manna,
-tags: Aqua Fahrenheit Cologne by Christian Dior for men Colognes,
-publishedAt: Fri Jan 10 2020 15:00:07 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:07 GMT+0530 (India Standard Time),
----
-
 # [Aqua Fahrenheit Cologne by Christian Dior for men Colognes](https://products.checkmycream.com/products/Aqua-Fahrenheit-Cologne-by-Christian-Dior-for-men-Colognes.html)
 
 ### Positive Reviews

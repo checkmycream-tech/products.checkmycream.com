@@ -1,12 +1,3 @@
----
-title: Mary Kay Tinted Moisturizer W/spf 20 Beige 1 Fresh,
-description: Mary Kay Tinted Moisturizer W/spf 20 Beige 1 Fresh,
-author: Suvojit Manna,
-tags: Mary Kay Tinted Moisturizer W/spf 20 Beige 1 Fresh,
-publishedAt: Fri Jan 10 2020 15:00:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:05 GMT+0530 (India Standard Time),
----
-
 # [Mary Kay Tinted Moisturizer W/spf 20 Beige 1 Fresh](https://products.checkmycream.com/products/Mary-Kay-Tinted-Moisturizer-Wspf-20-Beige-1-Fresh.html)
 
 ### Positive Reviews

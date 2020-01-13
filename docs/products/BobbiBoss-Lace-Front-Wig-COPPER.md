@@ -1,12 +1,3 @@
----
-title: BobbiBoss Lace Front Wig - COPPER,
-description: BobbiBoss Lace Front Wig - COPPER,
-author: Suvojit Manna,
-tags: BobbiBoss Lace Front Wig - COPPER,
-publishedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
----
-
 # [BobbiBoss Lace Front Wig - COPPER](https://products.checkmycream.com/products/BobbiBoss-Lace-Front-Wig-COPPER.html)
 
 ### Positive Reviews

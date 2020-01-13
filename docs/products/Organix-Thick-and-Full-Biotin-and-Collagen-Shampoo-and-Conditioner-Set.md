@@ -1,12 +1,3 @@
----
-title: Organix Thick and Full Biotin and Collagen Shampoo &amp; Conditioner Set,
-description: Organix Thick and Full Biotin and Collagen Shampoo &amp; Conditioner Set,
-author: Suvojit Manna,
-tags: Organix Thick and Full Biotin and Collagen Shampoo &amp; Conditioner Set,
-publishedAt: Fri Jan 10 2020 15:01:04 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:04 GMT+0530 (India Standard Time),
----
-
 # [Organix Thick and Full Biotin and Collagen Shampoo &amp; Conditioner Set](https://products.checkmycream.com/products/Organix-Thick-and-Full-Biotin-and-Collagen-Shampoo-and-Conditioner-Set.html)
 
 ### Positive Reviews

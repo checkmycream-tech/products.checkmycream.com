@@ -1,12 +1,3 @@
----
-title: Vivo Per Lei Day &amp; Night Creams, 2 of each,
-description: Vivo Per Lei Day &amp; Night Creams, 2 of each,
-author: Suvojit Manna,
-tags: Vivo Per Lei Day &amp; Night Creams, 2 of each,
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [Vivo Per Lei Day &amp; Night Creams, 2 of each](https://products.checkmycream.com/products/Vivo-Per-Lei-Day-and-Night-Creams-2-of-each.html)
 
 ### Positive Reviews

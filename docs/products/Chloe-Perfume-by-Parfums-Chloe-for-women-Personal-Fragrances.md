@@ -1,12 +1,3 @@
----
-title: Chloe Perfume by Parfums Chloe for women Personal Fragrances,
-description: Chloe Perfume by Parfums Chloe for women Personal Fragrances,
-author: Suvojit Manna,
-tags: Chloe Perfume by Parfums Chloe for women Personal Fragrances,
-publishedAt: Fri Jan 10 2020 14:59:38 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:38 GMT+0530 (India Standard Time),
----
-
 # [Chloe Perfume by Parfums Chloe for women Personal Fragrances](https://products.checkmycream.com/products/Chloe-Perfume-by-Parfums-Chloe-for-women-Personal-Fragrances.html)
 
 ### Positive Reviews

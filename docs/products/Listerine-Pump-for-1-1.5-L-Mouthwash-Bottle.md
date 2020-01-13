@@ -1,12 +1,3 @@
----
-title: Listerine Pump for 1 / 1.5 L Mouthwash Bottle,
-description: Listerine Pump for 1 / 1.5 L Mouthwash Bottle,
-author: Suvojit Manna,
-tags: Listerine Pump for 1 / 1.5 L Mouthwash Bottle,
-publishedAt: Fri Jan 10 2020 15:01:07 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:07 GMT+0530 (India Standard Time),
----
-
 # [Listerine Pump for 1 / 1.5 L Mouthwash Bottle](https://products.checkmycream.com/products/Listerine-Pump-for-1-1.5-L-Mouthwash-Bottle.html)
 
 ### Positive Reviews

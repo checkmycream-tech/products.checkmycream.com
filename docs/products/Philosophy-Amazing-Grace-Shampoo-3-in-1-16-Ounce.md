@@ -1,12 +1,3 @@
----
-title: Philosophy Amazing Grace Shampoo 3 in 1 16 Ounce,
-description: Philosophy Amazing Grace Shampoo 3 in 1 16 Ounce,
-author: Suvojit Manna,
-tags: Philosophy Amazing Grace Shampoo 3 in 1 16 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
----
-
 # [Philosophy Amazing Grace Shampoo 3 in 1 16 Ounce](https://products.checkmycream.com/products/Philosophy-Amazing-Grace-Shampoo-3-in-1-16-Ounce.html)
 
 ### Positive Reviews

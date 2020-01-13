@@ -1,12 +1,3 @@
----
-title: Conair Black Bobby Pins In Tub,
-description: Conair Black Bobby Pins In Tub,
-author: Suvojit Manna,
-tags: Conair Black Bobby Pins In Tub,
-publishedAt: Fri Jan 10 2020 15:00:18 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:18 GMT+0530 (India Standard Time),
----
-
 # [Conair Black Bobby Pins In Tub](https://products.checkmycream.com/products/Conair-Black-Bobby-Pins-In-Tub.html)
 
 ### Positive Reviews

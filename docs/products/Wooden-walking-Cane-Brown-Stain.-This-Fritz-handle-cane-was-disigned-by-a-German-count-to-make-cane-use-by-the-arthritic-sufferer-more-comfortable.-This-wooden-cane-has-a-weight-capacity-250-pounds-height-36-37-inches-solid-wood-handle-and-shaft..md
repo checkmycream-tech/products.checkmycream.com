@@ -1,12 +1,3 @@
----
-title: Wooden walking Cane - Brown Stain. This Fritz handle cane was disigned by a German count to make cane use by the arthritic sufferer more comfortable. This wooden cane has a weight capacity 250 pounds, height 36-37 inches, solid wood handle and shaft.,
-description: Wooden walking Cane - Brown Stain. This Fritz handle cane was disigned by a German count to make cane use by the arthritic sufferer more comfortable. This wooden cane has a weight capacity 250 pounds, height 36-37 inches, solid wood handle and shaft.,
-author: Suvojit Manna,
-tags: Wooden walking Cane - Brown Stain. This Fritz handle cane was disigned by a German count to make cane use by the arthritic sufferer more comfortable. This wooden cane has a weight capacity 250 pounds, height 36-37 inches, solid wood handle and shaft.,
-publishedAt: Fri Jan 10 2020 14:59:16 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:16 GMT+0530 (India Standard Time),
----
-
 # [Wooden walking Cane - Brown Stain. This Fritz handle cane was disigned by a German count to make cane use by the arthritic sufferer more comfortable. This wooden cane has a weight capacity 250 pounds, height 36-37 inches, solid wood handle and shaft.](https://products.checkmycream.com/products/Wooden-walking-Cane-Brown-Stain.-This-Fritz-handle-cane-was-disigned-by-a-German-count-to-make-cane-use-by-the-arthritic-sufferer-more-comfortable.-This-wooden-cane-has-a-weight-capacity-250-pounds-height-36-37-inches-solid-wood-handle-and-shaft..html)
 
 ### Positive Reviews

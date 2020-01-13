@@ -1,12 +1,3 @@
----
-title: Maybelline Volum&#x27; Express 1 on 1 Washable Mascara 256 Brownish Black 4 pk,
-description: Maybelline Volum&#x27; Express 1 on 1 Washable Mascara 256 Brownish Black 4 pk,
-author: Suvojit Manna,
-tags: Maybelline Volum&#x27; Express 1 on 1 Washable Mascara 256 Brownish Black 4 pk,
-publishedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
----
-
 # [Maybelline Volum&#x27; Express 1 on 1 Washable Mascara 256 Brownish Black 4 pk](https://products.checkmycream.com/products/Maybelline-Volum&#x27;-Express-1-on-1-Washable-Mascara-256-Brownish-Black-4-pk.html)
 
 ### Positive Reviews

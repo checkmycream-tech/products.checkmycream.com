@@ -1,12 +1,3 @@
----
-title: Jovan Men 2pc Set - Cologne Spray +Aftershave Cologne,
-description: Jovan Men 2pc Set - Cologne Spray +Aftershave Cologne,
-author: Suvojit Manna,
-tags: Jovan Men 2pc Set - Cologne Spray +Aftershave Cologne,
-publishedAt: Fri Jan 10 2020 14:59:23 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:23 GMT+0530 (India Standard Time),
----
-
 # [Jovan Men 2pc Set - Cologne Spray +Aftershave Cologne](https://products.checkmycream.com/products/Jovan-Men-2pc-Set-Cologne-Spray-+Aftershave-Cologne.html)
 
 ### Positive Reviews

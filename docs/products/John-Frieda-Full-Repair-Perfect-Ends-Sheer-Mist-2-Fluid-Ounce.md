@@ -1,12 +1,3 @@
----
-title: John Frieda Full Repair Perfect Ends Sheer Mist, 2 Fluid Ounce,
-description: John Frieda Full Repair Perfect Ends Sheer Mist, 2 Fluid Ounce,
-author: Suvojit Manna,
-tags: John Frieda Full Repair Perfect Ends Sheer Mist, 2 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 15:00:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:00 GMT+0530 (India Standard Time),
----
-
 # [John Frieda Full Repair Perfect Ends Sheer Mist, 2 Fluid Ounce](https://products.checkmycream.com/products/John-Frieda-Full-Repair-Perfect-Ends-Sheer-Mist-2-Fluid-Ounce.html)
 
 ### Positive Reviews

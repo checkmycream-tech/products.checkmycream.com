@@ -1,12 +1,3 @@
----
-title: Clinique 3 Little Mild Soap for Unisex, 3 Count,
-description: Clinique 3 Little Mild Soap for Unisex, 3 Count,
-author: Suvojit Manna,
-tags: Clinique 3 Little Mild Soap for Unisex, 3 Count,
-publishedAt: Fri Jan 10 2020 14:59:14 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:14 GMT+0530 (India Standard Time),
----
-
 # [Clinique 3 Little Mild Soap for Unisex, 3 Count](https://products.checkmycream.com/products/Clinique-3-Little-Mild-Soap-for-Unisex-3-Count.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Paul Mitchell Instant Moist Daily Shampoo Shampoo For Unisex,
-description: Paul Mitchell Instant Moist Daily Shampoo Shampoo For Unisex,
-author: Suvojit Manna,
-tags: Paul Mitchell Instant Moist Daily Shampoo Shampoo For Unisex,
-publishedAt: Fri Jan 10 2020 14:59:15 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:15 GMT+0530 (India Standard Time),
----
-
 # [Paul Mitchell Instant Moist Daily Shampoo Shampoo For Unisex](https://products.checkmycream.com/products/Paul-Mitchell-Instant-Moist-Daily-Shampoo-Shampoo-For-Unisex.html)
 
 ### Positive Reviews

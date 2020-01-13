@@ -1,12 +1,3 @@
----
-title: Ch Carolina Herrera Sport By Carolina Herrera Edt Spray/FN227140/3.4 oz/men/,
-description: Ch Carolina Herrera Sport By Carolina Herrera Edt Spray/FN227140/3.4 oz/men/,
-author: Suvojit Manna,
-tags: Ch Carolina Herrera Sport By Carolina Herrera Edt Spray/FN227140/3.4 oz/men/,
-publishedAt: Fri Jan 10 2020 15:00:22 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:22 GMT+0530 (India Standard Time),
----
-
 # [Ch Carolina Herrera Sport By Carolina Herrera Edt Spray/FN227140/3.4 oz/men/](https://products.checkmycream.com/products/Ch-Carolina-Herrera-Sport-By-Carolina-Herrera-Edt-SprayFN2271403.4-ozmen.html)
 
 ### Positive Reviews

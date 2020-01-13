@@ -1,12 +1,3 @@
----
-title: OPI Ford Collection Mini Pack Nail Lacquer, 4 Count,
-description: OPI Ford Collection Mini Pack Nail Lacquer, 4 Count,
-author: Suvojit Manna,
-tags: OPI Ford Collection Mini Pack Nail Lacquer, 4 Count,
-publishedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
----
-
 # [OPI Ford Collection Mini Pack Nail Lacquer, 4 Count](https://products.checkmycream.com/products/OPI-Ford-Collection-Mini-Pack-Nail-Lacquer-4-Count.html)
 
 ### Positive Reviews

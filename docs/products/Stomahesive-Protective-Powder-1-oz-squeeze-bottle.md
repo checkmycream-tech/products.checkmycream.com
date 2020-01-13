@@ -1,12 +1,3 @@
----
-title: Stomahesive Protective Powder - 1 oz squeeze bottle,
-description: Stomahesive Protective Powder - 1 oz squeeze bottle,
-author: Suvojit Manna,
-tags: Stomahesive Protective Powder - 1 oz squeeze bottle,
-publishedAt: Fri Jan 10 2020 14:59:12 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:12 GMT+0530 (India Standard Time),
----
-
 # [Stomahesive Protective Powder - 1 oz squeeze bottle](https://products.checkmycream.com/products/Stomahesive-Protective-Powder-1-oz-squeeze-bottle.html)
 
 ### Positive Reviews

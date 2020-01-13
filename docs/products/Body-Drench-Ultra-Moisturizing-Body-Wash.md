@@ -1,12 +1,3 @@
----
-title: Body Drench Ultra Moisturizing Body Wash,
-description: Body Drench Ultra Moisturizing Body Wash,
-author: Suvojit Manna,
-tags: Body Drench Ultra Moisturizing Body Wash,
-publishedAt: Fri Jan 10 2020 14:59:48 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:48 GMT+0530 (India Standard Time),
----
-
 # [Body Drench Ultra Moisturizing Body Wash](https://products.checkmycream.com/products/Body-Drench-Ultra-Moisturizing-Body-Wash.html)
 
 ### Positive Reviews

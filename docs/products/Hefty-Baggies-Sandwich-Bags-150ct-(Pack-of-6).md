@@ -1,12 +1,3 @@
----
-title: Hefty Baggies Sandwich Bags-150ct (Pack of 6),
-description: Hefty Baggies Sandwich Bags-150ct (Pack of 6),
-author: Suvojit Manna,
-tags: Hefty Baggies Sandwich Bags-150ct (Pack of 6),
-publishedAt: Fri Jan 10 2020 15:00:04 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:04 GMT+0530 (India Standard Time),
----
-
 # [Hefty Baggies Sandwich Bags-150ct (Pack of 6)](https://products.checkmycream.com/products/Hefty-Baggies-Sandwich-Bags-150ct-(Pack-of-6).html)
 
 ### Positive Reviews

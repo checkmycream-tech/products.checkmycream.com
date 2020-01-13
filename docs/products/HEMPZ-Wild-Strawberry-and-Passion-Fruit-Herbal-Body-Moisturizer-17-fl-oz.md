@@ -1,12 +1,3 @@
----
-title: HEMPZ Wild Strawberry &amp; Passion Fruit Herbal Body Moisturizer, 17 fl oz,
-description: HEMPZ Wild Strawberry &amp; Passion Fruit Herbal Body Moisturizer, 17 fl oz,
-author: Suvojit Manna,
-tags: HEMPZ Wild Strawberry &amp; Passion Fruit Herbal Body Moisturizer, 17 fl oz,
-publishedAt: Fri Jan 10 2020 15:01:06 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:06 GMT+0530 (India Standard Time),
----
-
 # [HEMPZ Wild Strawberry &amp; Passion Fruit Herbal Body Moisturizer, 17 fl oz](https://products.checkmycream.com/products/HEMPZ-Wild-Strawberry-and-Passion-Fruit-Herbal-Body-Moisturizer-17-fl-oz.html)
 
 ### Positive Reviews

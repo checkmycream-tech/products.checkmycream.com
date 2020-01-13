@@ -1,12 +1,3 @@
----
-title: OPI Brazil 2014 Collection Nail Lacquer, Kiss Me I&#x27;m Brazilian,
-description: OPI Brazil 2014 Collection Nail Lacquer, Kiss Me I&#x27;m Brazilian,
-author: Suvojit Manna,
-tags: OPI Brazil 2014 Collection Nail Lacquer, Kiss Me I&#x27;m Brazilian,
-publishedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
----
-
 # [OPI Brazil 2014 Collection Nail Lacquer, Kiss Me I&#x27;m Brazilian](https://products.checkmycream.com/products/OPI-Brazil-2014-Collection-Nail-Lacquer-Kiss-Me-I&#x27;m-Brazilian.html)
 
 ### Positive Reviews

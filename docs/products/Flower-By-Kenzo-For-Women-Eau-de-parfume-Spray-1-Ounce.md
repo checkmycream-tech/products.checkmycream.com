@@ -1,12 +1,3 @@
----
-title: Flower By Kenzo For Women Eau-de-parfume Spray, 1 Ounce,
-description: Flower By Kenzo For Women Eau-de-parfume Spray, 1 Ounce,
-author: Suvojit Manna,
-tags: Flower By Kenzo For Women Eau-de-parfume Spray, 1 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:07 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:07 GMT+0530 (India Standard Time),
----
-
 # [Flower By Kenzo For Women Eau-de-parfume Spray, 1 Ounce](https://products.checkmycream.com/products/Flower-By-Kenzo-For-Women-Eau-de-parfume-Spray-1-Ounce.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Diane Rake/Rage Comb Bone/Black,
-description: Diane Rake/Rage Comb Bone/Black,
-author: Suvojit Manna,
-tags: Diane Rake/Rage Comb Bone/Black,
-publishedAt: Fri Jan 10 2020 14:59:38 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:38 GMT+0530 (India Standard Time),
----
-
 # [Diane Rake/Rage Comb Bone/Black](https://products.checkmycream.com/products/Diane-RakeRage-Comb-BoneBlack.html)
 
 ### Positive Reviews

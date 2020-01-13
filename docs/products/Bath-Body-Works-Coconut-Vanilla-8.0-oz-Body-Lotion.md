@@ -1,12 +1,3 @@
----
-title: Bath Body Works Coconut Vanilla 8.0 oz Body Lotion,
-description: Bath Body Works Coconut Vanilla 8.0 oz Body Lotion,
-author: Suvojit Manna,
-tags: Bath Body Works Coconut Vanilla 8.0 oz Body Lotion,
-publishedAt: Fri Jan 10 2020 15:00:04 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:04 GMT+0530 (India Standard Time),
----
-
 # [Bath Body Works Coconut Vanilla 8.0 oz Body Lotion](https://products.checkmycream.com/products/Bath-Body-Works-Coconut-Vanilla-8.0-oz-Body-Lotion.html)
 
 ### Positive Reviews

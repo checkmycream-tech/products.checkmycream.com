@@ -1,12 +1,3 @@
----
-title: Hard Candy 287 Welcome Matte Mattifying Transluscent Powder .27 Oz,
-description: Hard Candy 287 Welcome Matte Mattifying Transluscent Powder .27 Oz,
-author: Suvojit Manna,
-tags: Hard Candy 287 Welcome Matte Mattifying Transluscent Powder .27 Oz,
-publishedAt: Fri Jan 10 2020 15:00:17 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:17 GMT+0530 (India Standard Time),
----
-
 # [Hard Candy 287 Welcome Matte Mattifying Transluscent Powder .27 Oz](https://products.checkmycream.com/products/Hard-Candy-287-Welcome-Matte-Mattifying-Transluscent-Powder-.27-Oz.html)
 
 ### Positive Reviews

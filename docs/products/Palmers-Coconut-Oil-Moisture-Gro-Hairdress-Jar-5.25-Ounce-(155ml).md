@@ -1,12 +1,3 @@
----
-title: Palmers Coconut Oil Moisture Gro Hairdress Jar 5.25 Ounce (155ml),
-description: Palmers Coconut Oil Moisture Gro Hairdress Jar 5.25 Ounce (155ml),
-author: Suvojit Manna,
-tags: Palmers Coconut Oil Moisture Gro Hairdress Jar 5.25 Ounce (155ml),
-publishedAt: Fri Jan 10 2020 14:59:06 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:06 GMT+0530 (India Standard Time),
----
-
 # [Palmers Coconut Oil Moisture Gro Hairdress Jar 5.25 Ounce (155ml)](https://products.checkmycream.com/products/Palmers-Coconut-Oil-Moisture-Gro-Hairdress-Jar-5.25-Ounce-(155ml).html)
 
 ### Positive Reviews

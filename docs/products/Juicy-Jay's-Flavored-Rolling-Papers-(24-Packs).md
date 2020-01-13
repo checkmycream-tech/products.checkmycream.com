@@ -1,12 +1,3 @@
----
-title: Juicy Jay&#x27;s Flavored Rolling Papers (24 Packs),
-description: Juicy Jay&#x27;s Flavored Rolling Papers (24 Packs),
-author: Suvojit Manna,
-tags: Juicy Jay&#x27;s Flavored Rolling Papers (24 Packs),
-publishedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
----
-
 # [Juicy Jay&#x27;s Flavored Rolling Papers (24 Packs)](https://products.checkmycream.com/products/Juicy-Jay&#x27;s-Flavored-Rolling-Papers-(24-Packs).html)
 
 ### Positive Reviews

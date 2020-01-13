@@ -1,12 +1,3 @@
----
-title: Matrix Biolage Volumebloom Shampoo &amp; Conditioner Duo, 33.08 oz,
-description: Matrix Biolage Volumebloom Shampoo &amp; Conditioner Duo, 33.08 oz,
-author: Suvojit Manna,
-tags: Matrix Biolage Volumebloom Shampoo &amp; Conditioner Duo, 33.08 oz,
-publishedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
----
-
 # [Matrix Biolage Volumebloom Shampoo &amp; Conditioner Duo, 33.08 oz](https://products.checkmycream.com/products/Matrix-Biolage-Volumebloom-Shampoo-and-Conditioner-Duo-33.08-oz.html)
 
 ### Positive Reviews

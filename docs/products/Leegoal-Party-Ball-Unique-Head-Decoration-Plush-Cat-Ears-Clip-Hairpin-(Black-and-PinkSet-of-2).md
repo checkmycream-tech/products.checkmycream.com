@@ -1,12 +1,3 @@
----
-title: Leegoal Party Ball Unique Head Decoration Plush Cat Ears Clip Hairpin (Black and Pink,Set of 2),
-description: Leegoal Party Ball Unique Head Decoration Plush Cat Ears Clip Hairpin (Black and Pink,Set of 2),
-author: Suvojit Manna,
-tags: Leegoal Party Ball Unique Head Decoration Plush Cat Ears Clip Hairpin (Black and Pink,Set of 2),
-publishedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
----
-
 # [Leegoal Party Ball Unique Head Decoration Plush Cat Ears Clip Hairpin (Black and Pink,Set of 2)](https://products.checkmycream.com/products/Leegoal-Party-Ball-Unique-Head-Decoration-Plush-Cat-Ears-Clip-Hairpin-(Black-and-PinkSet-of-2).html)
 
 ### Positive Reviews

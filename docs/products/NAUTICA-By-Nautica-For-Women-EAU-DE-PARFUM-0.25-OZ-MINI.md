@@ -1,12 +1,3 @@
----
-title: NAUTICA By Nautica For Women EAU DE PARFUM 0.25 OZ MINI,
-description: NAUTICA By Nautica For Women EAU DE PARFUM 0.25 OZ MINI,
-author: Suvojit Manna,
-tags: NAUTICA By Nautica For Women EAU DE PARFUM 0.25 OZ MINI,
-publishedAt: Fri Jan 10 2020 14:59:23 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:23 GMT+0530 (India Standard Time),
----
-
 # [NAUTICA By Nautica For Women EAU DE PARFUM 0.25 OZ MINI](https://products.checkmycream.com/products/NAUTICA-By-Nautica-For-Women-EAU-DE-PARFUM-0.25-OZ-MINI.html)
 
 ### Positive Reviews

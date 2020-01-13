@@ -1,12 +1,3 @@
----
-title: Vavoom Shape Maker Shaping Spray By Matrix, 11 Ounce,
-description: Vavoom Shape Maker Shaping Spray By Matrix, 11 Ounce,
-author: Suvojit Manna,
-tags: Vavoom Shape Maker Shaping Spray By Matrix, 11 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:24 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:24 GMT+0530 (India Standard Time),
----
-
 # [Vavoom Shape Maker Shaping Spray By Matrix, 11 Ounce](https://products.checkmycream.com/products/Vavoom-Shape-Maker-Shaping-Spray-By-Matrix-11-Ounce.html)
 
 ### Positive Reviews

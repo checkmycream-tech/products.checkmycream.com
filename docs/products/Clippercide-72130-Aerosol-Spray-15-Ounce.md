@@ -1,12 +1,3 @@
----
-title: Clippercide 72130 Aerosol Spray, 15 Ounce,
-description: Clippercide 72130 Aerosol Spray, 15 Ounce,
-author: Suvojit Manna,
-tags: Clippercide 72130 Aerosol Spray, 15 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:16 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:16 GMT+0530 (India Standard Time),
----
-
 # [Clippercide 72130 Aerosol Spray, 15 Ounce](https://products.checkmycream.com/products/Clippercide-72130-Aerosol-Spray-15-Ounce.html)
 
 ### Positive Reviews

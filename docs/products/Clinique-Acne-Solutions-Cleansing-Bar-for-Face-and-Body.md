@@ -1,12 +1,3 @@
----
-title: Clinique Acne Solutions Cleansing Bar for Face &amp; Body,
-description: Clinique Acne Solutions Cleansing Bar for Face &amp; Body,
-author: Suvojit Manna,
-tags: Clinique Acne Solutions Cleansing Bar for Face &amp; Body,
-publishedAt: Fri Jan 10 2020 14:59:25 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:25 GMT+0530 (India Standard Time),
----
-
 # [Clinique Acne Solutions Cleansing Bar for Face &amp; Body](https://products.checkmycream.com/products/Clinique-Acne-Solutions-Cleansing-Bar-for-Face-and-Body.html)
 
 ### Positive Reviews

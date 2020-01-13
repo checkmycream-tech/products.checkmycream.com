@@ -1,12 +1,3 @@
----
-title: Ed Hardy Ooh La Luxe Moisturizing Tan Extender Lotion 18.75 oz.,
-description: Ed Hardy Ooh La Luxe Moisturizing Tan Extender Lotion 18.75 oz.,
-author: Suvojit Manna,
-tags: Ed Hardy Ooh La Luxe Moisturizing Tan Extender Lotion 18.75 oz.,
-publishedAt: Fri Jan 10 2020 15:00:36 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:36 GMT+0530 (India Standard Time),
----
-
 # [Ed Hardy Ooh La Luxe Moisturizing Tan Extender Lotion 18.75 oz.](https://products.checkmycream.com/products/Ed-Hardy-Ooh-La-Luxe-Moisturizing-Tan-Extender-Lotion-18.75-oz..html)
 
 ### Positive Reviews

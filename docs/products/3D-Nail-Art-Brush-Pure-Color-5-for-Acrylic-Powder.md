@@ -1,12 +1,3 @@
----
-title: 3D Nail Art Brush Pure Color 5 for Acrylic Powder,
-description: 3D Nail Art Brush Pure Color 5 for Acrylic Powder,
-author: Suvojit Manna,
-tags: 3D Nail Art Brush Pure Color 5 for Acrylic Powder,
-publishedAt: Fri Jan 10 2020 14:59:42 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:42 GMT+0530 (India Standard Time),
----
-
 # [3D Nail Art Brush Pure Color 5 for Acrylic Powder](https://products.checkmycream.com/products/3D-Nail-Art-Brush-Pure-Color-5-for-Acrylic-Powder.html)
 
 ### Positive Reviews

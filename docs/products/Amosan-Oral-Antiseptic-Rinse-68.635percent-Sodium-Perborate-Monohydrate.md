@@ -1,12 +1,3 @@
----
-title: Amosan Oral Antiseptic Rinse - 68.635% Sodium Perborate Monohydrate,
-description: Amosan Oral Antiseptic Rinse - 68.635% Sodium Perborate Monohydrate,
-author: Suvojit Manna,
-tags: Amosan Oral Antiseptic Rinse - 68.635% Sodium Perborate Monohydrate,
-publishedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
----
-
 # [Amosan Oral Antiseptic Rinse - 68.635% Sodium Perborate Monohydrate](https://products.checkmycream.com/products/Amosan-Oral-Antiseptic-Rinse-68.635percent-Sodium-Perborate-Monohydrate.html)
 
 ### Positive Reviews

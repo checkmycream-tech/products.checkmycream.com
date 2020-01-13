@@ -1,12 +1,3 @@
----
-title: OPI Nail Polish I Think In Pink,
-description: OPI Nail Polish I Think In Pink,
-author: Suvojit Manna,
-tags: OPI Nail Polish I Think In Pink,
-publishedAt: Fri Jan 10 2020 15:00:09 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:09 GMT+0530 (India Standard Time),
----
-
 # [OPI Nail Polish I Think In Pink](https://products.checkmycream.com/products/OPI-Nail-Polish-I-Think-In-Pink.html)
 
 ### Positive Reviews

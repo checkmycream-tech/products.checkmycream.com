@@ -1,12 +1,3 @@
----
-title: Noble Formula Shampoo with 2% Pyrithione Zinc (ZnP),
-description: Noble Formula Shampoo with 2% Pyrithione Zinc (ZnP),
-author: Suvojit Manna,
-tags: Noble Formula Shampoo with 2% Pyrithione Zinc (ZnP),
-publishedAt: Fri Jan 10 2020 15:00:11 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:11 GMT+0530 (India Standard Time),
----
-
 # [Noble Formula Shampoo with 2% Pyrithione Zinc (ZnP)](https://products.checkmycream.com/products/Noble-Formula-Shampoo-with-2percent-Pyrithione-Zinc-(ZnP).html)
 
 ### Positive Reviews

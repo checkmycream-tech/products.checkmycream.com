@@ -1,12 +1,3 @@
----
-title: Yves Saint Laurent L&#x27;Homme La Nuit De L&#x27;Homme Eau de Toilette Spray for Men, 2.0 Ounce,
-description: Yves Saint Laurent L&#x27;Homme La Nuit De L&#x27;Homme Eau de Toilette Spray for Men, 2.0 Ounce,
-author: Suvojit Manna,
-tags: Yves Saint Laurent L&#x27;Homme La Nuit De L&#x27;Homme Eau de Toilette Spray for Men, 2.0 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:45 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:45 GMT+0530 (India Standard Time),
----
-
 # [Yves Saint Laurent L&#x27;Homme La Nuit De L&#x27;Homme Eau de Toilette Spray for Men, 2.0 Ounce](https://products.checkmycream.com/products/Yves-Saint-Laurent-L&#x27;Homme-La-Nuit-De-L&#x27;Homme-Eau-de-Toilette-Spray-for-Men-2.0-Ounce.html)
 
 ### Positive Reviews

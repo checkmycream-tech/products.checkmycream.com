@@ -1,12 +1,3 @@
----
-title: Sannysis Butterfly Flower Wallet Stand Flip Leather Case Cover For Samsung Galaxy S4 IV i9500,
-description: Sannysis Butterfly Flower Wallet Stand Flip Leather Case Cover For Samsung Galaxy S4 IV i9500,
-author: Suvojit Manna,
-tags: Sannysis Butterfly Flower Wallet Stand Flip Leather Case Cover For Samsung Galaxy S4 IV i9500,
-publishedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
----
-
 # [Sannysis Butterfly Flower Wallet Stand Flip Leather Case Cover For Samsung Galaxy S4 IV i9500](https://products.checkmycream.com/products/Sannysis-Butterfly-Flower-Wallet-Stand-Flip-Leather-Case-Cover-For-Samsung-Galaxy-S4-IV-i9500.html)
 
 ### Positive Reviews

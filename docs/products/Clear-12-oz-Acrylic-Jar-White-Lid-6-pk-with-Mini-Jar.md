@@ -1,12 +1,3 @@
----
-title: Clear 1/2 oz Acrylic Jar White Lid 6 pk with Mini Jar,
-description: Clear 1/2 oz Acrylic Jar White Lid 6 pk with Mini Jar,
-author: Suvojit Manna,
-tags: Clear 1/2 oz Acrylic Jar White Lid 6 pk with Mini Jar,
-publishedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
----
-
 # [Clear 1/2 oz Acrylic Jar White Lid 6 pk with Mini Jar](https://products.checkmycream.com/products/Clear-12-oz-Acrylic-Jar-White-Lid-6-pk-with-Mini-Jar.html)
 
 ### Positive Reviews

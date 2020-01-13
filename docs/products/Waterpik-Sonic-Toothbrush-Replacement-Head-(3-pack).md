@@ -1,12 +1,3 @@
----
-title: Waterpik Sonic Toothbrush Replacement Head (3 pack),
-description: Waterpik Sonic Toothbrush Replacement Head (3 pack),
-author: Suvojit Manna,
-tags: Waterpik Sonic Toothbrush Replacement Head (3 pack),
-publishedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
----
-
 # [Waterpik Sonic Toothbrush Replacement Head (3 pack)](https://products.checkmycream.com/products/Waterpik-Sonic-Toothbrush-Replacement-Head-(3-pack).html)
 
 ### Positive Reviews

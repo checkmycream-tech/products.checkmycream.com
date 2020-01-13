@@ -1,12 +1,3 @@
----
-title: New Auric Blends Egyptian Goddess Solid Perfume 10ml,
-description: New Auric Blends Egyptian Goddess Solid Perfume 10ml,
-author: Suvojit Manna,
-tags: New Auric Blends Egyptian Goddess Solid Perfume 10ml,
-publishedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
----
-
 # [New Auric Blends Egyptian Goddess Solid Perfume 10ml](https://products.checkmycream.com/products/New-Auric-Blends-Egyptian-Goddess-Solid-Perfume-10ml.html)
 
 ### Positive Reviews

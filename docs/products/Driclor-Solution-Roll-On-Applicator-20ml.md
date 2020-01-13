@@ -1,12 +1,3 @@
----
-title: Driclor Solution Roll On Applicator 20ml,
-description: Driclor Solution Roll On Applicator 20ml,
-author: Suvojit Manna,
-tags: Driclor Solution Roll On Applicator 20ml,
-publishedAt: Fri Jan 10 2020 15:00:32 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:32 GMT+0530 (India Standard Time),
----
-
 # [Driclor Solution Roll On Applicator 20ml](https://products.checkmycream.com/products/Driclor-Solution-Roll-On-Applicator-20ml.html)
 
 ### Positive Reviews

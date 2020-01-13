@@ -1,12 +1,3 @@
----
-title: Aloe Vesta Protective Ointment,
-description: Aloe Vesta Protective Ointment,
-author: Suvojit Manna,
-tags: Aloe Vesta Protective Ointment,
-publishedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
----
-
 # [Aloe Vesta Protective Ointment](https://products.checkmycream.com/products/Aloe-Vesta-Protective-Ointment.html)
 
 ### Positive Reviews

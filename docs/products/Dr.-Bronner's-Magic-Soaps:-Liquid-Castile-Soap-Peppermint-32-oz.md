@@ -1,12 +1,3 @@
----
-title: Dr. Bronner&#x27;s Magic Soaps: Liquid Castile Soap, Peppermint 32 oz,
-description: Dr. Bronner&#x27;s Magic Soaps: Liquid Castile Soap, Peppermint 32 oz,
-author: Suvojit Manna,
-tags: Dr. Bronner&#x27;s Magic Soaps: Liquid Castile Soap, Peppermint 32 oz,
-publishedAt: Fri Jan 10 2020 15:00:04 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:04 GMT+0530 (India Standard Time),
----
-
 # [Dr. Bronner&#x27;s Magic Soaps: Liquid Castile Soap, Peppermint 32 oz](https://products.checkmycream.com/products/Dr.-Bronner&#x27;s-Magic-Soaps:-Liquid-Castile-Soap-Peppermint-32-oz.html)
 
 ### Positive Reviews

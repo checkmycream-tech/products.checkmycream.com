@@ -1,12 +1,3 @@
----
-title: Vktech Width 25cm Lady Sexy Stylish Long Curl Wavy Clip-on Hair Extension (Black),
-description: Vktech Width 25cm Lady Sexy Stylish Long Curl Wavy Clip-on Hair Extension (Black),
-author: Suvojit Manna,
-tags: Vktech Width 25cm Lady Sexy Stylish Long Curl Wavy Clip-on Hair Extension (Black),
-publishedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
----
-
 # [Vktech Width 25cm Lady Sexy Stylish Long Curl Wavy Clip-on Hair Extension (Black)](https://products.checkmycream.com/products/Vktech-Width-25cm-Lady-Sexy-Stylish-Long-Curl-Wavy-Clip-on-Hair-Extension-(Black).html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Double Sided Emery Boards, Bulk Bag of 100 each, 4 5/8&quot; long,
-description: Double Sided Emery Boards, Bulk Bag of 100 each, 4 5/8&quot; long,
-author: Suvojit Manna,
-tags: Double Sided Emery Boards, Bulk Bag of 100 each, 4 5/8&quot; long,
-publishedAt: Fri Jan 10 2020 15:00:20 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:20 GMT+0530 (India Standard Time),
----
-
 # [Double Sided Emery Boards, Bulk Bag of 100 each, 4 5/8&quot; long](https://products.checkmycream.com/products/Double-Sided-Emery-Boards-Bulk-Bag-of-100-each-4-58&quot;-long.html)
 
 ### Positive Reviews

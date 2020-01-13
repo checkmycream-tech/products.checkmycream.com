@@ -1,12 +1,3 @@
----
-title: Gait Belt PASTEL - DELRIN 60&quot;,
-description: Gait Belt PASTEL - DELRIN 60&quot;,
-author: Suvojit Manna,
-tags: Gait Belt PASTEL - DELRIN 60&quot;,
-publishedAt: Fri Jan 10 2020 14:59:34 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:34 GMT+0530 (India Standard Time),
----
-
 # [Gait Belt PASTEL - DELRIN 60&quot;](https://products.checkmycream.com/products/Gait-Belt-PASTEL-DELRIN-60&quot;.html)
 
 ### Positive Reviews

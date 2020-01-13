@@ -1,12 +1,3 @@
----
-title: Proactiv Solution Advanced Blemish Treatment Set of 3,
-description: Proactiv Solution Advanced Blemish Treatment Set of 3,
-author: Suvojit Manna,
-tags: Proactiv Solution Advanced Blemish Treatment Set of 3,
-publishedAt: Fri Jan 10 2020 14:59:46 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:46 GMT+0530 (India Standard Time),
----
-
 # [Proactiv Solution Advanced Blemish Treatment Set of 3](https://products.checkmycream.com/products/Proactiv-Solution-Advanced-Blemish-Treatment-Set-of-3.html)
 
 ### Positive Reviews

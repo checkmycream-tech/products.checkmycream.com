@@ -1,12 +1,3 @@
----
-title: OPI Brazil 2014 Nail Lacquer, Brazil Mini Collection,
-description: OPI Brazil 2014 Nail Lacquer, Brazil Mini Collection,
-author: Suvojit Manna,
-tags: OPI Brazil 2014 Nail Lacquer, Brazil Mini Collection,
-publishedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
----
-
 # [OPI Brazil 2014 Nail Lacquer, Brazil Mini Collection](https://products.checkmycream.com/products/OPI-Brazil-2014-Nail-Lacquer-Brazil-Mini-Collection.html)
 
 ### Positive Reviews

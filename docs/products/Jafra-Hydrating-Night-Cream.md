@@ -1,12 +1,3 @@
----
-title: Jafra Hydrating Night Cream,
-description: Jafra Hydrating Night Cream,
-author: Suvojit Manna,
-tags: Jafra Hydrating Night Cream,
-publishedAt: Fri Jan 10 2020 14:59:38 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:38 GMT+0530 (India Standard Time),
----
-
 # [Jafra Hydrating Night Cream](https://products.checkmycream.com/products/Jafra-Hydrating-Night-Cream.html)
 
 ### Positive Reviews

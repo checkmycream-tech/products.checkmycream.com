@@ -1,12 +1,3 @@
----
-title: 1pc Vogue Party Prom Purple Feather Hairpin Clip Hair Accessory For Women Lady,
-description: 1pc Vogue Party Prom Purple Feather Hairpin Clip Hair Accessory For Women Lady,
-author: Suvojit Manna,
-tags: 1pc Vogue Party Prom Purple Feather Hairpin Clip Hair Accessory For Women Lady,
-publishedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
----
-
 # [1pc Vogue Party Prom Purple Feather Hairpin Clip Hair Accessory For Women Lady](https://products.checkmycream.com/products/1pc-Vogue-Party-Prom-Purple-Feather-Hairpin-Clip-Hair-Accessory-For-Women-Lady.html)
 
 ### Positive Reviews

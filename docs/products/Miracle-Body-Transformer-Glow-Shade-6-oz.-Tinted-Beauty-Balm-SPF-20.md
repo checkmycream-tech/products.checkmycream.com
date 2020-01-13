@@ -1,12 +1,3 @@
----
-title: Miracle Body Transformer Glow Shade, 6 oz. - Tinted Beauty Balm SPF 20,
-description: Miracle Body Transformer Glow Shade, 6 oz. - Tinted Beauty Balm SPF 20,
-author: Suvojit Manna,
-tags: Miracle Body Transformer Glow Shade, 6 oz. - Tinted Beauty Balm SPF 20,
-publishedAt: Fri Jan 10 2020 15:01:06 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:06 GMT+0530 (India Standard Time),
----
-
 # [Miracle Body Transformer Glow Shade, 6 oz. - Tinted Beauty Balm SPF 20](https://products.checkmycream.com/products/Miracle-Body-Transformer-Glow-Shade-6-oz.-Tinted-Beauty-Balm-SPF-20.html)
 
 ### Positive Reviews

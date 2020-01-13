@@ -1,12 +1,3 @@
----
-title: 1 Pack Double End Wooden Grip Cotton Swab Bud Ear Wax Remover Picks White,
-description: 1 Pack Double End Wooden Grip Cotton Swab Bud Ear Wax Remover Picks White,
-author: Suvojit Manna,
-tags: 1 Pack Double End Wooden Grip Cotton Swab Bud Ear Wax Remover Picks White,
-publishedAt: Fri Jan 10 2020 15:00:37 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:37 GMT+0530 (India Standard Time),
----
-
 # [1 Pack Double End Wooden Grip Cotton Swab Bud Ear Wax Remover Picks White](https://products.checkmycream.com/products/1-Pack-Double-End-Wooden-Grip-Cotton-Swab-Bud-Ear-Wax-Remover-Picks-White.html)
 
 ### Positive Reviews

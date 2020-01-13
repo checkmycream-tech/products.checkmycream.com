@@ -1,12 +1,3 @@
----
-title: Hansol Professional Cupping Therapy Equipment Set with pumping handle 17 Cups &amp; English Manual (Made in Korea),
-description: Hansol Professional Cupping Therapy Equipment Set with pumping handle 17 Cups &amp; English Manual (Made in Korea),
-author: Suvojit Manna,
-tags: Hansol Professional Cupping Therapy Equipment Set with pumping handle 17 Cups &amp; English Manual (Made in Korea),
-publishedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
----
-
 # [Hansol Professional Cupping Therapy Equipment Set with pumping handle 17 Cups &amp; English Manual (Made in Korea)](https://products.checkmycream.com/products/Hansol-Professional-Cupping-Therapy-Equipment-Set-with-pumping-handle-17-Cups-and-English-Manual-(Made-in-Korea).html)
 
 ### Positive Reviews

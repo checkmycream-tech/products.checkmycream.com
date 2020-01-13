@@ -1,12 +1,3 @@
----
-title: Quattro Fxª Small Cushion,
-description: Quattro Fxª Small Cushion,
-author: Suvojit Manna,
-tags: Quattro Fxª Small Cushion,
-publishedAt: Fri Jan 10 2020 15:00:11 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:11 GMT+0530 (India Standard Time),
----
-
 # [Quattro Fxª Small Cushion](https://products.checkmycream.com/products/Quattro-Fxa-Small-Cushion.html)
 
 ### Positive Reviews

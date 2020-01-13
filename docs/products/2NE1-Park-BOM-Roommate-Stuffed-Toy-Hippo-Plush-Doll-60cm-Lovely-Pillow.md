@@ -1,12 +1,3 @@
----
-title: 2NE1 Park BOM Roommate Stuffed Toy Hippo Plush Doll 60cm Lovely Pillow,
-description: 2NE1 Park BOM Roommate Stuffed Toy Hippo Plush Doll 60cm Lovely Pillow,
-author: Suvojit Manna,
-tags: 2NE1 Park BOM Roommate Stuffed Toy Hippo Plush Doll 60cm Lovely Pillow,
-publishedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
----
-
 # [2NE1 Park BOM Roommate Stuffed Toy Hippo Plush Doll 60cm Lovely Pillow](https://products.checkmycream.com/products/2NE1-Park-BOM-Roommate-Stuffed-Toy-Hippo-Plush-Doll-60cm-Lovely-Pillow.html)
 
 ### Positive Reviews

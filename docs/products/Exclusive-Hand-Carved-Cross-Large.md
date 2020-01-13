@@ -1,12 +1,3 @@
----
-title: Exclusive - Hand-Carved Cross - Large,
-description: Exclusive - Hand-Carved Cross - Large,
-author: Suvojit Manna,
-tags: Exclusive - Hand-Carved Cross - Large,
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [Exclusive - Hand-Carved Cross - Large](https://products.checkmycream.com/products/Exclusive-Hand-Carved-Cross-Large.html)
 
 ### Positive Reviews

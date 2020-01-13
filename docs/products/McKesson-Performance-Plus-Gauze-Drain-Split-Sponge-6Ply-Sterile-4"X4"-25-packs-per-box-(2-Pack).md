@@ -1,12 +1,3 @@
----
-title: McKesson Performance Plus Gauze Drain Split Sponge 6Ply Sterile 4&quot;X4&quot; - 25 packs per box (2 Pack),
-description: McKesson Performance Plus Gauze Drain Split Sponge 6Ply Sterile 4&quot;X4&quot; - 25 packs per box (2 Pack),
-author: Suvojit Manna,
-tags: McKesson Performance Plus Gauze Drain Split Sponge 6Ply Sterile 4&quot;X4&quot; - 25 packs per box (2 Pack),
-publishedAt: Fri Jan 10 2020 14:59:36 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:36 GMT+0530 (India Standard Time),
----
-
 # [McKesson Performance Plus Gauze Drain Split Sponge 6Ply Sterile 4&quot;X4&quot; - 25 packs per box (2 Pack)](https://products.checkmycream.com/products/McKesson-Performance-Plus-Gauze-Drain-Split-Sponge-6Ply-Sterile-4&quot;X4&quot;-25-packs-per-box-(2-Pack).html)
 
 ### Positive Reviews

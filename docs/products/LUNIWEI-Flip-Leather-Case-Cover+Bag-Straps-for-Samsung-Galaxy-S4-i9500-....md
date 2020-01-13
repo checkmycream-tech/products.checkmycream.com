@@ -1,12 +1,3 @@
----
-title: LUNIWEI Flip Leather Case Cover+Bag Straps for Samsung Galaxy S4 i9500 ...,
-description: LUNIWEI Flip Leather Case Cover+Bag Straps for Samsung Galaxy S4 i9500 ...,
-author: Suvojit Manna,
-tags: LUNIWEI Flip Leather Case Cover+Bag Straps for Samsung Galaxy S4 i9500 ...,
-publishedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
----
-
 # [LUNIWEI Flip Leather Case Cover+Bag Straps for Samsung Galaxy S4 i9500 ...](https://products.checkmycream.com/products/LUNIWEI-Flip-Leather-Case-Cover+Bag-Straps-for-Samsung-Galaxy-S4-i9500-....html)
 
 ### Positive Reviews

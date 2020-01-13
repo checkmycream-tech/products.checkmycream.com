@@ -1,12 +1,3 @@
----
-title: Dermalogica Extra Firming Booster,
-description: Dermalogica Extra Firming Booster,
-author: Suvojit Manna,
-tags: Dermalogica Extra Firming Booster,
-publishedAt: Fri Jan 10 2020 14:59:22 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:22 GMT+0530 (India Standard Time),
----
-
 # [Dermalogica Extra Firming Booster](https://products.checkmycream.com/products/Dermalogica-Extra-Firming-Booster.html)
 
 ### Positive Reviews

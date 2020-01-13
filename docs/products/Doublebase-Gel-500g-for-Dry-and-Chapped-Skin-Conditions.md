@@ -1,12 +1,3 @@
----
-title: Doublebase Gel 500g for Dry &amp; Chapped Skin Conditions,
-description: Doublebase Gel 500g for Dry &amp; Chapped Skin Conditions,
-author: Suvojit Manna,
-tags: Doublebase Gel 500g for Dry &amp; Chapped Skin Conditions,
-publishedAt: Fri Jan 10 2020 14:59:24 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:24 GMT+0530 (India Standard Time),
----
-
 # [Doublebase Gel 500g for Dry &amp; Chapped Skin Conditions](https://products.checkmycream.com/products/Doublebase-Gel-500g-for-Dry-and-Chapped-Skin-Conditions.html)
 
 ### Positive Reviews

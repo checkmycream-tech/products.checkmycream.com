@@ -1,12 +1,3 @@
----
-title: ANASTASIA BEVERLY HILLS - Tamanna Palette,
-description: ANASTASIA BEVERLY HILLS - Tamanna Palette,
-author: Suvojit Manna,
-tags: ANASTASIA BEVERLY HILLS - Tamanna Palette,
-publishedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
----
-
 # [ANASTASIA BEVERLY HILLS - Tamanna Palette](https://products.checkmycream.com/products/ANASTASIA-BEVERLY-HILLS-Tamanna-Palette.html)
 
 ### Positive Reviews

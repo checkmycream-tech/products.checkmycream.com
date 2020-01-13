@@ -1,12 +1,3 @@
----
-title: Just Model Women Ruffles Sleeveless Chiffon Tank Tops,
-description: Just Model Women Ruffles Sleeveless Chiffon Tank Tops,
-author: Suvojit Manna,
-tags: Just Model Women Ruffles Sleeveless Chiffon Tank Tops,
-publishedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
----
-
 # [Just Model Women Ruffles Sleeveless Chiffon Tank Tops](https://products.checkmycream.com/products/Just-Model-Women-Ruffles-Sleeveless-Chiffon-Tank-Tops.html)
 
 ### Positive Reviews

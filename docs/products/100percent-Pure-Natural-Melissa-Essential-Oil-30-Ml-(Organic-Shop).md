@@ -1,12 +1,3 @@
----
-title: 100% Pure Natural Melissa Essential Oil, 30 Ml (Organic Shop),
-description: 100% Pure Natural Melissa Essential Oil, 30 Ml (Organic Shop),
-author: Suvojit Manna,
-tags: 100% Pure Natural Melissa Essential Oil, 30 Ml (Organic Shop),
-publishedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
----
-
 # [100% Pure Natural Melissa Essential Oil, 30 Ml (Organic Shop)](https://products.checkmycream.com/products/100percent-Pure-Natural-Melissa-Essential-Oil-30-Ml-(Organic-Shop).html)
 
 ### Positive Reviews

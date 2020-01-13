@@ -1,12 +1,3 @@
----
-title: Dolce &amp; Gabbana The One By Dolce &amp; Gabbana For Women. Eau De Parfum Spray 2.5 Oz /75 Ml.,
-description: Dolce &amp; Gabbana The One By Dolce &amp; Gabbana For Women. Eau De Parfum Spray 2.5 Oz /75 Ml.,
-author: Suvojit Manna,
-tags: Dolce &amp; Gabbana The One By Dolce &amp; Gabbana For Women. Eau De Parfum Spray 2.5 Oz /75 Ml.,
-publishedAt: Fri Jan 10 2020 14:59:24 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:24 GMT+0530 (India Standard Time),
----
-
 # [Dolce &amp; Gabbana The One By Dolce &amp; Gabbana For Women. Eau De Parfum Spray 2.5 Oz /75 Ml.](https://products.checkmycream.com/products/Dolce-and-Gabbana-The-One-By-Dolce-and-Gabbana-For-Women.-Eau-De-Parfum-Spray-2.5-Oz-75-Ml..html)
 
 ### Positive Reviews

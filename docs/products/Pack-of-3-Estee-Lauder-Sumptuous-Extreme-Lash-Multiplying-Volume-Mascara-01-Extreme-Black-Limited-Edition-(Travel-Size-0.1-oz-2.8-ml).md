@@ -1,12 +1,3 @@
----
-title: Pack of 3 Estee Lauder Sumptuous Extreme Lash Multiplying Volume Mascara #01 Extreme Black Limited Edition (Travel Size, 0.1 oz / 2.8 ml),
-description: Pack of 3 Estee Lauder Sumptuous Extreme Lash Multiplying Volume Mascara #01 Extreme Black Limited Edition (Travel Size, 0.1 oz / 2.8 ml),
-author: Suvojit Manna,
-tags: Pack of 3 Estee Lauder Sumptuous Extreme Lash Multiplying Volume Mascara #01 Extreme Black Limited Edition (Travel Size, 0.1 oz / 2.8 ml),
-publishedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
----
-
 # [Pack of 3 Estee Lauder Sumptuous Extreme Lash Multiplying Volume Mascara #01 Extreme Black Limited Edition (Travel Size, 0.1 oz / 2.8 ml)](https://products.checkmycream.com/products/Pack-of-3-Estee-Lauder-Sumptuous-Extreme-Lash-Multiplying-Volume-Mascara-01-Extreme-Black-Limited-Edition-(Travel-Size-0.1-oz-2.8-ml).html)
 
 ### Positive Reviews

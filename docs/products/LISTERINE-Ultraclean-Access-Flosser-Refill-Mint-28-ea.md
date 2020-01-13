@@ -1,12 +1,3 @@
----
-title: LISTERINE Ultraclean Access Flosser Refill, Mint 28 ea,
-description: LISTERINE Ultraclean Access Flosser Refill, Mint 28 ea,
-author: Suvojit Manna,
-tags: LISTERINE Ultraclean Access Flosser Refill, Mint 28 ea,
-publishedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
----
-
 # [LISTERINE Ultraclean Access Flosser Refill, Mint 28 ea](https://products.checkmycream.com/products/LISTERINE-Ultraclean-Access-Flosser-Refill-Mint-28-ea.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Vktech Acrylic Cosmetic Organizer Drawer Makeup Case Storage Insert Holder Box,
-description: Vktech Acrylic Cosmetic Organizer Drawer Makeup Case Storage Insert Holder Box,
-author: Suvojit Manna,
-tags: Vktech Acrylic Cosmetic Organizer Drawer Makeup Case Storage Insert Holder Box,
-publishedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
----
-
 # [Vktech Acrylic Cosmetic Organizer Drawer Makeup Case Storage Insert Holder Box](https://products.checkmycream.com/products/Vktech-Acrylic-Cosmetic-Organizer-Drawer-Makeup-Case-Storage-Insert-Holder-Box.html)
 
 ### Positive Reviews

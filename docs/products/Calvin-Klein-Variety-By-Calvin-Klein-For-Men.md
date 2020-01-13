@@ -1,12 +1,3 @@
----
-title: Calvin Klein Variety By Calvin Klein For Men,
-description: Calvin Klein Variety By Calvin Klein For Men,
-author: Suvojit Manna,
-tags: Calvin Klein Variety By Calvin Klein For Men,
-publishedAt: Fri Jan 10 2020 14:59:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:56 GMT+0530 (India Standard Time),
----
-
 # [Calvin Klein Variety By Calvin Klein For Men](https://products.checkmycream.com/products/Calvin-Klein-Variety-By-Calvin-Klein-For-Men.html)
 
 ### Positive Reviews

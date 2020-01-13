@@ -1,12 +1,3 @@
----
-title: 2013 Snooki Instant Sunless Tanning Body Bronzing Lotion 5.5 oz.,
-description: 2013 Snooki Instant Sunless Tanning Body Bronzing Lotion 5.5 oz.,
-author: Suvojit Manna,
-tags: 2013 Snooki Instant Sunless Tanning Body Bronzing Lotion 5.5 oz.,
-publishedAt: Fri Jan 10 2020 15:00:36 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:36 GMT+0530 (India Standard Time),
----
-
 # [2013 Snooki Instant Sunless Tanning Body Bronzing Lotion 5.5 oz.](https://products.checkmycream.com/products/2013-Snooki-Instant-Sunless-Tanning-Body-Bronzing-Lotion-5.5-oz..html)
 
 ### Positive Reviews

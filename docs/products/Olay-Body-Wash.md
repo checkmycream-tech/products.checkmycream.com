@@ -1,12 +1,3 @@
----
-title: Olay Body Wash,
-description: Olay Body Wash,
-author: Suvojit Manna,
-tags: Olay Body Wash,
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [Olay Body Wash](https://products.checkmycream.com/products/Olay-Body-Wash.html)
 
 ### Positive Reviews

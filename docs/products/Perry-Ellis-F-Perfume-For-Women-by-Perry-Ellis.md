@@ -1,12 +1,3 @@
----
-title: Perry Ellis F Perfume For Women by Perry Ellis,
-description: Perry Ellis F Perfume For Women by Perry Ellis,
-author: Suvojit Manna,
-tags: Perry Ellis F Perfume For Women by Perry Ellis,
-publishedAt: Fri Jan 10 2020 14:59:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:05 GMT+0530 (India Standard Time),
----
-
 # [Perry Ellis F Perfume For Women by Perry Ellis](https://products.checkmycream.com/products/Perry-Ellis-F-Perfume-For-Women-by-Perry-Ellis.html)
 
 ### Positive Reviews

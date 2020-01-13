@@ -1,12 +1,3 @@
----
-title: Maybelline Great Lash Limited Edition I See Blue Mascara 12.7 ml,
-description: Maybelline Great Lash Limited Edition I See Blue Mascara 12.7 ml,
-author: Suvojit Manna,
-tags: Maybelline Great Lash Limited Edition I See Blue Mascara 12.7 ml,
-publishedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
----
-
 # [Maybelline Great Lash Limited Edition I See Blue Mascara 12.7 ml](https://products.checkmycream.com/products/Maybelline-Great-Lash-Limited-Edition-I-See-Blue-Mascara-12.7-ml.html)
 
 ### Positive Reviews

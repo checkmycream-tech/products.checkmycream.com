@@ -1,12 +1,3 @@
----
-title: Aveda Light Elements Texturizing Creme, 2.6 Ounce,
-description: Aveda Light Elements Texturizing Creme, 2.6 Ounce,
-author: Suvojit Manna,
-tags: Aveda Light Elements Texturizing Creme, 2.6 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:52 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:52 GMT+0530 (India Standard Time),
----
-
 # [Aveda Light Elements Texturizing Creme, 2.6 Ounce](https://products.checkmycream.com/products/Aveda-Light-Elements-Texturizing-Creme-2.6-Ounce.html)
 
 ### Positive Reviews

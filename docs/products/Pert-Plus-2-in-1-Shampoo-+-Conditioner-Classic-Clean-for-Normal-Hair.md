@@ -1,12 +1,3 @@
----
-title: Pert Plus 2-in-1 Shampoo + Conditioner, Classic Clean for Normal Hair,
-description: Pert Plus 2-in-1 Shampoo + Conditioner, Classic Clean for Normal Hair,
-author: Suvojit Manna,
-tags: Pert Plus 2-in-1 Shampoo + Conditioner, Classic Clean for Normal Hair,
-publishedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
----
-
 # [Pert Plus 2-in-1 Shampoo + Conditioner, Classic Clean for Normal Hair](https://products.checkmycream.com/products/Pert-Plus-2-in-1-Shampoo-+-Conditioner-Classic-Clean-for-Normal-Hair.html)
 
 ### Positive Reviews

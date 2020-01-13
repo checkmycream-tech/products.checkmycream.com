@@ -1,12 +1,3 @@
----
-title: Midnight Rain Perfume by La Prairie for women Personal Fragrances,
-description: Midnight Rain Perfume by La Prairie for women Personal Fragrances,
-author: Suvojit Manna,
-tags: Midnight Rain Perfume by La Prairie for women Personal Fragrances,
-publishedAt: Fri Jan 10 2020 14:59:45 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:45 GMT+0530 (India Standard Time),
----
-
 # [Midnight Rain Perfume by La Prairie for women Personal Fragrances](https://products.checkmycream.com/products/Midnight-Rain-Perfume-by-La-Prairie-for-women-Personal-Fragrances.html)
 
 ### Positive Reviews

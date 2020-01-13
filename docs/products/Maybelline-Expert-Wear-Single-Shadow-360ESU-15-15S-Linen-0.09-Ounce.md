@@ -1,12 +1,3 @@
----
-title: Maybelline Expert Wear Single Shadow 360ESU-15, 15S Linen, 0.09 Ounce,
-description: Maybelline Expert Wear Single Shadow 360ESU-15, 15S Linen, 0.09 Ounce,
-author: Suvojit Manna,
-tags: Maybelline Expert Wear Single Shadow 360ESU-15, 15S Linen, 0.09 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:22 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:22 GMT+0530 (India Standard Time),
----
-
 # [Maybelline Expert Wear Single Shadow 360ESU-15, 15S Linen, 0.09 Ounce](https://products.checkmycream.com/products/Maybelline-Expert-Wear-Single-Shadow-360ESU-15-15S-Linen-0.09-Ounce.html)
 
 ### Positive Reviews

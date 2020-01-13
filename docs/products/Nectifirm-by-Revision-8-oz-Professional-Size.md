@@ -1,12 +1,3 @@
----
-title: Nectifirm by Revision 8 oz Professional Size,
-description: Nectifirm by Revision 8 oz Professional Size,
-author: Suvojit Manna,
-tags: Nectifirm by Revision 8 oz Professional Size,
-publishedAt: Fri Jan 10 2020 15:00:10 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:10 GMT+0530 (India Standard Time),
----
-
 # [Nectifirm by Revision 8 oz Professional Size](https://products.checkmycream.com/products/Nectifirm-by-Revision-8-oz-Professional-Size.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Greensations, Coconut Oil Toothpaste with Baking Soda &amp; Spearmint Oil, 2 oz,
-description: Greensations, Coconut Oil Toothpaste with Baking Soda &amp; Spearmint Oil, 2 oz,
-author: Suvojit Manna,
-tags: Greensations, Coconut Oil Toothpaste with Baking Soda &amp; Spearmint Oil, 2 oz,
-publishedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
----
-
 # [Greensations, Coconut Oil Toothpaste with Baking Soda &amp; Spearmint Oil, 2 oz](https://products.checkmycream.com/products/Greensations-Coconut-Oil-Toothpaste-with-Baking-Soda-and-Spearmint-Oil-2-oz.html)
 
 ### Positive Reviews

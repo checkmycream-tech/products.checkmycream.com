@@ -1,12 +1,3 @@
----
-title: OPI J11 Suzy Sells Sushi By The Seashore,
-description: OPI J11 Suzy Sells Sushi By The Seashore,
-author: Suvojit Manna,
-tags: OPI J11 Suzy Sells Sushi By The Seashore,
-publishedAt: Fri Jan 10 2020 14:59:23 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:23 GMT+0530 (India Standard Time),
----
-
 # [OPI J11 Suzy Sells Sushi By The Seashore](https://products.checkmycream.com/products/OPI-J11-Suzy-Sells-Sushi-By-The-Seashore.html)
 
 ### Positive Reviews

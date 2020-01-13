@@ -1,12 +1,3 @@
----
-title: Economy 25 Pairs Pink Spray Tanning Feet Pads Protectors for Sunless Tan,
-description: Economy 25 Pairs Pink Spray Tanning Feet Pads Protectors for Sunless Tan,
-author: Suvojit Manna,
-tags: Economy 25 Pairs Pink Spray Tanning Feet Pads Protectors for Sunless Tan,
-publishedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
----
-
 # [Economy 25 Pairs Pink Spray Tanning Feet Pads Protectors for Sunless Tan](https://products.checkmycream.com/products/Economy-25-Pairs-Pink-Spray-Tanning-Feet-Pads-Protectors-for-Sunless-Tan.html)
 
 ### Positive Reviews

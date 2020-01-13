@@ -1,12 +1,3 @@
----
-title: CoverGirl Simply Powder Foundation Buff Beige,
-description: CoverGirl Simply Powder Foundation Buff Beige,
-author: Suvojit Manna,
-tags: CoverGirl Simply Powder Foundation Buff Beige,
-publishedAt: Fri Jan 10 2020 14:59:13 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:13 GMT+0530 (India Standard Time),
----
-
 # [CoverGirl Simply Powder Foundation Buff Beige](https://products.checkmycream.com/products/CoverGirl-Simply-Powder-Foundation-Buff-Beige.html)
 
 ### Positive Reviews

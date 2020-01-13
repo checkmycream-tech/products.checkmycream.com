@@ -1,12 +1,3 @@
----
-title: Peepers Sunbed Tanning Goggles 6 Pair,
-description: Peepers Sunbed Tanning Goggles 6 Pair,
-author: Suvojit Manna,
-tags: Peepers Sunbed Tanning Goggles 6 Pair,
-publishedAt: Fri Jan 10 2020 14:59:46 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:46 GMT+0530 (India Standard Time),
----
-
 # [Peepers Sunbed Tanning Goggles 6 Pair](https://products.checkmycream.com/products/Peepers-Sunbed-Tanning-Goggles-6-Pair.html)
 
 ### Positive Reviews

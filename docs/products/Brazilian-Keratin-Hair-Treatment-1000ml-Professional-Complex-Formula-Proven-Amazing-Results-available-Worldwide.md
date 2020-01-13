@@ -1,12 +1,3 @@
----
-title: Brazilian Keratin Hair Treatment 1000ml Professional Complex Formula Proven Amazing Results available Worldwide,
-description: Brazilian Keratin Hair Treatment 1000ml Professional Complex Formula Proven Amazing Results available Worldwide,
-author: Suvojit Manna,
-tags: Brazilian Keratin Hair Treatment 1000ml Professional Complex Formula Proven Amazing Results available Worldwide,
-publishedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
----
-
 # [Brazilian Keratin Hair Treatment 1000ml Professional Complex Formula Proven Amazing Results available Worldwide](https://products.checkmycream.com/products/Brazilian-Keratin-Hair-Treatment-1000ml-Professional-Complex-Formula-Proven-Amazing-Results-available-Worldwide.html)
 
 ### Positive Reviews

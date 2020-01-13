@@ -1,12 +1,3 @@
----
-title: KMG Nail Art,
-description: KMG Nail Art,
-author: Suvojit Manna,
-tags: KMG Nail Art,
-publishedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
----
-
 # [KMG Nail Art](https://products.checkmycream.com/products/KMG-Nail-Art.html)
 
 ### Positive Reviews

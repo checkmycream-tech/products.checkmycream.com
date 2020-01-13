@@ -1,12 +1,3 @@
----
-title: OPI Holiday 2013 Mariah Carey Nail Lacquer, All I Want for Christmas (is OPI) by Globalbeauty,
-description: OPI Holiday 2013 Mariah Carey Nail Lacquer, All I Want for Christmas (is OPI) by Globalbeauty,
-author: Suvojit Manna,
-tags: OPI Holiday 2013 Mariah Carey Nail Lacquer, All I Want for Christmas (is OPI) by Globalbeauty,
-publishedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
----
-
 # [OPI Holiday 2013 Mariah Carey Nail Lacquer, All I Want for Christmas (is OPI) by Globalbeauty](https://products.checkmycream.com/products/OPI-Holiday-2013-Mariah-Carey-Nail-Lacquer-All-I-Want-for-Christmas-(is-OPI)-by-Globalbeauty.html)
 
 ### Positive Reviews

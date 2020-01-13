@@ -1,12 +1,3 @@
----
-title: Women Lace Retro Turban Twist Head Wrap Headband Headscarf Twisted Knotted Soft Hair Band,
-description: Women Lace Retro Turban Twist Head Wrap Headband Headscarf Twisted Knotted Soft Hair Band,
-author: Suvojit Manna,
-tags: Women Lace Retro Turban Twist Head Wrap Headband Headscarf Twisted Knotted Soft Hair Band,
-publishedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
----
-
 # [Women Lace Retro Turban Twist Head Wrap Headband Headscarf Twisted Knotted Soft Hair Band](https://products.checkmycream.com/products/Women-Lace-Retro-Turban-Twist-Head-Wrap-Headband-Headscarf-Twisted-Knotted-Soft-Hair-Band.html)
 
 ### Positive Reviews

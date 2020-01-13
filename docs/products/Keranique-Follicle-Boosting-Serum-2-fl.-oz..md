@@ -1,12 +1,3 @@
----
-title: Keranique Follicle-Boosting Serum, 2 fl. oz.,
-description: Keranique Follicle-Boosting Serum, 2 fl. oz.,
-author: Suvojit Manna,
-tags: Keranique Follicle-Boosting Serum, 2 fl. oz.,
-publishedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
----
-
 # [Keranique Follicle-Boosting Serum, 2 fl. oz.](https://products.checkmycream.com/products/Keranique-Follicle-Boosting-Serum-2-fl.-oz..html)
 
 ### Positive Reviews

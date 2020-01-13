@@ -1,12 +1,3 @@
----
-title: BeautyFly 10 Pieces DIY 3D Alloy AB Rhinestones Bow Tie Nail Art Tips Glitters Decorations,
-description: BeautyFly 10 Pieces DIY 3D Alloy AB Rhinestones Bow Tie Nail Art Tips Glitters Decorations,
-author: Suvojit Manna,
-tags: BeautyFly 10 Pieces DIY 3D Alloy AB Rhinestones Bow Tie Nail Art Tips Glitters Decorations,
-publishedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
----
-
 # [BeautyFly 10 Pieces DIY 3D Alloy AB Rhinestones Bow Tie Nail Art Tips Glitters Decorations](https://products.checkmycream.com/products/BeautyFly-10-Pieces-DIY-3D-Alloy-AB-Rhinestones-Bow-Tie-Nail-Art-Tips-Glitters-Decorations.html)
 
 ### Positive Reviews

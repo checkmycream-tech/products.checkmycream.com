@@ -1,12 +1,3 @@
----
-title: Iden Bee Nourished Shampoo &amp; Conditioner 32oz Duo Pack,
-description: Iden Bee Nourished Shampoo &amp; Conditioner 32oz Duo Pack,
-author: Suvojit Manna,
-tags: Iden Bee Nourished Shampoo &amp; Conditioner 32oz Duo Pack,
-publishedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
----
-
 # [Iden Bee Nourished Shampoo &amp; Conditioner 32oz Duo Pack](https://products.checkmycream.com/products/Iden-Bee-Nourished-Shampoo-and-Conditioner-32oz-Duo-Pack.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Elemis Pro-Collagen Marine Cream, 1.6 Ounce,
-description: Elemis Pro-Collagen Marine Cream, 1.6 Ounce,
-author: Suvojit Manna,
-tags: Elemis Pro-Collagen Marine Cream, 1.6 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:37 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:37 GMT+0530 (India Standard Time),
----
-
 # [Elemis Pro-Collagen Marine Cream, 1.6 Ounce](https://products.checkmycream.com/products/Elemis-Pro-Collagen-Marine-Cream-1.6-Ounce.html)
 
 ### Positive Reviews

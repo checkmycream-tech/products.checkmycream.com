@@ -1,12 +1,3 @@
----
-title: vintage jewelry Crown pearl pierced Vintage long chain necklace necklaces for women,
-description: vintage jewelry Crown pearl pierced Vintage long chain necklace necklaces for women,
-author: Suvojit Manna,
-tags: vintage jewelry Crown pearl pierced Vintage long chain necklace necklaces for women,
-publishedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
----
-
 # [vintage jewelry Crown pearl pierced Vintage long chain necklace necklaces for women](https://products.checkmycream.com/products/vintage-jewelry-Crown-pearl-pierced-Vintage-long-chain-necklace-necklaces-for-women.html)
 
 ### Positive Reviews

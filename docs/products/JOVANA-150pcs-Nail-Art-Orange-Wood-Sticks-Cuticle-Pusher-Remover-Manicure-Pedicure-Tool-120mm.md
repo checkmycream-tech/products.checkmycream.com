@@ -1,12 +1,3 @@
----
-title: JOVANA 150pcs Nail Art Orange Wood Sticks Cuticle Pusher Remover Manicure Pedicure Tool 120mm,
-description: JOVANA 150pcs Nail Art Orange Wood Sticks Cuticle Pusher Remover Manicure Pedicure Tool 120mm,
-author: Suvojit Manna,
-tags: JOVANA 150pcs Nail Art Orange Wood Sticks Cuticle Pusher Remover Manicure Pedicure Tool 120mm,
-publishedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
----
-
 # [JOVANA 150pcs Nail Art Orange Wood Sticks Cuticle Pusher Remover Manicure Pedicure Tool 120mm](https://products.checkmycream.com/products/JOVANA-150pcs-Nail-Art-Orange-Wood-Sticks-Cuticle-Pusher-Remover-Manicure-Pedicure-Tool-120mm.html)
 
 ### Positive Reviews

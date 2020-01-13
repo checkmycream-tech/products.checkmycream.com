@@ -1,12 +1,3 @@
----
-title: Miss Dior (cherie) By Christian Dior Edt Spray/FN155678/3.4 oz/women/,
-description: Miss Dior (cherie) By Christian Dior Edt Spray/FN155678/3.4 oz/women/,
-author: Suvojit Manna,
-tags: Miss Dior (cherie) By Christian Dior Edt Spray/FN155678/3.4 oz/women/,
-publishedAt: Fri Jan 10 2020 14:59:17 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:17 GMT+0530 (India Standard Time),
----
-
 # [Miss Dior (cherie) By Christian Dior Edt Spray/FN155678/3.4 oz/women/](https://products.checkmycream.com/products/Miss-Dior-(cherie)-By-Christian-Dior-Edt-SprayFN1556783.4-ozwomen.html)
 
 ### Positive Reviews

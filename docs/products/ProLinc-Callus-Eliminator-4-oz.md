@@ -1,12 +1,3 @@
----
-title: ProLinc Callus Eliminator, 4 oz,
-description: ProLinc Callus Eliminator, 4 oz,
-author: Suvojit Manna,
-tags: ProLinc Callus Eliminator, 4 oz,
-publishedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
----
-
 # [ProLinc Callus Eliminator, 4 oz](https://products.checkmycream.com/products/ProLinc-Callus-Eliminator-4-oz.html)
 
 ### Positive Reviews

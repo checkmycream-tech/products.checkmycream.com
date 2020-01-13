@@ -1,12 +1,3 @@
----
-title: Azzaro by Loris Azzaro For Men,
-description: Azzaro by Loris Azzaro For Men,
-author: Suvojit Manna,
-tags: Azzaro by Loris Azzaro For Men,
-publishedAt: Fri Jan 10 2020 15:00:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:00 GMT+0530 (India Standard Time),
----
-
 # [Azzaro by Loris Azzaro For Men](https://products.checkmycream.com/products/Azzaro-by-Loris-Azzaro-For-Men.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Doinshop New Fashion Ultra Thin TPU Bumper Ultra Thin Hard Case Cover Transparent Clear For iPhone 6 4.7&quot; Inch,
-description: Doinshop New Fashion Ultra Thin TPU Bumper Ultra Thin Hard Case Cover Transparent Clear For iPhone 6 4.7&quot; Inch,
-author: Suvojit Manna,
-tags: Doinshop New Fashion Ultra Thin TPU Bumper Ultra Thin Hard Case Cover Transparent Clear For iPhone 6 4.7&quot; Inch,
-publishedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
----
-
 # [Doinshop New Fashion Ultra Thin TPU Bumper Ultra Thin Hard Case Cover Transparent Clear For iPhone 6 4.7&quot; Inch](https://products.checkmycream.com/products/Doinshop-New-Fashion-Ultra-Thin-TPU-Bumper-Ultra-Thin-Hard-Case-Cover-Transparent-Clear-For-iPhone-6-4.7&quot;-Inch.html)
 
 ### Positive Reviews

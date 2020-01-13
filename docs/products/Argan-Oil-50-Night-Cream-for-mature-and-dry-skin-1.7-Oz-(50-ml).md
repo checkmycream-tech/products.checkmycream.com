@@ -1,12 +1,3 @@
----
-title: Argan Oil 50 Night Cream for mature and dry skin, 1.7 Oz (50 ml),
-description: Argan Oil 50 Night Cream for mature and dry skin, 1.7 Oz (50 ml),
-author: Suvojit Manna,
-tags: Argan Oil 50 Night Cream for mature and dry skin, 1.7 Oz (50 ml),
-publishedAt: Fri Jan 10 2020 15:00:14 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:14 GMT+0530 (India Standard Time),
----
-
 # [Argan Oil 50 Night Cream for mature and dry skin, 1.7 Oz (50 ml)](https://products.checkmycream.com/products/Argan-Oil-50-Night-Cream-for-mature-and-dry-skin-1.7-Oz-(50-ml).html)
 
 ### Positive Reviews

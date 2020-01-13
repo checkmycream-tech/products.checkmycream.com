@@ -1,12 +1,3 @@
----
-title: Alfaparf Lisse Design Keratin Therapy Maintenance Shampoo 250ml,
-description: Alfaparf Lisse Design Keratin Therapy Maintenance Shampoo 250ml,
-author: Suvojit Manna,
-tags: Alfaparf Lisse Design Keratin Therapy Maintenance Shampoo 250ml,
-publishedAt: Fri Jan 10 2020 15:00:22 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:22 GMT+0530 (India Standard Time),
----
-
 # [Alfaparf Lisse Design Keratin Therapy Maintenance Shampoo 250ml](https://products.checkmycream.com/products/Alfaparf-Lisse-Design-Keratin-Therapy-Maintenance-Shampoo-250ml.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: bareMinerals Radiance - All-Over Face Colour 0.85g,
-description: bareMinerals Radiance - All-Over Face Colour 0.85g,
-author: Suvojit Manna,
-tags: bareMinerals Radiance - All-Over Face Colour 0.85g,
-publishedAt: Fri Jan 10 2020 14:59:33 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:33 GMT+0530 (India Standard Time),
----
-
 # [bareMinerals Radiance - All-Over Face Colour 0.85g](https://products.checkmycream.com/products/bareMinerals-Radiance-All-Over-Face-Colour-0.85g.html)
 
 ### Positive Reviews

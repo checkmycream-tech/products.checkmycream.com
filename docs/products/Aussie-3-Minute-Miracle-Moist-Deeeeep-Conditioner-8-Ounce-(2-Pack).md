@@ -1,12 +1,3 @@
----
-title: Aussie 3 Minute Miracle Moist Deeeeep Conditioner 8 Ounce (2 Pack),
-description: Aussie 3 Minute Miracle Moist Deeeeep Conditioner 8 Ounce (2 Pack),
-author: Suvojit Manna,
-tags: Aussie 3 Minute Miracle Moist Deeeeep Conditioner 8 Ounce (2 Pack),
-publishedAt: Fri Jan 10 2020 15:00:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:03 GMT+0530 (India Standard Time),
----
-
 # [Aussie 3 Minute Miracle Moist Deeeeep Conditioner 8 Ounce (2 Pack)](https://products.checkmycream.com/products/Aussie-3-Minute-Miracle-Moist-Deeeeep-Conditioner-8-Ounce-(2-Pack).html)
 
 ### Positive Reviews

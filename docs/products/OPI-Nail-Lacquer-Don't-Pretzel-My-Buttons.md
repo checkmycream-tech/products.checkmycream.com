@@ -1,12 +1,3 @@
----
-title: OPI Nail Lacquer Don&#x27;t Pretzel My Buttons,
-description: OPI Nail Lacquer Don&#x27;t Pretzel My Buttons,
-author: Suvojit Manna,
-tags: OPI Nail Lacquer Don&#x27;t Pretzel My Buttons,
-publishedAt: Fri Jan 10 2020 15:00:32 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:32 GMT+0530 (India Standard Time),
----
-
 # [OPI Nail Lacquer Don&#x27;t Pretzel My Buttons](https://products.checkmycream.com/products/OPI-Nail-Lacquer-Don&#x27;t-Pretzel-My-Buttons.html)
 
 ### Positive Reviews

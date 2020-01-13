@@ -1,12 +1,3 @@
----
-title: Shany Cosmetics Carry All Train Case with Makeup and Reusable Aluminium Case,
-description: Shany Cosmetics Carry All Train Case with Makeup and Reusable Aluminium Case,
-author: Suvojit Manna,
-tags: Shany Cosmetics Carry All Train Case with Makeup and Reusable Aluminium Case,
-publishedAt: Fri Jan 10 2020 15:01:04 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:04 GMT+0530 (India Standard Time),
----
-
 # [Shany Cosmetics Carry All Train Case with Makeup and Reusable Aluminium Case](https://products.checkmycream.com/products/Shany-Cosmetics-Carry-All-Train-Case-with-Makeup-and-Reusable-Aluminium-Case.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Diamonds &amp; Rubies By Elizabeth Taylor For Women. Set-edt Spray 3.3 Ounces &amp; Body Lotion 3.3 Ounces,
-description: Diamonds &amp; Rubies By Elizabeth Taylor For Women. Set-edt Spray 3.3 Ounces &amp; Body Lotion 3.3 Ounces,
-author: Suvojit Manna,
-tags: Diamonds &amp; Rubies By Elizabeth Taylor For Women. Set-edt Spray 3.3 Ounces &amp; Body Lotion 3.3 Ounces,
-publishedAt: Fri Jan 10 2020 14:59:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:05 GMT+0530 (India Standard Time),
----
-
 # [Diamonds &amp; Rubies By Elizabeth Taylor For Women. Set-edt Spray 3.3 Ounces &amp; Body Lotion 3.3 Ounces](https://products.checkmycream.com/products/Diamonds-and-Rubies-By-Elizabeth-Taylor-For-Women.-Set-edt-Spray-3.3-Ounces-and-Body-Lotion-3.3-Ounces.html)
 
 ### Positive Reviews

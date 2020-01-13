@@ -1,12 +1,3 @@
----
-title: Love Alpha 3D Fiber Lashes Mascara Transplanting Gel &amp; Natural Fiber Mascara (English Version),
-description: Love Alpha 3D Fiber Lashes Mascara Transplanting Gel &amp; Natural Fiber Mascara (English Version),
-author: Suvojit Manna,
-tags: Love Alpha 3D Fiber Lashes Mascara Transplanting Gel &amp; Natural Fiber Mascara (English Version),
-publishedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
----
-
 # [Love Alpha 3D Fiber Lashes Mascara Transplanting Gel &amp; Natural Fiber Mascara (English Version)](https://products.checkmycream.com/products/Love-Alpha-3D-Fiber-Lashes-Mascara-Transplanting-Gel-and-Natural-Fiber-Mascara-(English-Version).html)
 
 ### Positive Reviews

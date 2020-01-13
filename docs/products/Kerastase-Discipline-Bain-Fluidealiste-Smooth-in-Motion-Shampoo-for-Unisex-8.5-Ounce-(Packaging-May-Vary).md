@@ -1,12 +1,3 @@
----
-title: Kerastase Discipline Bain Fluidealiste Smooth-in-Motion Shampoo for Unisex, 8.5 Ounce (Packaging May Vary),
-description: Kerastase Discipline Bain Fluidealiste Smooth-in-Motion Shampoo for Unisex, 8.5 Ounce (Packaging May Vary),
-author: Suvojit Manna,
-tags: Kerastase Discipline Bain Fluidealiste Smooth-in-Motion Shampoo for Unisex, 8.5 Ounce (Packaging May Vary),
-publishedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
----
-
 # [Kerastase Discipline Bain Fluidealiste Smooth-in-Motion Shampoo for Unisex, 8.5 Ounce (Packaging May Vary)](https://products.checkmycream.com/products/Kerastase-Discipline-Bain-Fluidealiste-Smooth-in-Motion-Shampoo-for-Unisex-8.5-Ounce-(Packaging-May-Vary).html)
 
 ### Positive Reviews

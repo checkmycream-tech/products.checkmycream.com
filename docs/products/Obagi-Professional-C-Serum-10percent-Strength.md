@@ -1,12 +1,3 @@
----
-title: Obagi Professional-C Serum 10% Strength,
-description: Obagi Professional-C Serum 10% Strength,
-author: Suvojit Manna,
-tags: Obagi Professional-C Serum 10% Strength,
-publishedAt: Fri Jan 10 2020 14:59:16 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:16 GMT+0530 (India Standard Time),
----
-
 # [Obagi Professional-C Serum 10% Strength](https://products.checkmycream.com/products/Obagi-Professional-C-Serum-10percent-Strength.html)
 
 ### Positive Reviews

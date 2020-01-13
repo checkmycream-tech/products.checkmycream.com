@@ -1,12 +1,3 @@
----
-title: Elizabeth Arden Provocative Woman Gift Set for Women,
-description: Elizabeth Arden Provocative Woman Gift Set for Women,
-author: Suvojit Manna,
-tags: Elizabeth Arden Provocative Woman Gift Set for Women,
-publishedAt: Fri Jan 10 2020 14:59:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:08 GMT+0530 (India Standard Time),
----
-
 # [Elizabeth Arden Provocative Woman Gift Set for Women](https://products.checkmycream.com/products/Elizabeth-Arden-Provocative-Woman-Gift-Set-for-Women.html)
 
 ### Positive Reviews

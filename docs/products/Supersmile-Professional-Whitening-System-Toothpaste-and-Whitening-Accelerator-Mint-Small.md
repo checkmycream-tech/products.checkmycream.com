@@ -1,12 +1,3 @@
----
-title: Supersmile Professional Whitening System Toothpaste and Whitening Accelerator, Mint, Small,
-description: Supersmile Professional Whitening System Toothpaste and Whitening Accelerator, Mint, Small,
-author: Suvojit Manna,
-tags: Supersmile Professional Whitening System Toothpaste and Whitening Accelerator, Mint, Small,
-publishedAt: Fri Jan 10 2020 14:59:50 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:50 GMT+0530 (India Standard Time),
----
-
 # [Supersmile Professional Whitening System Toothpaste and Whitening Accelerator, Mint, Small](https://products.checkmycream.com/products/Supersmile-Professional-Whitening-System-Toothpaste-and-Whitening-Accelerator-Mint-Small.html)
 
 ### Positive Reviews

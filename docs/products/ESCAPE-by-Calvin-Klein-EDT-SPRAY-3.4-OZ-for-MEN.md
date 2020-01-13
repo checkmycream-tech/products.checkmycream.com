@@ -1,12 +1,3 @@
----
-title: ESCAPE by Calvin Klein EDT SPRAY 3.4 OZ for MEN,
-description: ESCAPE by Calvin Klein EDT SPRAY 3.4 OZ for MEN,
-author: Suvojit Manna,
-tags: ESCAPE by Calvin Klein EDT SPRAY 3.4 OZ for MEN,
-publishedAt: Fri Jan 10 2020 15:00:20 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:20 GMT+0530 (India Standard Time),
----
-
 # [ESCAPE by Calvin Klein EDT SPRAY 3.4 OZ for MEN](https://products.checkmycream.com/products/ESCAPE-by-Calvin-Klein-EDT-SPRAY-3.4-OZ-for-MEN.html)
 
 ### Positive Reviews

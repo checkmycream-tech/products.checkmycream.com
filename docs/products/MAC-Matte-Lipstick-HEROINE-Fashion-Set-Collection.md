@@ -1,12 +1,3 @@
----
-title: MAC Matte Lipstick HEROINE- Fashion Set Collection,
-description: MAC Matte Lipstick HEROINE- Fashion Set Collection,
-author: Suvojit Manna,
-tags: MAC Matte Lipstick HEROINE- Fashion Set Collection,
-publishedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
----
-
 # [MAC Matte Lipstick HEROINE- Fashion Set Collection](https://products.checkmycream.com/products/MAC-Matte-Lipstick-HEROINE-Fashion-Set-Collection.html)
 
 ### Positive Reviews

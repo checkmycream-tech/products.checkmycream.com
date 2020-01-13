@@ -1,12 +1,3 @@
----
-title: Scruples High Definition Shaping Spray,
-description: Scruples High Definition Shaping Spray,
-author: Suvojit Manna,
-tags: Scruples High Definition Shaping Spray,
-publishedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
----
-
 # [Scruples High Definition Shaping Spray](https://products.checkmycream.com/products/Scruples-High-Definition-Shaping-Spray.html)
 
 ### Positive Reviews

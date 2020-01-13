@@ -1,12 +1,3 @@
----
-title: Cricket H20 Aluminum Water Sprayer, 14.0 Ounce,
-description: Cricket H20 Aluminum Water Sprayer, 14.0 Ounce,
-author: Suvojit Manna,
-tags: Cricket H20 Aluminum Water Sprayer, 14.0 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
----
-
 # [Cricket H20 Aluminum Water Sprayer, 14.0 Ounce](https://products.checkmycream.com/products/Cricket-H20-Aluminum-Water-Sprayer-14.0-Ounce.html)
 
 ### Positive Reviews

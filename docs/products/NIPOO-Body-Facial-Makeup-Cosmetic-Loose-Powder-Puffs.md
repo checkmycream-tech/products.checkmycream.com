@@ -1,12 +1,3 @@
----
-title: NIPOO Body Facial Makeup Cosmetic Loose Powder Puffs,
-description: NIPOO Body Facial Makeup Cosmetic Loose Powder Puffs,
-author: Suvojit Manna,
-tags: NIPOO Body Facial Makeup Cosmetic Loose Powder Puffs,
-publishedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
----
-
 # [NIPOO Body Facial Makeup Cosmetic Loose Powder Puffs](https://products.checkmycream.com/products/NIPOO-Body-Facial-Makeup-Cosmetic-Loose-Powder-Puffs.html)
 
 ### Positive Reviews

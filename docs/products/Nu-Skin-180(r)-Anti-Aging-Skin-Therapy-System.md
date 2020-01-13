@@ -1,12 +1,3 @@
----
-title: Nu Skin 180°® Anti-Aging Skin Therapy System,
-description: Nu Skin 180°® Anti-Aging Skin Therapy System,
-author: Suvojit Manna,
-tags: Nu Skin 180°® Anti-Aging Skin Therapy System,
-publishedAt: Fri Jan 10 2020 14:59:46 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:46 GMT+0530 (India Standard Time),
----
-
 # [Nu Skin 180°® Anti-Aging Skin Therapy System](https://products.checkmycream.com/products/Nu-Skin-180(r)-Anti-Aging-Skin-Therapy-System.html)
 
 ### Positive Reviews

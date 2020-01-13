@@ -1,12 +1,3 @@
----
-title: Dark Amber by Bath Body Works for Men 3.4 oz Cologne Spray,
-description: Dark Amber by Bath Body Works for Men 3.4 oz Cologne Spray,
-author: Suvojit Manna,
-tags: Dark Amber by Bath Body Works for Men 3.4 oz Cologne Spray,
-publishedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
----
-
 # [Dark Amber by Bath Body Works for Men 3.4 oz Cologne Spray](https://products.checkmycream.com/products/Dark-Amber-by-Bath-Body-Works-for-Men-3.4-oz-Cologne-Spray.html)
 
 ### Positive Reviews

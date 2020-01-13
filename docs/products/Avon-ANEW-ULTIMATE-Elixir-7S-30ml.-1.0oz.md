@@ -1,12 +1,3 @@
----
-title: Avon ANEW ULTIMATE Elixir 7S 30ml./ 1.0oz,
-description: Avon ANEW ULTIMATE Elixir 7S 30ml./ 1.0oz,
-author: Suvojit Manna,
-tags: Avon ANEW ULTIMATE Elixir 7S 30ml./ 1.0oz,
-publishedAt: Fri Jan 10 2020 15:00:28 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:28 GMT+0530 (India Standard Time),
----
-
 # [Avon ANEW ULTIMATE Elixir 7S 30ml./ 1.0oz](https://products.checkmycream.com/products/Avon-ANEW-ULTIMATE-Elixir-7S-30ml.-1.0oz.html)
 
 ### Positive Reviews

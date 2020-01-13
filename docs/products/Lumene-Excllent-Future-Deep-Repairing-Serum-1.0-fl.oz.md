@@ -1,12 +1,3 @@
----
-title: Lumene Excllent Future Deep Repairing Serum 1.0 fl.oz,
-description: Lumene Excllent Future Deep Repairing Serum 1.0 fl.oz,
-author: Suvojit Manna,
-tags: Lumene Excllent Future Deep Repairing Serum 1.0 fl.oz,
-publishedAt: Fri Jan 10 2020 14:59:45 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:45 GMT+0530 (India Standard Time),
----
-
 # [Lumene Excllent Future Deep Repairing Serum 1.0 fl.oz](https://products.checkmycream.com/products/Lumene-Excllent-Future-Deep-Repairing-Serum-1.0-fl.oz.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Idea Vision Mini Macbook Air Mirror/Apple Plastic Laptop Macbook Make up Mirror - White,
-description: Idea Vision Mini Macbook Air Mirror/Apple Plastic Laptop Macbook Make up Mirror - White,
-author: Suvojit Manna,
-tags: Idea Vision Mini Macbook Air Mirror/Apple Plastic Laptop Macbook Make up Mirror - White,
-publishedAt: Fri Jan 10 2020 15:00:31 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:31 GMT+0530 (India Standard Time),
----
-
 # [Idea Vision Mini Macbook Air Mirror/Apple Plastic Laptop Macbook Make up Mirror - White](https://products.checkmycream.com/products/Idea-Vision-Mini-Macbook-Air-MirrorApple-Plastic-Laptop-Macbook-Make-up-Mirror-White.html)
 
 ### Positive Reviews

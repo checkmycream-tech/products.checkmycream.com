@@ -1,12 +1,3 @@
----
-title: L&#x27;Oreal Youth Code Eye Cream, .33 fl oz by L&#x27;Oreal Paris,
-description: L&#x27;Oreal Youth Code Eye Cream, .33 fl oz by L&#x27;Oreal Paris,
-author: Suvojit Manna,
-tags: L&#x27;Oreal Youth Code Eye Cream, .33 fl oz by L&#x27;Oreal Paris,
-publishedAt: Fri Jan 10 2020 15:00:18 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:18 GMT+0530 (India Standard Time),
----
-
 # [L&#x27;Oreal Youth Code Eye Cream, .33 fl oz by L&#x27;Oreal Paris](https://products.checkmycream.com/products/L&#x27;Oreal-Youth-Code-Eye-Cream-.33-fl-oz-by-L&#x27;Oreal-Paris.html)
 
 ### Positive Reviews

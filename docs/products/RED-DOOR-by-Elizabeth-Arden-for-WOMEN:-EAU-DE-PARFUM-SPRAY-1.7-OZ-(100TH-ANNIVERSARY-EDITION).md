@@ -1,12 +1,3 @@
----
-title: RED DOOR by Elizabeth Arden for WOMEN: EAU DE PARFUM SPRAY 1.7 OZ (100TH ANNIVERSARY EDITION),
-description: RED DOOR by Elizabeth Arden for WOMEN: EAU DE PARFUM SPRAY 1.7 OZ (100TH ANNIVERSARY EDITION),
-author: Suvojit Manna,
-tags: RED DOOR by Elizabeth Arden for WOMEN: EAU DE PARFUM SPRAY 1.7 OZ (100TH ANNIVERSARY EDITION),
-publishedAt: Fri Jan 10 2020 15:00:38 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:38 GMT+0530 (India Standard Time),
----
-
 # [RED DOOR by Elizabeth Arden for WOMEN: EAU DE PARFUM SPRAY 1.7 OZ (100TH ANNIVERSARY EDITION)](https://products.checkmycream.com/products/RED-DOOR-by-Elizabeth-Arden-for-WOMEN:-EAU-DE-PARFUM-SPRAY-1.7-OZ-(100TH-ANNIVERSARY-EDITION).html)
 
 ### Positive Reviews

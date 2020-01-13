@@ -1,12 +1,3 @@
----
-title: Eminence Organics Coconut Age Corrective Moisturizer, 2 Ounce,
-description: Eminence Organics Coconut Age Corrective Moisturizer, 2 Ounce,
-author: Suvojit Manna,
-tags: Eminence Organics Coconut Age Corrective Moisturizer, 2 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
----
-
 # [Eminence Organics Coconut Age Corrective Moisturizer, 2 Ounce](https://products.checkmycream.com/products/Eminence-Organics-Coconut-Age-Corrective-Moisturizer-2-Ounce.html)
 
 ### Positive Reviews

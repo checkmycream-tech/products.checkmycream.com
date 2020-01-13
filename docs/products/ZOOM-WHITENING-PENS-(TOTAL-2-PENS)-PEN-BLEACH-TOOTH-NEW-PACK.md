@@ -1,12 +1,3 @@
----
-title: ZOOM WHITENING PENS (TOTAL 2 PENS) PEN BLEACH TOOTH NEW PACK,
-description: ZOOM WHITENING PENS (TOTAL 2 PENS) PEN BLEACH TOOTH NEW PACK,
-author: Suvojit Manna,
-tags: ZOOM WHITENING PENS (TOTAL 2 PENS) PEN BLEACH TOOTH NEW PACK,
-publishedAt: Fri Jan 10 2020 15:00:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:01 GMT+0530 (India Standard Time),
----
-
 # [ZOOM WHITENING PENS (TOTAL 2 PENS) PEN BLEACH TOOTH NEW PACK](https://products.checkmycream.com/products/ZOOM-WHITENING-PENS-(TOTAL-2-PENS)-PEN-BLEACH-TOOTH-NEW-PACK.html)
 
 ### Positive Reviews

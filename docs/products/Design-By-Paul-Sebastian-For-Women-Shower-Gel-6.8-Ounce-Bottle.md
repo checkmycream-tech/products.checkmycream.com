@@ -1,12 +1,3 @@
----
-title: Design By Paul Sebastian For Women, Shower Gel, 6.8-Ounce Bottle,
-description: Design By Paul Sebastian For Women, Shower Gel, 6.8-Ounce Bottle,
-author: Suvojit Manna,
-tags: Design By Paul Sebastian For Women, Shower Gel, 6.8-Ounce Bottle,
-publishedAt: Fri Jan 10 2020 14:59:16 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:16 GMT+0530 (India Standard Time),
----
-
 # [Design By Paul Sebastian For Women, Shower Gel, 6.8-Ounce Bottle](https://products.checkmycream.com/products/Design-By-Paul-Sebastian-For-Women-Shower-Gel-6.8-Ounce-Bottle.html)
 
 ### Positive Reviews

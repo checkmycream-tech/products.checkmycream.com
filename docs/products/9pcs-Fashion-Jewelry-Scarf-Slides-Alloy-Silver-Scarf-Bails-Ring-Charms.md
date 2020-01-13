@@ -1,12 +1,3 @@
----
-title: 9pcs Fashion Jewelry Scarf Slides Alloy Silver Scarf Bails Ring Charms,
-description: 9pcs Fashion Jewelry Scarf Slides Alloy Silver Scarf Bails Ring Charms,
-author: Suvojit Manna,
-tags: 9pcs Fashion Jewelry Scarf Slides Alloy Silver Scarf Bails Ring Charms,
-publishedAt: Fri Jan 10 2020 15:00:45 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:45 GMT+0530 (India Standard Time),
----
-
 # [9pcs Fashion Jewelry Scarf Slides Alloy Silver Scarf Bails Ring Charms](https://products.checkmycream.com/products/9pcs-Fashion-Jewelry-Scarf-Slides-Alloy-Silver-Scarf-Bails-Ring-Charms.html)
 
 ### Positive Reviews

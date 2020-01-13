@@ -1,12 +1,3 @@
----
-title: Thermafuse Heatsmart Serum,
-description: Thermafuse Heatsmart Serum,
-author: Suvojit Manna,
-tags: Thermafuse Heatsmart Serum,
-publishedAt: Fri Jan 10 2020 15:00:17 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:17 GMT+0530 (India Standard Time),
----
-
 # [Thermafuse Heatsmart Serum](https://products.checkmycream.com/products/Thermafuse-Heatsmart-Serum.html)
 
 ### Positive Reviews

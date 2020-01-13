@@ -1,12 +1,3 @@
----
-title: OPI Brazili Nail Polish Collection, Copacababies Mini, 4 Count,
-description: OPI Brazili Nail Polish Collection, Copacababies Mini, 4 Count,
-author: Suvojit Manna,
-tags: OPI Brazili Nail Polish Collection, Copacababies Mini, 4 Count,
-publishedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
----
-
 # [OPI Brazili Nail Polish Collection, Copacababies Mini, 4 Count](https://products.checkmycream.com/products/OPI-Brazili-Nail-Polish-Collection-Copacababies-Mini-4-Count.html)
 
 ### Positive Reviews

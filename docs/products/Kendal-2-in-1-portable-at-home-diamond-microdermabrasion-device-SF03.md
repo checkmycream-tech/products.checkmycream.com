@@ -1,12 +1,3 @@
----
-title: Kendal 2 in 1 portable at-home diamond microdermabrasion device SF03,
-description: Kendal 2 in 1 portable at-home diamond microdermabrasion device SF03,
-author: Suvojit Manna,
-tags: Kendal 2 in 1 portable at-home diamond microdermabrasion device SF03,
-publishedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
----
-
 # [Kendal 2 in 1 portable at-home diamond microdermabrasion device SF03](https://products.checkmycream.com/products/Kendal-2-in-1-portable-at-home-diamond-microdermabrasion-device-SF03.html)
 
 ### Positive Reviews

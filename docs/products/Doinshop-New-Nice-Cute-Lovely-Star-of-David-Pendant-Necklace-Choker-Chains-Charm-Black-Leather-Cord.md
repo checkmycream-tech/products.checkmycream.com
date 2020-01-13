@@ -1,12 +1,3 @@
----
-title: Doinshop New Nice Cute Lovely Star of David Pendant Necklace Choker Chains Charm Black Leather Cord,
-description: Doinshop New Nice Cute Lovely Star of David Pendant Necklace Choker Chains Charm Black Leather Cord,
-author: Suvojit Manna,
-tags: Doinshop New Nice Cute Lovely Star of David Pendant Necklace Choker Chains Charm Black Leather Cord,
-publishedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
----
-
 # [Doinshop New Nice Cute Lovely Star of David Pendant Necklace Choker Chains Charm Black Leather Cord](https://products.checkmycream.com/products/Doinshop-New-Nice-Cute-Lovely-Star-of-David-Pendant-Necklace-Choker-Chains-Charm-Black-Leather-Cord.html)
 
 ### Positive Reviews

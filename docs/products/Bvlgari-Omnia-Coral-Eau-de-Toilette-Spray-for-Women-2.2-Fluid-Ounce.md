@@ -1,12 +1,3 @@
----
-title: Bvlgari Omnia Coral Eau de Toilette Spray for Women, 2.2 Fluid Ounce,
-description: Bvlgari Omnia Coral Eau de Toilette Spray for Women, 2.2 Fluid Ounce,
-author: Suvojit Manna,
-tags: Bvlgari Omnia Coral Eau de Toilette Spray for Women, 2.2 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 15:00:30 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:30 GMT+0530 (India Standard Time),
----
-
 # [Bvlgari Omnia Coral Eau de Toilette Spray for Women, 2.2 Fluid Ounce](https://products.checkmycream.com/products/Bvlgari-Omnia-Coral-Eau-de-Toilette-Spray-for-Women-2.2-Fluid-Ounce.html)
 
 ### Positive Reviews

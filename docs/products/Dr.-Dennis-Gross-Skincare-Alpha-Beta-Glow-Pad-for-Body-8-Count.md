@@ -1,12 +1,3 @@
----
-title: Dr. Dennis Gross Skincare Alpha Beta Glow Pad for Body, 8 Count,
-description: Dr. Dennis Gross Skincare Alpha Beta Glow Pad for Body, 8 Count,
-author: Suvojit Manna,
-tags: Dr. Dennis Gross Skincare Alpha Beta Glow Pad for Body, 8 Count,
-publishedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
----
-
 # [Dr. Dennis Gross Skincare Alpha Beta Glow Pad for Body, 8 Count](https://products.checkmycream.com/products/Dr.-Dennis-Gross-Skincare-Alpha-Beta-Glow-Pad-for-Body-8-Count.html)
 
 ### Positive Reviews

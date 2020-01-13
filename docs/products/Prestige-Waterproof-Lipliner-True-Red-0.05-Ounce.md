@@ -1,12 +1,3 @@
----
-title: Prestige Waterproof Lipliner, True Red, 0.05 Ounce,
-description: Prestige Waterproof Lipliner, True Red, 0.05 Ounce,
-author: Suvojit Manna,
-tags: Prestige Waterproof Lipliner, True Red, 0.05 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:16 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:16 GMT+0530 (India Standard Time),
----
-
 # [Prestige Waterproof Lipliner, True Red, 0.05 Ounce](https://products.checkmycream.com/products/Prestige-Waterproof-Lipliner-True-Red-0.05-Ounce.html)
 
 ### Positive Reviews

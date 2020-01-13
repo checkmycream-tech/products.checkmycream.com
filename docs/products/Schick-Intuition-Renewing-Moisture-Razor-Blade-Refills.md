@@ -1,12 +1,3 @@
----
-title: Schick Intuition  Renewing Moisture Razor Blade Refills,
-description: Schick Intuition  Renewing Moisture Razor Blade Refills,
-author: Suvojit Manna,
-tags: Schick Intuition  Renewing Moisture Razor Blade Refills,
-publishedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
----
-
 # [Schick Intuition  Renewing Moisture Razor Blade Refills](https://products.checkmycream.com/products/Schick-Intuition-Renewing-Moisture-Razor-Blade-Refills.html)
 
 ### Positive Reviews

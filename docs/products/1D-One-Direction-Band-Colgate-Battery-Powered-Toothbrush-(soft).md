@@ -1,12 +1,3 @@
----
-title: 1D One Direction Band Colgate Battery Powered Toothbrush (soft),
-description: 1D One Direction Band Colgate Battery Powered Toothbrush (soft),
-author: Suvojit Manna,
-tags: 1D One Direction Band Colgate Battery Powered Toothbrush (soft),
-publishedAt: Fri Jan 10 2020 15:00:36 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:36 GMT+0530 (India Standard Time),
----
-
 # [1D One Direction Band Colgate Battery Powered Toothbrush (soft)](https://products.checkmycream.com/products/1D-One-Direction-Band-Colgate-Battery-Powered-Toothbrush-(soft).html)
 
 ### Positive Reviews

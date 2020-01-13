@@ -1,12 +1,3 @@
----
-title: Opi Gelcolor Nail Polish, Black Cherry Chutney, 0.5 Ounce,
-description: Opi Gelcolor Nail Polish, Black Cherry Chutney, 0.5 Ounce,
-author: Suvojit Manna,
-tags: Opi Gelcolor Nail Polish, Black Cherry Chutney, 0.5 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
----
-
 # [Opi Gelcolor Nail Polish, Black Cherry Chutney, 0.5 Ounce](https://products.checkmycream.com/products/Opi-Gelcolor-Nail-Polish-Black-Cherry-Chutney-0.5-Ounce.html)
 
 ### Positive Reviews

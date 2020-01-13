@@ -1,12 +1,3 @@
----
-title: NuMe Argan Oil,
-description: NuMe Argan Oil,
-author: Suvojit Manna,
-tags: NuMe Argan Oil,
-publishedAt: Fri Jan 10 2020 15:00:15 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:15 GMT+0530 (India Standard Time),
----
-
 # [NuMe Argan Oil](https://products.checkmycream.com/products/NuMe-Argan-Oil.html)
 
 ### Positive Reviews

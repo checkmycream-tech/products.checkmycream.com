@@ -1,12 +1,3 @@
----
-title: Gold N Hot 2pc Offset comb Attachment for GH3202 &amp; GH2275,
-description: Gold N Hot 2pc Offset comb Attachment for GH3202 &amp; GH2275,
-author: Suvojit Manna,
-tags: Gold N Hot 2pc Offset comb Attachment for GH3202 &amp; GH2275,
-publishedAt: Fri Jan 10 2020 14:59:49 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:49 GMT+0530 (India Standard Time),
----
-
 # [Gold N Hot 2pc Offset comb Attachment for GH3202 &amp; GH2275](https://products.checkmycream.com/products/Gold-N-Hot-2pc-Offset-comb-Attachment-for-GH3202-and-GH2275.html)
 
 ### Positive Reviews

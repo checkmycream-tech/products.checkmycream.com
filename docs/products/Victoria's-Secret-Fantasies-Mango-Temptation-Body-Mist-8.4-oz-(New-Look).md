@@ -1,12 +1,3 @@
----
-title: Victoria&#x27;s Secret Fantasies Mango Temptation Body Mist 8.4 oz (New Look),
-description: Victoria&#x27;s Secret Fantasies Mango Temptation Body Mist 8.4 oz (New Look),
-author: Suvojit Manna,
-tags: Victoria&#x27;s Secret Fantasies Mango Temptation Body Mist 8.4 oz (New Look),
-publishedAt: Fri Jan 10 2020 15:00:09 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:09 GMT+0530 (India Standard Time),
----
-
 # [Victoria&#x27;s Secret Fantasies Mango Temptation Body Mist 8.4 oz (New Look)](https://products.checkmycream.com/products/Victoria&#x27;s-Secret-Fantasies-Mango-Temptation-Body-Mist-8.4-oz-(New-Look).html)
 
 ### Positive Reviews

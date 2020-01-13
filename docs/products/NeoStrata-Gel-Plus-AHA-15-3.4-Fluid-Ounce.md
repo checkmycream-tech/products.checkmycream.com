@@ -1,12 +1,3 @@
----
-title: NeoStrata Gel Plus AHA 15, 3.4 Fluid Ounce,
-description: NeoStrata Gel Plus AHA 15, 3.4 Fluid Ounce,
-author: Suvojit Manna,
-tags: NeoStrata Gel Plus AHA 15, 3.4 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 14:59:14 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:14 GMT+0530 (India Standard Time),
----
-
 # [NeoStrata Gel Plus AHA 15, 3.4 Fluid Ounce](https://products.checkmycream.com/products/NeoStrata-Gel-Plus-AHA-15-3.4-Fluid-Ounce.html)
 
 ### Positive Reviews

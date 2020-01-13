@@ -1,12 +1,3 @@
----
-title: Dream Neck Strip,
-description: Dream Neck Strip,
-author: Suvojit Manna,
-tags: Dream Neck Strip,
-publishedAt: Fri Jan 10 2020 15:00:22 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:22 GMT+0530 (India Standard Time),
----
-
 # [Dream Neck Strip](https://products.checkmycream.com/products/Dream-Neck-Strip.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Adidas Deep Energy 3 Piece Gift Set (Shower Gel, Eau de Toilette Spray, Body Spray),
-description: Adidas Deep Energy 3 Piece Gift Set (Shower Gel, Eau de Toilette Spray, Body Spray),
-author: Suvojit Manna,
-tags: Adidas Deep Energy 3 Piece Gift Set (Shower Gel, Eau de Toilette Spray, Body Spray),
-publishedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
----
-
 # [Adidas Deep Energy 3 Piece Gift Set (Shower Gel, Eau de Toilette Spray, Body Spray)](https://products.checkmycream.com/products/Adidas-Deep-Energy-3-Piece-Gift-Set-(Shower-Gel-Eau-de-Toilette-Spray-Body-Spray).html)
 
 ### Positive Reviews

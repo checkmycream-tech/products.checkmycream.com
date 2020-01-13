@@ -1,12 +1,3 @@
----
-title: Vktech Women Fashion Tassel Drawnstring Tote Purse Single-Shoulder Bag PU Leather,
-description: Vktech Women Fashion Tassel Drawnstring Tote Purse Single-Shoulder Bag PU Leather,
-author: Suvojit Manna,
-tags: Vktech Women Fashion Tassel Drawnstring Tote Purse Single-Shoulder Bag PU Leather,
-publishedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
----
-
 # [Vktech Women Fashion Tassel Drawnstring Tote Purse Single-Shoulder Bag PU Leather](https://products.checkmycream.com/products/Vktech-Women-Fashion-Tassel-Drawnstring-Tote-Purse-Single-Shoulder-Bag-PU-Leather.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Men&#x27;s Genuine Leather/PU Authentic kangaroo kingdom Shoulder Bag Messenger Bags,
-description: Men&#x27;s Genuine Leather/PU Authentic kangaroo kingdom Shoulder Bag Messenger Bags,
-author: Suvojit Manna,
-tags: Men&#x27;s Genuine Leather/PU Authentic kangaroo kingdom Shoulder Bag Messenger Bags,
-publishedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
----
-
 # [Men&#x27;s Genuine Leather/PU Authentic kangaroo kingdom Shoulder Bag Messenger Bags](https://products.checkmycream.com/products/Men&#x27;s-Genuine-LeatherPU-Authentic-kangaroo-kingdom-Shoulder-Bag-Messenger-Bags.html)
 
 ### Positive Reviews

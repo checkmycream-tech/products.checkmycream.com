@@ -1,12 +1,3 @@
----
-title: Redken Men&#x27;s Clean Brew Extra Cleansing Shampoo, 33.8 Ounce,
-description: Redken Men&#x27;s Clean Brew Extra Cleansing Shampoo, 33.8 Ounce,
-author: Suvojit Manna,
-tags: Redken Men&#x27;s Clean Brew Extra Cleansing Shampoo, 33.8 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
----
-
 # [Redken Men&#x27;s Clean Brew Extra Cleansing Shampoo, 33.8 Ounce](https://products.checkmycream.com/products/Redken-Men&#x27;s-Clean-Brew-Extra-Cleansing-Shampoo-33.8-Ounce.html)
 
 ### Positive Reviews

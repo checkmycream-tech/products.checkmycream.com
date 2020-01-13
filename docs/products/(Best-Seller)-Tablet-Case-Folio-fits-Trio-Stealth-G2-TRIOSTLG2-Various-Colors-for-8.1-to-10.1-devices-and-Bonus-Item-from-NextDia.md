@@ -1,12 +1,3 @@
----
-title: (Best Seller) Tablet Case / Folio fits Trio Stealth G2 TRIOSTLG2 [ Various Colors ] for 8.1 to 10.1 devices and Bonus Item from NextDia,
-description: (Best Seller) Tablet Case / Folio fits Trio Stealth G2 TRIOSTLG2 [ Various Colors ] for 8.1 to 10.1 devices and Bonus Item from NextDia,
-author: Suvojit Manna,
-tags: (Best Seller) Tablet Case / Folio fits Trio Stealth G2 TRIOSTLG2 [ Various Colors ] for 8.1 to 10.1 devices and Bonus Item from NextDia,
-publishedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
----
-
 # [(Best Seller) Tablet Case / Folio fits Trio Stealth G2 TRIOSTLG2 [ Various Colors ] for 8.1 to 10.1 devices and Bonus Item from NextDia](https://products.checkmycream.com/products/(Best-Seller)-Tablet-Case-Folio-fits-Trio-Stealth-G2-TRIOSTLG2-Various-Colors-for-8.1-to-10.1-devices-and-Bonus-Item-from-NextDia.html)
 
 ### Positive Reviews

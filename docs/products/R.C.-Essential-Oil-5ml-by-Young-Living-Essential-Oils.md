@@ -1,12 +1,3 @@
----
-title: R.C. Essential Oil 5ml by Young Living Essential Oils,
-description: R.C. Essential Oil 5ml by Young Living Essential Oils,
-author: Suvojit Manna,
-tags: R.C. Essential Oil 5ml by Young Living Essential Oils,
-publishedAt: Fri Jan 10 2020 14:59:38 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:38 GMT+0530 (India Standard Time),
----
-
 # [R.C. Essential Oil 5ml by Young Living Essential Oils](https://products.checkmycream.com/products/R.C.-Essential-Oil-5ml-by-Young-Living-Essential-Oils.html)
 
 ### Positive Reviews

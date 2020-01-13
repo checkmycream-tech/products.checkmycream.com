@@ -1,12 +1,3 @@
----
-title: WAVE BUILDER Wave Activating Du-Rag BLACK (Model: 992),
-description: WAVE BUILDER Wave Activating Du-Rag BLACK (Model: 992),
-author: Suvojit Manna,
-tags: WAVE BUILDER Wave Activating Du-Rag BLACK (Model: 992),
-publishedAt: Fri Jan 10 2020 14:59:30 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:30 GMT+0530 (India Standard Time),
----
-
 # [WAVE BUILDER Wave Activating Du-Rag BLACK (Model: 992)](https://products.checkmycream.com/products/WAVE-BUILDER-Wave-Activating-Du-Rag-BLACK-(Model:-992).html)
 
 ### Positive Reviews

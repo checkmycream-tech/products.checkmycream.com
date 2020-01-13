@@ -1,12 +1,3 @@
----
-title: Stern Moustache Brush,
-description: Stern Moustache Brush,
-author: Suvojit Manna,
-tags: Stern Moustache Brush,
-publishedAt: Fri Jan 10 2020 14:59:25 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:25 GMT+0530 (India Standard Time),
----
-
 # [Stern Moustache Brush](https://products.checkmycream.com/products/Stern-Moustache-Brush.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Nail Art 3d 55 Mix Pieces SKULL &amp; BOW/RHINESTONE for Nails, Cellphones 1.2cm,
-description: Nail Art 3d 55 Mix Pieces SKULL &amp; BOW/RHINESTONE for Nails, Cellphones 1.2cm,
-author: Suvojit Manna,
-tags: Nail Art 3d 55 Mix Pieces SKULL &amp; BOW/RHINESTONE for Nails, Cellphones 1.2cm,
-publishedAt: Fri Jan 10 2020 15:00:20 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:20 GMT+0530 (India Standard Time),
----
-
 # [Nail Art 3d 55 Mix Pieces SKULL &amp; BOW/RHINESTONE for Nails, Cellphones 1.2cm](https://products.checkmycream.com/products/Nail-Art-3d-55-Mix-Pieces-SKULL-and-BOWRHINESTONE-for-Nails-Cellphones-1.2cm.html)
 
 ### Positive Reviews

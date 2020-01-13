@@ -1,12 +1,3 @@
----
-title: 12 Generic Replacement Blades for Fusion Proglide and Fusion Proglide Power Handle,
-description: 12 Generic Replacement Blades for Fusion Proglide and Fusion Proglide Power Handle,
-author: Suvojit Manna,
-tags: 12 Generic Replacement Blades for Fusion Proglide and Fusion Proglide Power Handle,
-publishedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
----
-
 # [12 Generic Replacement Blades for Fusion Proglide and Fusion Proglide Power Handle](https://products.checkmycream.com/products/12-Generic-Replacement-Blades-for-Fusion-Proglide-and-Fusion-Proglide-Power-Handle.html)
 
 ### Positive Reviews

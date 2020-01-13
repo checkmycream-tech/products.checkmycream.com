@@ -1,12 +1,3 @@
----
-title: 1TattooWorld Premium Tattoo Ink Set, 5ml series,
-description: 1TattooWorld Premium Tattoo Ink Set, 5ml series,
-author: Suvojit Manna,
-tags: 1TattooWorld Premium Tattoo Ink Set, 5ml series,
-publishedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
----
-
 # [1TattooWorld Premium Tattoo Ink Set, 5ml series](https://products.checkmycream.com/products/1TattooWorld-Premium-Tattoo-Ink-Set-5ml-series.html)
 
 ### Positive Reviews

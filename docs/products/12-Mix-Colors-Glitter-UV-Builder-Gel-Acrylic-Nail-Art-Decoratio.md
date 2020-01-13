@@ -1,12 +1,3 @@
----
-title: 12 Mix Colors Glitter UV Builder Gel Acrylic Nail Art Decoratio,
-description: 12 Mix Colors Glitter UV Builder Gel Acrylic Nail Art Decoratio,
-author: Suvojit Manna,
-tags: 12 Mix Colors Glitter UV Builder Gel Acrylic Nail Art Decoratio,
-publishedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
----
-
 # [12 Mix Colors Glitter UV Builder Gel Acrylic Nail Art Decoratio](https://products.checkmycream.com/products/12-Mix-Colors-Glitter-UV-Builder-Gel-Acrylic-Nail-Art-Decoratio.html)
 
 ### Positive Reviews

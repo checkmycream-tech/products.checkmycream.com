@@ -1,12 +1,3 @@
----
-title: Note 4 Case leather,DIY Frozen Anna Elsa Protective Case Cover With Non-slip and Luxury PU Leather for Samsung Galaxy Note 4,
-description: Note 4 Case leather,DIY Frozen Anna Elsa Protective Case Cover With Non-slip and Luxury PU Leather for Samsung Galaxy Note 4,
-author: Suvojit Manna,
-tags: Note 4 Case leather,DIY Frozen Anna Elsa Protective Case Cover With Non-slip and Luxury PU Leather for Samsung Galaxy Note 4,
-publishedAt: Fri Jan 10 2020 15:01:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:05 GMT+0530 (India Standard Time),
----
-
 # [Note 4 Case leather,DIY Frozen Anna Elsa Protective Case Cover With Non-slip and Luxury PU Leather for Samsung Galaxy Note 4](https://products.checkmycream.com/products/Note-4-Case-leatherDIY-Frozen-Anna-Elsa-Protective-Case-Cover-With-Non-slip-and-Luxury-PU-Leather-for-Samsung-Galaxy-Note-4.html)
 
 ### Positive Reviews

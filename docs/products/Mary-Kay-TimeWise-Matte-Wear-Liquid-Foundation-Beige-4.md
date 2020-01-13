@@ -1,12 +1,3 @@
----
-title: Mary Kay TimeWise Matte-Wear Liquid Foundation, Beige 4,
-description: Mary Kay TimeWise Matte-Wear Liquid Foundation, Beige 4,
-author: Suvojit Manna,
-tags: Mary Kay TimeWise Matte-Wear Liquid Foundation, Beige 4,
-publishedAt: Fri Jan 10 2020 15:00:07 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:07 GMT+0530 (India Standard Time),
----
-
 # [Mary Kay TimeWise Matte-Wear Liquid Foundation, Beige 4](https://products.checkmycream.com/products/Mary-Kay-TimeWise-Matte-Wear-Liquid-Foundation-Beige-4.html)
 
 ### Positive Reviews

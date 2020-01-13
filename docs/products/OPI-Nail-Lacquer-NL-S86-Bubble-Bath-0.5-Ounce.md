@@ -1,12 +1,3 @@
----
-title: OPI Nail Lacquer, # NL S86 Bubble Bath, 0.5 Ounce,
-description: OPI Nail Lacquer, # NL S86 Bubble Bath, 0.5 Ounce,
-author: Suvojit Manna,
-tags: OPI Nail Lacquer, # NL S86 Bubble Bath, 0.5 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
----
-
 # [OPI Nail Lacquer, # NL S86 Bubble Bath, 0.5 Ounce](https://products.checkmycream.com/products/OPI-Nail-Lacquer-NL-S86-Bubble-Bath-0.5-Ounce.html)
 
 ### Positive Reviews

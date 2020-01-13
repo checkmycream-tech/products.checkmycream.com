@@ -1,12 +1,3 @@
----
-title: Kleancolor Nail Polish METALLIC SET #01 Lot of 6 Lacquer + Free Earring Gift,
-description: Kleancolor Nail Polish METALLIC SET #01 Lot of 6 Lacquer + Free Earring Gift,
-author: Suvojit Manna,
-tags: Kleancolor Nail Polish METALLIC SET #01 Lot of 6 Lacquer + Free Earring Gift,
-publishedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
----
-
 # [Kleancolor Nail Polish METALLIC SET #01 Lot of 6 Lacquer + Free Earring Gift](https://products.checkmycream.com/products/Kleancolor-Nail-Polish-METALLIC-SET-01-Lot-of-6-Lacquer-+-Free-Earring-Gift.html)
 
 ### Positive Reviews

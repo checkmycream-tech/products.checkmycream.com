@@ -1,12 +1,3 @@
----
-title: M.A.C RETRO MATTE LIPSTICK - RUBY WOO,
-description: M.A.C RETRO MATTE LIPSTICK - RUBY WOO,
-author: Suvojit Manna,
-tags: M.A.C RETRO MATTE LIPSTICK - RUBY WOO,
-publishedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
----
-
 # [M.A.C RETRO MATTE LIPSTICK - RUBY WOO](https://products.checkmycream.com/products/M.A.C-RETRO-MATTE-LIPSTICK-RUBY-WOO.html)
 
 ### Positive Reviews

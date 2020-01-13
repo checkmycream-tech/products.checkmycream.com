@@ -1,12 +1,3 @@
----
-title: La Roche-Posay Redermic C Eyes Anti-Wrinkle Firming Moisturizing Filler 0.5 fl oz.,
-description: La Roche-Posay Redermic C Eyes Anti-Wrinkle Firming Moisturizing Filler 0.5 fl oz.,
-author: Suvojit Manna,
-tags: La Roche-Posay Redermic C Eyes Anti-Wrinkle Firming Moisturizing Filler 0.5 fl oz.,
-publishedAt: Fri Jan 10 2020 15:00:32 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:32 GMT+0530 (India Standard Time),
----
-
 # [La Roche-Posay Redermic C Eyes Anti-Wrinkle Firming Moisturizing Filler 0.5 fl oz.](https://products.checkmycream.com/products/La-Roche-Posay-Redermic-C-Eyes-Anti-Wrinkle-Firming-Moisturizing-Filler-0.5-fl-oz..html)
 
 ### Positive Reviews

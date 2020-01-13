@@ -1,12 +1,3 @@
----
-title: 500pcs Hot Pink Color French Acrylic UV Gel False Nail Art Design Tips DIY,
-description: 500pcs Hot Pink Color French Acrylic UV Gel False Nail Art Design Tips DIY,
-author: Suvojit Manna,
-tags: 500pcs Hot Pink Color French Acrylic UV Gel False Nail Art Design Tips DIY,
-publishedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
----
-
 # [500pcs Hot Pink Color French Acrylic UV Gel False Nail Art Design Tips DIY](https://products.checkmycream.com/products/500pcs-Hot-Pink-Color-French-Acrylic-UV-Gel-False-Nail-Art-Design-Tips-DIY.html)
 
 ### Positive Reviews

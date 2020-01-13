@@ -1,12 +1,3 @@
----
-title: TOOGOO(R) 15 Pcs Plastic Handle Eye Eyeshadow Sponge Brushes Applicators,
-description: TOOGOO(R) 15 Pcs Plastic Handle Eye Eyeshadow Sponge Brushes Applicators,
-author: Suvojit Manna,
-tags: TOOGOO(R) 15 Pcs Plastic Handle Eye Eyeshadow Sponge Brushes Applicators,
-publishedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
----
-
 # [TOOGOO(R) 15 Pcs Plastic Handle Eye Eyeshadow Sponge Brushes Applicators](https://products.checkmycream.com/products/TOOGOO(R)-15-Pcs-Plastic-Handle-Eye-Eyeshadow-Sponge-Brushes-Applicators.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: 100% Pure Unrefined Raw SHEA BUTTER - (1 Pound) from the nut of the African Ghana Shea Tree,
-description: 100% Pure Unrefined Raw SHEA BUTTER - (1 Pound) from the nut of the African Ghana Shea Tree,
-author: Suvojit Manna,
-tags: 100% Pure Unrefined Raw SHEA BUTTER - (1 Pound) from the nut of the African Ghana Shea Tree,
-publishedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
----
-
 # [100% Pure Unrefined Raw SHEA BUTTER - (1 Pound) from the nut of the African Ghana Shea Tree](https://products.checkmycream.com/products/100percent-Pure-Unrefined-Raw-SHEA-BUTTER-(1-Pound)-from-the-nut-of-the-African-Ghana-Shea-Tree.html)
 
 ### Positive Reviews

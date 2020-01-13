@@ -1,12 +1,3 @@
----
-title: Patti La Belle Perfume by Patti La Belle for women Personal Fragrances,
-description: Patti La Belle Perfume by Patti La Belle for women Personal Fragrances,
-author: Suvojit Manna,
-tags: Patti La Belle Perfume by Patti La Belle for women Personal Fragrances,
-publishedAt: Fri Jan 10 2020 14:59:16 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:16 GMT+0530 (India Standard Time),
----
-
 # [Patti La Belle Perfume by Patti La Belle for women Personal Fragrances](https://products.checkmycream.com/products/Patti-La-Belle-Perfume-by-Patti-La-Belle-for-women-Personal-Fragrances.html)
 
 ### Positive Reviews

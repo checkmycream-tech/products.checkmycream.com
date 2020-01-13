@@ -1,12 +1,3 @@
----
-title: Philips Sonicare HX6015/03 Simply Clean Brush Head,
-description: Philips Sonicare HX6015/03 Simply Clean Brush Head,
-author: Suvojit Manna,
-tags: Philips Sonicare HX6015/03 Simply Clean Brush Head,
-publishedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
----
-
 # [Philips Sonicare HX6015/03 Simply Clean Brush Head](https://products.checkmycream.com/products/Philips-Sonicare-HX601503-Simply-Clean-Brush-Head.html)
 
 ### Positive Reviews

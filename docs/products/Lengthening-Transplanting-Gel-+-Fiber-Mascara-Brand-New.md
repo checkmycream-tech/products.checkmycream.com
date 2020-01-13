@@ -1,12 +1,3 @@
----
-title: Lengthening Transplanting Gel + Fiber Mascara Brand New,
-description: Lengthening Transplanting Gel + Fiber Mascara Brand New,
-author: Suvojit Manna,
-tags: Lengthening Transplanting Gel + Fiber Mascara Brand New,
-publishedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
----
-
 # [Lengthening Transplanting Gel + Fiber Mascara Brand New](https://products.checkmycream.com/products/Lengthening-Transplanting-Gel-+-Fiber-Mascara-Brand-New.html)
 
 ### Positive Reviews

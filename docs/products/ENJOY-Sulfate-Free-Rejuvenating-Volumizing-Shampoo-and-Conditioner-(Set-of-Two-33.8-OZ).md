@@ -1,12 +1,3 @@
----
-title: ENJOY Sulfate Free Rejuvenating Volumizing Shampoo and Conditioner (Set of Two 33.8 OZ),
-description: ENJOY Sulfate Free Rejuvenating Volumizing Shampoo and Conditioner (Set of Two 33.8 OZ),
-author: Suvojit Manna,
-tags: ENJOY Sulfate Free Rejuvenating Volumizing Shampoo and Conditioner (Set of Two 33.8 OZ),
-publishedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
----
-
 # [ENJOY Sulfate Free Rejuvenating Volumizing Shampoo and Conditioner (Set of Two 33.8 OZ)](https://products.checkmycream.com/products/ENJOY-Sulfate-Free-Rejuvenating-Volumizing-Shampoo-and-Conditioner-(Set-of-Two-33.8-OZ).html)
 
 ### Positive Reviews

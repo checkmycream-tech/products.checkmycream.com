@@ -1,12 +1,3 @@
----
-title: CHOP MALL ® 20 Pairs Regular Long and Thick Eyelashes Style 1 and 2,
-description: CHOP MALL ® 20 Pairs Regular Long and Thick Eyelashes Style 1 and 2,
-author: Suvojit Manna,
-tags: CHOP MALL ® 20 Pairs Regular Long and Thick Eyelashes Style 1 and 2,
-publishedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
----
-
 # [CHOP MALL ® 20 Pairs Regular Long and Thick Eyelashes Style 1 and 2](https://products.checkmycream.com/products/CHOP-MALL-(r)-20-Pairs-Regular-Long-and-Thick-Eyelashes-Style-1-and-2.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: The Dry Look For Men Aerosol Hair Spray Extra Hold, 8 oz (Pack of 3),
-description: The Dry Look For Men Aerosol Hair Spray Extra Hold, 8 oz (Pack of 3),
-author: Suvojit Manna,
-tags: The Dry Look For Men Aerosol Hair Spray Extra Hold, 8 oz (Pack of 3),
-publishedAt: Fri Jan 10 2020 14:59:59 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:59 GMT+0530 (India Standard Time),
----
-
 # [The Dry Look For Men Aerosol Hair Spray Extra Hold, 8 oz (Pack of 3)](https://products.checkmycream.com/products/The-Dry-Look-For-Men-Aerosol-Hair-Spray-Extra-Hold-8-oz-(Pack-of-3).html)
 
 ### Positive Reviews

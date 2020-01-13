@@ -1,12 +1,3 @@
----
-title: Cool Metal Cross Studded Surfer Leather Bracelet Wristband Cuff Men&#x27;s Brown,
-description: Cool Metal Cross Studded Surfer Leather Bracelet Wristband Cuff Men&#x27;s Brown,
-author: Suvojit Manna,
-tags: Cool Metal Cross Studded Surfer Leather Bracelet Wristband Cuff Men&#x27;s Brown,
-publishedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
----
-
 # [Cool Metal Cross Studded Surfer Leather Bracelet Wristband Cuff Men&#x27;s Brown](https://products.checkmycream.com/products/Cool-Metal-Cross-Studded-Surfer-Leather-Bracelet-Wristband-Cuff-Men&#x27;s-Brown.html)
 
 ### Positive Reviews

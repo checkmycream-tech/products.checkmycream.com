@@ -1,12 +1,3 @@
----
-title: NeoStrata Resurface High Potency Cream AHA 20, 1.0 Ounce,
-description: NeoStrata Resurface High Potency Cream AHA 20, 1.0 Ounce,
-author: Suvojit Manna,
-tags: NeoStrata Resurface High Potency Cream AHA 20, 1.0 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:13 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:13 GMT+0530 (India Standard Time),
----
-
 # [NeoStrata Resurface High Potency Cream AHA 20, 1.0 Ounce](https://products.checkmycream.com/products/NeoStrata-Resurface-High-Potency-Cream-AHA-20-1.0-Ounce.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Nicedeco - 12 type practical nail art hollow heart decoration tips,
-description: Nicedeco - 12 type practical nail art hollow heart decoration tips,
-author: Suvojit Manna,
-tags: Nicedeco - 12 type practical nail art hollow heart decoration tips,
-publishedAt: Fri Jan 10 2020 15:00:29 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:29 GMT+0530 (India Standard Time),
----
-
 # [Nicedeco - 12 type practical nail art hollow heart decoration tips](https://products.checkmycream.com/products/Nicedeco-12-type-practical-nail-art-hollow-heart-decoration-tips.html)
 
 ### Positive Reviews

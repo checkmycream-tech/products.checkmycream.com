@@ -1,12 +1,3 @@
----
-title: Karen Low Pure Blue Eau de Toilette Spray for Men, 3.4 Ounce,
-description: Karen Low Pure Blue Eau de Toilette Spray for Men, 3.4 Ounce,
-author: Suvojit Manna,
-tags: Karen Low Pure Blue Eau de Toilette Spray for Men, 3.4 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:15 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:15 GMT+0530 (India Standard Time),
----
-
 # [Karen Low Pure Blue Eau de Toilette Spray for Men, 3.4 Ounce](https://products.checkmycream.com/products/Karen-Low-Pure-Blue-Eau-de-Toilette-Spray-for-Men-3.4-Ounce.html)
 
 ### Positive Reviews

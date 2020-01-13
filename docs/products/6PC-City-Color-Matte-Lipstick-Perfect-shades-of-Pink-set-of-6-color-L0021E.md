@@ -1,12 +1,3 @@
----
-title: 6PC City Color Matte Lipstick Perfect shades of Pink set of 6 color #L0021E,
-description: 6PC City Color Matte Lipstick Perfect shades of Pink set of 6 color #L0021E,
-author: Suvojit Manna,
-tags: 6PC City Color Matte Lipstick Perfect shades of Pink set of 6 color #L0021E,
-publishedAt: Fri Jan 10 2020 15:01:07 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:07 GMT+0530 (India Standard Time),
----
-
 # [6PC City Color Matte Lipstick Perfect shades of Pink set of 6 color #L0021E](https://products.checkmycream.com/products/6PC-City-Color-Matte-Lipstick-Perfect-shades-of-Pink-set-of-6-color-L0021E.html)
 
 ### Positive Reviews

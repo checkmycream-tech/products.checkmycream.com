@@ -1,12 +1,3 @@
----
-title: Biosilk Rock Hard Hair Styling Gelee 6 oz,
-description: Biosilk Rock Hard Hair Styling Gelee 6 oz,
-author: Suvojit Manna,
-tags: Biosilk Rock Hard Hair Styling Gelee 6 oz,
-publishedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
----
-
 # [Biosilk Rock Hard Hair Styling Gelee 6 oz](https://products.checkmycream.com/products/Biosilk-Rock-Hard-Hair-Styling-Gelee-6-oz.html)
 
 ### Positive Reviews

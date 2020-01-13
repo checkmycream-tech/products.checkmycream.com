@@ -1,12 +1,3 @@
----
-title: Benefit Cosmetics Watt&#x27;s Up! Soft Focus Cream Highlighter,
-description: Benefit Cosmetics Watt&#x27;s Up! Soft Focus Cream Highlighter,
-author: Suvojit Manna,
-tags: Benefit Cosmetics Watt&#x27;s Up! Soft Focus Cream Highlighter,
-publishedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
----
-
 # [Benefit Cosmetics Watt&#x27;s Up! Soft Focus Cream Highlighter](https://products.checkmycream.com/products/Benefit-Cosmetics-Watt&#x27;s-Up!-Soft-Focus-Cream-Highlighter.html)
 
 ### Positive Reviews

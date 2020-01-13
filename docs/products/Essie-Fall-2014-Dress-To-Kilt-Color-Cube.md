@@ -1,12 +1,3 @@
----
-title: Essie Fall 2014 Dress To Kilt Color Cube,
-description: Essie Fall 2014 Dress To Kilt Color Cube,
-author: Suvojit Manna,
-tags: Essie Fall 2014 Dress To Kilt Color Cube,
-publishedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
----
-
 # [Essie Fall 2014 Dress To Kilt Color Cube](https://products.checkmycream.com/products/Essie-Fall-2014-Dress-To-Kilt-Color-Cube.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: GotHobby Pro Lcd Dual Digital Tattoo Power Supply Kit w/ Clip Cord &amp; Flat Foot Pedal,
-description: GotHobby Pro Lcd Dual Digital Tattoo Power Supply Kit w/ Clip Cord &amp; Flat Foot Pedal,
-author: Suvojit Manna,
-tags: GotHobby Pro Lcd Dual Digital Tattoo Power Supply Kit w/ Clip Cord &amp; Flat Foot Pedal,
-publishedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
----
-
 # [GotHobby Pro Lcd Dual Digital Tattoo Power Supply Kit w/ Clip Cord &amp; Flat Foot Pedal](https://products.checkmycream.com/products/GotHobby-Pro-Lcd-Dual-Digital-Tattoo-Power-Supply-Kit-w-Clip-Cord-and-Flat-Foot-Pedal.html)
 
 ### Positive Reviews

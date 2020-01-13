@@ -1,12 +1,3 @@
----
-title: Niven Morgan Gold Body Lotion,
-description: Niven Morgan Gold Body Lotion,
-author: Suvojit Manna,
-tags: Niven Morgan Gold Body Lotion,
-publishedAt: Fri Jan 10 2020 14:59:48 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:48 GMT+0530 (India Standard Time),
----
-
 # [Niven Morgan Gold Body Lotion](https://products.checkmycream.com/products/Niven-Morgan-Gold-Body-Lotion.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: No Lift Nails Fung-Off Antifungal,
-description: No Lift Nails Fung-Off Antifungal,
-author: Suvojit Manna,
-tags: No Lift Nails Fung-Off Antifungal,
-publishedAt: Fri Jan 10 2020 14:58:59 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:58:59 GMT+0530 (India Standard Time),
----
-
 # [No Lift Nails Fung-Off Antifungal](https://products.checkmycream.com/products/No-Lift-Nails-Fung-Off-Antifungal.html)
 
 ### Positive Reviews

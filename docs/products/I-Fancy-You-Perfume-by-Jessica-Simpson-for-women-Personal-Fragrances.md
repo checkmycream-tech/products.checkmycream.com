@@ -1,12 +1,3 @@
----
-title: I Fancy You Perfume by Jessica Simpson for women Personal Fragrances,
-description: I Fancy You Perfume by Jessica Simpson for women Personal Fragrances,
-author: Suvojit Manna,
-tags: I Fancy You Perfume by Jessica Simpson for women Personal Fragrances,
-publishedAt: Fri Jan 10 2020 15:00:10 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:10 GMT+0530 (India Standard Time),
----
-
 # [I Fancy You Perfume by Jessica Simpson for women Personal Fragrances](https://products.checkmycream.com/products/I-Fancy-You-Perfume-by-Jessica-Simpson-for-women-Personal-Fragrances.html)
 
 ### Positive Reviews

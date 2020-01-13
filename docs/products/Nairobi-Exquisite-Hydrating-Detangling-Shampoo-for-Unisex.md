@@ -1,12 +1,3 @@
----
-title: Nairobi Exquisite Hydrating Detangling Shampoo for Unisex,
-description: Nairobi Exquisite Hydrating Detangling Shampoo for Unisex,
-author: Suvojit Manna,
-tags: Nairobi Exquisite Hydrating Detangling Shampoo for Unisex,
-publishedAt: Fri Jan 10 2020 14:59:44 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:44 GMT+0530 (India Standard Time),
----
-
 # [Nairobi Exquisite Hydrating Detangling Shampoo for Unisex](https://products.checkmycream.com/products/Nairobi-Exquisite-Hydrating-Detangling-Shampoo-for-Unisex.html)
 
 ### Positive Reviews

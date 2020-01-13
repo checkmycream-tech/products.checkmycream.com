@@ -1,12 +1,3 @@
----
-title: NYX Lovestruck Mega Shine Lip Gloss - 3 Piece Set,
-description: NYX Lovestruck Mega Shine Lip Gloss - 3 Piece Set,
-author: Suvojit Manna,
-tags: NYX Lovestruck Mega Shine Lip Gloss - 3 Piece Set,
-publishedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
----
-
 # [NYX Lovestruck Mega Shine Lip Gloss - 3 Piece Set](https://products.checkmycream.com/products/NYX-Lovestruck-Mega-Shine-Lip-Gloss-3-Piece-Set.html)
 
 ### Positive Reviews

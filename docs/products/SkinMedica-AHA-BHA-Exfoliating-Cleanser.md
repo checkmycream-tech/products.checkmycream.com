@@ -1,12 +1,3 @@
----
-title: SkinMedica AHA BHA Exfoliating Cleanser,
-description: SkinMedica AHA BHA Exfoliating Cleanser,
-author: Suvojit Manna,
-tags: SkinMedica AHA BHA Exfoliating Cleanser,
-publishedAt: Fri Jan 10 2020 15:00:36 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:36 GMT+0530 (India Standard Time),
----
-
 # [SkinMedica AHA BHA Exfoliating Cleanser](https://products.checkmycream.com/products/SkinMedica-AHA-BHA-Exfoliating-Cleanser.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Nufree Finipil Professional Antiseptic Cream,
-description: Nufree Finipil Professional Antiseptic Cream,
-author: Suvojit Manna,
-tags: Nufree Finipil Professional Antiseptic Cream,
-publishedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
----
-
 # [Nufree Finipil Professional Antiseptic Cream](https://products.checkmycream.com/products/Nufree-Finipil-Professional-Antiseptic-Cream.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Jean Paul Gaultier Le Beau Male Eau de Toilette Spray, 4.2 Ounce,
-description: Jean Paul Gaultier Le Beau Male Eau de Toilette Spray, 4.2 Ounce,
-author: Suvojit Manna,
-tags: Jean Paul Gaultier Le Beau Male Eau de Toilette Spray, 4.2 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
----
-
 # [Jean Paul Gaultier Le Beau Male Eau de Toilette Spray, 4.2 Ounce](https://products.checkmycream.com/products/Jean-Paul-Gaultier-Le-Beau-Male-Eau-de-Toilette-Spray-4.2-Ounce.html)
 
 ### Positive Reviews

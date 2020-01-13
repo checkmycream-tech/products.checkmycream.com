@@ -1,12 +1,3 @@
----
-title: Mary Kay Brow Gel,
-description: Mary Kay Brow Gel,
-author: Suvojit Manna,
-tags: Mary Kay Brow Gel,
-publishedAt: Fri Jan 10 2020 14:59:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:55 GMT+0530 (India Standard Time),
----
-
 # [Mary Kay Brow Gel](https://products.checkmycream.com/products/Mary-Kay-Brow-Gel.html)
 
 ### Positive Reviews

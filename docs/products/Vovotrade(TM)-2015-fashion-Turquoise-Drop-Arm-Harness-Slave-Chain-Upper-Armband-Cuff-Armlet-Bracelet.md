@@ -1,12 +1,3 @@
----
-title: Vovotrade(TM) 2015 fashion Turquoise Drop Arm Harness Slave Chain Upper Armband Cuff Armlet Bracelet,
-description: Vovotrade(TM) 2015 fashion Turquoise Drop Arm Harness Slave Chain Upper Armband Cuff Armlet Bracelet,
-author: Suvojit Manna,
-tags: Vovotrade(TM) 2015 fashion Turquoise Drop Arm Harness Slave Chain Upper Armband Cuff Armlet Bracelet,
-publishedAt: Fri Jan 10 2020 15:01:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:05 GMT+0530 (India Standard Time),
----
-
 # [Vovotrade(TM) 2015 fashion Turquoise Drop Arm Harness Slave Chain Upper Armband Cuff Armlet Bracelet](https://products.checkmycream.com/products/Vovotrade(TM)-2015-fashion-Turquoise-Drop-Arm-Harness-Slave-Chain-Upper-Armband-Cuff-Armlet-Bracelet.html)
 
 ### Positive Reviews

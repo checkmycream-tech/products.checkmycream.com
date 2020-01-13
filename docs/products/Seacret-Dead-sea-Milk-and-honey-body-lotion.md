@@ -1,12 +1,3 @@
----
-title: Seacret Dead sea Milk and honey body lotion,
-description: Seacret Dead sea Milk and honey body lotion,
-author: Suvojit Manna,
-tags: Seacret Dead sea Milk and honey body lotion,
-publishedAt: Fri Jan 10 2020 15:00:16 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:16 GMT+0530 (India Standard Time),
----
-
 # [Seacret Dead sea Milk and honey body lotion](https://products.checkmycream.com/products/Seacret-Dead-sea-Milk-and-honey-body-lotion.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Scunci Girl Hair Scrunchies, Assorted 8 ea,
-description: Scunci Girl Hair Scrunchies, Assorted 8 ea,
-author: Suvojit Manna,
-tags: Scunci Girl Hair Scrunchies, Assorted 8 ea,
-publishedAt: Fri Jan 10 2020 14:59:46 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:46 GMT+0530 (India Standard Time),
----
-
 # [Scunci Girl Hair Scrunchies, Assorted 8 ea](https://products.checkmycream.com/products/Scunci-Girl-Hair-Scrunchies-Assorted-8-ea.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Layrite Grooming Spray 8 oz,
-description: Layrite Grooming Spray 8 oz,
-author: Suvojit Manna,
-tags: Layrite Grooming Spray 8 oz,
-publishedAt: Fri Jan 10 2020 15:00:14 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:14 GMT+0530 (India Standard Time),
----
-
 # [Layrite Grooming Spray 8 oz](https://products.checkmycream.com/products/Layrite-Grooming-Spray-8-oz.html)
 
 ### Positive Reviews

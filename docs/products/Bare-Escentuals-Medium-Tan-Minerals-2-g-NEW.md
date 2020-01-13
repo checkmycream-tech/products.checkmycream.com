@@ -1,12 +1,3 @@
----
-title: Bare Escentuals Medium Tan Minerals 2 g NEW,
-description: Bare Escentuals Medium Tan Minerals 2 g NEW,
-author: Suvojit Manna,
-tags: Bare Escentuals Medium Tan Minerals 2 g NEW,
-publishedAt: Fri Jan 10 2020 14:59:32 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:32 GMT+0530 (India Standard Time),
----
-
 # [Bare Escentuals Medium Tan Minerals 2 g NEW](https://products.checkmycream.com/products/Bare-Escentuals-Medium-Tan-Minerals-2-g-NEW.html)
 
 ### Positive Reviews

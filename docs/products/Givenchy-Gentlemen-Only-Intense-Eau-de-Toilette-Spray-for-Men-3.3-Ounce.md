@@ -1,12 +1,3 @@
----
-title: Givenchy Gentlemen Only Intense Eau de Toilette Spray for Men, 3.3 Ounce,
-description: Givenchy Gentlemen Only Intense Eau de Toilette Spray for Men, 3.3 Ounce,
-author: Suvojit Manna,
-tags: Givenchy Gentlemen Only Intense Eau de Toilette Spray for Men, 3.3 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
----
-
 # [Givenchy Gentlemen Only Intense Eau de Toilette Spray for Men, 3.3 Ounce](https://products.checkmycream.com/products/Givenchy-Gentlemen-Only-Intense-Eau-de-Toilette-Spray-for-Men-3.3-Ounce.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: SEA Breeze Astringent for Skin &amp; Scalp 32oz/946ml,
-description: SEA Breeze Astringent for Skin &amp; Scalp 32oz/946ml,
-author: Suvojit Manna,
-tags: SEA Breeze Astringent for Skin &amp; Scalp 32oz/946ml,
-publishedAt: Fri Jan 10 2020 14:59:07 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:07 GMT+0530 (India Standard Time),
----
-
 # [SEA Breeze Astringent for Skin &amp; Scalp 32oz/946ml](https://products.checkmycream.com/products/SEA-Breeze-Astringent-for-Skin-and-Scalp-32oz946ml.html)
 
 ### Positive Reviews

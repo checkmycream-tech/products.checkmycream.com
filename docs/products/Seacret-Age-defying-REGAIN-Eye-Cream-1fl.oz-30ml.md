@@ -1,12 +1,3 @@
----
-title: Seacret Age-defying REGAIN - Eye Cream 1fl.oz/ 30ml,
-description: Seacret Age-defying REGAIN - Eye Cream 1fl.oz/ 30ml,
-author: Suvojit Manna,
-tags: Seacret Age-defying REGAIN - Eye Cream 1fl.oz/ 30ml,
-publishedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
----
-
 # [Seacret Age-defying REGAIN - Eye Cream 1fl.oz/ 30ml](https://products.checkmycream.com/products/Seacret-Age-defying-REGAIN-Eye-Cream-1fl.oz-30ml.html)
 
 ### Positive Reviews

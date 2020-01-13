@@ -1,12 +1,3 @@
----
-title: Bvlgari Man Cologne by Bvlgari for men Colognes,
-description: Bvlgari Man Cologne by Bvlgari for men Colognes,
-author: Suvojit Manna,
-tags: Bvlgari Man Cologne by Bvlgari for men Colognes,
-publishedAt: Fri Jan 10 2020 14:59:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:56 GMT+0530 (India Standard Time),
----
-
 # [Bvlgari Man Cologne by Bvlgari for men Colognes](https://products.checkmycream.com/products/Bvlgari-Man-Cologne-by-Bvlgari-for-men-Colognes.html)
 
 ### Positive Reviews

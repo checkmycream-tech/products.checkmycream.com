@@ -1,12 +1,3 @@
----
-title: Kerastase Nectar Thermique 1.69 oz,
-description: Kerastase Nectar Thermique 1.69 oz,
-author: Suvojit Manna,
-tags: Kerastase Nectar Thermique 1.69 oz,
-publishedAt: Fri Jan 10 2020 14:59:52 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:52 GMT+0530 (India Standard Time),
----
-
 # [Kerastase Nectar Thermique 1.69 oz](https://products.checkmycream.com/products/Kerastase-Nectar-Thermique-1.69-oz.html)
 
 ### Positive Reviews

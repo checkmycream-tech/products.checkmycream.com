@@ -1,12 +1,3 @@
----
-title: ALFA PARF Lisse Design Keratin Therapy Rehydrating Mask for Unisex, 17.63 Ounce,
-description: ALFA PARF Lisse Design Keratin Therapy Rehydrating Mask for Unisex, 17.63 Ounce,
-author: Suvojit Manna,
-tags: ALFA PARF Lisse Design Keratin Therapy Rehydrating Mask for Unisex, 17.63 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
----
-
 # [ALFA PARF Lisse Design Keratin Therapy Rehydrating Mask for Unisex, 17.63 Ounce](https://products.checkmycream.com/products/ALFA-PARF-Lisse-Design-Keratin-Therapy-Rehydrating-Mask-for-Unisex-17.63-Ounce.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: NEW 5 Oz. Fresh Breasts Lotion - The Solution for Women - NEW 5 OZ tube,
-description: NEW 5 Oz. Fresh Breasts Lotion - The Solution for Women - NEW 5 OZ tube,
-author: Suvojit Manna,
-tags: NEW 5 Oz. Fresh Breasts Lotion - The Solution for Women - NEW 5 OZ tube,
-publishedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
----
-
 # [NEW 5 Oz. Fresh Breasts Lotion - The Solution for Women - NEW 5 OZ tube](https://products.checkmycream.com/products/NEW-5-Oz.-Fresh-Breasts-Lotion-The-Solution-for-Women-NEW-5-OZ-tube.html)
 
 ### Positive Reviews

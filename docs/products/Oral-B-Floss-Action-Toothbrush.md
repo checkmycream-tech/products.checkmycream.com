@@ -1,12 +1,3 @@
----
-title: Oral-B Floss Action Toothbrush,
-description: Oral-B Floss Action Toothbrush,
-author: Suvojit Manna,
-tags: Oral-B Floss Action Toothbrush,
-publishedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
----
-
 # [Oral-B Floss Action Toothbrush](https://products.checkmycream.com/products/Oral-B-Floss-Action-Toothbrush.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: ResMed Swift FX Tube Assembly, 61528,
-description: ResMed Swift FX Tube Assembly, 61528,
-author: Suvojit Manna,
-tags: ResMed Swift FX Tube Assembly, 61528,
-publishedAt: Fri Jan 10 2020 15:00:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:08 GMT+0530 (India Standard Time),
----
-
 # [ResMed Swift FX Tube Assembly, 61528](https://products.checkmycream.com/products/ResMed-Swift-FX-Tube-Assembly-61528.html)
 
 ### Positive Reviews

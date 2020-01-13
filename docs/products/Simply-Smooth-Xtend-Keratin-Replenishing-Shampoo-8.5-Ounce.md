@@ -1,12 +1,3 @@
----
-title: Simply Smooth Xtend Keratin Replenishing Shampoo, 8.5 Ounce,
-description: Simply Smooth Xtend Keratin Replenishing Shampoo, 8.5 Ounce,
-author: Suvojit Manna,
-tags: Simply Smooth Xtend Keratin Replenishing Shampoo, 8.5 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:48 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:48 GMT+0530 (India Standard Time),
----
-
 # [Simply Smooth Xtend Keratin Replenishing Shampoo, 8.5 Ounce](https://products.checkmycream.com/products/Simply-Smooth-Xtend-Keratin-Replenishing-Shampoo-8.5-Ounce.html)
 
 ### Positive Reviews

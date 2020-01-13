@@ -1,12 +1,3 @@
----
-title: Mineral Fusion Natural Brands Mineral Body Lotion, Unscented, 8oz,
-description: Mineral Fusion Natural Brands Mineral Body Lotion, Unscented, 8oz,
-author: Suvojit Manna,
-tags: Mineral Fusion Natural Brands Mineral Body Lotion, Unscented, 8oz,
-publishedAt: Fri Jan 10 2020 14:59:46 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:46 GMT+0530 (India Standard Time),
----
-
 # [Mineral Fusion Natural Brands Mineral Body Lotion, Unscented, 8oz](https://products.checkmycream.com/products/Mineral-Fusion-Natural-Brands-Mineral-Body-Lotion-Unscented-8oz.html)
 
 ### Positive Reviews

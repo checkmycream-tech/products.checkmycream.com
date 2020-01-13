@@ -1,12 +1,3 @@
----
-title: Sannysis Jewelry Gold Thick Chain Street Snap Lady Shiny Rhinestones Necklace,
-description: Sannysis Jewelry Gold Thick Chain Street Snap Lady Shiny Rhinestones Necklace,
-author: Suvojit Manna,
-tags: Sannysis Jewelry Gold Thick Chain Street Snap Lady Shiny Rhinestones Necklace,
-publishedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
----
-
 # [Sannysis Jewelry Gold Thick Chain Street Snap Lady Shiny Rhinestones Necklace](https://products.checkmycream.com/products/Sannysis-Jewelry-Gold-Thick-Chain-Street-Snap-Lady-Shiny-Rhinestones-Necklace.html)
 
 ### Positive Reviews

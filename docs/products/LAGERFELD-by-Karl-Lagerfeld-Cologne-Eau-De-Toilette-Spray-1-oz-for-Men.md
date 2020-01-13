@@ -1,12 +1,3 @@
----
-title: LAGERFELD by Karl Lagerfeld Cologne / Eau De Toilette Spray 1 oz for Men,
-description: LAGERFELD by Karl Lagerfeld Cologne / Eau De Toilette Spray 1 oz for Men,
-author: Suvojit Manna,
-tags: LAGERFELD by Karl Lagerfeld Cologne / Eau De Toilette Spray 1 oz for Men,
-publishedAt: Fri Jan 10 2020 14:59:09 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:09 GMT+0530 (India Standard Time),
----
-
 # [LAGERFELD by Karl Lagerfeld Cologne / Eau De Toilette Spray 1 oz for Men](https://products.checkmycream.com/products/LAGERFELD-by-Karl-Lagerfeld-Cologne-Eau-De-Toilette-Spray-1-oz-for-Men.html)
 
 ### Positive Reviews

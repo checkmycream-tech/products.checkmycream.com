@@ -1,12 +1,3 @@
----
-title: Mehaz Professional Cuticle Nipper, Stainless Steel Cobalt, 1/4 Inch Jaw,
-description: Mehaz Professional Cuticle Nipper, Stainless Steel Cobalt, 1/4 Inch Jaw,
-author: Suvojit Manna,
-tags: Mehaz Professional Cuticle Nipper, Stainless Steel Cobalt, 1/4 Inch Jaw,
-publishedAt: Fri Jan 10 2020 14:59:04 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:04 GMT+0530 (India Standard Time),
----
-
 # [Mehaz Professional Cuticle Nipper, Stainless Steel Cobalt, 1/4 Inch Jaw](https://products.checkmycream.com/products/Mehaz-Professional-Cuticle-Nipper-Stainless-Steel-Cobalt-14-Inch-Jaw.html)
 
 ### Positive Reviews

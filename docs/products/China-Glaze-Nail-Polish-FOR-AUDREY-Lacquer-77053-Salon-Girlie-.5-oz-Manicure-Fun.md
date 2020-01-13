@@ -1,12 +1,3 @@
----
-title: China Glaze Nail Polish FOR AUDREY Lacquer 77053 Salon Girlie .5 oz Manicure Fun,
-description: China Glaze Nail Polish FOR AUDREY Lacquer 77053 Salon Girlie .5 oz Manicure Fun,
-author: Suvojit Manna,
-tags: China Glaze Nail Polish FOR AUDREY Lacquer 77053 Salon Girlie .5 oz Manicure Fun,
-publishedAt: Fri Jan 10 2020 15:00:28 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:28 GMT+0530 (India Standard Time),
----
-
 # [China Glaze Nail Polish FOR AUDREY Lacquer 77053 Salon Girlie .5 oz Manicure Fun](https://products.checkmycream.com/products/China-Glaze-Nail-Polish-FOR-AUDREY-Lacquer-77053-Salon-Girlie-.5-oz-Manicure-Fun.html)
 
 ### Positive Reviews

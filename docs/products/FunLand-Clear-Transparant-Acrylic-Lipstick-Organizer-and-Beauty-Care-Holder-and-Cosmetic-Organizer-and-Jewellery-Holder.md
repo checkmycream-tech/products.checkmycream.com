@@ -1,12 +1,3 @@
----
-title: FunLand Clear Transparant Acrylic Lipstick Organizer &amp; Beauty Care Holder &amp; Cosmetic Organizer &amp; Jewellery Holder,
-description: FunLand Clear Transparant Acrylic Lipstick Organizer &amp; Beauty Care Holder &amp; Cosmetic Organizer &amp; Jewellery Holder,
-author: Suvojit Manna,
-tags: FunLand Clear Transparant Acrylic Lipstick Organizer &amp; Beauty Care Holder &amp; Cosmetic Organizer &amp; Jewellery Holder,
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [FunLand Clear Transparant Acrylic Lipstick Organizer &amp; Beauty Care Holder &amp; Cosmetic Organizer &amp; Jewellery Holder](https://products.checkmycream.com/products/FunLand-Clear-Transparant-Acrylic-Lipstick-Organizer-and-Beauty-Care-Holder-and-Cosmetic-Organizer-and-Jewellery-Holder.html)
 
 ### Positive Reviews

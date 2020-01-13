@@ -1,12 +1,3 @@
----
-title: Lady Speed Stick Antiperspirant Deodorant, Power, Fusion, Gel - 2.3 oz (6 Pack),
-description: Lady Speed Stick Antiperspirant Deodorant, Power, Fusion, Gel - 2.3 oz (6 Pack),
-author: Suvojit Manna,
-tags: Lady Speed Stick Antiperspirant Deodorant, Power, Fusion, Gel - 2.3 oz (6 Pack),
-publishedAt: Fri Jan 10 2020 14:59:30 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:30 GMT+0530 (India Standard Time),
----
-
 # [Lady Speed Stick Antiperspirant Deodorant, Power, Fusion, Gel - 2.3 oz (6 Pack)](https://products.checkmycream.com/products/Lady-Speed-Stick-Antiperspirant-Deodorant-Power-Fusion-Gel-2.3-oz-(6-Pack).html)
 
 ### Positive Reviews

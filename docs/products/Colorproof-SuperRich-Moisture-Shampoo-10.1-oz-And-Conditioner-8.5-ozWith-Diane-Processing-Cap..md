@@ -1,12 +1,3 @@
----
-title: Colorproof SuperRich Moisture Shampoo 10.1 oz And Conditioner 8.5 ozWith Diane Processing Cap.,
-description: Colorproof SuperRich Moisture Shampoo 10.1 oz And Conditioner 8.5 ozWith Diane Processing Cap.,
-author: Suvojit Manna,
-tags: Colorproof SuperRich Moisture Shampoo 10.1 oz And Conditioner 8.5 ozWith Diane Processing Cap.,
-publishedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
----
-
 # [Colorproof SuperRich Moisture Shampoo 10.1 oz And Conditioner 8.5 ozWith Diane Processing Cap.](https://products.checkmycream.com/products/Colorproof-SuperRich-Moisture-Shampoo-10.1-oz-And-Conditioner-8.5-ozWith-Diane-Processing-Cap..html)
 
 ### Positive Reviews

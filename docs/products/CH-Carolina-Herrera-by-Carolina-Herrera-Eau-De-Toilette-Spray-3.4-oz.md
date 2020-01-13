@@ -1,12 +1,3 @@
----
-title: CH Carolina Herrera by Carolina Herrera Eau De Toilette Spray 3.4 oz,
-description: CH Carolina Herrera by Carolina Herrera Eau De Toilette Spray 3.4 oz,
-author: Suvojit Manna,
-tags: CH Carolina Herrera by Carolina Herrera Eau De Toilette Spray 3.4 oz,
-publishedAt: Fri Jan 10 2020 14:59:12 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:12 GMT+0530 (India Standard Time),
----
-
 # [CH Carolina Herrera by Carolina Herrera Eau De Toilette Spray 3.4 oz](https://products.checkmycream.com/products/CH-Carolina-Herrera-by-Carolina-Herrera-Eau-De-Toilette-Spray-3.4-oz.html)
 
 ### Positive Reviews

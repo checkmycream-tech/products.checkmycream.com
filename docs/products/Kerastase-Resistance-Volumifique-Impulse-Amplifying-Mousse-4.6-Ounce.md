@@ -1,12 +1,3 @@
----
-title: Kerastase Resistance Volumifique Impulse Amplifying Mousse, 4.6 Ounce,
-description: Kerastase Resistance Volumifique Impulse Amplifying Mousse, 4.6 Ounce,
-author: Suvojit Manna,
-tags: Kerastase Resistance Volumifique Impulse Amplifying Mousse, 4.6 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
----
-
 # [Kerastase Resistance Volumifique Impulse Amplifying Mousse, 4.6 Ounce](https://products.checkmycream.com/products/Kerastase-Resistance-Volumifique-Impulse-Amplifying-Mousse-4.6-Ounce.html)
 
 ### Positive Reviews

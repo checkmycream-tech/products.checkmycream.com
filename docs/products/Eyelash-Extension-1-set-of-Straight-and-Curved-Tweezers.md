@@ -1,12 +1,3 @@
----
-title: Eyelash Extension 1-set of Straight &amp; Curved Tweezers,
-description: Eyelash Extension 1-set of Straight &amp; Curved Tweezers,
-author: Suvojit Manna,
-tags: Eyelash Extension 1-set of Straight &amp; Curved Tweezers,
-publishedAt: Fri Jan 10 2020 15:00:10 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:10 GMT+0530 (India Standard Time),
----
-
 # [Eyelash Extension 1-set of Straight &amp; Curved Tweezers](https://products.checkmycream.com/products/Eyelash-Extension-1-set-of-Straight-and-Curved-Tweezers.html)
 
 ### Positive Reviews

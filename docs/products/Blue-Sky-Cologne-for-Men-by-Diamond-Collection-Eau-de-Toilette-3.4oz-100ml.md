@@ -1,12 +1,3 @@
----
-title: Blue Sky Cologne for Men by Diamond Collection Eau de Toilette 3.4oz / 100ml,
-description: Blue Sky Cologne for Men by Diamond Collection Eau de Toilette 3.4oz / 100ml,
-author: Suvojit Manna,
-tags: Blue Sky Cologne for Men by Diamond Collection Eau de Toilette 3.4oz / 100ml,
-publishedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
----
-
 # [Blue Sky Cologne for Men by Diamond Collection Eau de Toilette 3.4oz / 100ml](https://products.checkmycream.com/products/Blue-Sky-Cologne-for-Men-by-Diamond-Collection-Eau-de-Toilette-3.4oz-100ml.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Jane Iredale PurePressed Base Mineral Foundation SPF 20, Light Beige - Refill,
-description: Jane Iredale PurePressed Base Mineral Foundation SPF 20, Light Beige - Refill,
-author: Suvojit Manna,
-tags: Jane Iredale PurePressed Base Mineral Foundation SPF 20, Light Beige - Refill,
-publishedAt: Fri Jan 10 2020 14:59:45 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:45 GMT+0530 (India Standard Time),
----
-
 # [Jane Iredale PurePressed Base Mineral Foundation SPF 20, Light Beige - Refill](https://products.checkmycream.com/products/Jane-Iredale-PurePressed-Base-Mineral-Foundation-SPF-20-Light-Beige-Refill.html)
 
 ### Positive Reviews

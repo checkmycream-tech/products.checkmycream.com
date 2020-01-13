@@ -1,12 +1,3 @@
----
-title: Idylle by Guerlain, 3.4 Ounce,
-description: Idylle by Guerlain, 3.4 Ounce,
-author: Suvojit Manna,
-tags: Idylle by Guerlain, 3.4 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:43 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:43 GMT+0530 (India Standard Time),
----
-
 # [Idylle by Guerlain, 3.4 Ounce](https://products.checkmycream.com/products/Idylle-by-Guerlain-3.4-Ounce.html)
 
 ### Positive Reviews

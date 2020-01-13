@@ -1,12 +1,3 @@
----
-title: GiGi No Bump Body Scrub with Salicylic Acid for Ingrown Hair &amp; Razor Burns, 6 oz,
-description: GiGi No Bump Body Scrub with Salicylic Acid for Ingrown Hair &amp; Razor Burns, 6 oz,
-author: Suvojit Manna,
-tags: GiGi No Bump Body Scrub with Salicylic Acid for Ingrown Hair &amp; Razor Burns, 6 oz,
-publishedAt: Fri Jan 10 2020 14:59:26 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:26 GMT+0530 (India Standard Time),
----
-
 # [GiGi No Bump Body Scrub with Salicylic Acid for Ingrown Hair &amp; Razor Burns, 6 oz](https://products.checkmycream.com/products/GiGi-No-Bump-Body-Scrub-with-Salicylic-Acid-for-Ingrown-Hair-and-Razor-Burns-6-oz.html)
 
 ### Positive Reviews

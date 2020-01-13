@@ -1,12 +1,3 @@
----
-title: Sex In The City by Sex In The City Perfume for Women Lust Eau De Parfum Spray, 3.3 Ounce,
-description: Sex In The City by Sex In The City Perfume for Women Lust Eau De Parfum Spray, 3.3 Ounce,
-author: Suvojit Manna,
-tags: Sex In The City by Sex In The City Perfume for Women Lust Eau De Parfum Spray, 3.3 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:48 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:48 GMT+0530 (India Standard Time),
----
-
 # [Sex In The City by Sex In The City Perfume for Women Lust Eau De Parfum Spray, 3.3 Ounce](https://products.checkmycream.com/products/Sex-In-The-City-by-Sex-In-The-City-Perfume-for-Women-Lust-Eau-De-Parfum-Spray-3.3-Ounce.html)
 
 ### Positive Reviews

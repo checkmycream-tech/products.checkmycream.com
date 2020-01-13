@@ -1,12 +1,3 @@
----
-title: Glamour My Eyes Mineral Eyeshadow - White Sparkle,
-description: Glamour My Eyes Mineral Eyeshadow - White Sparkle,
-author: Suvojit Manna,
-tags: Glamour My Eyes Mineral Eyeshadow - White Sparkle,
-publishedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
----
-
 # [Glamour My Eyes Mineral Eyeshadow - White Sparkle](https://products.checkmycream.com/products/Glamour-My-Eyes-Mineral-Eyeshadow-White-Sparkle.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Schick Hydro 5 System: 1 Razor + 15 Cartridges Refills,
-description: Schick Hydro 5 System: 1 Razor + 15 Cartridges Refills,
-author: Suvojit Manna,
-tags: Schick Hydro 5 System: 1 Razor + 15 Cartridges Refills,
-publishedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
----
-
 # [Schick Hydro 5 System: 1 Razor + 15 Cartridges Refills](https://products.checkmycream.com/products/Schick-Hydro-5-System:-1-Razor-+-15-Cartridges-Refills.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Curve Crush By Liz Claiborne For Men. Cologne Spray,
-description: Curve Crush By Liz Claiborne For Men. Cologne Spray,
-author: Suvojit Manna,
-tags: Curve Crush By Liz Claiborne For Men. Cologne Spray,
-publishedAt: Fri Jan 10 2020 14:59:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:05 GMT+0530 (India Standard Time),
----
-
 # [Curve Crush By Liz Claiborne For Men. Cologne Spray](https://products.checkmycream.com/products/Curve-Crush-By-Liz-Claiborne-For-Men.-Cologne-Spray.html)
 
 ### Positive Reviews

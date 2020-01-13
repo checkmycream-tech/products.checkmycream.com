@@ -1,12 +1,3 @@
----
-title: Alluring Lash Care Prep Primer Eyelash Extension,
-description: Alluring Lash Care Prep Primer Eyelash Extension,
-author: Suvojit Manna,
-tags: Alluring Lash Care Prep Primer Eyelash Extension,
-publishedAt: Fri Jan 10 2020 15:00:18 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:18 GMT+0530 (India Standard Time),
----
-
 # [Alluring Lash Care Prep Primer Eyelash Extension](https://products.checkmycream.com/products/Alluring-Lash-Care-Prep-Primer-Eyelash-Extension.html)
 
 ### Positive Reviews

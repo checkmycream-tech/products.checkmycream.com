@@ -1,12 +1,3 @@
----
-title: Thymes Kimono Rose Hand Lotion,
-description: Thymes Kimono Rose Hand Lotion,
-author: Suvojit Manna,
-tags: Thymes Kimono Rose Hand Lotion,
-publishedAt: Fri Jan 10 2020 14:59:43 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:43 GMT+0530 (India Standard Time),
----
-
 # [Thymes Kimono Rose Hand Lotion](https://products.checkmycream.com/products/Thymes-Kimono-Rose-Hand-Lotion.html)
 
 ### Positive Reviews

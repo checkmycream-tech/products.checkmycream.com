@@ -1,12 +1,3 @@
----
-title: White Plastic Jar with Dome Lid 1/2 Oz (12 Per Bag),
-description: White Plastic Jar with Dome Lid 1/2 Oz (12 Per Bag),
-author: Suvojit Manna,
-tags: White Plastic Jar with Dome Lid 1/2 Oz (12 Per Bag),
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [White Plastic Jar with Dome Lid 1/2 Oz (12 Per Bag)](https://products.checkmycream.com/products/White-Plastic-Jar-with-Dome-Lid-12-Oz-(12-Per-Bag).html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Adjustable Comfortable Health Slippers, Mens (9-10), Navy,
-description: Adjustable Comfortable Health Slippers, Mens (9-10), Navy,
-author: Suvojit Manna,
-tags: Adjustable Comfortable Health Slippers, Mens (9-10), Navy,
-publishedAt: Fri Jan 10 2020 15:00:10 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:10 GMT+0530 (India Standard Time),
----
-
 # [Adjustable Comfortable Health Slippers, Mens (9-10), Navy](https://products.checkmycream.com/products/Adjustable-Comfortable-Health-Slippers-Mens-(9-10)-Navy.html)
 
 ### Positive Reviews

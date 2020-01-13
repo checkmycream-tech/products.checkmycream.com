@@ -1,12 +1,3 @@
----
-title: Australian Gold Aloe Freeze Spray Gel 8 Ounce (235ml),
-description: Australian Gold Aloe Freeze Spray Gel 8 Ounce (235ml),
-author: Suvojit Manna,
-tags: Australian Gold Aloe Freeze Spray Gel 8 Ounce (235ml),
-publishedAt: Fri Jan 10 2020 14:59:20 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:20 GMT+0530 (India Standard Time),
----
-
 # [Australian Gold Aloe Freeze Spray Gel 8 Ounce (235ml)](https://products.checkmycream.com/products/Australian-Gold-Aloe-Freeze-Spray-Gel-8-Ounce-(235ml).html)
 
 ### Positive Reviews

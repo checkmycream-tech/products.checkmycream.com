@@ -1,12 +1,3 @@
----
-title: Cococare 100% Vitamin E Oil, 1 Ounce,
-description: Cococare 100% Vitamin E Oil, 1 Ounce,
-author: Suvojit Manna,
-tags: Cococare 100% Vitamin E Oil, 1 Ounce,
-publishedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
----
-
 # [Cococare 100% Vitamin E Oil, 1 Ounce](https://products.checkmycream.com/products/Cococare-100percent-Vitamin-E-Oil-1-Ounce.html)
 
 ### Positive Reviews

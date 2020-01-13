@@ -1,12 +1,3 @@
----
-title: Dead Sea Salt Scrub Almond Vanilla with Aromatic Oil,
-description: Dead Sea Salt Scrub Almond Vanilla with Aromatic Oil,
-author: Suvojit Manna,
-tags: Dead Sea Salt Scrub Almond Vanilla with Aromatic Oil,
-publishedAt: Fri Jan 10 2020 15:00:21 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:21 GMT+0530 (India Standard Time),
----
-
 # [Dead Sea Salt Scrub Almond Vanilla with Aromatic Oil](https://products.checkmycream.com/products/Dead-Sea-Salt-Scrub-Almond-Vanilla-with-Aromatic-Oil.html)
 
 ### Positive Reviews

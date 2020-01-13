@@ -1,12 +1,3 @@
----
-title: Tonsee Pearl Barefoot Sandal Foot Jewelry Anklet Chain,
-description: Tonsee Pearl Barefoot Sandal Foot Jewelry Anklet Chain,
-author: Suvojit Manna,
-tags: Tonsee Pearl Barefoot Sandal Foot Jewelry Anklet Chain,
-publishedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
----
-
 # [Tonsee Pearl Barefoot Sandal Foot Jewelry Anklet Chain](https://products.checkmycream.com/products/Tonsee-Pearl-Barefoot-Sandal-Foot-Jewelry-Anklet-Chain.html)
 
 ### Positive Reviews

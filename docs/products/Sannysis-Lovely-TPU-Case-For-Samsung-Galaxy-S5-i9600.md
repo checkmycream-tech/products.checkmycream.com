@@ -1,12 +1,3 @@
----
-title: Sannysis Lovely TPU Case For Samsung Galaxy S5 i9600,
-description: Sannysis Lovely TPU Case For Samsung Galaxy S5 i9600,
-author: Suvojit Manna,
-tags: Sannysis Lovely TPU Case For Samsung Galaxy S5 i9600,
-publishedAt: Fri Jan 10 2020 15:01:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:05 GMT+0530 (India Standard Time),
----
-
 # [Sannysis Lovely TPU Case For Samsung Galaxy S5 i9600](https://products.checkmycream.com/products/Sannysis-Lovely-TPU-Case-For-Samsung-Galaxy-S5-i9600.html)
 
 ### Positive Reviews

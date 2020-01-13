@@ -1,12 +1,3 @@
----
-title: Qishi&#x27;s Long 118 Inches Double Layer Accesory Wedding Bridal Veil,
-description: Qishi&#x27;s Long 118 Inches Double Layer Accesory Wedding Bridal Veil,
-author: Suvojit Manna,
-tags: Qishi&#x27;s Long 118 Inches Double Layer Accesory Wedding Bridal Veil,
-publishedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
----
-
 # [Qishi&#x27;s Long 118 Inches Double Layer Accesory Wedding Bridal Veil](https://products.checkmycream.com/products/Qishi&#x27;s-Long-118-Inches-Double-Layer-Accesory-Wedding-Bridal-Veil.html)
 
 ### Positive Reviews

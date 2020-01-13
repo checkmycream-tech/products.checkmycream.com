@@ -1,12 +1,3 @@
----
-title: Empress Re-Gro Hair Strengthening Cream  4 fl oz.,
-description: Empress Re-Gro Hair Strengthening Cream  4 fl oz.,
-author: Suvojit Manna,
-tags: Empress Re-Gro Hair Strengthening Cream  4 fl oz.,
-publishedAt: Fri Jan 10 2020 15:00:06 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:06 GMT+0530 (India Standard Time),
----
-
 # [Empress Re-Gro Hair Strengthening Cream  4 fl oz.](https://products.checkmycream.com/products/Empress-Re-Gro-Hair-Strengthening-Cream-4-fl-oz..html)
 
 ### Positive Reviews

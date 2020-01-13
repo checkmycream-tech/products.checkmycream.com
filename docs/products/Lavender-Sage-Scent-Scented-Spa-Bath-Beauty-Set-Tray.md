@@ -1,12 +1,3 @@
----
-title: Lavender Sage Scent Scented Spa Bath Beauty Set Tray,
-description: Lavender Sage Scent Scented Spa Bath Beauty Set Tray,
-author: Suvojit Manna,
-tags: Lavender Sage Scent Scented Spa Bath Beauty Set Tray,
-publishedAt: Fri Jan 10 2020 14:59:19 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:19 GMT+0530 (India Standard Time),
----
-
 # [Lavender Sage Scent Scented Spa Bath Beauty Set Tray](https://products.checkmycream.com/products/Lavender-Sage-Scent-Scented-Spa-Bath-Beauty-Set-Tray.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Environmental Defense Sunscreen SPF 50+ - Skin Medica - Sun Care - Face - 85g/3oz,
-description: Environmental Defense Sunscreen SPF 50+ - Skin Medica - Sun Care - Face - 85g/3oz,
-author: Suvojit Manna,
-tags: Environmental Defense Sunscreen SPF 50+ - Skin Medica - Sun Care - Face - 85g/3oz,
-publishedAt: Fri Jan 10 2020 15:00:11 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:11 GMT+0530 (India Standard Time),
----
-
 # [Environmental Defense Sunscreen SPF 50+ - Skin Medica - Sun Care - Face - 85g/3oz](https://products.checkmycream.com/products/Environmental-Defense-Sunscreen-SPF-50+-Skin-Medica-Sun-Care-Face-85g3oz.html)
 
 ### Positive Reviews

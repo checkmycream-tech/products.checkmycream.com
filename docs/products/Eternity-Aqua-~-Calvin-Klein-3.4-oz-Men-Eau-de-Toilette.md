@@ -1,12 +1,3 @@
----
-title: Eternity Aqua ~ Calvin Klein 3.4 oz Men Eau de Toilette,
-description: Eternity Aqua ~ Calvin Klein 3.4 oz Men Eau de Toilette,
-author: Suvojit Manna,
-tags: Eternity Aqua ~ Calvin Klein 3.4 oz Men Eau de Toilette,
-publishedAt: Fri Jan 10 2020 14:59:52 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:52 GMT+0530 (India Standard Time),
----
-
 # [Eternity Aqua ~ Calvin Klein 3.4 oz Men Eau de Toilette](https://products.checkmycream.com/products/Eternity-Aqua-~-Calvin-Klein-3.4-oz-Men-Eau-de-Toilette.html)
 
 ### Positive Reviews

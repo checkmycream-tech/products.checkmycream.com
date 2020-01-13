@@ -1,12 +1,3 @@
----
-title: Alien By Thierry Mugler Eau De Parfum Vial 1.2ml .04 oz,
-description: Alien By Thierry Mugler Eau De Parfum Vial 1.2ml .04 oz,
-author: Suvojit Manna,
-tags: Alien By Thierry Mugler Eau De Parfum Vial 1.2ml .04 oz,
-publishedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
----
-
 # [Alien By Thierry Mugler Eau De Parfum Vial 1.2ml .04 oz](https://products.checkmycream.com/products/Alien-By-Thierry-Mugler-Eau-De-Parfum-Vial-1.2ml-.04-oz.html)
 
 ### Positive Reviews

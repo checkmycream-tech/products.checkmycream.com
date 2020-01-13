@@ -1,12 +1,3 @@
----
-title: Joico K-Pak Color Therapy Restorative Styling Oil, 3.4 Fluid Ounce,
-description: Joico K-Pak Color Therapy Restorative Styling Oil, 3.4 Fluid Ounce,
-author: Suvojit Manna,
-tags: Joico K-Pak Color Therapy Restorative Styling Oil, 3.4 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 15:00:38 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:38 GMT+0530 (India Standard Time),
----
-
 # [Joico K-Pak Color Therapy Restorative Styling Oil, 3.4 Fluid Ounce](https://products.checkmycream.com/products/Joico-K-Pak-Color-Therapy-Restorative-Styling-Oil-3.4-Fluid-Ounce.html)
 
 ### Positive Reviews

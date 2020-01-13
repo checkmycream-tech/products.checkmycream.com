@@ -1,12 +1,3 @@
----
-title: Philosophy Purity Made Simple 3-in-1 Cleanser For Face And Eyes - One-Step Facial Cleanser 1 oz,
-description: Philosophy Purity Made Simple 3-in-1 Cleanser For Face And Eyes - One-Step Facial Cleanser 1 oz,
-author: Suvojit Manna,
-tags: Philosophy Purity Made Simple 3-in-1 Cleanser For Face And Eyes - One-Step Facial Cleanser 1 oz,
-publishedAt: Fri Jan 10 2020 14:59:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:56 GMT+0530 (India Standard Time),
----
-
 # [Philosophy Purity Made Simple 3-in-1 Cleanser For Face And Eyes - One-Step Facial Cleanser 1 oz](https://products.checkmycream.com/products/Philosophy-Purity-Made-Simple-3-in-1-Cleanser-For-Face-And-Eyes-One-Step-Facial-Cleanser-1-oz.html)
 
 ### Positive Reviews

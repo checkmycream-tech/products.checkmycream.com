@@ -1,12 +1,3 @@
----
-title: Royal Bain Caron Champagne By Caron For Men and Women. Eau De Toilette 4.2 Ounces,
-description: Royal Bain Caron Champagne By Caron For Men and Women. Eau De Toilette 4.2 Ounces,
-author: Suvojit Manna,
-tags: Royal Bain Caron Champagne By Caron For Men and Women. Eau De Toilette 4.2 Ounces,
-publishedAt: Fri Jan 10 2020 14:59:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:05 GMT+0530 (India Standard Time),
----
-
 # [Royal Bain Caron Champagne By Caron For Men and Women. Eau De Toilette 4.2 Ounces](https://products.checkmycream.com/products/Royal-Bain-Caron-Champagne-By-Caron-For-Men-and-Women.-Eau-De-Toilette-4.2-Ounces.html)
 
 ### Positive Reviews

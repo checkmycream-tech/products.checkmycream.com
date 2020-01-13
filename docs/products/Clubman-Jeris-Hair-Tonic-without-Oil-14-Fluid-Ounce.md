@@ -1,12 +1,3 @@
----
-title: Clubman Jeris Hair Tonic without Oil, 14 Fluid Ounce,
-description: Clubman Jeris Hair Tonic without Oil, 14 Fluid Ounce,
-author: Suvojit Manna,
-tags: Clubman Jeris Hair Tonic without Oil, 14 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
----
-
 # [Clubman Jeris Hair Tonic without Oil, 14 Fluid Ounce](https://products.checkmycream.com/products/Clubman-Jeris-Hair-Tonic-without-Oil-14-Fluid-Ounce.html)
 
 ### Positive Reviews

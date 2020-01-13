@@ -1,12 +1,3 @@
----
-title: Revision Vitamin C Lotion, 15%, 1 Fluid Ounce,
-description: Revision Vitamin C Lotion, 15%, 1 Fluid Ounce,
-author: Suvojit Manna,
-tags: Revision Vitamin C Lotion, 15%, 1 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 15:00:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:02 GMT+0530 (India Standard Time),
----
-
 # [Revision Vitamin C Lotion, 15%, 1 Fluid Ounce](https://products.checkmycream.com/products/Revision-Vitamin-C-Lotion-15percent-1-Fluid-Ounce.html)
 
 ### Positive Reviews

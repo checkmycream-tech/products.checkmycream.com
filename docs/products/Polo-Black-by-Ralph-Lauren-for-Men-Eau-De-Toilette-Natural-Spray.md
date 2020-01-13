@@ -1,12 +1,3 @@
----
-title: Polo Black by Ralph Lauren for Men, Eau De Toilette Natural Spray,
-description: Polo Black by Ralph Lauren for Men, Eau De Toilette Natural Spray,
-author: Suvojit Manna,
-tags: Polo Black by Ralph Lauren for Men, Eau De Toilette Natural Spray,
-publishedAt: Fri Jan 10 2020 14:59:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:08 GMT+0530 (India Standard Time),
----
-
 # [Polo Black by Ralph Lauren for Men, Eau De Toilette Natural Spray](https://products.checkmycream.com/products/Polo-Black-by-Ralph-Lauren-for-Men-Eau-De-Toilette-Natural-Spray.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: uxcell Cosmetic Alloy Shell Lip Gloss Lipstick Retractable Brush Orange for Women,
-description: uxcell Cosmetic Alloy Shell Lip Gloss Lipstick Retractable Brush Orange for Women,
-author: Suvojit Manna,
-tags: uxcell Cosmetic Alloy Shell Lip Gloss Lipstick Retractable Brush Orange for Women,
-publishedAt: Fri Jan 10 2020 15:00:36 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:36 GMT+0530 (India Standard Time),
----
-
 # [uxcell Cosmetic Alloy Shell Lip Gloss Lipstick Retractable Brush Orange for Women](https://products.checkmycream.com/products/uxcell-Cosmetic-Alloy-Shell-Lip-Gloss-Lipstick-Retractable-Brush-Orange-for-Women.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Dr Katz Therabreath Lozenges 72pc Box,
-description: Dr Katz Therabreath Lozenges 72pc Box,
-author: Suvojit Manna,
-tags: Dr Katz Therabreath Lozenges 72pc Box,
-publishedAt: Fri Jan 10 2020 15:00:17 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:17 GMT+0530 (India Standard Time),
----
-
 # [Dr Katz Therabreath Lozenges 72pc Box](https://products.checkmycream.com/products/Dr-Katz-Therabreath-Lozenges-72pc-Box.html)
 
 ### Positive Reviews

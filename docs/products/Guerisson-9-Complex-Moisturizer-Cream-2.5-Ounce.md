@@ -1,12 +1,3 @@
----
-title: Guerisson 9 Complex Moisturizer Cream, 2.5 Ounce,
-description: Guerisson 9 Complex Moisturizer Cream, 2.5 Ounce,
-author: Suvojit Manna,
-tags: Guerisson 9 Complex Moisturizer Cream, 2.5 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
----
-
 # [Guerisson 9 Complex Moisturizer Cream, 2.5 Ounce](https://products.checkmycream.com/products/Guerisson-9-Complex-Moisturizer-Cream-2.5-Ounce.html)
 
 ### Positive Reviews

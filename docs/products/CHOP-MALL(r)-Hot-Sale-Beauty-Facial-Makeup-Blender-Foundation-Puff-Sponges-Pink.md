@@ -1,12 +1,3 @@
----
-title: CHOP MALL® Hot Sale Beauty Facial Makeup Blender Foundation Puff Sponges Pink,
-description: CHOP MALL® Hot Sale Beauty Facial Makeup Blender Foundation Puff Sponges Pink,
-author: Suvojit Manna,
-tags: CHOP MALL® Hot Sale Beauty Facial Makeup Blender Foundation Puff Sponges Pink,
-publishedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
----
-
 # [CHOP MALL® Hot Sale Beauty Facial Makeup Blender Foundation Puff Sponges Pink](https://products.checkmycream.com/products/CHOP-MALL(r)-Hot-Sale-Beauty-Facial-Makeup-Blender-Foundation-Puff-Sponges-Pink.html)
 
 ### Positive Reviews

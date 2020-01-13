@@ -1,12 +1,3 @@
----
-title: Too Faced Cosmetics Borderline Anti Feathering Lip Pencil, 0.04 Ounce,
-description: Too Faced Cosmetics Borderline Anti Feathering Lip Pencil, 0.04 Ounce,
-author: Suvojit Manna,
-tags: Too Faced Cosmetics Borderline Anti Feathering Lip Pencil, 0.04 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:47 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:47 GMT+0530 (India Standard Time),
----
-
 # [Too Faced Cosmetics Borderline Anti Feathering Lip Pencil, 0.04 Ounce](https://products.checkmycream.com/products/Too-Faced-Cosmetics-Borderline-Anti-Feathering-Lip-Pencil-0.04-Ounce.html)
 
 ### Positive Reviews

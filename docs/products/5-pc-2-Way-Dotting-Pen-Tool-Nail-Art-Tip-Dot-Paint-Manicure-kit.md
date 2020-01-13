@@ -1,12 +1,3 @@
----
-title: 5 pc 2 Way Dotting Pen Tool Nail Art Tip Dot Paint Manicure kit,
-description: 5 pc 2 Way Dotting Pen Tool Nail Art Tip Dot Paint Manicure kit,
-author: Suvojit Manna,
-tags: 5 pc 2 Way Dotting Pen Tool Nail Art Tip Dot Paint Manicure kit,
-publishedAt: Fri Jan 10 2020 15:00:38 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:38 GMT+0530 (India Standard Time),
----
-
 # [5 pc 2 Way Dotting Pen Tool Nail Art Tip Dot Paint Manicure kit](https://products.checkmycream.com/products/5-pc-2-Way-Dotting-Pen-Tool-Nail-Art-Tip-Dot-Paint-Manicure-kit.html)
 
 ### Positive Reviews

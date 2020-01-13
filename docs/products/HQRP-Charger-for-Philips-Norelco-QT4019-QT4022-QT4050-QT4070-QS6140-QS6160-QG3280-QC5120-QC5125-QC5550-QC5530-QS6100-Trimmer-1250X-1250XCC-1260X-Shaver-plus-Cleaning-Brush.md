@@ -1,12 +1,3 @@
----
-title: HQRP Charger for Philips Norelco QT4019 QT4022 QT4050 QT4070 QS6140 QS6160 QG3280 QC5120 QC5125 QC5550 QC5530 QS6100 Trimmer, 1250X 1250XCC 1260X Shaver plus Cleaning Brush,
-description: HQRP Charger for Philips Norelco QT4019 QT4022 QT4050 QT4070 QS6140 QS6160 QG3280 QC5120 QC5125 QC5550 QC5530 QS6100 Trimmer, 1250X 1250XCC 1260X Shaver plus Cleaning Brush,
-author: Suvojit Manna,
-tags: HQRP Charger for Philips Norelco QT4019 QT4022 QT4050 QT4070 QS6140 QS6160 QG3280 QC5120 QC5125 QC5550 QC5530 QS6100 Trimmer, 1250X 1250XCC 1260X Shaver plus Cleaning Brush,
-publishedAt: Fri Jan 10 2020 15:00:09 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:09 GMT+0530 (India Standard Time),
----
-
 # [HQRP Charger for Philips Norelco QT4019 QT4022 QT4050 QT4070 QS6140 QS6160 QG3280 QC5120 QC5125 QC5550 QC5530 QS6100 Trimmer, 1250X 1250XCC 1260X Shaver plus Cleaning Brush](https://products.checkmycream.com/products/HQRP-Charger-for-Philips-Norelco-QT4019-QT4022-QT4050-QT4070-QS6140-QS6160-QG3280-QC5120-QC5125-QC5550-QC5530-QS6100-Trimmer-1250X-1250XCC-1260X-Shaver-plus-Cleaning-Brush.html)
 
 ### Positive Reviews

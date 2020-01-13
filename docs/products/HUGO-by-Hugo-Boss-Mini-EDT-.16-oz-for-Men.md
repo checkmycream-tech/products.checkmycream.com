@@ -1,12 +1,3 @@
----
-title: HUGO by Hugo Boss Mini EDT .16 oz for Men,
-description: HUGO by Hugo Boss Mini EDT .16 oz for Men,
-author: Suvojit Manna,
-tags: HUGO by Hugo Boss Mini EDT .16 oz for Men,
-publishedAt: Fri Jan 10 2020 14:59:10 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:10 GMT+0530 (India Standard Time),
----
-
 # [HUGO by Hugo Boss Mini EDT .16 oz for Men](https://products.checkmycream.com/products/HUGO-by-Hugo-Boss-Mini-EDT-.16-oz-for-Men.html)
 
 ### Positive Reviews

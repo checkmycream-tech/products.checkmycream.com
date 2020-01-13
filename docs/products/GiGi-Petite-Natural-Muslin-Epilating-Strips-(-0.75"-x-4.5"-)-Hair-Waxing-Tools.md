@@ -1,12 +1,3 @@
----
-title: GiGi Petite Natural Muslin Epilating Strips ( 0.75&quot; x 4.5&quot; ) Hair Waxing Tools,
-description: GiGi Petite Natural Muslin Epilating Strips ( 0.75&quot; x 4.5&quot; ) Hair Waxing Tools,
-author: Suvojit Manna,
-tags: GiGi Petite Natural Muslin Epilating Strips ( 0.75&quot; x 4.5&quot; ) Hair Waxing Tools,
-publishedAt: Fri Jan 10 2020 14:58:59 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:58:59 GMT+0530 (India Standard Time),
----
-
 # [GiGi Petite Natural Muslin Epilating Strips ( 0.75&quot; x 4.5&quot; ) Hair Waxing Tools](https://products.checkmycream.com/products/GiGi-Petite-Natural-Muslin-Epilating-Strips-(-0.75&quot;-x-4.5&quot;-)-Hair-Waxing-Tools.html)
 
 ### Positive Reviews

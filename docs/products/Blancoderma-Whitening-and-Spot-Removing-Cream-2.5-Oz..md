@@ -1,12 +1,3 @@
----
-title: Blancoderma Whitening &amp; Spot Removing Cream 2.5 Oz.,
-description: Blancoderma Whitening &amp; Spot Removing Cream 2.5 Oz.,
-author: Suvojit Manna,
-tags: Blancoderma Whitening &amp; Spot Removing Cream 2.5 Oz.,
-publishedAt: Fri Jan 10 2020 15:00:30 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:30 GMT+0530 (India Standard Time),
----
-
 # [Blancoderma Whitening &amp; Spot Removing Cream 2.5 Oz.](https://products.checkmycream.com/products/Blancoderma-Whitening-and-Spot-Removing-Cream-2.5-Oz..html)
 
 ### Positive Reviews

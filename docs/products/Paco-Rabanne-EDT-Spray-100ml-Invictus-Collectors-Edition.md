@@ -1,12 +1,3 @@
----
-title: Paco Rabanne EDT Spray 100ml Invictus Collectors Edition,
-description: Paco Rabanne EDT Spray 100ml Invictus Collectors Edition,
-author: Suvojit Manna,
-tags: Paco Rabanne EDT Spray 100ml Invictus Collectors Edition,
-publishedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
----
-
 # [Paco Rabanne EDT Spray 100ml Invictus Collectors Edition](https://products.checkmycream.com/products/Paco-Rabanne-EDT-Spray-100ml-Invictus-Collectors-Edition.html)
 
 ### Positive Reviews

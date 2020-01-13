@@ -1,12 +1,3 @@
----
-title: PlakSmacker Toothbrush Hygiene Anti-Bacterial Covers (5 Pack),
-description: PlakSmacker Toothbrush Hygiene Anti-Bacterial Covers (5 Pack),
-author: Suvojit Manna,
-tags: PlakSmacker Toothbrush Hygiene Anti-Bacterial Covers (5 Pack),
-publishedAt: Fri Jan 10 2020 15:01:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:08 GMT+0530 (India Standard Time),
----
-
 # [PlakSmacker Toothbrush Hygiene Anti-Bacterial Covers (5 Pack)](https://products.checkmycream.com/products/PlakSmacker-Toothbrush-Hygiene-Anti-Bacterial-Covers-(5-Pack).html)
 
 ### Positive Reviews

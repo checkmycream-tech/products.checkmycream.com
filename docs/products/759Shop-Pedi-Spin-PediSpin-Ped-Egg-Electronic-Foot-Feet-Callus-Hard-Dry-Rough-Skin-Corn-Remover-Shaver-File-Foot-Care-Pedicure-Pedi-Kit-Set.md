@@ -1,12 +1,3 @@
----
-title: 759Shop Pedi Spin PediSpin Ped Egg Electronic Foot Feet Callus Hard Dry Rough Skin Corn Remover Shaver File Foot Care Pedicure Pedi Kit Set,
-description: 759Shop Pedi Spin PediSpin Ped Egg Electronic Foot Feet Callus Hard Dry Rough Skin Corn Remover Shaver File Foot Care Pedicure Pedi Kit Set,
-author: Suvojit Manna,
-tags: 759Shop Pedi Spin PediSpin Ped Egg Electronic Foot Feet Callus Hard Dry Rough Skin Corn Remover Shaver File Foot Care Pedicure Pedi Kit Set,
-publishedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
----
-
 # [759Shop Pedi Spin PediSpin Ped Egg Electronic Foot Feet Callus Hard Dry Rough Skin Corn Remover Shaver File Foot Care Pedicure Pedi Kit Set](https://products.checkmycream.com/products/759Shop-Pedi-Spin-PediSpin-Ped-Egg-Electronic-Foot-Feet-Callus-Hard-Dry-Rough-Skin-Corn-Remover-Shaver-File-Foot-Care-Pedicure-Pedi-Kit-Set.html)
 
 ### Positive Reviews

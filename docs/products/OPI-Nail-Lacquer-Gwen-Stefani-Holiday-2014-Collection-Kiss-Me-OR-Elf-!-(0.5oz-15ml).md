@@ -1,12 +1,3 @@
----
-title: OPI Nail Lacquer Gwen Stefani Holiday 2014 Collection Kiss Me -OR Elf ! (0.5oz-15ml),
-description: OPI Nail Lacquer Gwen Stefani Holiday 2014 Collection Kiss Me -OR Elf ! (0.5oz-15ml),
-author: Suvojit Manna,
-tags: OPI Nail Lacquer Gwen Stefani Holiday 2014 Collection Kiss Me -OR Elf ! (0.5oz-15ml),
-publishedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
----
-
 # [OPI Nail Lacquer Gwen Stefani Holiday 2014 Collection Kiss Me -OR Elf ! (0.5oz-15ml)](https://products.checkmycream.com/products/OPI-Nail-Lacquer-Gwen-Stefani-Holiday-2014-Collection-Kiss-Me-OR-Elf-!-(0.5oz-15ml).html)
 
 ### Positive Reviews

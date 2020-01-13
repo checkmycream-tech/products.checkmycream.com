@@ -1,12 +1,3 @@
----
-title: Women Fashion Fabric Lace Wide Stretch Headband Headwrap (White) by Sanwood,
-description: Women Fashion Fabric Lace Wide Stretch Headband Headwrap (White) by Sanwood,
-author: Suvojit Manna,
-tags: Women Fashion Fabric Lace Wide Stretch Headband Headwrap (White) by Sanwood,
-publishedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
----
-
 # [Women Fashion Fabric Lace Wide Stretch Headband Headwrap (White) by Sanwood](https://products.checkmycream.com/products/Women-Fashion-Fabric-Lace-Wide-Stretch-Headband-Headwrap-(White)-by-Sanwood.html)
 
 ### Positive Reviews

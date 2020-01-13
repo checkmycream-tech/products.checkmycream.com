@@ -1,12 +1,3 @@
----
-title: Finale Skin Whitening Cream for Bikini Line Armpits Thighs Elbows Knees 30 grams,
-description: Finale Skin Whitening Cream for Bikini Line Armpits Thighs Elbows Knees 30 grams,
-author: Suvojit Manna,
-tags: Finale Skin Whitening Cream for Bikini Line Armpits Thighs Elbows Knees 30 grams,
-publishedAt: Fri Jan 10 2020 15:00:20 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:20 GMT+0530 (India Standard Time),
----
-
 # [Finale Skin Whitening Cream for Bikini Line Armpits Thighs Elbows Knees 30 grams](https://products.checkmycream.com/products/Finale-Skin-Whitening-Cream-for-Bikini-Line-Armpits-Thighs-Elbows-Knees-30-grams.html)
 
 ### Positive Reviews

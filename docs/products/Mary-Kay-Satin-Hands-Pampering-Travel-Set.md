@@ -1,12 +1,3 @@
----
-title: Mary Kay Satin Hands Pampering Travel Set,
-description: Mary Kay Satin Hands Pampering Travel Set,
-author: Suvojit Manna,
-tags: Mary Kay Satin Hands Pampering Travel Set,
-publishedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
----
-
 # [Mary Kay Satin Hands Pampering Travel Set](https://products.checkmycream.com/products/Mary-Kay-Satin-Hands-Pampering-Travel-Set.html)
 
 ### Positive Reviews

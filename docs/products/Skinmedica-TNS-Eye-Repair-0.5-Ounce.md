@@ -1,12 +1,3 @@
----
-title: Skinmedica TNS Eye Repair, 0.5-Ounce,
-description: Skinmedica TNS Eye Repair, 0.5-Ounce,
-author: Suvojit Manna,
-tags: Skinmedica TNS Eye Repair, 0.5-Ounce,
-publishedAt: Fri Jan 10 2020 14:59:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:55 GMT+0530 (India Standard Time),
----
-
 # [Skinmedica TNS Eye Repair, 0.5-Ounce](https://products.checkmycream.com/products/Skinmedica-TNS-Eye-Repair-0.5-Ounce.html)
 
 ### Positive Reviews

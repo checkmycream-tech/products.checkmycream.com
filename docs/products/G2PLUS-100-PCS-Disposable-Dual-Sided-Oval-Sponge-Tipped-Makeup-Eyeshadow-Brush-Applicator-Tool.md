@@ -1,12 +1,3 @@
----
-title: G2PLUS 100 PCS Disposable Dual Sided Oval Sponge Tipped Makeup Eyeshadow Brush Applicator Tool,
-description: G2PLUS 100 PCS Disposable Dual Sided Oval Sponge Tipped Makeup Eyeshadow Brush Applicator Tool,
-author: Suvojit Manna,
-tags: G2PLUS 100 PCS Disposable Dual Sided Oval Sponge Tipped Makeup Eyeshadow Brush Applicator Tool,
-publishedAt: Fri Jan 10 2020 15:01:06 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:06 GMT+0530 (India Standard Time),
----
-
 # [G2PLUS 100 PCS Disposable Dual Sided Oval Sponge Tipped Makeup Eyeshadow Brush Applicator Tool](https://products.checkmycream.com/products/G2PLUS-100-PCS-Disposable-Dual-Sided-Oval-Sponge-Tipped-Makeup-Eyeshadow-Brush-Applicator-Tool.html)
 
 ### Positive Reviews

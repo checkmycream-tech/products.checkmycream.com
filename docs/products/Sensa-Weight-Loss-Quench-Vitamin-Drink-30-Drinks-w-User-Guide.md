@@ -1,12 +1,3 @@
----
-title: Sensa Weight Loss Quench Vitamin Drink- 30 Drinks w/ User Guide,
-description: Sensa Weight Loss Quench Vitamin Drink- 30 Drinks w/ User Guide,
-author: Suvojit Manna,
-tags: Sensa Weight Loss Quench Vitamin Drink- 30 Drinks w/ User Guide,
-publishedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
----
-
 # [Sensa Weight Loss Quench Vitamin Drink- 30 Drinks w/ User Guide](https://products.checkmycream.com/products/Sensa-Weight-Loss-Quench-Vitamin-Drink-30-Drinks-w-User-Guide.html)
 
 ### Positive Reviews

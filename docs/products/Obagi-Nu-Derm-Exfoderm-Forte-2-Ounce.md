@@ -1,12 +1,3 @@
----
-title: Obagi Nu-Derm Exfoderm Forte 2 Ounce,
-description: Obagi Nu-Derm Exfoderm Forte 2 Ounce,
-author: Suvojit Manna,
-tags: Obagi Nu-Derm Exfoderm Forte 2 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
----
-
 # [Obagi Nu-Derm Exfoderm Forte 2 Ounce](https://products.checkmycream.com/products/Obagi-Nu-Derm-Exfoderm-Forte-2-Ounce.html)
 
 ### Positive Reviews

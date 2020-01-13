@@ -1,12 +1,3 @@
----
-title: Equate - Hair Regrowth Treatment for Women with Minoxidil 2%,
-description: Equate - Hair Regrowth Treatment for Women with Minoxidil 2%,
-author: Suvojit Manna,
-tags: Equate - Hair Regrowth Treatment for Women with Minoxidil 2%,
-publishedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
----
-
 # [Equate - Hair Regrowth Treatment for Women with Minoxidil 2%](https://products.checkmycream.com/products/Equate-Hair-Regrowth-Treatment-for-Women-with-Minoxidil-2percent.html)
 
 ### Positive Reviews

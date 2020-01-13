@@ -1,12 +1,3 @@
----
-title: Got 2B Powder&#x27;Ful Volumizing Style Powder 0.35oz (3 Pack),
-description: Got 2B Powder&#x27;Ful Volumizing Style Powder 0.35oz (3 Pack),
-author: Suvojit Manna,
-tags: Got 2B Powder&#x27;Ful Volumizing Style Powder 0.35oz (3 Pack),
-publishedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
----
-
 # [Got 2B Powder&#x27;Ful Volumizing Style Powder 0.35oz (3 Pack)](https://products.checkmycream.com/products/Got-2B-Powder&#x27;Ful-Volumizing-Style-Powder-0.35oz-(3-Pack).html)
 
 ### Positive Reviews

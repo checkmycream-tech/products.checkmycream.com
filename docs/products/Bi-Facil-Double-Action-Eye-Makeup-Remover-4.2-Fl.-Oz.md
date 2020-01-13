@@ -1,12 +1,3 @@
----
-title: Bi-Facil Double Action Eye Makeup Remover, 4.2 Fl. Oz,
-description: Bi-Facil Double Action Eye Makeup Remover, 4.2 Fl. Oz,
-author: Suvojit Manna,
-tags: Bi-Facil Double Action Eye Makeup Remover, 4.2 Fl. Oz,
-publishedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
----
-
 # [Bi-Facil Double Action Eye Makeup Remover, 4.2 Fl. Oz](https://products.checkmycream.com/products/Bi-Facil-Double-Action-Eye-Makeup-Remover-4.2-Fl.-Oz.html)
 
 ### Positive Reviews

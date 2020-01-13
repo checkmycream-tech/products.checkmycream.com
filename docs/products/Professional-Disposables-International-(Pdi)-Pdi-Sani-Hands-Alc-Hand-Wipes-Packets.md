@@ -1,12 +1,3 @@
----
-title: Professional Disposables International (Pdi) - Pdi Sani Hands Alc Hand Wipes - Packets,
-description: Professional Disposables International (Pdi) - Pdi Sani Hands Alc Hand Wipes - Packets,
-author: Suvojit Manna,
-tags: Professional Disposables International (Pdi) - Pdi Sani Hands Alc Hand Wipes - Packets,
-publishedAt: Fri Jan 10 2020 15:00:20 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:20 GMT+0530 (India Standard Time),
----
-
 # [Professional Disposables International (Pdi) - Pdi Sani Hands Alc Hand Wipes - Packets](https://products.checkmycream.com/products/Professional-Disposables-International-(Pdi)-Pdi-Sani-Hands-Alc-Hand-Wipes-Packets.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: OPI Gwen Stefani 4-Pack Mini Holiday Stars,
-description: OPI Gwen Stefani 4-Pack Mini Holiday Stars,
-author: Suvojit Manna,
-tags: OPI Gwen Stefani 4-Pack Mini Holiday Stars,
-publishedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
----
-
 # [OPI Gwen Stefani 4-Pack Mini Holiday Stars](https://products.checkmycream.com/products/OPI-Gwen-Stefani-4-Pack-Mini-Holiday-Stars.html)
 
 ### Positive Reviews

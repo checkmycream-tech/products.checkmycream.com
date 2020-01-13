@@ -1,12 +1,3 @@
----
-title: BMC Angle Tipped C Curve Acrylic Manicure Nail Polish Art Pincher Tweezers Tool,
-description: BMC Angle Tipped C Curve Acrylic Manicure Nail Polish Art Pincher Tweezers Tool,
-author: Suvojit Manna,
-tags: BMC Angle Tipped C Curve Acrylic Manicure Nail Polish Art Pincher Tweezers Tool,
-publishedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
----
-
 # [BMC Angle Tipped C Curve Acrylic Manicure Nail Polish Art Pincher Tweezers Tool](https://products.checkmycream.com/products/BMC-Angle-Tipped-C-Curve-Acrylic-Manicure-Nail-Polish-Art-Pincher-Tweezers-Tool.html)
 
 ### Positive Reviews

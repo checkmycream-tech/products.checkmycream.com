@@ -1,12 +1,3 @@
----
-title: uxcell® Lady 4 in 1 DIY Facial Mask Mixing Bowl Brush Set Green,
-description: uxcell® Lady 4 in 1 DIY Facial Mask Mixing Bowl Brush Set Green,
-author: Suvojit Manna,
-tags: uxcell® Lady 4 in 1 DIY Facial Mask Mixing Bowl Brush Set Green,
-publishedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
----
-
 # [uxcell® Lady 4 in 1 DIY Facial Mask Mixing Bowl Brush Set Green](https://products.checkmycream.com/products/uxcell(r)-Lady-4-in-1-DIY-Facial-Mask-Mixing-Bowl-Brush-Set-Green.html)
 
 ### Positive Reviews

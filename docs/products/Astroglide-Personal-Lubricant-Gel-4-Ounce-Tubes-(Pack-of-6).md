@@ -1,12 +1,3 @@
----
-title: Astroglide Personal Lubricant Gel, 4-Ounce Tubes (Pack of 6),
-description: Astroglide Personal Lubricant Gel, 4-Ounce Tubes (Pack of 6),
-author: Suvojit Manna,
-tags: Astroglide Personal Lubricant Gel, 4-Ounce Tubes (Pack of 6),
-publishedAt: Fri Jan 10 2020 15:00:30 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:30 GMT+0530 (India Standard Time),
----
-
 # [Astroglide Personal Lubricant Gel, 4-Ounce Tubes (Pack of 6)](https://products.checkmycream.com/products/Astroglide-Personal-Lubricant-Gel-4-Ounce-Tubes-(Pack-of-6).html)
 
 ### Positive Reviews

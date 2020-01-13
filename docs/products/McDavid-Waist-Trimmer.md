@@ -1,12 +1,3 @@
----
-title: McDavid Waist Trimmer,
-description: McDavid Waist Trimmer,
-author: Suvojit Manna,
-tags: McDavid Waist Trimmer,
-publishedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
----
-
 # [McDavid Waist Trimmer](https://products.checkmycream.com/products/McDavid-Waist-Trimmer.html)
 
 ### Positive Reviews

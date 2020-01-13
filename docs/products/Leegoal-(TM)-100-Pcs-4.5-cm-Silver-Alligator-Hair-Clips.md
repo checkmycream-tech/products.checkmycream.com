@@ -1,12 +1,3 @@
----
-title: Leegoal (TM) 100 Pcs 4.5 cm Silver Alligator Hair Clips,
-description: Leegoal (TM) 100 Pcs 4.5 cm Silver Alligator Hair Clips,
-author: Suvojit Manna,
-tags: Leegoal (TM) 100 Pcs 4.5 cm Silver Alligator Hair Clips,
-publishedAt: Fri Jan 10 2020 15:00:21 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:21 GMT+0530 (India Standard Time),
----
-
 # [Leegoal (TM) 100 Pcs 4.5 cm Silver Alligator Hair Clips](https://products.checkmycream.com/products/Leegoal-(TM)-100-Pcs-4.5-cm-Silver-Alligator-Hair-Clips.html)
 
 ### Positive Reviews

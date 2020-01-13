@@ -1,12 +1,3 @@
----
-title: Aussie Finding Dory Mango Mate 3 In 1 Shampoo, Wash and Conditioner, 12 Fluid Ounces,
-description: Aussie Finding Dory Mango Mate 3 In 1 Shampoo, Wash and Conditioner, 12 Fluid Ounces,
-author: Suvojit Manna,
-tags: Aussie Finding Dory Mango Mate 3 In 1 Shampoo, Wash and Conditioner, 12 Fluid Ounces,
-publishedAt: Fri Jan 10 2020 15:00:38 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:38 GMT+0530 (India Standard Time),
----
-
 # [Aussie Finding Dory Mango Mate 3 In 1 Shampoo, Wash and Conditioner, 12 Fluid Ounces](https://products.checkmycream.com/products/Aussie-Finding-Dory-Mango-Mate-3-In-1-Shampoo-Wash-and-Conditioner-12-Fluid-Ounces.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: 1pcs 3g Professional Nail Glue,
-description: 1pcs 3g Professional Nail Glue,
-author: Suvojit Manna,
-tags: 1pcs 3g Professional Nail Glue,
-publishedAt: Fri Jan 10 2020 15:00:15 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:15 GMT+0530 (India Standard Time),
----
-
 # [1pcs 3g Professional Nail Glue](https://products.checkmycream.com/products/1pcs-3g-Professional-Nail-Glue.html)
 
 ### Positive Reviews

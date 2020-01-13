@@ -1,12 +1,3 @@
----
-title: Hempz Herbal Whipped Body Creme Triple Moisture, White Peppermint and Vanilla, 17 Fluid Ounce,
-description: Hempz Herbal Whipped Body Creme Triple Moisture, White Peppermint and Vanilla, 17 Fluid Ounce,
-author: Suvojit Manna,
-tags: Hempz Herbal Whipped Body Creme Triple Moisture, White Peppermint and Vanilla, 17 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
----
-
 # [Hempz Herbal Whipped Body Creme Triple Moisture, White Peppermint and Vanilla, 17 Fluid Ounce](https://products.checkmycream.com/products/Hempz-Herbal-Whipped-Body-Creme-Triple-Moisture-White-Peppermint-and-Vanilla-17-Fluid-Ounce.html)
 
 ### Positive Reviews

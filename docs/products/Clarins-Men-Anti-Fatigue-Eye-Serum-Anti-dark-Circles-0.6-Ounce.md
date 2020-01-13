@@ -1,12 +1,3 @@
----
-title: Clarins Men Anti-Fatigue Eye Serum Anti-dark Circles, 0.6 Ounce,
-description: Clarins Men Anti-Fatigue Eye Serum Anti-dark Circles, 0.6 Ounce,
-author: Suvojit Manna,
-tags: Clarins Men Anti-Fatigue Eye Serum Anti-dark Circles, 0.6 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:38 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:38 GMT+0530 (India Standard Time),
----
-
 # [Clarins Men Anti-Fatigue Eye Serum Anti-dark Circles, 0.6 Ounce](https://products.checkmycream.com/products/Clarins-Men-Anti-Fatigue-Eye-Serum-Anti-dark-Circles-0.6-Ounce.html)
 
 ### Positive Reviews

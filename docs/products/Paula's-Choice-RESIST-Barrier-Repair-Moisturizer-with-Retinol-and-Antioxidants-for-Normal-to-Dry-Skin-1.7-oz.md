@@ -1,12 +1,3 @@
----
-title: Paula&#x27;s Choice RESIST Barrier Repair Moisturizer with Retinol and Antioxidants for Normal to Dry Skin - 1.7 oz,
-description: Paula&#x27;s Choice RESIST Barrier Repair Moisturizer with Retinol and Antioxidants for Normal to Dry Skin - 1.7 oz,
-author: Suvojit Manna,
-tags: Paula&#x27;s Choice RESIST Barrier Repair Moisturizer with Retinol and Antioxidants for Normal to Dry Skin - 1.7 oz,
-publishedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
----
-
 # [Paula&#x27;s Choice RESIST Barrier Repair Moisturizer with Retinol and Antioxidants for Normal to Dry Skin - 1.7 oz](https://products.checkmycream.com/products/Paula&#x27;s-Choice-RESIST-Barrier-Repair-Moisturizer-with-Retinol-and-Antioxidants-for-Normal-to-Dry-Skin-1.7-oz.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: TRURENDI Men Casual Harem Baggy Jogging Hip Hop Dance Sport Sweat Pants Trousers (L, Black),
-description: TRURENDI Men Casual Harem Baggy Jogging Hip Hop Dance Sport Sweat Pants Trousers (L, Black),
-author: Suvojit Manna,
-tags: TRURENDI Men Casual Harem Baggy Jogging Hip Hop Dance Sport Sweat Pants Trousers (L, Black),
-publishedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
----
-
 # [TRURENDI Men Casual Harem Baggy Jogging Hip Hop Dance Sport Sweat Pants Trousers (L, Black)](https://products.checkmycream.com/products/TRURENDI-Men-Casual-Harem-Baggy-Jogging-Hip-Hop-Dance-Sport-Sweat-Pants-Trousers-(L-Black).html)
 
 ### Positive Reviews

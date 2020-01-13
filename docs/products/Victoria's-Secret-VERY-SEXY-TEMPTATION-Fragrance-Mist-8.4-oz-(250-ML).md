@@ -1,12 +1,3 @@
----
-title: Victoria&#x27;s Secret VERY SEXY TEMPTATION Fragrance Mist 8.4 oz (250 ML),
-description: Victoria&#x27;s Secret VERY SEXY TEMPTATION Fragrance Mist 8.4 oz (250 ML),
-author: Suvojit Manna,
-tags: Victoria&#x27;s Secret VERY SEXY TEMPTATION Fragrance Mist 8.4 oz (250 ML),
-publishedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
----
-
 # [Victoria&#x27;s Secret VERY SEXY TEMPTATION Fragrance Mist 8.4 oz (250 ML)](https://products.checkmycream.com/products/Victoria&#x27;s-Secret-VERY-SEXY-TEMPTATION-Fragrance-Mist-8.4-oz-(250-ML).html)
 
 ### Positive Reviews

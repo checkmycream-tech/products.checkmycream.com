@@ -1,12 +1,3 @@
----
-title: Professional Wax Warmer Electric Parrafin Heater Machine - Multiple Sizes Available,
-description: Professional Wax Warmer Electric Parrafin Heater Machine - Multiple Sizes Available,
-author: Suvojit Manna,
-tags: Professional Wax Warmer Electric Parrafin Heater Machine - Multiple Sizes Available,
-publishedAt: Fri Jan 10 2020 15:00:20 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:20 GMT+0530 (India Standard Time),
----
-
 # [Professional Wax Warmer Electric Parrafin Heater Machine - Multiple Sizes Available](https://products.checkmycream.com/products/Professional-Wax-Warmer-Electric-Parrafin-Heater-Machine-Multiple-Sizes-Available.html)
 
 ### Positive Reviews

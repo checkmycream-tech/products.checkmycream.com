@@ -1,12 +1,3 @@
----
-title: Avon Anew Clinical Eye Lift Pro Dual Eye System 0.33 fl oz,
-description: Avon Anew Clinical Eye Lift Pro Dual Eye System 0.33 fl oz,
-author: Suvojit Manna,
-tags: Avon Anew Clinical Eye Lift Pro Dual Eye System 0.33 fl oz,
-publishedAt: Fri Jan 10 2020 15:00:45 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:45 GMT+0530 (India Standard Time),
----
-
 # [Avon Anew Clinical Eye Lift Pro Dual Eye System 0.33 fl oz](https://products.checkmycream.com/products/Avon-Anew-Clinical-Eye-Lift-Pro-Dual-Eye-System-0.33-fl-oz.html)
 
 ### Positive Reviews

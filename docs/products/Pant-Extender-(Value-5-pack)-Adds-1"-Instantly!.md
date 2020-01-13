@@ -1,12 +1,3 @@
----
-title: Pant Extender (Value 5-pack) - Adds 1&quot; Instantly!,
-description: Pant Extender (Value 5-pack) - Adds 1&quot; Instantly!,
-author: Suvojit Manna,
-tags: Pant Extender (Value 5-pack) - Adds 1&quot; Instantly!,
-publishedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
----
-
 # [Pant Extender (Value 5-pack) - Adds 1&quot; Instantly!](https://products.checkmycream.com/products/Pant-Extender-(Value-5-pack)-Adds-1&quot;-Instantly!.html)
 
 ### Positive Reviews

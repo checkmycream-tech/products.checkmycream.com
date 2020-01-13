@@ -1,12 +1,3 @@
----
-title: Finejo Professional Stainless Hairdressing Barber Hair Thinning Scissors Set,
-description: Finejo Professional Stainless Hairdressing Barber Hair Thinning Scissors Set,
-author: Suvojit Manna,
-tags: Finejo Professional Stainless Hairdressing Barber Hair Thinning Scissors Set,
-publishedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
----
-
 # [Finejo Professional Stainless Hairdressing Barber Hair Thinning Scissors Set](https://products.checkmycream.com/products/Finejo-Professional-Stainless-Hairdressing-Barber-Hair-Thinning-Scissors-Set.html)
 
 ### Positive Reviews

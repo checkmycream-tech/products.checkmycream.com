@@ -1,12 +1,3 @@
----
-title: Victoria&#x27;s Secret Bombshell Forever Body Mist 8.4oz 250mL,
-description: Victoria&#x27;s Secret Bombshell Forever Body Mist 8.4oz 250mL,
-author: Suvojit Manna,
-tags: Victoria&#x27;s Secret Bombshell Forever Body Mist 8.4oz 250mL,
-publishedAt: Fri Jan 10 2020 15:00:45 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:45 GMT+0530 (India Standard Time),
----
-
 # [Victoria&#x27;s Secret Bombshell Forever Body Mist 8.4oz 250mL](https://products.checkmycream.com/products/Victoria&#x27;s-Secret-Bombshell-Forever-Body-Mist-8.4oz-250mL.html)
 
 ### Positive Reviews

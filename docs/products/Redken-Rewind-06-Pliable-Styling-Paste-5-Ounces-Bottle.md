@@ -1,12 +1,3 @@
----
-title: Redken Rewind 06 Pliable Styling Paste 5-Ounces Bottle,
-description: Redken Rewind 06 Pliable Styling Paste 5-Ounces Bottle,
-author: Suvojit Manna,
-tags: Redken Rewind 06 Pliable Styling Paste 5-Ounces Bottle,
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [Redken Rewind 06 Pliable Styling Paste 5-Ounces Bottle](https://products.checkmycream.com/products/Redken-Rewind-06-Pliable-Styling-Paste-5-Ounces-Bottle.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Multilayer Alloy Love Birds Life Tree and Infinity Handmade Leather Bracelet,
-description: Multilayer Alloy Love Birds Life Tree and Infinity Handmade Leather Bracelet,
-author: Suvojit Manna,
-tags: Multilayer Alloy Love Birds Life Tree and Infinity Handmade Leather Bracelet,
-publishedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
----
-
 # [Multilayer Alloy Love Birds Life Tree and Infinity Handmade Leather Bracelet](https://products.checkmycream.com/products/Multilayer-Alloy-Love-Birds-Life-Tree-and-Infinity-Handmade-Leather-Bracelet.html)
 
 ### Positive Reviews

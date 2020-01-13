@@ -1,12 +1,3 @@
----
-title: Gelish Radiance is My Middle Name Gel Polish, 0.5 Fluid Ounce,
-description: Gelish Radiance is My Middle Name Gel Polish, 0.5 Fluid Ounce,
-author: Suvojit Manna,
-tags: Gelish Radiance is My Middle Name Gel Polish, 0.5 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
----
-
 # [Gelish Radiance is My Middle Name Gel Polish, 0.5 Fluid Ounce](https://products.checkmycream.com/products/Gelish-Radiance-is-My-Middle-Name-Gel-Polish-0.5-Fluid-Ounce.html)
 
 ### Positive Reviews

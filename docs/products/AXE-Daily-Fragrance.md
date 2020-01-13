@@ -1,12 +1,3 @@
----
-title: AXE Daily Fragrance,
-description: AXE Daily Fragrance,
-author: Suvojit Manna,
-tags: AXE Daily Fragrance,
-publishedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
----
-
 # [AXE Daily Fragrance](https://products.checkmycream.com/products/AXE-Daily-Fragrance.html)
 
 ### Positive Reviews

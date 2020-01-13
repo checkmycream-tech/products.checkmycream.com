@@ -1,12 +1,3 @@
----
-title: Duracell Hearing Aid Batteries Size 13 Pack 60 Batteries 1.4V,
-description: Duracell Hearing Aid Batteries Size 13 Pack 60 Batteries 1.4V,
-author: Suvojit Manna,
-tags: Duracell Hearing Aid Batteries Size 13 Pack 60 Batteries 1.4V,
-publishedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
----
-
 # [Duracell Hearing Aid Batteries Size 13 Pack 60 Batteries 1.4V](https://products.checkmycream.com/products/Duracell-Hearing-Aid-Batteries-Size-13-Pack-60-Batteries-1.4V.html)
 
 ### Positive Reviews

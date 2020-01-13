@@ -1,12 +1,3 @@
----
-title: Burmax Soft N Style Jumbo Magnetic Rollers 2&quot;, 36 Count,
-description: Burmax Soft N Style Jumbo Magnetic Rollers 2&quot;, 36 Count,
-author: Suvojit Manna,
-tags: Burmax Soft N Style Jumbo Magnetic Rollers 2&quot;, 36 Count,
-publishedAt: Fri Jan 10 2020 14:59:34 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:34 GMT+0530 (India Standard Time),
----
-
 # [Burmax Soft N Style Jumbo Magnetic Rollers 2&quot;, 36 Count](https://products.checkmycream.com/products/Burmax-Soft-N-Style-Jumbo-Magnetic-Rollers-2&quot;-36-Count.html)
 
 ### Positive Reviews

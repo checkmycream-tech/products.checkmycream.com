@@ -1,12 +1,3 @@
----
-title: Tonsee Silvering Plated Cz Small Round Huggie Hoop Earrings,
-description: Tonsee Silvering Plated Cz Small Round Huggie Hoop Earrings,
-author: Suvojit Manna,
-tags: Tonsee Silvering Plated Cz Small Round Huggie Hoop Earrings,
-publishedAt: Fri Jan 10 2020 15:01:04 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:04 GMT+0530 (India Standard Time),
----
-
 # [Tonsee Silvering Plated Cz Small Round Huggie Hoop Earrings](https://products.checkmycream.com/products/Tonsee-Silvering-Plated-Cz-Small-Round-Huggie-Hoop-Earrings.html)
 
 ### Positive Reviews

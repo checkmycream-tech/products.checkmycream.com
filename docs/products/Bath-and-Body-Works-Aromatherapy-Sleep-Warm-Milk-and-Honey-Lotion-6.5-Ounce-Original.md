@@ -1,12 +1,3 @@
----
-title: Bath and Body Works Aromatherapy Sleep Warm Milk and Honey Lotion 6.5 Ounce Original,
-description: Bath and Body Works Aromatherapy Sleep Warm Milk and Honey Lotion 6.5 Ounce Original,
-author: Suvojit Manna,
-tags: Bath and Body Works Aromatherapy Sleep Warm Milk and Honey Lotion 6.5 Ounce Original,
-publishedAt: Fri Jan 10 2020 14:59:42 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:42 GMT+0530 (India Standard Time),
----
-
 # [Bath and Body Works Aromatherapy Sleep Warm Milk and Honey Lotion 6.5 Ounce Original](https://products.checkmycream.com/products/Bath-and-Body-Works-Aromatherapy-Sleep-Warm-Milk-and-Honey-Lotion-6.5-Ounce-Original.html)
 
 ### Positive Reviews

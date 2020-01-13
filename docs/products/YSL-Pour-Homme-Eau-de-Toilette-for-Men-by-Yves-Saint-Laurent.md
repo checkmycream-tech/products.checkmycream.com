@@ -1,12 +1,3 @@
----
-title: YSL Pour Homme Eau de Toilette for Men by Yves Saint Laurent,
-description: YSL Pour Homme Eau de Toilette for Men by Yves Saint Laurent,
-author: Suvojit Manna,
-tags: YSL Pour Homme Eau de Toilette for Men by Yves Saint Laurent,
-publishedAt: Fri Jan 10 2020 14:59:17 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:17 GMT+0530 (India Standard Time),
----
-
 # [YSL Pour Homme Eau de Toilette for Men by Yves Saint Laurent](https://products.checkmycream.com/products/YSL-Pour-Homme-Eau-de-Toilette-for-Men-by-Yves-Saint-Laurent.html)
 
 ### Positive Reviews

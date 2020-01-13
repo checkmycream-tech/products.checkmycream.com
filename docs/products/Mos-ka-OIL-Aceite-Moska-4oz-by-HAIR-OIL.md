@@ -1,12 +1,3 @@
----
-title: Mos-ka OIL Aceite Moska 4oz by HAIR OIL,
-description: Mos-ka OIL Aceite Moska 4oz by HAIR OIL,
-author: Suvojit Manna,
-tags: Mos-ka OIL Aceite Moska 4oz by HAIR OIL,
-publishedAt: Fri Jan 10 2020 14:59:16 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:16 GMT+0530 (India Standard Time),
----
-
 # [Mos-ka OIL Aceite Moska 4oz by HAIR OIL](https://products.checkmycream.com/products/Mos-ka-OIL-Aceite-Moska-4oz-by-HAIR-OIL.html)
 
 ### Positive Reviews

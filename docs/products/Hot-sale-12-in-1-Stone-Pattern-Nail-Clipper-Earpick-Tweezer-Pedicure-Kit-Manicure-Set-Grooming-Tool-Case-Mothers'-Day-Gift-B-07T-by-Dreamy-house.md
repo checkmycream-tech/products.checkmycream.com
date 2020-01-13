@@ -1,12 +1,3 @@
----
-title: Hot sale 12 in 1 Stone Pattern Nail Clipper Earpick Tweezer Pedicure Kit Manicure Set Grooming Tool Case Mothers&#x27; Day Gift B-07T by Dreamy house,
-description: Hot sale 12 in 1 Stone Pattern Nail Clipper Earpick Tweezer Pedicure Kit Manicure Set Grooming Tool Case Mothers&#x27; Day Gift B-07T by Dreamy house,
-author: Suvojit Manna,
-tags: Hot sale 12 in 1 Stone Pattern Nail Clipper Earpick Tweezer Pedicure Kit Manicure Set Grooming Tool Case Mothers&#x27; Day Gift B-07T by Dreamy house,
-publishedAt: Fri Jan 10 2020 15:00:38 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:38 GMT+0530 (India Standard Time),
----
-
 # [Hot sale 12 in 1 Stone Pattern Nail Clipper Earpick Tweezer Pedicure Kit Manicure Set Grooming Tool Case Mothers&#x27; Day Gift B-07T by Dreamy house](https://products.checkmycream.com/products/Hot-sale-12-in-1-Stone-Pattern-Nail-Clipper-Earpick-Tweezer-Pedicure-Kit-Manicure-Set-Grooming-Tool-Case-Mothers&#x27;-Day-Gift-B-07T-by-Dreamy-house.html)
 
 ### Positive Reviews

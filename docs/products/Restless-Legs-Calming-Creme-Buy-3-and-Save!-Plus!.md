@@ -1,12 +1,3 @@
----
-title: Restless Legs Calming Creme - Buy 3 and Save! Plus!,
-description: Restless Legs Calming Creme - Buy 3 and Save! Plus!,
-author: Suvojit Manna,
-tags: Restless Legs Calming Creme - Buy 3 and Save! Plus!,
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [Restless Legs Calming Creme - Buy 3 and Save! Plus!](https://products.checkmycream.com/products/Restless-Legs-Calming-Creme-Buy-3-and-Save!-Plus!.html)
 
 ### Positive Reviews

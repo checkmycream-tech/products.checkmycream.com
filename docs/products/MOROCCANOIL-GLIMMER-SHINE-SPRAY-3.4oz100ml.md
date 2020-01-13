@@ -1,12 +1,3 @@
----
-title: MOROCCANOIL GLIMMER SHINE SPRAY 3.4oz/100ml,
-description: MOROCCANOIL GLIMMER SHINE SPRAY 3.4oz/100ml,
-author: Suvojit Manna,
-tags: MOROCCANOIL GLIMMER SHINE SPRAY 3.4oz/100ml,
-publishedAt: Fri Jan 10 2020 14:59:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:57 GMT+0530 (India Standard Time),
----
-
 # [MOROCCANOIL GLIMMER SHINE SPRAY 3.4oz/100ml](https://products.checkmycream.com/products/MOROCCANOIL-GLIMMER-SHINE-SPRAY-3.4oz100ml.html)
 
 ### Positive Reviews

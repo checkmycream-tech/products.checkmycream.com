@@ -1,12 +1,3 @@
----
-title: Green Tea By Elizabeth Arden For Women, Shower Gel, 16.8-Ounce Bottles,
-description: Green Tea By Elizabeth Arden For Women, Shower Gel, 16.8-Ounce Bottles,
-author: Suvojit Manna,
-tags: Green Tea By Elizabeth Arden For Women, Shower Gel, 16.8-Ounce Bottles,
-publishedAt: Fri Jan 10 2020 14:59:16 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:16 GMT+0530 (India Standard Time),
----
-
 # [Green Tea By Elizabeth Arden For Women, Shower Gel, 16.8-Ounce Bottles](https://products.checkmycream.com/products/Green-Tea-By-Elizabeth-Arden-For-Women-Shower-Gel-16.8-Ounce-Bottles.html)
 
 ### Positive Reviews

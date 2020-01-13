@@ -1,12 +1,3 @@
----
-title: Soft Essential Oils Carrying Cases 16-bottle 5ml, 10ml &amp; 15ml - 2.5&quot;x5&quot;x5&quot;,
-description: Soft Essential Oils Carrying Cases 16-bottle 5ml, 10ml &amp; 15ml - 2.5&quot;x5&quot;x5&quot;,
-author: Suvojit Manna,
-tags: Soft Essential Oils Carrying Cases 16-bottle 5ml, 10ml &amp; 15ml - 2.5&quot;x5&quot;x5&quot;,
-publishedAt: Fri Jan 10 2020 15:01:04 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:04 GMT+0530 (India Standard Time),
----
-
 # [Soft Essential Oils Carrying Cases 16-bottle 5ml, 10ml &amp; 15ml - 2.5&quot;x5&quot;x5&quot;](https://products.checkmycream.com/products/Soft-Essential-Oils-Carrying-Cases-16-bottle-5ml-10ml-and-15ml-2.5&quot;x5&quot;x5&quot;.html)
 
 ### Positive Reviews

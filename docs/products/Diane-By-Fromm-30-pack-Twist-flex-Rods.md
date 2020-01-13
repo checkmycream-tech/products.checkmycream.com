@@ -1,12 +1,3 @@
----
-title: Diane By Fromm 30-pack Twist-flex Rods,
-description: Diane By Fromm 30-pack Twist-flex Rods,
-author: Suvojit Manna,
-tags: Diane By Fromm 30-pack Twist-flex Rods,
-publishedAt: Fri Jan 10 2020 15:01:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:05 GMT+0530 (India Standard Time),
----
-
 # [Diane By Fromm 30-pack Twist-flex Rods](https://products.checkmycream.com/products/Diane-By-Fromm-30-pack-Twist-flex-Rods.html)
 
 ### Positive Reviews

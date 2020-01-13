@@ -1,12 +1,3 @@
----
-title: Maybelline New York Instant Age Rewind Eraser Treatment Makeup, 0.68 Fluid Ounce,
-description: Maybelline New York Instant Age Rewind Eraser Treatment Makeup, 0.68 Fluid Ounce,
-author: Suvojit Manna,
-tags: Maybelline New York Instant Age Rewind Eraser Treatment Makeup, 0.68 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 14:59:43 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:43 GMT+0530 (India Standard Time),
----
-
 # [Maybelline New York Instant Age Rewind Eraser Treatment Makeup, 0.68 Fluid Ounce](https://products.checkmycream.com/products/Maybelline-New-York-Instant-Age-Rewind-Eraser-Treatment-Makeup-0.68-Fluid-Ounce.html)
 
 ### Positive Reviews

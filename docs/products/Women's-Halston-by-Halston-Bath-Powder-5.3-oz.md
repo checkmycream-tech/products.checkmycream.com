@@ -1,12 +1,3 @@
----
-title: Women&#x27;s Halston by Halston Bath Powder - 5.3 oz,
-description: Women&#x27;s Halston by Halston Bath Powder - 5.3 oz,
-author: Suvojit Manna,
-tags: Women&#x27;s Halston by Halston Bath Powder - 5.3 oz,
-publishedAt: Fri Jan 10 2020 14:59:10 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:10 GMT+0530 (India Standard Time),
----
-
 # [Women&#x27;s Halston by Halston Bath Powder - 5.3 oz](https://products.checkmycream.com/products/Women&#x27;s-Halston-by-Halston-Bath-Powder-5.3-oz.html)
 
 ### Positive Reviews

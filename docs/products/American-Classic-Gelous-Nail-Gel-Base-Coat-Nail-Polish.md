@@ -1,12 +1,3 @@
----
-title: American Classic Gelous Nail Gel Base Coat Nail Polish,
-description: American Classic Gelous Nail Gel Base Coat Nail Polish,
-author: Suvojit Manna,
-tags: American Classic Gelous Nail Gel Base Coat Nail Polish,
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [American Classic Gelous Nail Gel Base Coat Nail Polish](https://products.checkmycream.com/products/American-Classic-Gelous-Nail-Gel-Base-Coat-Nail-Polish.html)
 
 ### Positive Reviews

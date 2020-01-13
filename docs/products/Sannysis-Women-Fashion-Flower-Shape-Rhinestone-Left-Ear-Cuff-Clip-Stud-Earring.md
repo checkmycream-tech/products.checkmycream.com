@@ -1,12 +1,3 @@
----
-title: Sannysis Women Fashion Flower Shape Rhinestone Left Ear Cuff Clip Stud Earring,
-description: Sannysis Women Fashion Flower Shape Rhinestone Left Ear Cuff Clip Stud Earring,
-author: Suvojit Manna,
-tags: Sannysis Women Fashion Flower Shape Rhinestone Left Ear Cuff Clip Stud Earring,
-publishedAt: Fri Jan 10 2020 15:01:04 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:04 GMT+0530 (India Standard Time),
----
-
 # [Sannysis Women Fashion Flower Shape Rhinestone Left Ear Cuff Clip Stud Earring](https://products.checkmycream.com/products/Sannysis-Women-Fashion-Flower-Shape-Rhinestone-Left-Ear-Cuff-Clip-Stud-Earring.html)
 
 ### Positive Reviews

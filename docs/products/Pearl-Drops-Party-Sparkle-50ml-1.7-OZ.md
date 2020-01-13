@@ -1,12 +1,3 @@
----
-title: Pearl Drops Party Sparkle 50ml 1.7 OZ,
-description: Pearl Drops Party Sparkle 50ml 1.7 OZ,
-author: Suvojit Manna,
-tags: Pearl Drops Party Sparkle 50ml 1.7 OZ,
-publishedAt: Fri Jan 10 2020 14:59:30 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:30 GMT+0530 (India Standard Time),
----
-
 # [Pearl Drops Party Sparkle 50ml 1.7 OZ](https://products.checkmycream.com/products/Pearl-Drops-Party-Sparkle-50ml-1.7-OZ.html)
 
 ### Positive Reviews

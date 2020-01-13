@@ -1,12 +1,3 @@
----
-title: Avon Rare Gold Eau de Parfum, 50 ml,
-description: Avon Rare Gold Eau de Parfum, 50 ml,
-author: Suvojit Manna,
-tags: Avon Rare Gold Eau de Parfum, 50 ml,
-publishedAt: Fri Jan 10 2020 15:00:30 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:30 GMT+0530 (India Standard Time),
----
-
 # [Avon Rare Gold Eau de Parfum, 50 ml](https://products.checkmycream.com/products/Avon-Rare-Gold-Eau-de-Parfum-50-ml.html)
 
 ### Positive Reviews

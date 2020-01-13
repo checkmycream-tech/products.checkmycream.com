@@ -1,12 +1,3 @@
----
-title: John Varvatos Artisan Black for Men 4.2 Oz Edt Spray, 4.2 Ounce,
-description: John Varvatos Artisan Black for Men 4.2 Oz Edt Spray, 4.2 Ounce,
-author: Suvojit Manna,
-tags: John Varvatos Artisan Black for Men 4.2 Oz Edt Spray, 4.2 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
----
-
 # [John Varvatos Artisan Black for Men 4.2 Oz Edt Spray, 4.2 Ounce](https://products.checkmycream.com/products/John-Varvatos-Artisan-Black-for-Men-4.2-Oz-Edt-Spray-4.2-Ounce.html)
 
 ### Positive Reviews

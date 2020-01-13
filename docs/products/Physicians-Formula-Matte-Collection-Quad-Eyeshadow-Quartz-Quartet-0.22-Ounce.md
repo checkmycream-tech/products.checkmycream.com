@@ -1,12 +1,3 @@
----
-title: Physicians Formula Matte Collection Quad Eyeshadow, Quartz Quartet, 0.22 Ounce,
-description: Physicians Formula Matte Collection Quad Eyeshadow, Quartz Quartet, 0.22 Ounce,
-author: Suvojit Manna,
-tags: Physicians Formula Matte Collection Quad Eyeshadow, Quartz Quartet, 0.22 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:03 GMT+0530 (India Standard Time),
----
-
 # [Physicians Formula Matte Collection Quad Eyeshadow, Quartz Quartet, 0.22 Ounce](https://products.checkmycream.com/products/Physicians-Formula-Matte-Collection-Quad-Eyeshadow-Quartz-Quartet-0.22-Ounce.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Prada Luna Rossa Men&#x27;s All Over Body Spray, 6.8 Ounce,
-description: Prada Luna Rossa Men&#x27;s All Over Body Spray, 6.8 Ounce,
-author: Suvojit Manna,
-tags: Prada Luna Rossa Men&#x27;s All Over Body Spray, 6.8 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
----
-
 # [Prada Luna Rossa Men&#x27;s All Over Body Spray, 6.8 Ounce](https://products.checkmycream.com/products/Prada-Luna-Rossa-Men&#x27;s-All-Over-Body-Spray-6.8-Ounce.html)
 
 ### Positive Reviews

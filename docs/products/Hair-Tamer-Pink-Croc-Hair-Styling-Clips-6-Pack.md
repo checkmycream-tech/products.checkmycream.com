@@ -1,12 +1,3 @@
----
-title: Hair Tamer Pink Croc Hair Styling Clips - 6 Pack,
-description: Hair Tamer Pink Croc Hair Styling Clips - 6 Pack,
-author: Suvojit Manna,
-tags: Hair Tamer Pink Croc Hair Styling Clips - 6 Pack,
-publishedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
----
-
 # [Hair Tamer Pink Croc Hair Styling Clips - 6 Pack](https://products.checkmycream.com/products/Hair-Tamer-Pink-Croc-Hair-Styling-Clips-6-Pack.html)
 
 ### Positive Reviews

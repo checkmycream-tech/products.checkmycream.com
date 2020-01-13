@@ -1,12 +1,3 @@
----
-title: Maybelline New York Instant Age Rewind Eraser Dark Spot Concealer Plus Treatment, 0.2 Fluid Ounce,
-description: Maybelline New York Instant Age Rewind Eraser Dark Spot Concealer Plus Treatment, 0.2 Fluid Ounce,
-author: Suvojit Manna,
-tags: Maybelline New York Instant Age Rewind Eraser Dark Spot Concealer Plus Treatment, 0.2 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 15:00:38 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:38 GMT+0530 (India Standard Time),
----
-
 # [Maybelline New York Instant Age Rewind Eraser Dark Spot Concealer Plus Treatment, 0.2 Fluid Ounce](https://products.checkmycream.com/products/Maybelline-New-York-Instant-Age-Rewind-Eraser-Dark-Spot-Concealer-Plus-Treatment-0.2-Fluid-Ounce.html)
 
 ### Positive Reviews

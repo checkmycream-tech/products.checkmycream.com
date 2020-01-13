@@ -1,12 +1,3 @@
----
-title: Dove Pro Age Cream Oil Lotion with Ahas &amp; Spf 5 16.9 Oz (3 Pack),
-description: Dove Pro Age Cream Oil Lotion with Ahas &amp; Spf 5 16.9 Oz (3 Pack),
-author: Suvojit Manna,
-tags: Dove Pro Age Cream Oil Lotion with Ahas &amp; Spf 5 16.9 Oz (3 Pack),
-publishedAt: Fri Jan 10 2020 14:59:51 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:51 GMT+0530 (India Standard Time),
----
-
 # [Dove Pro Age Cream Oil Lotion with Ahas &amp; Spf 5 16.9 Oz (3 Pack)](https://products.checkmycream.com/products/Dove-Pro-Age-Cream-Oil-Lotion-with-Ahas-and-Spf-5-16.9-Oz-(3-Pack).html)
 
 ### Positive Reviews

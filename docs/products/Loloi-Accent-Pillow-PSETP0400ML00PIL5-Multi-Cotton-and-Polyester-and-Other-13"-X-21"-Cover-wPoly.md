@@ -1,12 +1,3 @@
----
-title: Loloi  Accent  Pillow  PSETP0400ML00PIL5  -  Multi  -  Cotton  &amp;  Polyester  &amp;  Other  -  13&quot;  X  21&quot;  Cover  w/Poly,
-description: Loloi  Accent  Pillow  PSETP0400ML00PIL5  -  Multi  -  Cotton  &amp;  Polyester  &amp;  Other  -  13&quot;  X  21&quot;  Cover  w/Poly,
-author: Suvojit Manna,
-tags: Loloi  Accent  Pillow  PSETP0400ML00PIL5  -  Multi  -  Cotton  &amp;  Polyester  &amp;  Other  -  13&quot;  X  21&quot;  Cover  w/Poly,
-publishedAt: Fri Jan 10 2020 14:59:32 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:32 GMT+0530 (India Standard Time),
----
-
 # [Loloi  Accent  Pillow  PSETP0400ML00PIL5  -  Multi  -  Cotton  &amp;  Polyester  &amp;  Other  -  13&quot;  X  21&quot;  Cover  w/Poly](https://products.checkmycream.com/products/Loloi-Accent-Pillow-PSETP0400ML00PIL5-Multi-Cotton-and-Polyester-and-Other-13&quot;-X-21&quot;-Cover-wPoly.html)
 
 ### Positive Reviews

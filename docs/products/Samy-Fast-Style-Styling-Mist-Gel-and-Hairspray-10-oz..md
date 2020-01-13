@@ -1,12 +1,3 @@
----
-title: Samy Fast Style Styling Mist Gel &amp; Hairspray 10 oz.,
-description: Samy Fast Style Styling Mist Gel &amp; Hairspray 10 oz.,
-author: Suvojit Manna,
-tags: Samy Fast Style Styling Mist Gel &amp; Hairspray 10 oz.,
-publishedAt: Fri Jan 10 2020 14:59:43 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:43 GMT+0530 (India Standard Time),
----
-
 # [Samy Fast Style Styling Mist Gel &amp; Hairspray 10 oz.](https://products.checkmycream.com/products/Samy-Fast-Style-Styling-Mist-Gel-and-Hairspray-10-oz..html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: SHOWER TO SHOWER Body Powder Sport 8 oz,
-description: SHOWER TO SHOWER Body Powder Sport 8 oz,
-author: Suvojit Manna,
-tags: SHOWER TO SHOWER Body Powder Sport 8 oz,
-publishedAt: Fri Jan 10 2020 14:59:11 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:11 GMT+0530 (India Standard Time),
----
-
 # [SHOWER TO SHOWER Body Powder Sport 8 oz](https://products.checkmycream.com/products/SHOWER-TO-SHOWER-Body-Powder-Sport-8-oz.html)
 
 ### Positive Reviews

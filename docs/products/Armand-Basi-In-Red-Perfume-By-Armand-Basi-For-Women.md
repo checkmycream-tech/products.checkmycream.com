@@ -1,12 +1,3 @@
----
-title: Armand Basi In Red Perfume By Armand Basi For Women,
-description: Armand Basi In Red Perfume By Armand Basi For Women,
-author: Suvojit Manna,
-tags: Armand Basi In Red Perfume By Armand Basi For Women,
-publishedAt: Fri Jan 10 2020 14:59:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:08 GMT+0530 (India Standard Time),
----
-
 # [Armand Basi In Red Perfume By Armand Basi For Women](https://products.checkmycream.com/products/Armand-Basi-In-Red-Perfume-By-Armand-Basi-For-Women.html)
 
 ### Positive Reviews

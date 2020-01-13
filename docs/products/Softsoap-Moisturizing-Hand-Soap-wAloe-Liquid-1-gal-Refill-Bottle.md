@@ -1,12 +1,3 @@
----
-title: Softsoap Moisturizing Hand Soap w/Aloe, Liquid, 1 gal Refill Bottle,
-description: Softsoap Moisturizing Hand Soap w/Aloe, Liquid, 1 gal Refill Bottle,
-author: Suvojit Manna,
-tags: Softsoap Moisturizing Hand Soap w/Aloe, Liquid, 1 gal Refill Bottle,
-publishedAt: Fri Jan 10 2020 15:00:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:00 GMT+0530 (India Standard Time),
----
-
 # [Softsoap Moisturizing Hand Soap w/Aloe, Liquid, 1 gal Refill Bottle](https://products.checkmycream.com/products/Softsoap-Moisturizing-Hand-Soap-wAloe-Liquid-1-gal-Refill-Bottle.html)
 
 ### Positive Reviews

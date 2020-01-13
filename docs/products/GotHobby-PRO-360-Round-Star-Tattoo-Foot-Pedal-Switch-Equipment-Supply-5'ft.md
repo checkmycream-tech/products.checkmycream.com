@@ -1,12 +1,3 @@
----
-title: GotHobby PRO 360° Round Star Tattoo Foot Pedal Switch Equipment Supply 5&#x27;ft,
-description: GotHobby PRO 360° Round Star Tattoo Foot Pedal Switch Equipment Supply 5&#x27;ft,
-author: Suvojit Manna,
-tags: GotHobby PRO 360° Round Star Tattoo Foot Pedal Switch Equipment Supply 5&#x27;ft,
-publishedAt: Fri Jan 10 2020 15:00:13 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:13 GMT+0530 (India Standard Time),
----
-
 # [GotHobby PRO 360° Round Star Tattoo Foot Pedal Switch Equipment Supply 5&#x27;ft](https://products.checkmycream.com/products/GotHobby-PRO-360-Round-Star-Tattoo-Foot-Pedal-Switch-Equipment-Supply-5&#x27;ft.html)
 
 ### Positive Reviews

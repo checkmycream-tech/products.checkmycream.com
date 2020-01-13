@@ -1,12 +1,3 @@
----
-title: OPI Nail Polish Pink of Heart 2014,
-description: OPI Nail Polish Pink of Heart 2014,
-author: Suvojit Manna,
-tags: OPI Nail Polish Pink of Heart 2014,
-publishedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
----
-
 # [OPI Nail Polish Pink of Heart 2014](https://products.checkmycream.com/products/OPI-Nail-Polish-Pink-of-Heart-2014.html)
 
 ### Positive Reviews

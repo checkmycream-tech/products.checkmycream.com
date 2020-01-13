@@ -1,12 +1,3 @@
----
-title: Banana Boat Sunscreen Aloe Vera with Vitamin E Broad Spectrum Sun Care Sunscreen Lip Balm - SPF 45, 0.15 Ounce (Pack of 24),
-description: Banana Boat Sunscreen Aloe Vera with Vitamin E Broad Spectrum Sun Care Sunscreen Lip Balm - SPF 45, 0.15 Ounce (Pack of 24),
-author: Suvojit Manna,
-tags: Banana Boat Sunscreen Aloe Vera with Vitamin E Broad Spectrum Sun Care Sunscreen Lip Balm - SPF 45, 0.15 Ounce (Pack of 24),
-publishedAt: Fri Jan 10 2020 14:59:32 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:32 GMT+0530 (India Standard Time),
----
-
 # [Banana Boat Sunscreen Aloe Vera with Vitamin E Broad Spectrum Sun Care Sunscreen Lip Balm - SPF 45, 0.15 Ounce (Pack of 24)](https://products.checkmycream.com/products/Banana-Boat-Sunscreen-Aloe-Vera-with-Vitamin-E-Broad-Spectrum-Sun-Care-Sunscreen-Lip-Balm-SPF-45-0.15-Ounce-(Pack-of-24).html)
 
 ### Positive Reviews

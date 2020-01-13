@@ -1,12 +1,3 @@
----
-title: Emergencia Deep Intense Hair Treatment 16 oz,
-description: Emergencia Deep Intense Hair Treatment 16 oz,
-author: Suvojit Manna,
-tags: Emergencia Deep Intense Hair Treatment 16 oz,
-publishedAt: Fri Jan 10 2020 14:59:45 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:45 GMT+0530 (India Standard Time),
----
-
 # [Emergencia Deep Intense Hair Treatment 16 oz](https://products.checkmycream.com/products/Emergencia-Deep-Intense-Hair-Treatment-16-oz.html)
 
 ### Positive Reviews

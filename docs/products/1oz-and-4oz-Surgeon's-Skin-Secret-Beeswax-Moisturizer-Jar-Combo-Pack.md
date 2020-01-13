@@ -1,12 +1,3 @@
----
-title: 1oz &amp; 4oz Surgeon&#x27;s Skin Secret Beeswax Moisturizer Jar Combo Pack,
-description: 1oz &amp; 4oz Surgeon&#x27;s Skin Secret Beeswax Moisturizer Jar Combo Pack,
-author: Suvojit Manna,
-tags: 1oz &amp; 4oz Surgeon&#x27;s Skin Secret Beeswax Moisturizer Jar Combo Pack,
-publishedAt: Fri Jan 10 2020 15:00:12 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:12 GMT+0530 (India Standard Time),
----
-
 # [1oz &amp; 4oz Surgeon&#x27;s Skin Secret Beeswax Moisturizer Jar Combo Pack](https://products.checkmycream.com/products/1oz-and-4oz-Surgeon&#x27;s-Skin-Secret-Beeswax-Moisturizer-Jar-Combo-Pack.html)
 
 ### Positive Reviews

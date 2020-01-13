@@ -1,12 +1,3 @@
----
-title: THREE SWORDS - Exclusive 12-Piece MANICURE - PEDICURE - GROOMING – NAIL CARE set / kit / case - Made in Solingen / Germany | VARIOUS DESIGNS,
-description: THREE SWORDS - Exclusive 12-Piece MANICURE - PEDICURE - GROOMING – NAIL CARE set / kit / case - Made in Solingen / Germany | VARIOUS DESIGNS,
-author: Suvojit Manna,
-tags: THREE SWORDS - Exclusive 12-Piece MANICURE - PEDICURE - GROOMING – NAIL CARE set / kit / case - Made in Solingen / Germany | VARIOUS DESIGNS,
-publishedAt: Fri Jan 10 2020 15:00:17 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:17 GMT+0530 (India Standard Time),
----
-
 # [THREE SWORDS - Exclusive 12-Piece MANICURE - PEDICURE - GROOMING – NAIL CARE set / kit / case - Made in Solingen / Germany | VARIOUS DESIGNS](https://products.checkmycream.com/products/THREE-SWORDS-Exclusive-12-Piece-MANICURE-PEDICURE-GROOMING-NAIL-CARE-set-kit-case-Made-in-Solingen-Germany-or-VARIOUS-DESIGNS.html)
 
 ### Positive Reviews

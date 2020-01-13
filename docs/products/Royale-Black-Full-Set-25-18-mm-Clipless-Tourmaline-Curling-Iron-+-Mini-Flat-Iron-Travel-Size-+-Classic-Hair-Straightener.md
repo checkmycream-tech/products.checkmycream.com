@@ -1,12 +1,3 @@
----
-title: Royale Black Full Set 25-18 mm Clipless Tourmaline Curling Iron + Mini Flat Iron Travel Size + Classic Hair Straightener,
-description: Royale Black Full Set 25-18 mm Clipless Tourmaline Curling Iron + Mini Flat Iron Travel Size + Classic Hair Straightener,
-author: Suvojit Manna,
-tags: Royale Black Full Set 25-18 mm Clipless Tourmaline Curling Iron + Mini Flat Iron Travel Size + Classic Hair Straightener,
-publishedAt: Fri Jan 10 2020 15:00:29 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:29 GMT+0530 (India Standard Time),
----
-
 # [Royale Black Full Set 25-18 mm Clipless Tourmaline Curling Iron + Mini Flat Iron Travel Size + Classic Hair Straightener](https://products.checkmycream.com/products/Royale-Black-Full-Set-25-18-mm-Clipless-Tourmaline-Curling-Iron-+-Mini-Flat-Iron-Travel-Size-+-Classic-Hair-Straightener.html)
 
 ### Positive Reviews

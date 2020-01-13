@@ -1,12 +1,3 @@
----
-title: QTICA Half Time Drying Accelerator - 1 oz.,
-description: QTICA Half Time Drying Accelerator - 1 oz.,
-author: Suvojit Manna,
-tags: QTICA Half Time Drying Accelerator - 1 oz.,
-publishedAt: Fri Jan 10 2020 14:59:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:03 GMT+0530 (India Standard Time),
----
-
 # [QTICA Half Time Drying Accelerator - 1 oz.](https://products.checkmycream.com/products/QTICA-Half-Time-Drying-Accelerator-1-oz..html)
 
 ### Positive Reviews

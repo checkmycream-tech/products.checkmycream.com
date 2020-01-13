@@ -1,12 +1,3 @@
----
-title: Estee Lauder New Macy&#x27;s 7 Pcs Skin Care Makeup Gift Set Advanced Night Repair Mascara Lipstick Cosmetic Bag by Estee Lauder,
-description: Estee Lauder New Macy&#x27;s 7 Pcs Skin Care Makeup Gift Set Advanced Night Repair Mascara Lipstick Cosmetic Bag by Estee Lauder,
-author: Suvojit Manna,
-tags: Estee Lauder New Macy&#x27;s 7 Pcs Skin Care Makeup Gift Set Advanced Night Repair Mascara Lipstick Cosmetic Bag by Estee Lauder,
-publishedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
----
-
 # [Estee Lauder New Macy&#x27;s 7 Pcs Skin Care Makeup Gift Set Advanced Night Repair Mascara Lipstick Cosmetic Bag by Estee Lauder](https://products.checkmycream.com/products/Estee-Lauder-New-Macy&#x27;s-7-Pcs-Skin-Care-Makeup-Gift-Set-Advanced-Night-Repair-Mascara-Lipstick-Cosmetic-Bag-by-Estee-Lauder.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Mustache Growing Cream by Natural Cream,
-description: Mustache Growing Cream by Natural Cream,
-author: Suvojit Manna,
-tags: Mustache Growing Cream by Natural Cream,
-publishedAt: Fri Jan 10 2020 15:00:20 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:20 GMT+0530 (India Standard Time),
----
-
 # [Mustache Growing Cream by Natural Cream](https://products.checkmycream.com/products/Mustache-Growing-Cream-by-Natural-Cream.html)
 
 ### Positive Reviews

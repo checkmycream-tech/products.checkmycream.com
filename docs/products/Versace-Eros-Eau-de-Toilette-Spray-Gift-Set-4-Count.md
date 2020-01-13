@@ -1,12 +1,3 @@
----
-title: Versace Eros Eau de Toilette Spray Gift Set, 4 Count,
-description: Versace Eros Eau de Toilette Spray Gift Set, 4 Count,
-author: Suvojit Manna,
-tags: Versace Eros Eau de Toilette Spray Gift Set, 4 Count,
-publishedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
----
-
 # [Versace Eros Eau de Toilette Spray Gift Set, 4 Count](https://products.checkmycream.com/products/Versace-Eros-Eau-de-Toilette-Spray-Gift-Set-4-Count.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Scruples Enforce Extra Firm Glaze, 33.8-Ounce,
-description: Scruples Enforce Extra Firm Glaze, 33.8-Ounce,
-author: Suvojit Manna,
-tags: Scruples Enforce Extra Firm Glaze, 33.8-Ounce,
-publishedAt: Fri Jan 10 2020 14:59:04 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:04 GMT+0530 (India Standard Time),
----
-
 # [Scruples Enforce Extra Firm Glaze, 33.8-Ounce](https://products.checkmycream.com/products/Scruples-Enforce-Extra-Firm-Glaze-33.8-Ounce.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Vktech 925 Sterling Silver Hoop Earring Fine Fashion Silver Flat U-shaped Earrings,
-description: Vktech 925 Sterling Silver Hoop Earring Fine Fashion Silver Flat U-shaped Earrings,
-author: Suvojit Manna,
-tags: Vktech 925 Sterling Silver Hoop Earring Fine Fashion Silver Flat U-shaped Earrings,
-publishedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
----
-
 # [Vktech 925 Sterling Silver Hoop Earring Fine Fashion Silver Flat U-shaped Earrings](https://products.checkmycream.com/products/Vktech-925-Sterling-Silver-Hoop-Earring-Fine-Fashion-Silver-Flat-U-shaped-Earrings.html)
 
 ### Positive Reviews

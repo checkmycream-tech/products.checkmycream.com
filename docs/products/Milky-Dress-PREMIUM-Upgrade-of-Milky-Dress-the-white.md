@@ -1,12 +1,3 @@
----
-title: Milky Dress PREMIUM/ Upgrade of Milky Dress the white,
-description: Milky Dress PREMIUM/ Upgrade of Milky Dress the white,
-author: Suvojit Manna,
-tags: Milky Dress PREMIUM/ Upgrade of Milky Dress the white,
-publishedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
----
-
 # [Milky Dress PREMIUM/ Upgrade of Milky Dress the white](https://products.checkmycream.com/products/Milky-Dress-PREMIUM-Upgrade-of-Milky-Dress-the-white.html)
 
 ### Positive Reviews

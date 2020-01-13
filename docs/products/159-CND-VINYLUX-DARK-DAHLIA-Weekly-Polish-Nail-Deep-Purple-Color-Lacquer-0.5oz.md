@@ -1,12 +1,3 @@
----
-title: 159 CND - VINYLUX DARK DAHLIA Weekly Polish Nail Deep Purple Color Lacquer 0.5oz,
-description: 159 CND - VINYLUX DARK DAHLIA Weekly Polish Nail Deep Purple Color Lacquer 0.5oz,
-author: Suvojit Manna,
-tags: 159 CND - VINYLUX DARK DAHLIA Weekly Polish Nail Deep Purple Color Lacquer 0.5oz,
-publishedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
----
-
 # [159 CND - VINYLUX DARK DAHLIA Weekly Polish Nail Deep Purple Color Lacquer 0.5oz](https://products.checkmycream.com/products/159-CND-VINYLUX-DARK-DAHLIA-Weekly-Polish-Nail-Deep-Purple-Color-Lacquer-0.5oz.html)
 
 ### Positive Reviews

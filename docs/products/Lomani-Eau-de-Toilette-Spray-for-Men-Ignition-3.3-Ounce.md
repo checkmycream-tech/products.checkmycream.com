@@ -1,12 +1,3 @@
----
-title: Lomani Eau de Toilette Spray for Men, Ignition, 3.3 Ounce,
-description: Lomani Eau de Toilette Spray for Men, Ignition, 3.3 Ounce,
-author: Suvojit Manna,
-tags: Lomani Eau de Toilette Spray for Men, Ignition, 3.3 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:22 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:22 GMT+0530 (India Standard Time),
----
-
 # [Lomani Eau de Toilette Spray for Men, Ignition, 3.3 Ounce](https://products.checkmycream.com/products/Lomani-Eau-de-Toilette-Spray-for-Men-Ignition-3.3-Ounce.html)
 
 ### Positive Reviews

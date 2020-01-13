@@ -1,12 +1,3 @@
----
-title: Proactiv Refining Mask 2.5oz (Lot of 2),
-description: Proactiv Refining Mask 2.5oz (Lot of 2),
-author: Suvojit Manna,
-tags: Proactiv Refining Mask 2.5oz (Lot of 2),
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [Proactiv Refining Mask 2.5oz (Lot of 2)](https://products.checkmycream.com/products/Proactiv-Refining-Mask-2.5oz-(Lot-of-2).html)
 
 ### Positive Reviews

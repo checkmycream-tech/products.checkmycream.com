@@ -1,12 +1,3 @@
----
-title: Dana English Leather 8 OZ After Shave Mens New,
-description: Dana English Leather 8 OZ After Shave Mens New,
-author: Suvojit Manna,
-tags: Dana English Leather 8 OZ After Shave Mens New,
-publishedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
----
-
 # [Dana English Leather 8 OZ After Shave Mens New](https://products.checkmycream.com/products/Dana-English-Leather-8-OZ-After-Shave-Mens-New.html)
 
 ### Positive Reviews

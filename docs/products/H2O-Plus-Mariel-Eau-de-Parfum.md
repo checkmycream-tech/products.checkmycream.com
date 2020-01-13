@@ -1,12 +1,3 @@
----
-title: H2O Plus Mariel Eau de Parfum,
-description: H2O Plus Mariel Eau de Parfum,
-author: Suvojit Manna,
-tags: H2O Plus Mariel Eau de Parfum,
-publishedAt: Fri Jan 10 2020 14:59:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:01 GMT+0530 (India Standard Time),
----
-
 # [H2O Plus Mariel Eau de Parfum](https://products.checkmycream.com/products/H2O-Plus-Mariel-Eau-de-Parfum.html)
 
 ### Positive Reviews

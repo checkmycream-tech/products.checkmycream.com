@@ -1,12 +1,3 @@
----
-title: Kuro Sumi Greywash Tattoo Shading Ink, 6 oz,
-description: Kuro Sumi Greywash Tattoo Shading Ink, 6 oz,
-author: Suvojit Manna,
-tags: Kuro Sumi Greywash Tattoo Shading Ink, 6 oz,
-publishedAt: Fri Jan 10 2020 15:00:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:05 GMT+0530 (India Standard Time),
----
-
 # [Kuro Sumi Greywash Tattoo Shading Ink, 6 oz](https://products.checkmycream.com/products/Kuro-Sumi-Greywash-Tattoo-Shading-Ink-6-oz.html)
 
 ### Positive Reviews

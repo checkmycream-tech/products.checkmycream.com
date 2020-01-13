@@ -1,12 +1,3 @@
----
-title: Beachcomber Budd&#x27;s Pure Coconut Oil - 8 fl. oz. Scented,
-description: Beachcomber Budd&#x27;s Pure Coconut Oil - 8 fl. oz. Scented,
-author: Suvojit Manna,
-tags: Beachcomber Budd&#x27;s Pure Coconut Oil - 8 fl. oz. Scented,
-publishedAt: Fri Jan 10 2020 15:00:17 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:17 GMT+0530 (India Standard Time),
----
-
 # [Beachcomber Budd&#x27;s Pure Coconut Oil - 8 fl. oz. Scented](https://products.checkmycream.com/products/Beachcomber-Budd&#x27;s-Pure-Coconut-Oil-8-fl.-oz.-Scented.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: 2 Packs Trader Joe&#x27;s Coconut Body Butter,
-description: 2 Packs Trader Joe&#x27;s Coconut Body Butter,
-author: Suvojit Manna,
-tags: 2 Packs Trader Joe&#x27;s Coconut Body Butter,
-publishedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
----
-
 # [2 Packs Trader Joe&#x27;s Coconut Body Butter](https://products.checkmycream.com/products/2-Packs-Trader-Joe&#x27;s-Coconut-Body-Butter.html)
 
 ### Positive Reviews

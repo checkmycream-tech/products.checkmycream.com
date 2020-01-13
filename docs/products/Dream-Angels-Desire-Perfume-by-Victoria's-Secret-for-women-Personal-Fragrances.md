@@ -1,12 +1,3 @@
----
-title: Dream Angels Desire Perfume by Victoria&#x27;s Secret for women Personal Fragrances,
-description: Dream Angels Desire Perfume by Victoria&#x27;s Secret for women Personal Fragrances,
-author: Suvojit Manna,
-tags: Dream Angels Desire Perfume by Victoria&#x27;s Secret for women Personal Fragrances,
-publishedAt: Fri Jan 10 2020 14:59:07 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:07 GMT+0530 (India Standard Time),
----
-
 # [Dream Angels Desire Perfume by Victoria&#x27;s Secret for women Personal Fragrances](https://products.checkmycream.com/products/Dream-Angels-Desire-Perfume-by-Victoria&#x27;s-Secret-for-women-Personal-Fragrances.html)
 
 ### Positive Reviews

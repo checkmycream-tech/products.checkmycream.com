@@ -1,12 +1,3 @@
----
-title: TIGI Bed Head Manipulator Matte,
-description: TIGI Bed Head Manipulator Matte,
-author: Suvojit Manna,
-tags: TIGI Bed Head Manipulator Matte,
-publishedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
----
-
 # [TIGI Bed Head Manipulator Matte](https://products.checkmycream.com/products/TIGI-Bed-Head-Manipulator-Matte.html)
 
 ### Positive Reviews

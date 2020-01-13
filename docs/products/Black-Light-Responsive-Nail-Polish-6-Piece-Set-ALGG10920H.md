@@ -1,12 +1,3 @@
----
-title: Black Light Responsive Nail Polish 6-Piece Set AL#GG10920H,
-description: Black Light Responsive Nail Polish 6-Piece Set AL#GG10920H,
-author: Suvojit Manna,
-tags: Black Light Responsive Nail Polish 6-Piece Set AL#GG10920H,
-publishedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
----
-
 # [Black Light Responsive Nail Polish 6-Piece Set AL#GG10920H](https://products.checkmycream.com/products/Black-Light-Responsive-Nail-Polish-6-Piece-Set-ALGG10920H.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: NWT Victoria Secret 2014 Limited Edition Getaway Bag Rare $99 Retail Value,
-description: NWT Victoria Secret 2014 Limited Edition Getaway Bag Rare $99 Retail Value,
-author: Suvojit Manna,
-tags: NWT Victoria Secret 2014 Limited Edition Getaway Bag Rare $99 Retail Value,
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [NWT Victoria Secret 2014 Limited Edition Getaway Bag Rare $99 Retail Value](https://products.checkmycream.com/products/NWT-Victoria-Secret-2014-Limited-Edition-Getaway-Bag-Rare-dollar99-Retail-Value.html)
 
 ### Positive Reviews

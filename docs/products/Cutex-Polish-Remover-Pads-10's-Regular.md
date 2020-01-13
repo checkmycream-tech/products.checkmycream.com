@@ -1,12 +1,3 @@
----
-title: Cutex Polish Remover Pads 10&#x27;s Regular,
-description: Cutex Polish Remover Pads 10&#x27;s Regular,
-author: Suvojit Manna,
-tags: Cutex Polish Remover Pads 10&#x27;s Regular,
-publishedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
----
-
 # [Cutex Polish Remover Pads 10&#x27;s Regular](https://products.checkmycream.com/products/Cutex-Polish-Remover-Pads-10&#x27;s-Regular.html)
 
 ### Positive Reviews

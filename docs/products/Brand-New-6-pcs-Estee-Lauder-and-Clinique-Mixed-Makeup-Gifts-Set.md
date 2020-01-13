@@ -1,12 +1,3 @@
----
-title: Brand New 6 pcs Estee Lauder &amp; Clinique Mixed Makeup Gifts Set,
-description: Brand New 6 pcs Estee Lauder &amp; Clinique Mixed Makeup Gifts Set,
-author: Suvojit Manna,
-tags: Brand New 6 pcs Estee Lauder &amp; Clinique Mixed Makeup Gifts Set,
-publishedAt: Fri Jan 10 2020 15:00:12 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:12 GMT+0530 (India Standard Time),
----
-
 # [Brand New 6 pcs Estee Lauder &amp; Clinique Mixed Makeup Gifts Set](https://products.checkmycream.com/products/Brand-New-6-pcs-Estee-Lauder-and-Clinique-Mixed-Makeup-Gifts-Set.html)
 
 ### Positive Reviews

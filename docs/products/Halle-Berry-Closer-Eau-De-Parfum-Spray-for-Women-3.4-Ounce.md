@@ -1,12 +1,3 @@
----
-title: Halle Berry Closer Eau De Parfum Spray for Women, 3.4 Ounce,
-description: Halle Berry Closer Eau De Parfum Spray for Women, 3.4 Ounce,
-author: Suvojit Manna,
-tags: Halle Berry Closer Eau De Parfum Spray for Women, 3.4 Ounce,
-publishedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
----
-
 # [Halle Berry Closer Eau De Parfum Spray for Women, 3.4 Ounce](https://products.checkmycream.com/products/Halle-Berry-Closer-Eau-De-Parfum-Spray-for-Women-3.4-Ounce.html)
 
 ### Positive Reviews

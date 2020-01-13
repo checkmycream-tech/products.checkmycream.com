@@ -1,12 +1,3 @@
----
-title: YESURPRISE Special Silver White Bow Tie 10 pieces Silver 3D Alloy Nail Art Slices Glitters DIY Decorations,
-description: YESURPRISE Special Silver White Bow Tie 10 pieces Silver 3D Alloy Nail Art Slices Glitters DIY Decorations,
-author: Suvojit Manna,
-tags: YESURPRISE Special Silver White Bow Tie 10 pieces Silver 3D Alloy Nail Art Slices Glitters DIY Decorations,
-publishedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
----
-
 # [YESURPRISE Special Silver White Bow Tie 10 pieces Silver 3D Alloy Nail Art Slices Glitters DIY Decorations](https://products.checkmycream.com/products/YESURPRISE-Special-Silver-White-Bow-Tie-10-pieces-Silver-3D-Alloy-Nail-Art-Slices-Glitters-DIY-Decorations.html)
 
 ### Positive Reviews

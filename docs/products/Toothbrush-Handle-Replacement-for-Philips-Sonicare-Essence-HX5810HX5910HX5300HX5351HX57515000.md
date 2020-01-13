@@ -1,12 +1,3 @@
----
-title: Toothbrush Handle Replacement for Philips Sonicare Essence HX5810/HX5910/HX5300/HX5351/HX5751/5000,
-description: Toothbrush Handle Replacement for Philips Sonicare Essence HX5810/HX5910/HX5300/HX5351/HX5751/5000,
-author: Suvojit Manna,
-tags: Toothbrush Handle Replacement for Philips Sonicare Essence HX5810/HX5910/HX5300/HX5351/HX5751/5000,
-publishedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
----
-
 # [Toothbrush Handle Replacement for Philips Sonicare Essence HX5810/HX5910/HX5300/HX5351/HX5751/5000](https://products.checkmycream.com/products/Toothbrush-Handle-Replacement-for-Philips-Sonicare-Essence-HX5810HX5910HX5300HX5351HX57515000.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Smashbox Cosmetics Photo Finish Oil-Free Foundation Primer - Travel Size,
-description: Smashbox Cosmetics Photo Finish Oil-Free Foundation Primer - Travel Size,
-author: Suvojit Manna,
-tags: Smashbox Cosmetics Photo Finish Oil-Free Foundation Primer - Travel Size,
-publishedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
----
-
 # [Smashbox Cosmetics Photo Finish Oil-Free Foundation Primer - Travel Size](https://products.checkmycream.com/products/Smashbox-Cosmetics-Photo-Finish-Oil-Free-Foundation-Primer-Travel-Size.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: 1TattooWorld 7 Round Liner Sterilized Tattoo Needles OTW-50-7RL,50 pieces,
-description: 1TattooWorld 7 Round Liner Sterilized Tattoo Needles OTW-50-7RL,50 pieces,
-author: Suvojit Manna,
-tags: 1TattooWorld 7 Round Liner Sterilized Tattoo Needles OTW-50-7RL,50 pieces,
-publishedAt: Fri Jan 10 2020 14:59:26 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:26 GMT+0530 (India Standard Time),
----
-
 # [1TattooWorld 7 Round Liner Sterilized Tattoo Needles OTW-50-7RL,50 pieces](https://products.checkmycream.com/products/1TattooWorld-7-Round-Liner-Sterilized-Tattoo-Needles-OTW-50-7RL50-pieces.html)
 
 ### Positive Reviews

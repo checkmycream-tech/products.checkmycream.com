@@ -1,12 +1,3 @@
----
-title: Kerastase Discipline Fluidissime Complete Anti-Frizz Care Spray for Unisex, 5.1 Ounce,
-description: Kerastase Discipline Fluidissime Complete Anti-Frizz Care Spray for Unisex, 5.1 Ounce,
-author: Suvojit Manna,
-tags: Kerastase Discipline Fluidissime Complete Anti-Frizz Care Spray for Unisex, 5.1 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
----
-
 # [Kerastase Discipline Fluidissime Complete Anti-Frizz Care Spray for Unisex, 5.1 Ounce](https://products.checkmycream.com/products/Kerastase-Discipline-Fluidissime-Complete-Anti-Frizz-Care-Spray-for-Unisex-5.1-Ounce.html)
 
 ### Positive Reviews

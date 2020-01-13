@@ -1,12 +1,3 @@
----
-title: Disney Frozen Hair Clips Snap Clips Barrets set of 4,
-description: Disney Frozen Hair Clips Snap Clips Barrets set of 4,
-author: Suvojit Manna,
-tags: Disney Frozen Hair Clips Snap Clips Barrets set of 4,
-publishedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
----
-
 # [Disney Frozen Hair Clips Snap Clips Barrets set of 4](https://products.checkmycream.com/products/Disney-Frozen-Hair-Clips-Snap-Clips-Barrets-set-of-4.html)
 
 ### Positive Reviews

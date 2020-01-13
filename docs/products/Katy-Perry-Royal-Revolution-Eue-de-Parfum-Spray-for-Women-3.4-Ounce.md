@@ -1,12 +1,3 @@
----
-title: Katy Perry Royal Revolution Eue de Parfum Spray for Women, 3.4 Ounce,
-description: Katy Perry Royal Revolution Eue de Parfum Spray for Women, 3.4 Ounce,
-author: Suvojit Manna,
-tags: Katy Perry Royal Revolution Eue de Parfum Spray for Women, 3.4 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
----
-
 # [Katy Perry Royal Revolution Eue de Parfum Spray for Women, 3.4 Ounce](https://products.checkmycream.com/products/Katy-Perry-Royal-Revolution-Eue-de-Parfum-Spray-for-Women-3.4-Ounce.html)
 
 ### Positive Reviews

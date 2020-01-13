@@ -1,12 +1,3 @@
----
-title: Smith and Nephew Iodosorb Gel Tube 40g 6602125040,
-description: Smith and Nephew Iodosorb Gel Tube 40g 6602125040,
-author: Suvojit Manna,
-tags: Smith and Nephew Iodosorb Gel Tube 40g 6602125040,
-publishedAt: Fri Jan 10 2020 14:59:43 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:43 GMT+0530 (India Standard Time),
----
-
 # [Smith and Nephew Iodosorb Gel Tube 40g 6602125040](https://products.checkmycream.com/products/Smith-and-Nephew-Iodosorb-Gel-Tube-40g-6602125040.html)
 
 ### Positive Reviews

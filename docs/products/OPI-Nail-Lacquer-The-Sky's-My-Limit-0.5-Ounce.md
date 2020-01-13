@@ -1,12 +1,3 @@
----
-title: OPI Nail Lacquer, The Sky&#x27;s My Limit, 0.5 Ounce,
-description: OPI Nail Lacquer, The Sky&#x27;s My Limit, 0.5 Ounce,
-author: Suvojit Manna,
-tags: OPI Nail Lacquer, The Sky&#x27;s My Limit, 0.5 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:22 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:22 GMT+0530 (India Standard Time),
----
-
 # [OPI Nail Lacquer, The Sky&#x27;s My Limit, 0.5 Ounce](https://products.checkmycream.com/products/OPI-Nail-Lacquer-The-Sky&#x27;s-My-Limit-0.5-Ounce.html)
 
 ### Positive Reviews

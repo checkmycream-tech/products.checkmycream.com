@@ -1,12 +1,3 @@
----
-title: Cali Tarocco Orange Conditioning Treatment - 8.7 fl. oz.,
-description: Cali Tarocco Orange Conditioning Treatment - 8.7 fl. oz.,
-author: Suvojit Manna,
-tags: Cali Tarocco Orange Conditioning Treatment - 8.7 fl. oz.,
-publishedAt: Fri Jan 10 2020 14:59:07 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:07 GMT+0530 (India Standard Time),
----
-
 # [Cali Tarocco Orange Conditioning Treatment - 8.7 fl. oz.](https://products.checkmycream.com/products/Cali-Tarocco-Orange-Conditioning-Treatment-8.7-fl.-oz..html)
 
 ### Positive Reviews

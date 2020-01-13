@@ -1,12 +1,3 @@
----
-title: LCL Beauty Portable Folding 1-Drawer Manicure Table with Client Wrist Pad and Free Carrying Case,
-description: LCL Beauty Portable Folding 1-Drawer Manicure Table with Client Wrist Pad and Free Carrying Case,
-author: Suvojit Manna,
-tags: LCL Beauty Portable Folding 1-Drawer Manicure Table with Client Wrist Pad and Free Carrying Case,
-publishedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
----
-
 # [LCL Beauty Portable Folding 1-Drawer Manicure Table with Client Wrist Pad and Free Carrying Case](https://products.checkmycream.com/products/LCL-Beauty-Portable-Folding-1-Drawer-Manicure-Table-with-Client-Wrist-Pad-and-Free-Carrying-Case.html)
 
 ### Positive Reviews

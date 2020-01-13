@@ -1,12 +1,3 @@
----
-title: Aramis After Shave for Men, 8.1 Ounce,
-description: Aramis After Shave for Men, 8.1 Ounce,
-author: Suvojit Manna,
-tags: Aramis After Shave for Men, 8.1 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:00 GMT+0530 (India Standard Time),
----
-
 # [Aramis After Shave for Men, 8.1 Ounce](https://products.checkmycream.com/products/Aramis-After-Shave-for-Men-8.1-Ounce.html)
 
 ### Positive Reviews

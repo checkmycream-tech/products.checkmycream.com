@@ -1,12 +1,3 @@
----
-title: Appearus Compressed Natural Cellulose Facial Sponges (50 Count),
-description: Appearus Compressed Natural Cellulose Facial Sponges (50 Count),
-author: Suvojit Manna,
-tags: Appearus Compressed Natural Cellulose Facial Sponges (50 Count),
-publishedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
----
-
 # [Appearus Compressed Natural Cellulose Facial Sponges (50 Count)](https://products.checkmycream.com/products/Appearus-Compressed-Natural-Cellulose-Facial-Sponges-(50-Count).html)
 
 ### Positive Reviews

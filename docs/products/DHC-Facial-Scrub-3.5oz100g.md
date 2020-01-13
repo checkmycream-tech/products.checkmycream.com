@@ -1,12 +1,3 @@
----
-title: DHC Facial Scrub 3.5oz/100g,
-description: DHC Facial Scrub 3.5oz/100g,
-author: Suvojit Manna,
-tags: DHC Facial Scrub 3.5oz/100g,
-publishedAt: Fri Jan 10 2020 15:00:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:00 GMT+0530 (India Standard Time),
----
-
 # [DHC Facial Scrub 3.5oz/100g](https://products.checkmycream.com/products/DHC-Facial-Scrub-3.5oz100g.html)
 
 ### Positive Reviews

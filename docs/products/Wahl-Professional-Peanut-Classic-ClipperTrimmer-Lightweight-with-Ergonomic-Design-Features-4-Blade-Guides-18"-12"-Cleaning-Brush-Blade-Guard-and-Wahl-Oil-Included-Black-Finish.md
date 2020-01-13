@@ -1,12 +1,3 @@
----
-title: Wahl Professional Peanut Classic Clipper/Trimmer, Lightweight with Ergonomic Design, Features 4 Blade Guides 1/8&quot;-1/2&quot;, Cleaning Brush, Blade Guard and Wahl Oil Included, Black Finish,
-description: Wahl Professional Peanut Classic Clipper/Trimmer, Lightweight with Ergonomic Design, Features 4 Blade Guides 1/8&quot;-1/2&quot;, Cleaning Brush, Blade Guard and Wahl Oil Included, Black Finish,
-author: Suvojit Manna,
-tags: Wahl Professional Peanut Classic Clipper/Trimmer, Lightweight with Ergonomic Design, Features 4 Blade Guides 1/8&quot;-1/2&quot;, Cleaning Brush, Blade Guard and Wahl Oil Included, Black Finish,
-publishedAt: Fri Jan 10 2020 15:00:45 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:45 GMT+0530 (India Standard Time),
----
-
 # [Wahl Professional Peanut Classic Clipper/Trimmer, Lightweight with Ergonomic Design, Features 4 Blade Guides 1/8&quot;-1/2&quot;, Cleaning Brush, Blade Guard and Wahl Oil Included, Black Finish](https://products.checkmycream.com/products/Wahl-Professional-Peanut-Classic-ClipperTrimmer-Lightweight-with-Ergonomic-Design-Features-4-Blade-Guides-18&quot;-12&quot;-Cleaning-Brush-Blade-Guard-and-Wahl-Oil-Included-Black-Finish.html)
 
 ### Positive Reviews

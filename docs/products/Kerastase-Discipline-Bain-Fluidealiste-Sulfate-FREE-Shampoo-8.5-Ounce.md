@@ -1,12 +1,3 @@
----
-title: Kerastase Discipline Bain Fluidealiste Sulfate-FREE Shampoo, 8.5 Ounce,
-description: Kerastase Discipline Bain Fluidealiste Sulfate-FREE Shampoo, 8.5 Ounce,
-author: Suvojit Manna,
-tags: Kerastase Discipline Bain Fluidealiste Sulfate-FREE Shampoo, 8.5 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
----
-
 # [Kerastase Discipline Bain Fluidealiste Sulfate-FREE Shampoo, 8.5 Ounce](https://products.checkmycream.com/products/Kerastase-Discipline-Bain-Fluidealiste-Sulfate-FREE-Shampoo-8.5-Ounce.html)
 
 ### Positive Reviews

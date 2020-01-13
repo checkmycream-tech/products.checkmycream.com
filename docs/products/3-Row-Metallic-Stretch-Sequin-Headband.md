@@ -1,12 +1,3 @@
----
-title: 3 Row Metallic Stretch Sequin Headband,
-description: 3 Row Metallic Stretch Sequin Headband,
-author: Suvojit Manna,
-tags: 3 Row Metallic Stretch Sequin Headband,
-publishedAt: Fri Jan 10 2020 15:00:23 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:23 GMT+0530 (India Standard Time),
----
-
 # [3 Row Metallic Stretch Sequin Headband](https://products.checkmycream.com/products/3-Row-Metallic-Stretch-Sequin-Headband.html)
 
 ### Positive Reviews

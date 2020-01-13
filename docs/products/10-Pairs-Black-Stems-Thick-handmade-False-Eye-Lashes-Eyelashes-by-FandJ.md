@@ -1,12 +1,3 @@
----
-title: 10 Pairs Black Stems Thick handmade False Eye Lashes Eyelashes by F&amp;J,
-description: 10 Pairs Black Stems Thick handmade False Eye Lashes Eyelashes by F&amp;J,
-author: Suvojit Manna,
-tags: 10 Pairs Black Stems Thick handmade False Eye Lashes Eyelashes by F&amp;J,
-publishedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
----
-
 # [10 Pairs Black Stems Thick handmade False Eye Lashes Eyelashes by F&amp;J](https://products.checkmycream.com/products/10-Pairs-Black-Stems-Thick-handmade-False-Eye-Lashes-Eyelashes-by-FandJ.html)
 
 ### Positive Reviews

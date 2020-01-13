@@ -1,12 +1,3 @@
----
-title: CoverGirl Clean Liquid Makeup, Creamy Natural 120, 1 Ounce Bottle,
-description: CoverGirl Clean Liquid Makeup, Creamy Natural 120, 1 Ounce Bottle,
-author: Suvojit Manna,
-tags: CoverGirl Clean Liquid Makeup, Creamy Natural 120, 1 Ounce Bottle,
-publishedAt: Fri Jan 10 2020 14:59:47 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:47 GMT+0530 (India Standard Time),
----
-
 # [CoverGirl Clean Liquid Makeup, Creamy Natural 120, 1 Ounce Bottle](https://products.checkmycream.com/products/CoverGirl-Clean-Liquid-Makeup-Creamy-Natural-120-1-Ounce-Bottle.html)
 
 ### Positive Reviews

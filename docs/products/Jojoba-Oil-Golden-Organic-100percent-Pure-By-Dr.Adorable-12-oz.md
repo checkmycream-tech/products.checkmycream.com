@@ -1,12 +1,3 @@
----
-title: Jojoba Oil, Golden Organic 100% Pure By Dr.Adorable 12 oz,
-description: Jojoba Oil, Golden Organic 100% Pure By Dr.Adorable 12 oz,
-author: Suvojit Manna,
-tags: Jojoba Oil, Golden Organic 100% Pure By Dr.Adorable 12 oz,
-publishedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
----
-
 # [Jojoba Oil, Golden Organic 100% Pure By Dr.Adorable 12 oz](https://products.checkmycream.com/products/Jojoba-Oil-Golden-Organic-100percent-Pure-By-Dr.Adorable-12-oz.html)
 
 ### Positive Reviews

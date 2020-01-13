@@ -1,12 +1,3 @@
----
-title: Holiday Sale - SonicDerm - Pro Cleansing System, Rotating Brush Head for Deep Microdermabrasion and Exfoliation for your Face and Whole Body,
-description: Holiday Sale - SonicDerm - Pro Cleansing System, Rotating Brush Head for Deep Microdermabrasion and Exfoliation for your Face and Whole Body,
-author: Suvojit Manna,
-tags: Holiday Sale - SonicDerm - Pro Cleansing System, Rotating Brush Head for Deep Microdermabrasion and Exfoliation for your Face and Whole Body,
-publishedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
----
-
 # [Holiday Sale - SonicDerm - Pro Cleansing System, Rotating Brush Head for Deep Microdermabrasion and Exfoliation for your Face and Whole Body](https://products.checkmycream.com/products/Holiday-Sale-SonicDerm-Pro-Cleansing-System-Rotating-Brush-Head-for-Deep-Microdermabrasion-and-Exfoliation-for-your-Face-and-Whole-Body.html)
 
 ### Positive Reviews

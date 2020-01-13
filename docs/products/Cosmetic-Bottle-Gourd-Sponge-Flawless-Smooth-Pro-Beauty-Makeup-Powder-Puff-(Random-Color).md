@@ -1,12 +1,3 @@
----
-title: Cosmetic Bottle Gourd Sponge Flawless Smooth Pro Beauty Makeup Powder Puff (Random Color),
-description: Cosmetic Bottle Gourd Sponge Flawless Smooth Pro Beauty Makeup Powder Puff (Random Color),
-author: Suvojit Manna,
-tags: Cosmetic Bottle Gourd Sponge Flawless Smooth Pro Beauty Makeup Powder Puff (Random Color),
-publishedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
----
-
 # [Cosmetic Bottle Gourd Sponge Flawless Smooth Pro Beauty Makeup Powder Puff (Random Color)](https://products.checkmycream.com/products/Cosmetic-Bottle-Gourd-Sponge-Flawless-Smooth-Pro-Beauty-Makeup-Powder-Puff-(Random-Color).html)
 
 ### Positive Reviews

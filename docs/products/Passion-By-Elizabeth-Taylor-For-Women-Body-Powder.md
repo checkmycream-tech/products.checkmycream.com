@@ -1,12 +1,3 @@
----
-title: Passion By Elizabeth Taylor For Women, Body Powder,
-description: Passion By Elizabeth Taylor For Women, Body Powder,
-author: Suvojit Manna,
-tags: Passion By Elizabeth Taylor For Women, Body Powder,
-publishedAt: Fri Jan 10 2020 14:59:14 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:14 GMT+0530 (India Standard Time),
----
-
 # [Passion By Elizabeth Taylor For Women, Body Powder](https://products.checkmycream.com/products/Passion-By-Elizabeth-Taylor-For-Women-Body-Powder.html)
 
 ### Positive Reviews

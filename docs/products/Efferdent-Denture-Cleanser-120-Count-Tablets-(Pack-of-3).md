@@ -1,12 +1,3 @@
----
-title: Efferdent Denture Cleanser, 120-Count Tablets (Pack of 3),
-description: Efferdent Denture Cleanser, 120-Count Tablets (Pack of 3),
-author: Suvojit Manna,
-tags: Efferdent Denture Cleanser, 120-Count Tablets (Pack of 3),
-publishedAt: Fri Jan 10 2020 14:59:27 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:27 GMT+0530 (India Standard Time),
----
-
 # [Efferdent Denture Cleanser, 120-Count Tablets (Pack of 3)](https://products.checkmycream.com/products/Efferdent-Denture-Cleanser-120-Count-Tablets-(Pack-of-3).html)
 
 ### Positive Reviews

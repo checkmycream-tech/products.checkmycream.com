@@ -1,12 +1,3 @@
----
-title: Premium Eyelash Extension Loose Individual Silk Lashes C Curl 0.20mm X 10mm Long by Eye Beautiful,
-description: Premium Eyelash Extension Loose Individual Silk Lashes C Curl 0.20mm X 10mm Long by Eye Beautiful,
-author: Suvojit Manna,
-tags: Premium Eyelash Extension Loose Individual Silk Lashes C Curl 0.20mm X 10mm Long by Eye Beautiful,
-publishedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
----
-
 # [Premium Eyelash Extension Loose Individual Silk Lashes C Curl 0.20mm X 10mm Long by Eye Beautiful](https://products.checkmycream.com/products/Premium-Eyelash-Extension-Loose-Individual-Silk-Lashes-C-Curl-0.20mm-X-10mm-Long-by-Eye-Beautiful.html)
 
 ### Positive Reviews

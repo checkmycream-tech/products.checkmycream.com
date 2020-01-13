@@ -1,12 +1,3 @@
----
-title: Para Mi Bebe Splash Cologne Boys, 8.3 oz,
-description: Para Mi Bebe Splash Cologne Boys, 8.3 oz,
-author: Suvojit Manna,
-tags: Para Mi Bebe Splash Cologne Boys, 8.3 oz,
-publishedAt: Fri Jan 10 2020 14:59:32 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:32 GMT+0530 (India Standard Time),
----
-
 # [Para Mi Bebe Splash Cologne Boys, 8.3 oz](https://products.checkmycream.com/products/Para-Mi-Bebe-Splash-Cologne-Boys-8.3-oz.html)
 
 ### Positive Reviews

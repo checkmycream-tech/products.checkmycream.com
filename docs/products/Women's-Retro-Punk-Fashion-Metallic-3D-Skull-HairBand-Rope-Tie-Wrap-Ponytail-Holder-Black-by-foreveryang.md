@@ -1,12 +1,3 @@
----
-title: Women&#x27;s Retro Punk Fashion Metallic 3D Skull HairBand Rope Tie Wrap Ponytail Holder Black by foreveryang,
-description: Women&#x27;s Retro Punk Fashion Metallic 3D Skull HairBand Rope Tie Wrap Ponytail Holder Black by foreveryang,
-author: Suvojit Manna,
-tags: Women&#x27;s Retro Punk Fashion Metallic 3D Skull HairBand Rope Tie Wrap Ponytail Holder Black by foreveryang,
-publishedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
----
-
 # [Women&#x27;s Retro Punk Fashion Metallic 3D Skull HairBand Rope Tie Wrap Ponytail Holder Black by foreveryang](https://products.checkmycream.com/products/Women&#x27;s-Retro-Punk-Fashion-Metallic-3D-Skull-HairBand-Rope-Tie-Wrap-Ponytail-Holder-Black-by-foreveryang.html)
 
 ### Positive Reviews

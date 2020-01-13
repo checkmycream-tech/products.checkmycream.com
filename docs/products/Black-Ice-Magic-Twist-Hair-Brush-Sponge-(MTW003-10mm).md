@@ -1,12 +1,3 @@
----
-title: Black Ice Magic Twist Hair Brush Sponge (MTW003-10mm),
-description: Black Ice Magic Twist Hair Brush Sponge (MTW003-10mm),
-author: Suvojit Manna,
-tags: Black Ice Magic Twist Hair Brush Sponge (MTW003-10mm),
-publishedAt: Fri Jan 10 2020 15:01:06 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:06 GMT+0530 (India Standard Time),
----
-
 # [Black Ice Magic Twist Hair Brush Sponge (MTW003-10mm)](https://products.checkmycream.com/products/Black-Ice-Magic-Twist-Hair-Brush-Sponge-(MTW003-10mm).html)
 
 ### Positive Reviews

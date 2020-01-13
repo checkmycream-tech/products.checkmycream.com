@@ -1,12 +1,3 @@
----
-title: G2PLUS Disposable Lip Brushes Lipstick Gloss Wands Applicator Perfect Makeup Tool Kits,
-description: G2PLUS Disposable Lip Brushes Lipstick Gloss Wands Applicator Perfect Makeup Tool Kits,
-author: Suvojit Manna,
-tags: G2PLUS Disposable Lip Brushes Lipstick Gloss Wands Applicator Perfect Makeup Tool Kits,
-publishedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
----
-
 # [G2PLUS Disposable Lip Brushes Lipstick Gloss Wands Applicator Perfect Makeup Tool Kits](https://products.checkmycream.com/products/G2PLUS-Disposable-Lip-Brushes-Lipstick-Gloss-Wands-Applicator-Perfect-Makeup-Tool-Kits.html)
 
 ### Positive Reviews

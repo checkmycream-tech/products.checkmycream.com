@@ -1,12 +1,3 @@
----
-title: Reveal by Halle Berry Eau de Parfum Spray,
-description: Reveal by Halle Berry Eau de Parfum Spray,
-author: Suvojit Manna,
-tags: Reveal by Halle Berry Eau de Parfum Spray,
-publishedAt: Fri Jan 10 2020 14:59:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:55 GMT+0530 (India Standard Time),
----
-
 # [Reveal by Halle Berry Eau de Parfum Spray](https://products.checkmycream.com/products/Reveal-by-Halle-Berry-Eau-de-Parfum-Spray.html)
 
 ### Positive Reviews

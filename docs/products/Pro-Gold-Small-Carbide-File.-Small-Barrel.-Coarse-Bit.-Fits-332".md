@@ -1,12 +1,3 @@
----
-title: Pro Gold Small Carbide File. Small Barrel. Coarse Bit. Fits 3/32&quot;,
-description: Pro Gold Small Carbide File. Small Barrel. Coarse Bit. Fits 3/32&quot;,
-author: Suvojit Manna,
-tags: Pro Gold Small Carbide File. Small Barrel. Coarse Bit. Fits 3/32&quot;,
-publishedAt: Fri Jan 10 2020 15:00:12 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:12 GMT+0530 (India Standard Time),
----
-
 # [Pro Gold Small Carbide File. Small Barrel. Coarse Bit. Fits 3/32&quot;](https://products.checkmycream.com/products/Pro-Gold-Small-Carbide-File.-Small-Barrel.-Coarse-Bit.-Fits-332&quot;.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: NYX Eyeshadow Base 2 color Set!! - white pearl, skin tone,
-description: NYX Eyeshadow Base 2 color Set!! - white pearl, skin tone,
-author: Suvojit Manna,
-tags: NYX Eyeshadow Base 2 color Set!! - white pearl, skin tone,
-publishedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
----
-
 # [NYX Eyeshadow Base 2 color Set!! - white pearl, skin tone](https://products.checkmycream.com/products/NYX-Eyeshadow-Base-2-color-Set!!-white-pearl-skin-tone.html)
 
 ### Positive Reviews

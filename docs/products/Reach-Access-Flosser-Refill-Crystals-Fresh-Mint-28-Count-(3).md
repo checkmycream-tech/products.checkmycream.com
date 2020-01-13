@@ -1,12 +1,3 @@
----
-title: Reach Access Flosser Refill Crystals, Fresh Mint, 28 Count (3),
-description: Reach Access Flosser Refill Crystals, Fresh Mint, 28 Count (3),
-author: Suvojit Manna,
-tags: Reach Access Flosser Refill Crystals, Fresh Mint, 28 Count (3),
-publishedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
----
-
 # [Reach Access Flosser Refill Crystals, Fresh Mint, 28 Count (3)](https://products.checkmycream.com/products/Reach-Access-Flosser-Refill-Crystals-Fresh-Mint-28-Count-(3).html)
 
 ### Positive Reviews

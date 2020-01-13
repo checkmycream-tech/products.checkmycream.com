@@ -1,12 +1,3 @@
----
-title: Shampoo Scalp Massage Brush,
-description: Shampoo Scalp Massage Brush,
-author: Suvojit Manna,
-tags: Shampoo Scalp Massage Brush,
-publishedAt: Fri Jan 10 2020 15:01:07 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:07 GMT+0530 (India Standard Time),
----
-
 # [Shampoo Scalp Massage Brush](https://products.checkmycream.com/products/Shampoo-Scalp-Massage-Brush.html)
 
 ### Positive Reviews

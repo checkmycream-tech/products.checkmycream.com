@@ -1,12 +1,3 @@
----
-title: E.L.F Fan Brush,
-description: E.L.F Fan Brush,
-author: Suvojit Manna,
-tags: E.L.F Fan Brush,
-publishedAt: Fri Jan 10 2020 14:59:36 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:36 GMT+0530 (India Standard Time),
----
-
 # [E.L.F Fan Brush](https://products.checkmycream.com/products/E.L.F-Fan-Brush.html)
 
 ### Positive Reviews

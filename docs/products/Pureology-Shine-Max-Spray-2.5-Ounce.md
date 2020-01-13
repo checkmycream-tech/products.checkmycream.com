@@ -1,12 +1,3 @@
----
-title: Pureology Shine Max Spray, 2.5 Ounce,
-description: Pureology Shine Max Spray, 2.5 Ounce,
-author: Suvojit Manna,
-tags: Pureology Shine Max Spray, 2.5 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:11 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:11 GMT+0530 (India Standard Time),
----
-
 # [Pureology Shine Max Spray, 2.5 Ounce](https://products.checkmycream.com/products/Pureology-Shine-Max-Spray-2.5-Ounce.html)
 
 ### Positive Reviews

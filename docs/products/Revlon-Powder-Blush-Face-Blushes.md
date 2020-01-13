@@ -1,12 +1,3 @@
----
-title: Revlon Powder Blush Face Blushes,
-description: Revlon Powder Blush Face Blushes,
-author: Suvojit Manna,
-tags: Revlon Powder Blush Face Blushes,
-publishedAt: Fri Jan 10 2020 14:59:14 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:14 GMT+0530 (India Standard Time),
----
-
 # [Revlon Powder Blush Face Blushes](https://products.checkmycream.com/products/Revlon-Powder-Blush-Face-Blushes.html)
 
 ### Positive Reviews

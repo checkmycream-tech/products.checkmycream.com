@@ -1,12 +1,3 @@
----
-title: uxcell Travel Skyblue Coarse Teeth Folding Dual Hair Brush Pocket Comb 7.4&quot; Length,
-description: uxcell Travel Skyblue Coarse Teeth Folding Dual Hair Brush Pocket Comb 7.4&quot; Length,
-author: Suvojit Manna,
-tags: uxcell Travel Skyblue Coarse Teeth Folding Dual Hair Brush Pocket Comb 7.4&quot; Length,
-publishedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
----
-
 # [uxcell Travel Skyblue Coarse Teeth Folding Dual Hair Brush Pocket Comb 7.4&quot; Length](https://products.checkmycream.com/products/uxcell-Travel-Skyblue-Coarse-Teeth-Folding-Dual-Hair-Brush-Pocket-Comb-7.4&quot;-Length.html)
 
 ### Positive Reviews

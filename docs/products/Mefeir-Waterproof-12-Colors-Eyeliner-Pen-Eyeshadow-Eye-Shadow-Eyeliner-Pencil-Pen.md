@@ -1,12 +1,3 @@
----
-title: Mefeir Waterproof 12 Colors Eyeliner Pen Eyeshadow Eye Shadow Eyeliner Pencil Pen,
-description: Mefeir Waterproof 12 Colors Eyeliner Pen Eyeshadow Eye Shadow Eyeliner Pencil Pen,
-author: Suvojit Manna,
-tags: Mefeir Waterproof 12 Colors Eyeliner Pen Eyeshadow Eye Shadow Eyeliner Pencil Pen,
-publishedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
----
-
 # [Mefeir Waterproof 12 Colors Eyeliner Pen Eyeshadow Eye Shadow Eyeliner Pencil Pen](https://products.checkmycream.com/products/Mefeir-Waterproof-12-Colors-Eyeliner-Pen-Eyeshadow-Eye-Shadow-Eyeliner-Pencil-Pen.html)
 
 ### Positive Reviews

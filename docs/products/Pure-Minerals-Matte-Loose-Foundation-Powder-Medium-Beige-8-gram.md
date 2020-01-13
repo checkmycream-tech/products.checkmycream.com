@@ -1,12 +1,3 @@
----
-title: Pure Minerals Matte Loose Foundation Powder, Medium Beige – 8 gram,
-description: Pure Minerals Matte Loose Foundation Powder, Medium Beige – 8 gram,
-author: Suvojit Manna,
-tags: Pure Minerals Matte Loose Foundation Powder, Medium Beige – 8 gram,
-publishedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
----
-
 # [Pure Minerals Matte Loose Foundation Powder, Medium Beige – 8 gram](https://products.checkmycream.com/products/Pure-Minerals-Matte-Loose-Foundation-Powder-Medium-Beige-8-gram.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Mac Sin Matte Lipstick  3gram/0.1 us oz,
-description: Mac Sin Matte Lipstick  3gram/0.1 us oz,
-author: Suvojit Manna,
-tags: Mac Sin Matte Lipstick  3gram/0.1 us oz,
-publishedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
----
-
 # [Mac Sin Matte Lipstick  3gram/0.1 us oz](https://products.checkmycream.com/products/Mac-Sin-Matte-Lipstick-3gram0.1-us-oz.html)
 
 ### Positive Reviews

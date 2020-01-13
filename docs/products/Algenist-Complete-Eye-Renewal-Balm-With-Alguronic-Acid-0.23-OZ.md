@@ -1,12 +1,3 @@
----
-title: Algenist Complete Eye Renewal Balm With Alguronic Acid 0.23 OZ,
-description: Algenist Complete Eye Renewal Balm With Alguronic Acid 0.23 OZ,
-author: Suvojit Manna,
-tags: Algenist Complete Eye Renewal Balm With Alguronic Acid 0.23 OZ,
-publishedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
----
-
 # [Algenist Complete Eye Renewal Balm With Alguronic Acid 0.23 OZ](https://products.checkmycream.com/products/Algenist-Complete-Eye-Renewal-Balm-With-Alguronic-Acid-0.23-OZ.html)
 
 ### Positive Reviews

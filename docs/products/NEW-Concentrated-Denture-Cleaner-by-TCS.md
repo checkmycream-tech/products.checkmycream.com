@@ -1,12 +1,3 @@
----
-title: NEW Concentrated Denture Cleaner by TCS,
-description: NEW Concentrated Denture Cleaner by TCS,
-author: Suvojit Manna,
-tags: NEW Concentrated Denture Cleaner by TCS,
-publishedAt: Fri Jan 10 2020 15:00:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:01 GMT+0530 (India Standard Time),
----
-
 # [NEW Concentrated Denture Cleaner by TCS](https://products.checkmycream.com/products/NEW-Concentrated-Denture-Cleaner-by-TCS.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Reminex Grey Hair Shampoo and Conditioner Set to Prevent Grey Hair and Restore Grey Hair to Its original Hair Color,
-description: Reminex Grey Hair Shampoo and Conditioner Set to Prevent Grey Hair and Restore Grey Hair to Its original Hair Color,
-author: Suvojit Manna,
-tags: Reminex Grey Hair Shampoo and Conditioner Set to Prevent Grey Hair and Restore Grey Hair to Its original Hair Color,
-publishedAt: Fri Jan 10 2020 14:59:39 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:39 GMT+0530 (India Standard Time),
----
-
 # [Reminex Grey Hair Shampoo and Conditioner Set to Prevent Grey Hair and Restore Grey Hair to Its original Hair Color](https://products.checkmycream.com/products/Reminex-Grey-Hair-Shampoo-and-Conditioner-Set-to-Prevent-Grey-Hair-and-Restore-Grey-Hair-to-Its-original-Hair-Color.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: K-Y Personal Lubricating Jelly, 2 Ounces Tube,
-description: K-Y Personal Lubricating Jelly, 2 Ounces Tube,
-author: Suvojit Manna,
-tags: K-Y Personal Lubricating Jelly, 2 Ounces Tube,
-publishedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
----
-
 # [K-Y Personal Lubricating Jelly, 2 Ounces Tube](https://products.checkmycream.com/products/K-Y-Personal-Lubricating-Jelly-2-Ounces-Tube.html)
 
 ### Positive Reviews

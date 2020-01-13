@@ -1,12 +1,3 @@
----
-title: MAC Pro Lipstick FLESHPOT,
-description: MAC Pro Lipstick FLESHPOT,
-author: Suvojit Manna,
-tags: MAC Pro Lipstick FLESHPOT,
-publishedAt: Fri Jan 10 2020 14:59:44 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:44 GMT+0530 (India Standard Time),
----
-
 # [MAC Pro Lipstick FLESHPOT](https://products.checkmycream.com/products/MAC-Pro-Lipstick-FLESHPOT.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: KLOUD City ® Sorted Colors Nylon Travel Handbag Pouch Bag in Bag Tidy Bag,
-description: KLOUD City ® Sorted Colors Nylon Travel Handbag Pouch Bag in Bag Tidy Bag,
-author: Suvojit Manna,
-tags: KLOUD City ® Sorted Colors Nylon Travel Handbag Pouch Bag in Bag Tidy Bag,
-publishedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
----
-
 # [KLOUD City ® Sorted Colors Nylon Travel Handbag Pouch Bag in Bag Tidy Bag](https://products.checkmycream.com/products/KLOUD-City-(r)-Sorted-Colors-Nylon-Travel-Handbag-Pouch-Bag-in-Bag-Tidy-Bag.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Procter &amp; Gamble Old Spice for Men Gift Set (Eau De Cologne Plus After Shave),
-description: Procter &amp; Gamble Old Spice for Men Gift Set (Eau De Cologne Plus After Shave),
-author: Suvojit Manna,
-tags: Procter &amp; Gamble Old Spice for Men Gift Set (Eau De Cologne Plus After Shave),
-publishedAt: Fri Jan 10 2020 14:59:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:58 GMT+0530 (India Standard Time),
----
-
 # [Procter &amp; Gamble Old Spice for Men Gift Set (Eau De Cologne Plus After Shave)](https://products.checkmycream.com/products/Procter-and-Gamble-Old-Spice-for-Men-Gift-Set-(Eau-De-Cologne-Plus-After-Shave).html)
 
 ### Positive Reviews

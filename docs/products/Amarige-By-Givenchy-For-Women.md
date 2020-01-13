@@ -1,12 +1,3 @@
----
-title: Amarige By Givenchy For Women,
-description: Amarige By Givenchy For Women,
-author: Suvojit Manna,
-tags: Amarige By Givenchy For Women,
-publishedAt: Fri Jan 10 2020 14:59:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:03 GMT+0530 (India Standard Time),
----
-
 # [Amarige By Givenchy For Women](https://products.checkmycream.com/products/Amarige-By-Givenchy-For-Women.html)
 
 ### Positive Reviews

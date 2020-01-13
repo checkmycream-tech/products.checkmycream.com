@@ -1,12 +1,3 @@
----
-title: Maybelline New York Expert Tools, Dual Sharpener 1 ea,
-description: Maybelline New York Expert Tools, Dual Sharpener 1 ea,
-author: Suvojit Manna,
-tags: Maybelline New York Expert Tools, Dual Sharpener 1 ea,
-publishedAt: Fri Jan 10 2020 14:59:22 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:22 GMT+0530 (India Standard Time),
----
-
 # [Maybelline New York Expert Tools, Dual Sharpener 1 ea](https://products.checkmycream.com/products/Maybelline-New-York-Expert-Tools-Dual-Sharpener-1-ea.html)
 
 ### Positive Reviews

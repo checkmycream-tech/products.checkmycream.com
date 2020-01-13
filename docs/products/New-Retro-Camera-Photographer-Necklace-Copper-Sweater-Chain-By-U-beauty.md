@@ -1,12 +1,3 @@
----
-title: New Retro Camera Photographer Necklace Copper Sweater Chain By U-beauty,
-description: New Retro Camera Photographer Necklace Copper Sweater Chain By U-beauty,
-author: Suvojit Manna,
-tags: New Retro Camera Photographer Necklace Copper Sweater Chain By U-beauty,
-publishedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
----
-
 # [New Retro Camera Photographer Necklace Copper Sweater Chain By U-beauty](https://products.checkmycream.com/products/New-Retro-Camera-Photographer-Necklace-Copper-Sweater-Chain-By-U-beauty.html)
 
 ### Positive Reviews

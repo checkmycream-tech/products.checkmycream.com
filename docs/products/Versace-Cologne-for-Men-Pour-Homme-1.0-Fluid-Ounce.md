@@ -1,12 +1,3 @@
----
-title: Versace Cologne for Men, Pour Homme, 1.0 Fluid Ounce,
-description: Versace Cologne for Men, Pour Homme, 1.0 Fluid Ounce,
-author: Suvojit Manna,
-tags: Versace Cologne for Men, Pour Homme, 1.0 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 15:00:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:02 GMT+0530 (India Standard Time),
----
-
 # [Versace Cologne for Men, Pour Homme, 1.0 Fluid Ounce](https://products.checkmycream.com/products/Versace-Cologne-for-Men-Pour-Homme-1.0-Fluid-Ounce.html)
 
 ### Positive Reviews

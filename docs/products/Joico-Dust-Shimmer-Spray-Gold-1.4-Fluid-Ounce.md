@@ -1,12 +1,3 @@
----
-title: Joico Dust Shimmer Spray, Gold, 1.4 Fluid Ounce,
-description: Joico Dust Shimmer Spray, Gold, 1.4 Fluid Ounce,
-author: Suvojit Manna,
-tags: Joico Dust Shimmer Spray, Gold, 1.4 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 15:01:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:05 GMT+0530 (India Standard Time),
----
-
 # [Joico Dust Shimmer Spray, Gold, 1.4 Fluid Ounce](https://products.checkmycream.com/products/Joico-Dust-Shimmer-Spray-Gold-1.4-Fluid-Ounce.html)
 
 ### Positive Reviews

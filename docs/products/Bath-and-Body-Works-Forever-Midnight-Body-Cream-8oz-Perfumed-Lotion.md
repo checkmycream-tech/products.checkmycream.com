@@ -1,12 +1,3 @@
----
-title: Bath &amp; Body Works Forever Midnight Body Cream 8oz Perfumed Lotion,
-description: Bath &amp; Body Works Forever Midnight Body Cream 8oz Perfumed Lotion,
-author: Suvojit Manna,
-tags: Bath &amp; Body Works Forever Midnight Body Cream 8oz Perfumed Lotion,
-publishedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
----
-
 # [Bath &amp; Body Works Forever Midnight Body Cream 8oz Perfumed Lotion](https://products.checkmycream.com/products/Bath-and-Body-Works-Forever-Midnight-Body-Cream-8oz-Perfumed-Lotion.html)
 
 ### Positive Reviews

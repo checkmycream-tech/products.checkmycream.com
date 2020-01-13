@@ -1,12 +1,3 @@
----
-title: Bee Bald 5 Piece Daily Skin Care Regimen Travel Kit,
-description: Bee Bald 5 Piece Daily Skin Care Regimen Travel Kit,
-author: Suvojit Manna,
-tags: Bee Bald 5 Piece Daily Skin Care Regimen Travel Kit,
-publishedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
----
-
 # [Bee Bald 5 Piece Daily Skin Care Regimen Travel Kit](https://products.checkmycream.com/products/Bee-Bald-5-Piece-Daily-Skin-Care-Regimen-Travel-Kit.html)
 
 ### Positive Reviews

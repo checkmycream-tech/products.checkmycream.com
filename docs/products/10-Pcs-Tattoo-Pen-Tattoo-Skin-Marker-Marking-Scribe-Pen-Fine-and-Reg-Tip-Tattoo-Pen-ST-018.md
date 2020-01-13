@@ -1,12 +1,3 @@
----
-title: 10 Pcs Tattoo Pen Tattoo Skin Marker Marking Scribe Pen Fine &amp; Reg Tip - Tattoo Pen ST-018,
-description: 10 Pcs Tattoo Pen Tattoo Skin Marker Marking Scribe Pen Fine &amp; Reg Tip - Tattoo Pen ST-018,
-author: Suvojit Manna,
-tags: 10 Pcs Tattoo Pen Tattoo Skin Marker Marking Scribe Pen Fine &amp; Reg Tip - Tattoo Pen ST-018,
-publishedAt: Fri Jan 10 2020 15:00:18 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:18 GMT+0530 (India Standard Time),
----
-
 # [10 Pcs Tattoo Pen Tattoo Skin Marker Marking Scribe Pen Fine &amp; Reg Tip - Tattoo Pen ST-018](https://products.checkmycream.com/products/10-Pcs-Tattoo-Pen-Tattoo-Skin-Marker-Marking-Scribe-Pen-Fine-and-Reg-Tip-Tattoo-Pen-ST-018.html)
 
 ### Positive Reviews

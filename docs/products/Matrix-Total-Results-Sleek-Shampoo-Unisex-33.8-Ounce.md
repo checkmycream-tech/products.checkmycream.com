@@ -1,12 +1,3 @@
----
-title: Matrix Total Results Sleek Shampoo Unisex, 33.8 Ounce,
-description: Matrix Total Results Sleek Shampoo Unisex, 33.8 Ounce,
-author: Suvojit Manna,
-tags: Matrix Total Results Sleek Shampoo Unisex, 33.8 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:08 GMT+0530 (India Standard Time),
----
-
 # [Matrix Total Results Sleek Shampoo Unisex, 33.8 Ounce](https://products.checkmycream.com/products/Matrix-Total-Results-Sleek-Shampoo-Unisex-33.8-Ounce.html)
 
 ### Positive Reviews

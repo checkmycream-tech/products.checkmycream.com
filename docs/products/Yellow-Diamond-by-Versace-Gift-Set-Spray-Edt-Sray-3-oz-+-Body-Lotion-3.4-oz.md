@@ -1,12 +1,3 @@
----
-title: Yellow Diamond by Versace Gift Set Spray Edt Sray 3 oz + Body Lotion 3.4 oz,
-description: Yellow Diamond by Versace Gift Set Spray Edt Sray 3 oz + Body Lotion 3.4 oz,
-author: Suvojit Manna,
-tags: Yellow Diamond by Versace Gift Set Spray Edt Sray 3 oz + Body Lotion 3.4 oz,
-publishedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
----
-
 # [Yellow Diamond by Versace Gift Set Spray Edt Sray 3 oz + Body Lotion 3.4 oz](https://products.checkmycream.com/products/Yellow-Diamond-by-Versace-Gift-Set-Spray-Edt-Sray-3-oz-+-Body-Lotion-3.4-oz.html)
 
 ### Positive Reviews

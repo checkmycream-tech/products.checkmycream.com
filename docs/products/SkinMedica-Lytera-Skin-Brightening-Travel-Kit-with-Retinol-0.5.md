@@ -1,12 +1,3 @@
----
-title: SkinMedica Lytera Skin Brightening Travel Kit with Retinol 0.5,
-description: SkinMedica Lytera Skin Brightening Travel Kit with Retinol 0.5,
-author: Suvojit Manna,
-tags: SkinMedica Lytera Skin Brightening Travel Kit with Retinol 0.5,
-publishedAt: Fri Jan 10 2020 15:01:07 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:07 GMT+0530 (India Standard Time),
----
-
 # [SkinMedica Lytera Skin Brightening Travel Kit with Retinol 0.5](https://products.checkmycream.com/products/SkinMedica-Lytera-Skin-Brightening-Travel-Kit-with-Retinol-0.5.html)
 
 ### Positive Reviews

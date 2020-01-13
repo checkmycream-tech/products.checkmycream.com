@@ -1,12 +1,3 @@
----
-title: H2ocean-Arctic Ocean Rinse Mouthwash,
-description: H2ocean-Arctic Ocean Rinse Mouthwash,
-author: Suvojit Manna,
-tags: H2ocean-Arctic Ocean Rinse Mouthwash,
-publishedAt: Fri Jan 10 2020 15:00:15 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:15 GMT+0530 (India Standard Time),
----
-
 # [H2ocean-Arctic Ocean Rinse Mouthwash](https://products.checkmycream.com/products/H2ocean-Arctic-Ocean-Rinse-Mouthwash.html)
 
 ### Positive Reviews

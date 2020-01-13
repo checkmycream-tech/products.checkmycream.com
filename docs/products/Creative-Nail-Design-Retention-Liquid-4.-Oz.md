@@ -1,12 +1,3 @@
----
-title: Creative Nail Design Retention Liquid 4. Oz,
-description: Creative Nail Design Retention Liquid 4. Oz,
-author: Suvojit Manna,
-tags: Creative Nail Design Retention Liquid 4. Oz,
-publishedAt: Fri Jan 10 2020 14:59:20 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:20 GMT+0530 (India Standard Time),
----
-
 # [Creative Nail Design Retention Liquid 4. Oz](https://products.checkmycream.com/products/Creative-Nail-Design-Retention-Liquid-4.-Oz.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: J.cat Beauty Mineral Base Loose Powder Sparkling/glitter Eye Shadow Pigment 12 Colors,
-description: J.cat Beauty Mineral Base Loose Powder Sparkling/glitter Eye Shadow Pigment 12 Colors,
-author: Suvojit Manna,
-tags: J.cat Beauty Mineral Base Loose Powder Sparkling/glitter Eye Shadow Pigment 12 Colors,
-publishedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
----
-
 # [J.cat Beauty Mineral Base Loose Powder Sparkling/glitter Eye Shadow Pigment 12 Colors](https://products.checkmycream.com/products/J.cat-Beauty-Mineral-Base-Loose-Powder-Sparklingglitter-Eye-Shadow-Pigment-12-Colors.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: LOT OF 2 AVON SKIN SO SOFT SSS ORIGINAL + JOJOBA Body Lotion 11.8 fl oz.ea,
-description: LOT OF 2 AVON SKIN SO SOFT SSS ORIGINAL + JOJOBA Body Lotion 11.8 fl oz.ea,
-author: Suvojit Manna,
-tags: LOT OF 2 AVON SKIN SO SOFT SSS ORIGINAL + JOJOBA Body Lotion 11.8 fl oz.ea,
-publishedAt: Fri Jan 10 2020 15:00:45 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:45 GMT+0530 (India Standard Time),
----
-
 # [LOT OF 2 AVON SKIN SO SOFT SSS ORIGINAL + JOJOBA Body Lotion 11.8 fl oz.ea](https://products.checkmycream.com/products/LOT-OF-2-AVON-SKIN-SO-SOFT-SSS-ORIGINAL-+-JOJOBA-Body-Lotion-11.8-fl-oz.ea.html)
 
 ### Positive Reviews

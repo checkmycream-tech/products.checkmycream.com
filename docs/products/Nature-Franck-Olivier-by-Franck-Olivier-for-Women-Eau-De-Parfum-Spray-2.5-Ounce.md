@@ -1,12 +1,3 @@
----
-title: Nature Franck Olivier by Franck Olivier for Women Eau De Parfum Spray, 2.5 Ounce,
-description: Nature Franck Olivier by Franck Olivier for Women Eau De Parfum Spray, 2.5 Ounce,
-author: Suvojit Manna,
-tags: Nature Franck Olivier by Franck Olivier for Women Eau De Parfum Spray, 2.5 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:56 GMT+0530 (India Standard Time),
----
-
 # [Nature Franck Olivier by Franck Olivier for Women Eau De Parfum Spray, 2.5 Ounce](https://products.checkmycream.com/products/Nature-Franck-Olivier-by-Franck-Olivier-for-Women-Eau-De-Parfum-Spray-2.5-Ounce.html)
 
 ### Positive Reviews

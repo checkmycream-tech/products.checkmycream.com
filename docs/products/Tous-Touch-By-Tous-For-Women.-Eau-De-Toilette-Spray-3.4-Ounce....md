@@ -1,12 +1,3 @@
----
-title: Tous Touch By Tous For Women. Eau De Toilette Spray 3.4-Ounce…,
-description: Tous Touch By Tous For Women. Eau De Toilette Spray 3.4-Ounce…,
-author: Suvojit Manna,
-tags: Tous Touch By Tous For Women. Eau De Toilette Spray 3.4-Ounce…,
-publishedAt: Fri Jan 10 2020 14:59:26 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:26 GMT+0530 (India Standard Time),
----
-
 # [Tous Touch By Tous For Women. Eau De Toilette Spray 3.4-Ounce…](https://products.checkmycream.com/products/Tous-Touch-By-Tous-For-Women.-Eau-De-Toilette-Spray-3.4-Ounce....html)
 
 ### Positive Reviews

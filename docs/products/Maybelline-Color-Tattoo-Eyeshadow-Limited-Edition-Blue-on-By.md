@@ -1,12 +1,3 @@
----
-title: Maybelline Color Tattoo Eyeshadow Limited Edition - Blue on By,
-description: Maybelline Color Tattoo Eyeshadow Limited Edition - Blue on By,
-author: Suvojit Manna,
-tags: Maybelline Color Tattoo Eyeshadow Limited Edition - Blue on By,
-publishedAt: Fri Jan 10 2020 15:00:32 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:32 GMT+0530 (India Standard Time),
----
-
 # [Maybelline Color Tattoo Eyeshadow Limited Edition - Blue on By](https://products.checkmycream.com/products/Maybelline-Color-Tattoo-Eyeshadow-Limited-Edition-Blue-on-By.html)
 
 ### Positive Reviews

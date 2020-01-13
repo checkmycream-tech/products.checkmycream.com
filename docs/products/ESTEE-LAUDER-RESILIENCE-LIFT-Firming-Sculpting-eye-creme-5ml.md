@@ -1,12 +1,3 @@
----
-title: ESTEE LAUDER RESILIENCE LIFT Firming Sculpting eye creme 5ml,
-description: ESTEE LAUDER RESILIENCE LIFT Firming Sculpting eye creme 5ml,
-author: Suvojit Manna,
-tags: ESTEE LAUDER RESILIENCE LIFT Firming Sculpting eye creme 5ml,
-publishedAt: Fri Jan 10 2020 15:00:31 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:31 GMT+0530 (India Standard Time),
----
-
 # [ESTEE LAUDER RESILIENCE LIFT Firming Sculpting eye creme 5ml](https://products.checkmycream.com/products/ESTEE-LAUDER-RESILIENCE-LIFT-Firming-Sculpting-eye-creme-5ml.html)
 
 ### Positive Reviews

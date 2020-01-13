@@ -1,12 +1,3 @@
----
-title: Body Lotion – Moisturizing Lotion- Hyaluronic Acid - Vitamin C | Asdm Beverly Hills,
-description: Body Lotion – Moisturizing Lotion- Hyaluronic Acid - Vitamin C | Asdm Beverly Hills,
-author: Suvojit Manna,
-tags: Body Lotion – Moisturizing Lotion- Hyaluronic Acid - Vitamin C | Asdm Beverly Hills,
-publishedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
----
-
 # [Body Lotion – Moisturizing Lotion- Hyaluronic Acid - Vitamin C | Asdm Beverly Hills](https://products.checkmycream.com/products/Body-Lotion-Moisturizing-Lotion-Hyaluronic-Acid-Vitamin-C-or-Asdm-Beverly-Hills.html)
 
 ### Positive Reviews

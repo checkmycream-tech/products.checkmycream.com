@@ -1,12 +1,3 @@
----
-title: Meadow Bath Gift Set in Wicker White Basket, Shower Gel,Bubble Bath, Bath Salt,Body Lotion,Body Spray,Bath Fizzer,
-description: Meadow Bath Gift Set in Wicker White Basket, Shower Gel,Bubble Bath, Bath Salt,Body Lotion,Body Spray,Bath Fizzer,
-author: Suvojit Manna,
-tags: Meadow Bath Gift Set in Wicker White Basket, Shower Gel,Bubble Bath, Bath Salt,Body Lotion,Body Spray,Bath Fizzer,
-publishedAt: Fri Jan 10 2020 15:00:14 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:14 GMT+0530 (India Standard Time),
----
-
 # [Meadow Bath Gift Set in Wicker White Basket, Shower Gel,Bubble Bath, Bath Salt,Body Lotion,Body Spray,Bath Fizzer](https://products.checkmycream.com/products/Meadow-Bath-Gift-Set-in-Wicker-White-Basket-Shower-GelBubble-Bath-Bath-SaltBody-LotionBody-SprayBath-Fizzer.html)
 
 ### Positive Reviews

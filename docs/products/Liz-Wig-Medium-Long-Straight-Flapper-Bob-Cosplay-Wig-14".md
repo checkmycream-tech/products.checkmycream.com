@@ -1,12 +1,3 @@
----
-title: Liz Wig Medium Long Straight Flapper Bob Cosplay Wig 14&quot;,
-description: Liz Wig Medium Long Straight Flapper Bob Cosplay Wig 14&quot;,
-author: Suvojit Manna,
-tags: Liz Wig Medium Long Straight Flapper Bob Cosplay Wig 14&quot;,
-publishedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
----
-
 # [Liz Wig Medium Long Straight Flapper Bob Cosplay Wig 14&quot;](https://products.checkmycream.com/products/Liz-Wig-Medium-Long-Straight-Flapper-Bob-Cosplay-Wig-14&quot;.html)
 
 ### Positive Reviews

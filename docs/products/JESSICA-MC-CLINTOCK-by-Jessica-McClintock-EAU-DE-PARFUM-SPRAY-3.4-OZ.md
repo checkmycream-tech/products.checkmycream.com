@@ -1,12 +1,3 @@
----
-title: JESSICA MC CLINTOCK by Jessica McClintock EAU DE PARFUM SPRAY 3.4 OZ,
-description: JESSICA MC CLINTOCK by Jessica McClintock EAU DE PARFUM SPRAY 3.4 OZ,
-author: Suvojit Manna,
-tags: JESSICA MC CLINTOCK by Jessica McClintock EAU DE PARFUM SPRAY 3.4 OZ,
-publishedAt: Fri Jan 10 2020 15:00:45 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:45 GMT+0530 (India Standard Time),
----
-
 # [JESSICA MC CLINTOCK by Jessica McClintock EAU DE PARFUM SPRAY 3.4 OZ](https://products.checkmycream.com/products/JESSICA-MC-CLINTOCK-by-Jessica-McClintock-EAU-DE-PARFUM-SPRAY-3.4-OZ.html)
 
 ### Positive Reviews

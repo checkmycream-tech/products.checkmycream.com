@@ -1,12 +1,3 @@
----
-title: Clear Transparent Handbag Tote with Trim in Assorted Colors Purse Satchel with Zippered Enclosure Product Dimensions: 14&quot; L x 6.5&quot; W x 10&quot; H.,
-description: Clear Transparent Handbag Tote with Trim in Assorted Colors Purse Satchel with Zippered Enclosure Product Dimensions: 14&quot; L x 6.5&quot; W x 10&quot; H.,
-author: Suvojit Manna,
-tags: Clear Transparent Handbag Tote with Trim in Assorted Colors Purse Satchel with Zippered Enclosure Product Dimensions: 14&quot; L x 6.5&quot; W x 10&quot; H.,
-publishedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
----
-
 # [Clear Transparent Handbag Tote with Trim in Assorted Colors Purse Satchel with Zippered Enclosure Product Dimensions: 14&quot; L x 6.5&quot; W x 10&quot; H.](https://products.checkmycream.com/products/Clear-Transparent-Handbag-Tote-with-Trim-in-Assorted-Colors-Purse-Satchel-with-Zippered-Enclosure-Product-Dimensions:-14&quot;-L-x-6.5&quot;-W-x-10&quot;-H..html)
 
 ### Positive Reviews

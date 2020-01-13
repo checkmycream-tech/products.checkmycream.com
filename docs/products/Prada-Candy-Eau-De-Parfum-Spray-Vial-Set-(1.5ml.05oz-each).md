@@ -1,12 +1,3 @@
----
-title: Prada Candy Eau De Parfum Spray Vial Set (1.5ml/.05oz each),
-description: Prada Candy Eau De Parfum Spray Vial Set (1.5ml/.05oz each),
-author: Suvojit Manna,
-tags: Prada Candy Eau De Parfum Spray Vial Set (1.5ml/.05oz each),
-publishedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
----
-
 # [Prada Candy Eau De Parfum Spray Vial Set (1.5ml/.05oz each)](https://products.checkmycream.com/products/Prada-Candy-Eau-De-Parfum-Spray-Vial-Set-(1.5ml.05oz-each).html)
 
 ### Positive Reviews

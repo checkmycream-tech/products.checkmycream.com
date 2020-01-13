@@ -1,12 +1,3 @@
----
-title: Bath and Body Works Rainkissed Leaves Shower Gel 10 oz,
-description: Bath and Body Works Rainkissed Leaves Shower Gel 10 oz,
-author: Suvojit Manna,
-tags: Bath and Body Works Rainkissed Leaves Shower Gel 10 oz,
-publishedAt: Fri Jan 10 2020 15:00:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:03 GMT+0530 (India Standard Time),
----
-
 # [Bath and Body Works Rainkissed Leaves Shower Gel 10 oz](https://products.checkmycream.com/products/Bath-and-Body-Works-Rainkissed-Leaves-Shower-Gel-10-oz.html)
 
 ### Positive Reviews

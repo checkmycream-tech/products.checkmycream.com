@@ -1,12 +1,3 @@
----
-title: Brush Buddies Denture Brush,
-description: Brush Buddies Denture Brush,
-author: Suvojit Manna,
-tags: Brush Buddies Denture Brush,
-publishedAt: Fri Jan 10 2020 15:00:04 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:04 GMT+0530 (India Standard Time),
----
-
 # [Brush Buddies Denture Brush](https://products.checkmycream.com/products/Brush-Buddies-Denture-Brush.html)
 
 ### Positive Reviews

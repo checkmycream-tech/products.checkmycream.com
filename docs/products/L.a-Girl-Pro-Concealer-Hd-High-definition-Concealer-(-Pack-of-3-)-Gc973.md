@@ -1,12 +1,3 @@
----
-title: L.a Girl Pro Concealer Hd High-definition Concealer ( Pack of 3 ) Gc973,
-description: L.a Girl Pro Concealer Hd High-definition Concealer ( Pack of 3 ) Gc973,
-author: Suvojit Manna,
-tags: L.a Girl Pro Concealer Hd High-definition Concealer ( Pack of 3 ) Gc973,
-publishedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
----
-
 # [L.a Girl Pro Concealer Hd High-definition Concealer ( Pack of 3 ) Gc973](https://products.checkmycream.com/products/L.a-Girl-Pro-Concealer-Hd-High-definition-Concealer-(-Pack-of-3-)-Gc973.html)
 
 ### Positive Reviews

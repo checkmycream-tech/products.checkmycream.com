@@ -1,12 +1,3 @@
----
-title: 12 Color Glitter Lip Eyebrow Eyeliner Pencil Pen Cosmetic Makeup Besuty Set Kit,
-description: 12 Color Glitter Lip Eyebrow Eyeliner Pencil Pen Cosmetic Makeup Besuty Set Kit,
-author: Suvojit Manna,
-tags: 12 Color Glitter Lip Eyebrow Eyeliner Pencil Pen Cosmetic Makeup Besuty Set Kit,
-publishedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
----
-
 # [12 Color Glitter Lip Eyebrow Eyeliner Pencil Pen Cosmetic Makeup Besuty Set Kit](https://products.checkmycream.com/products/12-Color-Glitter-Lip-Eyebrow-Eyeliner-Pencil-Pen-Cosmetic-Makeup-Besuty-Set-Kit.html)
 
 ### Positive Reviews

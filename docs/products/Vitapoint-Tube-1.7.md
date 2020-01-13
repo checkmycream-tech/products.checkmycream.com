@@ -1,12 +1,3 @@
----
-title: Vitapoint Tube 1.7,
-description: Vitapoint Tube 1.7,
-author: Suvojit Manna,
-tags: Vitapoint Tube 1.7,
-publishedAt: Fri Jan 10 2020 14:59:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:03 GMT+0530 (India Standard Time),
----
-
 # [Vitapoint Tube 1.7](https://products.checkmycream.com/products/Vitapoint-Tube-1.7.html)
 
 ### Positive Reviews

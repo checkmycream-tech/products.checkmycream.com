@@ -1,12 +1,3 @@
----
-title: Malibu Tan For Dry Skin Hemp Body Lotion, 18 fl oz,
-description: Malibu Tan For Dry Skin Hemp Body Lotion, 18 fl oz,
-author: Suvojit Manna,
-tags: Malibu Tan For Dry Skin Hemp Body Lotion, 18 fl oz,
-publishedAt: Fri Jan 10 2020 15:00:31 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:31 GMT+0530 (India Standard Time),
----
-
 # [Malibu Tan For Dry Skin Hemp Body Lotion, 18 fl oz](https://products.checkmycream.com/products/Malibu-Tan-For-Dry-Skin-Hemp-Body-Lotion-18-fl-oz.html)
 
 ### Positive Reviews

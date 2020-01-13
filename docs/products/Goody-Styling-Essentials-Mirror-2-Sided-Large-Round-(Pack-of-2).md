@@ -1,12 +1,3 @@
----
-title: Goody Styling Essentials Mirror, 2 Sided Large Round (Pack of 2),
-description: Goody Styling Essentials Mirror, 2 Sided Large Round (Pack of 2),
-author: Suvojit Manna,
-tags: Goody Styling Essentials Mirror, 2 Sided Large Round (Pack of 2),
-publishedAt: Fri Jan 10 2020 15:00:11 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:11 GMT+0530 (India Standard Time),
----
-
 # [Goody Styling Essentials Mirror, 2 Sided Large Round (Pack of 2)](https://products.checkmycream.com/products/Goody-Styling-Essentials-Mirror-2-Sided-Large-Round-(Pack-of-2).html)
 
 ### Positive Reviews

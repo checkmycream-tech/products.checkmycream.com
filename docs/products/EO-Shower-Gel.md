@@ -1,12 +1,3 @@
----
-title: EO Shower Gel,
-description: EO Shower Gel,
-author: Suvojit Manna,
-tags: EO Shower Gel,
-publishedAt: Fri Jan 10 2020 15:00:15 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:15 GMT+0530 (India Standard Time),
----
-
 # [EO Shower Gel](https://products.checkmycream.com/products/EO-Shower-Gel.html)
 
 ### Positive Reviews

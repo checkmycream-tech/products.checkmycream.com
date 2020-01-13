@@ -1,12 +1,3 @@
----
-title: ETA 41 Color Eye Shadow Blusher Lip Gloss Makeup Kit 1.35 OZ BR,
-description: ETA 41 Color Eye Shadow Blusher Lip Gloss Makeup Kit 1.35 OZ BR,
-author: Suvojit Manna,
-tags: ETA 41 Color Eye Shadow Blusher Lip Gloss Makeup Kit 1.35 OZ BR,
-publishedAt: Fri Jan 10 2020 14:59:26 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:26 GMT+0530 (India Standard Time),
----
-
 # [ETA 41 Color Eye Shadow Blusher Lip Gloss Makeup Kit 1.35 OZ BR](https://products.checkmycream.com/products/ETA-41-Color-Eye-Shadow-Blusher-Lip-Gloss-Makeup-Kit-1.35-OZ-BR.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Groganics DHT Root Lifter, 4 Ounce,
-description: Groganics DHT Root Lifter, 4 Ounce,
-author: Suvojit Manna,
-tags: Groganics DHT Root Lifter, 4 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:30 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:30 GMT+0530 (India Standard Time),
----
-
 # [Groganics DHT Root Lifter, 4 Ounce](https://products.checkmycream.com/products/Groganics-DHT-Root-Lifter-4-Ounce.html)
 
 ### Positive Reviews

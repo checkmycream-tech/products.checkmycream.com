@@ -1,12 +1,3 @@
----
-title: Professional Red Wood Kolinsky Acrylic Nail Brush Round Size 8 10 12 14 16 18,
-description: Professional Red Wood Kolinsky Acrylic Nail Brush Round Size 8 10 12 14 16 18,
-author: Suvojit Manna,
-tags: Professional Red Wood Kolinsky Acrylic Nail Brush Round Size 8 10 12 14 16 18,
-publishedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
----
-
 # [Professional Red Wood Kolinsky Acrylic Nail Brush Round Size 8 10 12 14 16 18](https://products.checkmycream.com/products/Professional-Red-Wood-Kolinsky-Acrylic-Nail-Brush-Round-Size-8-10-12-14-16-18.html)
 
 ### Positive Reviews

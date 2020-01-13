@@ -1,12 +1,3 @@
----
-title: OSiS+ Flatliner Flattening Iron Serum, 6.8 Ounce,
-description: OSiS+ Flatliner Flattening Iron Serum, 6.8 Ounce,
-author: Suvojit Manna,
-tags: OSiS+ Flatliner Flattening Iron Serum, 6.8 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:10 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:10 GMT+0530 (India Standard Time),
----
-
 # [OSiS+ Flatliner Flattening Iron Serum, 6.8 Ounce](https://products.checkmycream.com/products/OSiS+-Flatliner-Flattening-Iron-Serum-6.8-Ounce.html)
 
 ### Positive Reviews

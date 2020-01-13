@@ -1,12 +1,3 @@
----
-title: ConairPRO Curlmatic Curl Machine,
-description: ConairPRO Curlmatic Curl Machine,
-author: Suvojit Manna,
-tags: ConairPRO Curlmatic Curl Machine,
-publishedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
----
-
 # [ConairPRO Curlmatic Curl Machine](https://products.checkmycream.com/products/ConairPRO-Curlmatic-Curl-Machine.html)
 
 ### Positive Reviews

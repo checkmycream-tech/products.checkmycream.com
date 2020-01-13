@@ -1,12 +1,3 @@
----
-title: Black Friday Sale! OriGlam Portable Dual Nozzle Electric Balloon Blower Pump Electric Balloon Inflator 110V 600W For Decoration,
-description: Black Friday Sale! OriGlam Portable Dual Nozzle Electric Balloon Blower Pump Electric Balloon Inflator 110V 600W For Decoration,
-author: Suvojit Manna,
-tags: Black Friday Sale! OriGlam Portable Dual Nozzle Electric Balloon Blower Pump Electric Balloon Inflator 110V 600W For Decoration,
-publishedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
----
-
 # [Black Friday Sale! OriGlam Portable Dual Nozzle Electric Balloon Blower Pump Electric Balloon Inflator 110V 600W For Decoration](https://products.checkmycream.com/products/Black-Friday-Sale!-OriGlam-Portable-Dual-Nozzle-Electric-Balloon-Blower-Pump-Electric-Balloon-Inflator-110V-600W-For-Decoration.html)
 
 ### Positive Reviews

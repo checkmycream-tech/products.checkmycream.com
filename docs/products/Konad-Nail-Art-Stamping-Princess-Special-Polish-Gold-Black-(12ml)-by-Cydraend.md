@@ -1,12 +1,3 @@
----
-title: Konad Nail Art Stamping Princess Special Polish - Gold Black (12ml) by Cydraend,
-description: Konad Nail Art Stamping Princess Special Polish - Gold Black (12ml) by Cydraend,
-author: Suvojit Manna,
-tags: Konad Nail Art Stamping Princess Special Polish - Gold Black (12ml) by Cydraend,
-publishedAt: Fri Jan 10 2020 14:59:38 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:38 GMT+0530 (India Standard Time),
----
-
 # [Konad Nail Art Stamping Princess Special Polish - Gold Black (12ml) by Cydraend](https://products.checkmycream.com/products/Konad-Nail-Art-Stamping-Princess-Special-Polish-Gold-Black-(12ml)-by-Cydraend.html)
 
 ### Positive Reviews

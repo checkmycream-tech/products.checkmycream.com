@@ -1,12 +1,3 @@
----
-title: Porcelana Skin Lightening Day Cream and Fade Dark Spots Treatment, 3 Ounce,
-description: Porcelana Skin Lightening Day Cream and Fade Dark Spots Treatment, 3 Ounce,
-author: Suvojit Manna,
-tags: Porcelana Skin Lightening Day Cream and Fade Dark Spots Treatment, 3 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
----
-
 # [Porcelana Skin Lightening Day Cream and Fade Dark Spots Treatment, 3 Ounce](https://products.checkmycream.com/products/Porcelana-Skin-Lightening-Day-Cream-and-Fade-Dark-Spots-Treatment-3-Ounce.html)
 
 ### Positive Reviews

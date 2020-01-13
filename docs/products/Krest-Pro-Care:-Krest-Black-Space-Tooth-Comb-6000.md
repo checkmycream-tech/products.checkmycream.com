@@ -1,12 +1,3 @@
----
-title: Krest Pro Care: Krest Black Space Tooth Comb #6000,
-description: Krest Pro Care: Krest Black Space Tooth Comb #6000,
-author: Suvojit Manna,
-tags: Krest Pro Care: Krest Black Space Tooth Comb #6000,
-publishedAt: Fri Jan 10 2020 14:59:22 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:22 GMT+0530 (India Standard Time),
----
-
 # [Krest Pro Care: Krest Black Space Tooth Comb #6000](https://products.checkmycream.com/products/Krest-Pro-Care:-Krest-Black-Space-Tooth-Comb-6000.html)
 
 ### Positive Reviews

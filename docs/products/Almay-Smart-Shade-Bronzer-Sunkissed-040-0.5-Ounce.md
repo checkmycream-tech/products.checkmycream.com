@@ -1,12 +1,3 @@
----
-title: Almay Smart Shade Bronzer, Sunkissed 040, 0.5-Ounce,
-description: Almay Smart Shade Bronzer, Sunkissed 040, 0.5-Ounce,
-author: Suvojit Manna,
-tags: Almay Smart Shade Bronzer, Sunkissed 040, 0.5-Ounce,
-publishedAt: Fri Jan 10 2020 14:59:30 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:30 GMT+0530 (India Standard Time),
----
-
 # [Almay Smart Shade Bronzer, Sunkissed 040, 0.5-Ounce](https://products.checkmycream.com/products/Almay-Smart-Shade-Bronzer-Sunkissed-040-0.5-Ounce.html)
 
 ### Positive Reviews

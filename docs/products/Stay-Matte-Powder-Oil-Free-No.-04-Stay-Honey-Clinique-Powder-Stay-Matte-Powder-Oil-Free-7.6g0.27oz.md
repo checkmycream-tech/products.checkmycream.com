@@ -1,12 +1,3 @@
----
-title: Stay Matte Powder Oil Free - No. 04 Stay Honey - Clinique - Powder - Stay Matte Powder Oil Free - 7.6g/0.27oz,
-description: Stay Matte Powder Oil Free - No. 04 Stay Honey - Clinique - Powder - Stay Matte Powder Oil Free - 7.6g/0.27oz,
-author: Suvojit Manna,
-tags: Stay Matte Powder Oil Free - No. 04 Stay Honey - Clinique - Powder - Stay Matte Powder Oil Free - 7.6g/0.27oz,
-publishedAt: Fri Jan 10 2020 14:59:04 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:04 GMT+0530 (India Standard Time),
----
-
 # [Stay Matte Powder Oil Free - No. 04 Stay Honey - Clinique - Powder - Stay Matte Powder Oil Free - 7.6g/0.27oz](https://products.checkmycream.com/products/Stay-Matte-Powder-Oil-Free-No.-04-Stay-Honey-Clinique-Powder-Stay-Matte-Powder-Oil-Free-7.6g0.27oz.html)
 
 ### Positive Reviews

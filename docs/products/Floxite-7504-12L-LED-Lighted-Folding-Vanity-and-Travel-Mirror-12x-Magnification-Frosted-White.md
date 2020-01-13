@@ -1,12 +1,3 @@
----
-title: Floxite 7504-12L LED Lighted Folding Vanity &amp; Travel Mirror - 12x Magnification - Frosted White,
-description: Floxite 7504-12L LED Lighted Folding Vanity &amp; Travel Mirror - 12x Magnification - Frosted White,
-author: Suvojit Manna,
-tags: Floxite 7504-12L LED Lighted Folding Vanity &amp; Travel Mirror - 12x Magnification - Frosted White,
-publishedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
----
-
 # [Floxite 7504-12L LED Lighted Folding Vanity &amp; Travel Mirror - 12x Magnification - Frosted White](https://products.checkmycream.com/products/Floxite-7504-12L-LED-Lighted-Folding-Vanity-and-Travel-Mirror-12x-Magnification-Frosted-White.html)
 
 ### Positive Reviews

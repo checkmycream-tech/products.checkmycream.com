@@ -1,12 +1,3 @@
----
-title: Cobalt Blue Glass Straight Sided Jar - 1 oz (4 Pack) + Spatulas and Labels - BPA Free, Airtight, Smell Proof,
-description: Cobalt Blue Glass Straight Sided Jar - 1 oz (4 Pack) + Spatulas and Labels - BPA Free, Airtight, Smell Proof,
-author: Suvojit Manna,
-tags: Cobalt Blue Glass Straight Sided Jar - 1 oz (4 Pack) + Spatulas and Labels - BPA Free, Airtight, Smell Proof,
-publishedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
----
-
 # [Cobalt Blue Glass Straight Sided Jar - 1 oz (4 Pack) + Spatulas and Labels - BPA Free, Airtight, Smell Proof](https://products.checkmycream.com/products/Cobalt-Blue-Glass-Straight-Sided-Jar-1-oz-(4-Pack)-+-Spatulas-and-Labels-BPA-Free-Airtight-Smell-Proof.html)
 
 ### Positive Reviews

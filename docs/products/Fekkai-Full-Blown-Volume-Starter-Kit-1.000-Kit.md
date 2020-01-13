@@ -1,12 +1,3 @@
----
-title: Fekkai Full Blown Volume Starter Kit, 1.000-Kit,
-description: Fekkai Full Blown Volume Starter Kit, 1.000-Kit,
-author: Suvojit Manna,
-tags: Fekkai Full Blown Volume Starter Kit, 1.000-Kit,
-publishedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
----
-
 # [Fekkai Full Blown Volume Starter Kit, 1.000-Kit](https://products.checkmycream.com/products/Fekkai-Full-Blown-Volume-Starter-Kit-1.000-Kit.html)
 
 ### Positive Reviews

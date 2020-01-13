@@ -1,12 +1,3 @@
----
-title: Convatec Sensi-Care Protective Barrier, 4oz,
-description: Convatec Sensi-Care Protective Barrier, 4oz,
-author: Suvojit Manna,
-tags: Convatec Sensi-Care Protective Barrier, 4oz,
-publishedAt: Fri Jan 10 2020 14:59:14 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:14 GMT+0530 (India Standard Time),
----
-
 # [Convatec Sensi-Care Protective Barrier, 4oz](https://products.checkmycream.com/products/Convatec-Sensi-Care-Protective-Barrier-4oz.html)
 
 ### Positive Reviews

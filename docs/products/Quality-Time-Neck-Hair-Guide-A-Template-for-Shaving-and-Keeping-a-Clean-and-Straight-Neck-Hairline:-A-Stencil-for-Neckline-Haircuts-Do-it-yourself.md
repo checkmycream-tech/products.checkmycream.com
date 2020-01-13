@@ -1,12 +1,3 @@
----
-title: Quality Time Neck Hair Guide - A Template for Shaving and Keeping a Clean and Straight Neck Hairline: A Stencil for Neckline Haircuts, Do-it-yourself,
-description: Quality Time Neck Hair Guide - A Template for Shaving and Keeping a Clean and Straight Neck Hairline: A Stencil for Neckline Haircuts, Do-it-yourself,
-author: Suvojit Manna,
-tags: Quality Time Neck Hair Guide - A Template for Shaving and Keeping a Clean and Straight Neck Hairline: A Stencil for Neckline Haircuts, Do-it-yourself,
-publishedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
----
-
 # [Quality Time Neck Hair Guide - A Template for Shaving and Keeping a Clean and Straight Neck Hairline: A Stencil for Neckline Haircuts, Do-it-yourself](https://products.checkmycream.com/products/Quality-Time-Neck-Hair-Guide-A-Template-for-Shaving-and-Keeping-a-Clean-and-Straight-Neck-Hairline:-A-Stencil-for-Neckline-Haircuts-Do-it-yourself.html)
 
 ### Positive Reviews

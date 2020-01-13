@@ -1,12 +1,3 @@
----
-title: Valentina Edp Spray For Women,
-description: Valentina Edp Spray For Women,
-author: Suvojit Manna,
-tags: Valentina Edp Spray For Women,
-publishedAt: Fri Jan 10 2020 15:00:12 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:12 GMT+0530 (India Standard Time),
----
-
 # [Valentina Edp Spray For Women](https://products.checkmycream.com/products/Valentina-Edp-Spray-For-Women.html)
 
 ### Positive Reviews

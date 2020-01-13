@@ -1,12 +1,3 @@
----
-title: Gillette Invisible Spray Antiperspirant and Deodorant for men, Power Rush, 3.8 oz,
-description: Gillette Invisible Spray Antiperspirant and Deodorant for men, Power Rush, 3.8 oz,
-author: Suvojit Manna,
-tags: Gillette Invisible Spray Antiperspirant and Deodorant for men, Power Rush, 3.8 oz,
-publishedAt: Fri Jan 10 2020 15:00:31 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:31 GMT+0530 (India Standard Time),
----
-
 # [Gillette Invisible Spray Antiperspirant and Deodorant for men, Power Rush, 3.8 oz](https://products.checkmycream.com/products/Gillette-Invisible-Spray-Antiperspirant-and-Deodorant-for-men-Power-Rush-3.8-oz.html)
 
 ### Positive Reviews

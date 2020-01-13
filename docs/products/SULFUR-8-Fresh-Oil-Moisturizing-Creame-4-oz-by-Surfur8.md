@@ -1,12 +1,3 @@
----
-title: SULFUR 8 Fresh Oil Moisturizing Creame 4 oz by Surfur8,
-description: SULFUR 8 Fresh Oil Moisturizing Creame 4 oz by Surfur8,
-author: Suvojit Manna,
-tags: SULFUR 8 Fresh Oil Moisturizing Creame 4 oz by Surfur8,
-publishedAt: Fri Jan 10 2020 14:59:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:55 GMT+0530 (India Standard Time),
----
-
 # [SULFUR 8 Fresh Oil Moisturizing Creame 4 oz by Surfur8](https://products.checkmycream.com/products/SULFUR-8-Fresh-Oil-Moisturizing-Creame-4-oz-by-Surfur8.html)
 
 ### Positive Reviews

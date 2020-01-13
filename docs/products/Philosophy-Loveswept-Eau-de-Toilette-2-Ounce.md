@@ -1,12 +1,3 @@
----
-title: Philosophy Loveswept Eau de Toilette, 2 Ounce,
-description: Philosophy Loveswept Eau de Toilette, 2 Ounce,
-author: Suvojit Manna,
-tags: Philosophy Loveswept Eau de Toilette, 2 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
----
-
 # [Philosophy Loveswept Eau de Toilette, 2 Ounce](https://products.checkmycream.com/products/Philosophy-Loveswept-Eau-de-Toilette-2-Ounce.html)
 
 ### Positive Reviews

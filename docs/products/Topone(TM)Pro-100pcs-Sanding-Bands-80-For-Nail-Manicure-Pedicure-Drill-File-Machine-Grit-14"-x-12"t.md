@@ -1,12 +1,3 @@
----
-title: Topone(TM)Pro 100pcs Sanding Bands 80# For Nail Manicure Pedicure Drill File Machine Grit - 1/4&quot; x 1/2&quot;t,
-description: Topone(TM)Pro 100pcs Sanding Bands 80# For Nail Manicure Pedicure Drill File Machine Grit - 1/4&quot; x 1/2&quot;t,
-author: Suvojit Manna,
-tags: Topone(TM)Pro 100pcs Sanding Bands 80# For Nail Manicure Pedicure Drill File Machine Grit - 1/4&quot; x 1/2&quot;t,
-publishedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
----
-
 # [Topone(TM)Pro 100pcs Sanding Bands 80# For Nail Manicure Pedicure Drill File Machine Grit - 1/4&quot; x 1/2&quot;t](https://products.checkmycream.com/products/Topone(TM)Pro-100pcs-Sanding-Bands-80-For-Nail-Manicure-Pedicure-Drill-File-Machine-Grit-14&quot;-x-12&quot;t.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Bijan By Bijan For Women. Eau De Toilette Spray 2.5 Ounces,
-description: Bijan By Bijan For Women. Eau De Toilette Spray 2.5 Ounces,
-author: Suvojit Manna,
-tags: Bijan By Bijan For Women. Eau De Toilette Spray 2.5 Ounces,
-publishedAt: Fri Jan 10 2020 14:59:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:05 GMT+0530 (India Standard Time),
----
-
 # [Bijan By Bijan For Women. Eau De Toilette Spray 2.5 Ounces](https://products.checkmycream.com/products/Bijan-By-Bijan-For-Women.-Eau-De-Toilette-Spray-2.5-Ounces.html)
 
 ### Positive Reviews

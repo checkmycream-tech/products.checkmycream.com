@@ -1,12 +1,3 @@
----
-title: Style Edit Root Concealer Factory Fresh, Medium Light, Brown 2oz 2 Pack,
-description: Style Edit Root Concealer Factory Fresh, Medium Light, Brown 2oz 2 Pack,
-author: Suvojit Manna,
-tags: Style Edit Root Concealer Factory Fresh, Medium Light, Brown 2oz 2 Pack,
-publishedAt: Fri Jan 10 2020 15:01:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:05 GMT+0530 (India Standard Time),
----
-
 # [Style Edit Root Concealer Factory Fresh, Medium Light, Brown 2oz 2 Pack](https://products.checkmycream.com/products/Style-Edit-Root-Concealer-Factory-Fresh-Medium-Light-Brown-2oz-2-Pack.html)
 
 ### Positive Reviews

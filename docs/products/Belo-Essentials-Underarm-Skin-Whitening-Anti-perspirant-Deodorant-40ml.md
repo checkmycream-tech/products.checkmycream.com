@@ -1,12 +1,3 @@
----
-title: Belo Essentials Underarm Skin Whitening Anti-perspirant Deodorant 40ml,
-description: Belo Essentials Underarm Skin Whitening Anti-perspirant Deodorant 40ml,
-author: Suvojit Manna,
-tags: Belo Essentials Underarm Skin Whitening Anti-perspirant Deodorant 40ml,
-publishedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
----
-
 # [Belo Essentials Underarm Skin Whitening Anti-perspirant Deodorant 40ml](https://products.checkmycream.com/products/Belo-Essentials-Underarm-Skin-Whitening-Anti-perspirant-Deodorant-40ml.html)
 
 ### Positive Reviews

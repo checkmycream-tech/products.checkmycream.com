@@ -1,12 +1,3 @@
----
-title: Leshery New Sexy Women Long Sleeve Prom Ball Cocktail Party Dress Formal Evening Gown,
-description: Leshery New Sexy Women Long Sleeve Prom Ball Cocktail Party Dress Formal Evening Gown,
-author: Suvojit Manna,
-tags: Leshery New Sexy Women Long Sleeve Prom Ball Cocktail Party Dress Formal Evening Gown,
-publishedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
----
-
 # [Leshery New Sexy Women Long Sleeve Prom Ball Cocktail Party Dress Formal Evening Gown](https://products.checkmycream.com/products/Leshery-New-Sexy-Women-Long-Sleeve-Prom-Ball-Cocktail-Party-Dress-Formal-Evening-Gown.html)
 
 ### Positive Reviews

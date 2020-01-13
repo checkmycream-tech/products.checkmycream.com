@@ -1,12 +1,3 @@
----
-title: BeShe EAR-2-EAR Lace Front Wig - LW-DREW (TIGHT CURL 10&quot;),
-description: BeShe EAR-2-EAR Lace Front Wig - LW-DREW (TIGHT CURL 10&quot;),
-author: Suvojit Manna,
-tags: BeShe EAR-2-EAR Lace Front Wig - LW-DREW (TIGHT CURL 10&quot;),
-publishedAt: Fri Jan 10 2020 15:00:07 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:07 GMT+0530 (India Standard Time),
----
-
 # [BeShe EAR-2-EAR Lace Front Wig - LW-DREW (TIGHT CURL 10&quot;)](https://products.checkmycream.com/products/BeShe-EAR-2-EAR-Lace-Front-Wig-LW-DREW-(TIGHT-CURL-10&quot;).html)
 
 ### Positive Reviews

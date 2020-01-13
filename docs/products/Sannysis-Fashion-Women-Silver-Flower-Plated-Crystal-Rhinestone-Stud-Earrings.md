@@ -1,12 +1,3 @@
----
-title: Sannysis Fashion Women Silver Flower Plated Crystal Rhinestone Stud Earrings ¡­,
-description: Sannysis Fashion Women Silver Flower Plated Crystal Rhinestone Stud Earrings ¡­,
-author: Suvojit Manna,
-tags: Sannysis Fashion Women Silver Flower Plated Crystal Rhinestone Stud Earrings ¡­,
-publishedAt: Fri Jan 10 2020 15:01:04 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:04 GMT+0530 (India Standard Time),
----
-
 # [Sannysis Fashion Women Silver Flower Plated Crystal Rhinestone Stud Earrings ¡­](https://products.checkmycream.com/products/Sannysis-Fashion-Women-Silver-Flower-Plated-Crystal-Rhinestone-Stud-Earrings.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Naturtint, Permanent Hair Color - 10N Light Dawn Blonde, 5.28 fl oz (6-pack),
-description: Naturtint, Permanent Hair Color - 10N Light Dawn Blonde, 5.28 fl oz (6-pack),
-author: Suvojit Manna,
-tags: Naturtint, Permanent Hair Color - 10N Light Dawn Blonde, 5.28 fl oz (6-pack),
-publishedAt: Fri Jan 10 2020 14:59:27 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:27 GMT+0530 (India Standard Time),
----
-
 # [Naturtint, Permanent Hair Color - 10N Light Dawn Blonde, 5.28 fl oz (6-pack)](https://products.checkmycream.com/products/Naturtint-Permanent-Hair-Color-10N-Light-Dawn-Blonde-5.28-fl-oz-(6-pack).html)
 
 ### Positive Reviews

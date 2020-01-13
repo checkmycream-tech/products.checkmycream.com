@@ -1,12 +1,3 @@
----
-title: 22&quot;(55cm) 90g Ribbon Ponytail Straight Clip in Hair Extensions, Hot Resistent Synthetic (#1B black),
-description: 22&quot;(55cm) 90g Ribbon Ponytail Straight Clip in Hair Extensions, Hot Resistent Synthetic (#1B black),
-author: Suvojit Manna,
-tags: 22&quot;(55cm) 90g Ribbon Ponytail Straight Clip in Hair Extensions, Hot Resistent Synthetic (#1B black),
-publishedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
----
-
 # [22&quot;(55cm) 90g Ribbon Ponytail Straight Clip in Hair Extensions, Hot Resistent Synthetic (#1B black)](https://products.checkmycream.com/products/22&quot;(55cm)-90g-Ribbon-Ponytail-Straight-Clip-in-Hair-Extensions-Hot-Resistent-Synthetic-(1B-black).html)
 
 ### Positive Reviews

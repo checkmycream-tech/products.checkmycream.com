@@ -1,12 +1,3 @@
----
-title: Carolina Herrera by Carolina Herrera for Women - 1.7 Ounce EDP Spray,
-description: Carolina Herrera by Carolina Herrera for Women - 1.7 Ounce EDP Spray,
-author: Suvojit Manna,
-tags: Carolina Herrera by Carolina Herrera for Women - 1.7 Ounce EDP Spray,
-publishedAt: Fri Jan 10 2020 14:59:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:03 GMT+0530 (India Standard Time),
----
-
 # [Carolina Herrera by Carolina Herrera for Women - 1.7 Ounce EDP Spray](https://products.checkmycream.com/products/Carolina-Herrera-by-Carolina-Herrera-for-Women-1.7-Ounce-EDP-Spray.html)
 
 ### Positive Reviews

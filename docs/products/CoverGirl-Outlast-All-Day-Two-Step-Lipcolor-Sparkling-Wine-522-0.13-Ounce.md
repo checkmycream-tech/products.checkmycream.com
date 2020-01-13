@@ -1,12 +1,3 @@
----
-title: CoverGirl Outlast All Day Two Step Lipcolor, Sparkling Wine 522, 0.13 Ounce,
-description: CoverGirl Outlast All Day Two Step Lipcolor, Sparkling Wine 522, 0.13 Ounce,
-author: Suvojit Manna,
-tags: CoverGirl Outlast All Day Two Step Lipcolor, Sparkling Wine 522, 0.13 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:32 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:32 GMT+0530 (India Standard Time),
----
-
 # [CoverGirl Outlast All Day Two Step Lipcolor, Sparkling Wine 522, 0.13 Ounce](https://products.checkmycream.com/products/CoverGirl-Outlast-All-Day-Two-Step-Lipcolor-Sparkling-Wine-522-0.13-Ounce.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Elegant Fashionable Black Braided Wrap Around Bracelet Bangle With Silver Coloured 2 Birds With Pearl, Tree And Infinity Charms By VAGA©,
-description: Elegant Fashionable Black Braided Wrap Around Bracelet Bangle With Silver Coloured 2 Birds With Pearl, Tree And Infinity Charms By VAGA©,
-author: Suvojit Manna,
-tags: Elegant Fashionable Black Braided Wrap Around Bracelet Bangle With Silver Coloured 2 Birds With Pearl, Tree And Infinity Charms By VAGA©,
-publishedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
----
-
 # [Elegant Fashionable Black Braided Wrap Around Bracelet Bangle With Silver Coloured 2 Birds With Pearl, Tree And Infinity Charms By VAGA©](https://products.checkmycream.com/products/Elegant-Fashionable-Black-Braided-Wrap-Around-Bracelet-Bangle-With-Silver-Coloured-2-Birds-With-Pearl-Tree-And-Infinity-Charms-By-VAGA(c).html)
 
 ### Positive Reviews

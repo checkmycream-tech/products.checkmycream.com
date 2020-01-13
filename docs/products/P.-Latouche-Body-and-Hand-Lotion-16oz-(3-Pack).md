@@ -1,12 +1,3 @@
----
-title: P. Latouche Body &amp; Hand Lotion 16oz (3 Pack),
-description: P. Latouche Body &amp; Hand Lotion 16oz (3 Pack),
-author: Suvojit Manna,
-tags: P. Latouche Body &amp; Hand Lotion 16oz (3 Pack),
-publishedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
----
-
 # [P. Latouche Body &amp; Hand Lotion 16oz (3 Pack)](https://products.checkmycream.com/products/P.-Latouche-Body-and-Hand-Lotion-16oz-(3-Pack).html)
 
 ### Positive Reviews

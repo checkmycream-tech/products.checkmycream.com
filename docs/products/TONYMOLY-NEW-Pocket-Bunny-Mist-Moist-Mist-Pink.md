@@ -1,12 +1,3 @@
----
-title: TONYMOLY NEW Pocket Bunny Mist Moist Mist-Pink,
-description: TONYMOLY NEW Pocket Bunny Mist Moist Mist-Pink,
-author: Suvojit Manna,
-tags: TONYMOLY NEW Pocket Bunny Mist Moist Mist-Pink,
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [TONYMOLY NEW Pocket Bunny Mist Moist Mist-Pink](https://products.checkmycream.com/products/TONYMOLY-NEW-Pocket-Bunny-Mist-Moist-Mist-Pink.html)
 
 ### Positive Reviews

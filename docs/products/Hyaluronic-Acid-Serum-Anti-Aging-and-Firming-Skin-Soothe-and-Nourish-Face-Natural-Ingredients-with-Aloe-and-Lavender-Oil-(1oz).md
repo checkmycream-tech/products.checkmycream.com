@@ -1,12 +1,3 @@
----
-title: Hyaluronic Acid Serum - Anti Aging and Firming Skin - Soothe and Nourish Face - Natural Ingredients with Aloe and Lavender Oil (1oz),
-description: Hyaluronic Acid Serum - Anti Aging and Firming Skin - Soothe and Nourish Face - Natural Ingredients with Aloe and Lavender Oil (1oz),
-author: Suvojit Manna,
-tags: Hyaluronic Acid Serum - Anti Aging and Firming Skin - Soothe and Nourish Face - Natural Ingredients with Aloe and Lavender Oil (1oz),
-publishedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
----
-
 # [Hyaluronic Acid Serum - Anti Aging and Firming Skin - Soothe and Nourish Face - Natural Ingredients with Aloe and Lavender Oil (1oz)](https://products.checkmycream.com/products/Hyaluronic-Acid-Serum-Anti-Aging-and-Firming-Skin-Soothe-and-Nourish-Face-Natural-Ingredients-with-Aloe-and-Lavender-Oil-(1oz).html)
 
 ### Positive Reviews

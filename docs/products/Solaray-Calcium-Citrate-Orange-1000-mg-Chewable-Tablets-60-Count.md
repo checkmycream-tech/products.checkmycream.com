@@ -1,12 +1,3 @@
----
-title: Solaray Calcium Citrate Orange 1,000 mg Chewable Tablets, 60 Count,
-description: Solaray Calcium Citrate Orange 1,000 mg Chewable Tablets, 60 Count,
-author: Suvojit Manna,
-tags: Solaray Calcium Citrate Orange 1,000 mg Chewable Tablets, 60 Count,
-publishedAt: Fri Jan 10 2020 14:59:09 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:09 GMT+0530 (India Standard Time),
----
-
 # [Solaray Calcium Citrate Orange 1,000 mg Chewable Tablets, 60 Count](https://products.checkmycream.com/products/Solaray-Calcium-Citrate-Orange-1000-mg-Chewable-Tablets-60-Count.html)
 
 ### Positive Reviews

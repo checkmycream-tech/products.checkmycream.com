@@ -1,12 +1,3 @@
----
-title: Nail Art 3d 40 Pieces Small Black Bow for Nails, Cellphones .8cm,
-description: Nail Art 3d 40 Pieces Small Black Bow for Nails, Cellphones .8cm,
-author: Suvojit Manna,
-tags: Nail Art 3d 40 Pieces Small Black Bow for Nails, Cellphones .8cm,
-publishedAt: Fri Jan 10 2020 15:00:20 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:20 GMT+0530 (India Standard Time),
----
-
 # [Nail Art 3d 40 Pieces Small Black Bow for Nails, Cellphones .8cm](https://products.checkmycream.com/products/Nail-Art-3d-40-Pieces-Small-Black-Bow-for-Nails-Cellphones-.8cm.html)
 
 ### Positive Reviews

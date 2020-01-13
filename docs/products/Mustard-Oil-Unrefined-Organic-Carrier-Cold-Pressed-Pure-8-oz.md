@@ -1,12 +1,3 @@
----
-title: Mustard Oil Unrefined Organic Carrier Cold Pressed Pure 8 oz,
-description: Mustard Oil Unrefined Organic Carrier Cold Pressed Pure 8 oz,
-author: Suvojit Manna,
-tags: Mustard Oil Unrefined Organic Carrier Cold Pressed Pure 8 oz,
-publishedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
----
-
 # [Mustard Oil Unrefined Organic Carrier Cold Pressed Pure 8 oz](https://products.checkmycream.com/products/Mustard-Oil-Unrefined-Organic-Carrier-Cold-Pressed-Pure-8-oz.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Wella Brilliance conditioner for Fine Hair, 8.4 oz,
-description: Wella Brilliance conditioner for Fine Hair, 8.4 oz,
-author: Suvojit Manna,
-tags: Wella Brilliance conditioner for Fine Hair, 8.4 oz,
-publishedAt: Fri Jan 10 2020 15:00:06 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:06 GMT+0530 (India Standard Time),
----
-
 # [Wella Brilliance conditioner for Fine Hair, 8.4 oz](https://products.checkmycream.com/products/Wella-Brilliance-conditioner-for-Fine-Hair-8.4-oz.html)
 
 ### Positive Reviews

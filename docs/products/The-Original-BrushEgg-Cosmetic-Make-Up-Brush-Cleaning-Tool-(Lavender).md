@@ -1,12 +1,3 @@
----
-title: The Original BrushEgg - Cosmetic Make-Up Brush Cleaning Tool (Lavender),
-description: The Original BrushEgg - Cosmetic Make-Up Brush Cleaning Tool (Lavender),
-author: Suvojit Manna,
-tags: The Original BrushEgg - Cosmetic Make-Up Brush Cleaning Tool (Lavender),
-publishedAt: Fri Jan 10 2020 15:01:04 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:04 GMT+0530 (India Standard Time),
----
-
 # [The Original BrushEgg - Cosmetic Make-Up Brush Cleaning Tool (Lavender)](https://products.checkmycream.com/products/The-Original-BrushEgg-Cosmetic-Make-Up-Brush-Cleaning-Tool-(Lavender).html)
 
 ### Positive Reviews

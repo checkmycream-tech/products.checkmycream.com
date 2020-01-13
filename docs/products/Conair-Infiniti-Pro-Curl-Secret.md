@@ -1,12 +1,3 @@
----
-title: Conair Infiniti Pro Curl Secret,
-description: Conair Infiniti Pro Curl Secret,
-author: Suvojit Manna,
-tags: Conair Infiniti Pro Curl Secret,
-publishedAt: Fri Jan 10 2020 15:01:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:05 GMT+0530 (India Standard Time),
----
-
 # [Conair Infiniti Pro Curl Secret](https://products.checkmycream.com/products/Conair-Infiniti-Pro-Curl-Secret.html)
 
 ### Positive Reviews

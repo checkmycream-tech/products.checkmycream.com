@@ -1,12 +1,3 @@
----
-title: Le Mieux O2 Calming Gel, 6 Ounce,
-description: Le Mieux O2 Calming Gel, 6 Ounce,
-author: Suvojit Manna,
-tags: Le Mieux O2 Calming Gel, 6 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
----
-
 # [Le Mieux O2 Calming Gel, 6 Ounce](https://products.checkmycream.com/products/Le-Mieux-O2-Calming-Gel-6-Ounce.html)
 
 ### Positive Reviews

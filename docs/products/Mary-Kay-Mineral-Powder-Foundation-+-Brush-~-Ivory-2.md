@@ -1,12 +1,3 @@
----
-title: Mary Kay Mineral Powder Foundation + Brush ~ Ivory 2,
-description: Mary Kay Mineral Powder Foundation + Brush ~ Ivory 2,
-author: Suvojit Manna,
-tags: Mary Kay Mineral Powder Foundation + Brush ~ Ivory 2,
-publishedAt: Fri Jan 10 2020 14:59:50 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:50 GMT+0530 (India Standard Time),
----
-
 # [Mary Kay Mineral Powder Foundation + Brush ~ Ivory 2](https://products.checkmycream.com/products/Mary-Kay-Mineral-Powder-Foundation-+-Brush-~-Ivory-2.html)
 
 ### Positive Reviews

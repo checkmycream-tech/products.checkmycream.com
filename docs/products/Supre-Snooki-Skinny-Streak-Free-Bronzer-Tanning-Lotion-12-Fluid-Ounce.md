@@ -1,12 +1,3 @@
----
-title: Supre Snooki Skinny Streak Free Bronzer Tanning Lotion, 12 Fluid Ounce,
-description: Supre Snooki Skinny Streak Free Bronzer Tanning Lotion, 12 Fluid Ounce,
-author: Suvojit Manna,
-tags: Supre Snooki Skinny Streak Free Bronzer Tanning Lotion, 12 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
----
-
 # [Supre Snooki Skinny Streak Free Bronzer Tanning Lotion, 12 Fluid Ounce](https://products.checkmycream.com/products/Supre-Snooki-Skinny-Streak-Free-Bronzer-Tanning-Lotion-12-Fluid-Ounce.html)
 
 ### Positive Reviews

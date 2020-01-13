@@ -1,12 +1,3 @@
----
-title: XS Pour Homme Cologne by Paco Rabanne for men Colognes,
-description: XS Pour Homme Cologne by Paco Rabanne for men Colognes,
-author: Suvojit Manna,
-tags: XS Pour Homme Cologne by Paco Rabanne for men Colognes,
-publishedAt: Fri Jan 10 2020 14:59:10 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:10 GMT+0530 (India Standard Time),
----
-
 # [XS Pour Homme Cologne by Paco Rabanne for men Colognes](https://products.checkmycream.com/products/XS-Pour-Homme-Cologne-by-Paco-Rabanne-for-men-Colognes.html)
 
 ### Positive Reviews

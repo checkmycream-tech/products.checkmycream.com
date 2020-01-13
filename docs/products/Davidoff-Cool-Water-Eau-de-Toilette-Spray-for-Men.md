@@ -1,12 +1,3 @@
----
-title: Davidoff Cool Water Eau de Toilette Spray for Men,
-description: Davidoff Cool Water Eau de Toilette Spray for Men,
-author: Suvojit Manna,
-tags: Davidoff Cool Water Eau de Toilette Spray for Men,
-publishedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
----
-
 # [Davidoff Cool Water Eau de Toilette Spray for Men](https://products.checkmycream.com/products/Davidoff-Cool-Water-Eau-de-Toilette-Spray-for-Men.html)
 
 ### Positive Reviews

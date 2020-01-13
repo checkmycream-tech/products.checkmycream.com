@@ -1,12 +1,3 @@
----
-title: Utopia Alley Schwarzkopf Igora Royal 6% 20 Vol. Colorist&#x27;S Color &amp; Care Developer,
-description: Utopia Alley Schwarzkopf Igora Royal 6% 20 Vol. Colorist&#x27;S Color &amp; Care Developer,
-author: Suvojit Manna,
-tags: Utopia Alley Schwarzkopf Igora Royal 6% 20 Vol. Colorist&#x27;S Color &amp; Care Developer,
-publishedAt: Fri Jan 10 2020 14:59:29 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:29 GMT+0530 (India Standard Time),
----
-
 # [Utopia Alley Schwarzkopf Igora Royal 6% 20 Vol. Colorist&#x27;S Color &amp; Care Developer](https://products.checkmycream.com/products/Utopia-Alley-Schwarzkopf-Igora-Royal-6percent-20-Vol.-Colorist&#x27;S-Color-and-Care-Developer.html)
 
 ### Positive Reviews

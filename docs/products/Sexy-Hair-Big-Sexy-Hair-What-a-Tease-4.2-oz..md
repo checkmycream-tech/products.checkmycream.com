@@ -1,12 +1,3 @@
----
-title: Sexy Hair Big Sexy Hair What a Tease-4.2 oz.,
-description: Sexy Hair Big Sexy Hair What a Tease-4.2 oz.,
-author: Suvojit Manna,
-tags: Sexy Hair Big Sexy Hair What a Tease-4.2 oz.,
-publishedAt: Fri Jan 10 2020 14:59:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:02 GMT+0530 (India Standard Time),
----
-
 # [Sexy Hair Big Sexy Hair What a Tease-4.2 oz.](https://products.checkmycream.com/products/Sexy-Hair-Big-Sexy-Hair-What-a-Tease-4.2-oz..html)
 
 ### Positive Reviews

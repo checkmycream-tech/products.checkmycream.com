@@ -1,12 +1,3 @@
----
-title: BODY SERIES Glycerine &amp; Honey Complexion Bar 3 Bars,
-description: BODY SERIES Glycerine &amp; Honey Complexion Bar 3 Bars,
-author: Suvojit Manna,
-tags: BODY SERIES Glycerine &amp; Honey Complexion Bar 3 Bars,
-publishedAt: Fri Jan 10 2020 15:00:21 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:21 GMT+0530 (India Standard Time),
----
-
 # [BODY SERIES Glycerine &amp; Honey Complexion Bar 3 Bars](https://products.checkmycream.com/products/BODY-SERIES-Glycerine-and-Honey-Complexion-Bar-3-Bars.html)
 
 ### Positive Reviews

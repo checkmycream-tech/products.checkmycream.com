@@ -1,12 +1,3 @@
----
-title: Dinair Airbrush Makeup | Glamour Foundation - Natural Beige Fair Light Medium 1.15 oz.,
-description: Dinair Airbrush Makeup | Glamour Foundation - Natural Beige Fair Light Medium 1.15 oz.,
-author: Suvojit Manna,
-tags: Dinair Airbrush Makeup | Glamour Foundation - Natural Beige Fair Light Medium 1.15 oz.,
-publishedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
----
-
 # [Dinair Airbrush Makeup | Glamour Foundation - Natural Beige Fair Light Medium 1.15 oz.](https://products.checkmycream.com/products/Dinair-Airbrush-Makeup-or-Glamour-Foundation-Natural-Beige-Fair-Light-Medium-1.15-oz..html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Essie Resort Fling 2014 Nail Polish Colors, Cocktails &amp; Coconuts,
-description: Essie Resort Fling 2014 Nail Polish Colors, Cocktails &amp; Coconuts,
-author: Suvojit Manna,
-tags: Essie Resort Fling 2014 Nail Polish Colors, Cocktails &amp; Coconuts,
-publishedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
----
-
 # [Essie Resort Fling 2014 Nail Polish Colors, Cocktails &amp; Coconuts](https://products.checkmycream.com/products/Essie-Resort-Fling-2014-Nail-Polish-Colors-Cocktails-and-Coconuts.html)
 
 ### Positive Reviews

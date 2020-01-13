@@ -1,12 +1,3 @@
----
-title: Physicians Formula Shimmer Strips Custom Eye Enhancing Kohl Kajal Eyeliner Trio,
-description: Physicians Formula Shimmer Strips Custom Eye Enhancing Kohl Kajal Eyeliner Trio,
-author: Suvojit Manna,
-tags: Physicians Formula Shimmer Strips Custom Eye Enhancing Kohl Kajal Eyeliner Trio,
-publishedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
----
-
 # [Physicians Formula Shimmer Strips Custom Eye Enhancing Kohl Kajal Eyeliner Trio](https://products.checkmycream.com/products/Physicians-Formula-Shimmer-Strips-Custom-Eye-Enhancing-Kohl-Kajal-Eyeliner-Trio.html)
 
 ### Positive Reviews

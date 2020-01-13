@@ -1,12 +1,3 @@
----
-title: Dermalogica Normal/Oily Skin Kit 5-Piece Kit,
-description: Dermalogica Normal/Oily Skin Kit 5-Piece Kit,
-author: Suvojit Manna,
-tags: Dermalogica Normal/Oily Skin Kit 5-Piece Kit,
-publishedAt: Fri Jan 10 2020 14:59:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:03 GMT+0530 (India Standard Time),
----
-
 # [Dermalogica Normal/Oily Skin Kit 5-Piece Kit](https://products.checkmycream.com/products/Dermalogica-NormalOily-Skin-Kit-5-Piece-Kit.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Pantene Pro-V Radiant Color Volume Conditioner, 24.0 fl oz,
-description: Pantene Pro-V Radiant Color Volume Conditioner, 24.0 fl oz,
-author: Suvojit Manna,
-tags: Pantene Pro-V Radiant Color Volume Conditioner, 24.0 fl oz,
-publishedAt: Fri Jan 10 2020 14:59:46 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:46 GMT+0530 (India Standard Time),
----
-
 # [Pantene Pro-V Radiant Color Volume Conditioner, 24.0 fl oz](https://products.checkmycream.com/products/Pantene-Pro-V-Radiant-Color-Volume-Conditioner-24.0-fl-oz.html)
 
 ### Positive Reviews

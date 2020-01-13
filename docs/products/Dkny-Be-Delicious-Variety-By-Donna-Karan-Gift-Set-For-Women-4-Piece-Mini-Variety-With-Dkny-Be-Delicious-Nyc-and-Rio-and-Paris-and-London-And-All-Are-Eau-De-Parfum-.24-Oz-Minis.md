@@ -1,12 +1,3 @@
----
-title: Dkny Be Delicious Variety By Donna Karan Gift Set For Women 4 Piece Mini Variety With Dkny Be Delicious Nyc &amp; Rio &amp; Paris &amp; London And All Are Eau De Parfum .24 Oz Minis,
-description: Dkny Be Delicious Variety By Donna Karan Gift Set For Women 4 Piece Mini Variety With Dkny Be Delicious Nyc &amp; Rio &amp; Paris &amp; London And All Are Eau De Parfum .24 Oz Minis,
-author: Suvojit Manna,
-tags: Dkny Be Delicious Variety By Donna Karan Gift Set For Women 4 Piece Mini Variety With Dkny Be Delicious Nyc &amp; Rio &amp; Paris &amp; London And All Are Eau De Parfum .24 Oz Minis,
-publishedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
----
-
 # [Dkny Be Delicious Variety By Donna Karan Gift Set For Women 4 Piece Mini Variety With Dkny Be Delicious Nyc &amp; Rio &amp; Paris &amp; London And All Are Eau De Parfum .24 Oz Minis](https://products.checkmycream.com/products/Dkny-Be-Delicious-Variety-By-Donna-Karan-Gift-Set-For-Women-4-Piece-Mini-Variety-With-Dkny-Be-Delicious-Nyc-and-Rio-and-Paris-and-London-And-All-Are-Eau-De-Parfum-.24-Oz-Minis.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Victoria&#x27;s Secret Fantasies Mango Temptation Hydrating Body Lotion 8.4oz./250ml,
-description: Victoria&#x27;s Secret Fantasies Mango Temptation Hydrating Body Lotion 8.4oz./250ml,
-author: Suvojit Manna,
-tags: Victoria&#x27;s Secret Fantasies Mango Temptation Hydrating Body Lotion 8.4oz./250ml,
-publishedAt: Fri Jan 10 2020 15:00:09 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:09 GMT+0530 (India Standard Time),
----
-
 # [Victoria&#x27;s Secret Fantasies Mango Temptation Hydrating Body Lotion 8.4oz./250ml](https://products.checkmycream.com/products/Victoria&#x27;s-Secret-Fantasies-Mango-Temptation-Hydrating-Body-Lotion-8.4oz.250ml.html)
 
 ### Positive Reviews

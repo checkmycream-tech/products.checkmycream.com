@@ -1,12 +1,3 @@
----
-title: Simpleyourstyle Short Bob Natural Black Brown Head Women Wig for Mothers&#x27; Day Daily Wear Party Hair Rose Network Lace Wigsdark Brown Wig,
-description: Simpleyourstyle Short Bob Natural Black Brown Head Women Wig for Mothers&#x27; Day Daily Wear Party Hair Rose Network Lace Wigsdark Brown Wig,
-author: Suvojit Manna,
-tags: Simpleyourstyle Short Bob Natural Black Brown Head Women Wig for Mothers&#x27; Day Daily Wear Party Hair Rose Network Lace Wigsdark Brown Wig,
-publishedAt: Fri Jan 10 2020 15:01:07 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:07 GMT+0530 (India Standard Time),
----
-
 # [Simpleyourstyle Short Bob Natural Black Brown Head Women Wig for Mothers&#x27; Day Daily Wear Party Hair Rose Network Lace Wigsdark Brown Wig](https://products.checkmycream.com/products/Simpleyourstyle-Short-Bob-Natural-Black-Brown-Head-Women-Wig-for-Mothers&#x27;-Day-Daily-Wear-Party-Hair-Rose-Network-Lace-Wigsdark-Brown-Wig.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Leather Razor Case,
-description: Leather Razor Case,
-author: Suvojit Manna,
-tags: Leather Razor Case,
-publishedAt: Fri Jan 10 2020 15:00:13 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:13 GMT+0530 (India Standard Time),
----
-
 # [Leather Razor Case](https://products.checkmycream.com/products/Leather-Razor-Case.html)
 
 ### Positive Reviews

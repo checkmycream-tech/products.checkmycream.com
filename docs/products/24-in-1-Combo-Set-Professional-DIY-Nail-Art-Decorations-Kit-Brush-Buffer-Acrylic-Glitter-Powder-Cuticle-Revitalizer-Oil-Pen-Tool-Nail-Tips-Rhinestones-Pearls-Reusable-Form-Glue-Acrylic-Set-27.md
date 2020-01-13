@@ -1,12 +1,3 @@
----
-title: 24 in 1 Combo Set Professional DIY Nail Art Decorations Kit Brush Buffer Acrylic Glitter Powder Cuticle Revitalizer Oil Pen Tool Nail Tips Rhinestones Pearls Reusable Form Glue Acrylic Set #27,
-description: 24 in 1 Combo Set Professional DIY Nail Art Decorations Kit Brush Buffer Acrylic Glitter Powder Cuticle Revitalizer Oil Pen Tool Nail Tips Rhinestones Pearls Reusable Form Glue Acrylic Set #27,
-author: Suvojit Manna,
-tags: 24 in 1 Combo Set Professional DIY Nail Art Decorations Kit Brush Buffer Acrylic Glitter Powder Cuticle Revitalizer Oil Pen Tool Nail Tips Rhinestones Pearls Reusable Form Glue Acrylic Set #27,
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [24 in 1 Combo Set Professional DIY Nail Art Decorations Kit Brush Buffer Acrylic Glitter Powder Cuticle Revitalizer Oil Pen Tool Nail Tips Rhinestones Pearls Reusable Form Glue Acrylic Set #27](https://products.checkmycream.com/products/24-in-1-Combo-Set-Professional-DIY-Nail-Art-Decorations-Kit-Brush-Buffer-Acrylic-Glitter-Powder-Cuticle-Revitalizer-Oil-Pen-Tool-Nail-Tips-Rhinestones-Pearls-Reusable-Form-Glue-Acrylic-Set-27.html)
 
 ### Positive Reviews

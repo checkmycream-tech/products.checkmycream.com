@@ -1,12 +1,3 @@
----
-title: AVEDA Hair Styling Gel 8.5 fl oz (A52W010000),
-description: AVEDA Hair Styling Gel 8.5 fl oz (A52W010000),
-author: Suvojit Manna,
-tags: AVEDA Hair Styling Gel 8.5 fl oz (A52W010000),
-publishedAt: Fri Jan 10 2020 14:59:44 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:44 GMT+0530 (India Standard Time),
----
-
 # [AVEDA Hair Styling Gel 8.5 fl oz (A52W010000)](https://products.checkmycream.com/products/AVEDA-Hair-Styling-Gel-8.5-fl-oz-(A52W010000).html)
 
 ### Positive Reviews

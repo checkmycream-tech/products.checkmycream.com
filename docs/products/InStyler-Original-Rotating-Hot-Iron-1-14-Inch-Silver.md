@@ -1,12 +1,3 @@
----
-title: InStyler Original Rotating Hot Iron, 1-1/4 Inch, Silver,
-description: InStyler Original Rotating Hot Iron, 1-1/4 Inch, Silver,
-author: Suvojit Manna,
-tags: InStyler Original Rotating Hot Iron, 1-1/4 Inch, Silver,
-publishedAt: Fri Jan 10 2020 15:01:07 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:07 GMT+0530 (India Standard Time),
----
-
 # [InStyler Original Rotating Hot Iron, 1-1/4 Inch, Silver](https://products.checkmycream.com/products/InStyler-Original-Rotating-Hot-Iron-1-14-Inch-Silver.html)
 
 ### Positive Reviews

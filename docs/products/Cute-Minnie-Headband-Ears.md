@@ -1,12 +1,3 @@
----
-title: Cute Minnie Headband Ears,
-description: Cute Minnie Headband Ears,
-author: Suvojit Manna,
-tags: Cute Minnie Headband Ears,
-publishedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
----
-
 # [Cute Minnie Headband Ears](https://products.checkmycream.com/products/Cute-Minnie-Headband-Ears.html)
 
 ### Positive Reviews

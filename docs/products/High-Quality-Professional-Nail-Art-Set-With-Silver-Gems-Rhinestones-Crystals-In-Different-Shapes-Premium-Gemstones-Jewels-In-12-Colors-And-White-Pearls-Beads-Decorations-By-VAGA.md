@@ -1,12 +1,3 @@
----
-title: High Quality Professional Nail Art Set With Silver Gems / Rhinestones / Crystals In Different Shapes, Premium Gemstones / Jewels In 12 Colors And White Pearls Beads Decorations By VAGA,
-description: High Quality Professional Nail Art Set With Silver Gems / Rhinestones / Crystals In Different Shapes, Premium Gemstones / Jewels In 12 Colors And White Pearls Beads Decorations By VAGA,
-author: Suvojit Manna,
-tags: High Quality Professional Nail Art Set With Silver Gems / Rhinestones / Crystals In Different Shapes, Premium Gemstones / Jewels In 12 Colors And White Pearls Beads Decorations By VAGA,
-publishedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
----
-
 # [High Quality Professional Nail Art Set With Silver Gems / Rhinestones / Crystals In Different Shapes, Premium Gemstones / Jewels In 12 Colors And White Pearls Beads Decorations By VAGA](https://products.checkmycream.com/products/High-Quality-Professional-Nail-Art-Set-With-Silver-Gems-Rhinestones-Crystals-In-Different-Shapes-Premium-Gemstones-Jewels-In-12-Colors-And-White-Pearls-Beads-Decorations-By-VAGA.html)
 
 ### Positive Reviews

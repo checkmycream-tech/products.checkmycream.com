@@ -1,12 +1,3 @@
----
-title: Liberator 24&quot; Wedge/Ramp Combo (Short) in Black Microfiber,
-description: Liberator 24&quot; Wedge/Ramp Combo (Short) in Black Microfiber,
-author: Suvojit Manna,
-tags: Liberator 24&quot; Wedge/Ramp Combo (Short) in Black Microfiber,
-publishedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
----
-
 # [Liberator 24&quot; Wedge/Ramp Combo (Short) in Black Microfiber](https://products.checkmycream.com/products/Liberator-24&quot;-WedgeRamp-Combo-(Short)-in-Black-Microfiber.html)
 
 ### Positive Reviews

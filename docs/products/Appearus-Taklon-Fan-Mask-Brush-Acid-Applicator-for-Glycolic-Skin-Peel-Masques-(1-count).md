@@ -1,12 +1,3 @@
----
-title: Appearus Taklon Fan Mask Brush Acid Applicator for Glycolic Skin Peel / Masques (1 count),
-description: Appearus Taklon Fan Mask Brush Acid Applicator for Glycolic Skin Peel / Masques (1 count),
-author: Suvojit Manna,
-tags: Appearus Taklon Fan Mask Brush Acid Applicator for Glycolic Skin Peel / Masques (1 count),
-publishedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
----
-
 # [Appearus Taklon Fan Mask Brush Acid Applicator for Glycolic Skin Peel / Masques (1 count)](https://products.checkmycream.com/products/Appearus-Taklon-Fan-Mask-Brush-Acid-Applicator-for-Glycolic-Skin-Peel-Masques-(1-count).html)
 
 ### Positive Reviews

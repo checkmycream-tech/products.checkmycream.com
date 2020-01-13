@@ -1,12 +1,3 @@
----
-title: Victoria&#x27;s Secret Passionate Kisses Body Mist 8.4 Oz(New Look),
-description: Victoria&#x27;s Secret Passionate Kisses Body Mist 8.4 Oz(New Look),
-author: Suvojit Manna,
-tags: Victoria&#x27;s Secret Passionate Kisses Body Mist 8.4 Oz(New Look),
-publishedAt: Fri Jan 10 2020 15:00:15 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:15 GMT+0530 (India Standard Time),
----
-
 # [Victoria&#x27;s Secret Passionate Kisses Body Mist 8.4 Oz(New Look)](https://products.checkmycream.com/products/Victoria&#x27;s-Secret-Passionate-Kisses-Body-Mist-8.4-Oz(New-Look).html)
 
 ### Positive Reviews

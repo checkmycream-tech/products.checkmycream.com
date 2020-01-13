@@ -1,12 +1,3 @@
----
-title: My Beauty Diary Imperial Birds Nest Mask,
-description: My Beauty Diary Imperial Birds Nest Mask,
-author: Suvojit Manna,
-tags: My Beauty Diary Imperial Birds Nest Mask,
-publishedAt: Fri Jan 10 2020 15:00:45 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:45 GMT+0530 (India Standard Time),
----
-
 # [My Beauty Diary Imperial Birds Nest Mask](https://products.checkmycream.com/products/My-Beauty-Diary-Imperial-Birds-Nest-Mask.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: MAC Lipstick Satin Rebel,
-description: MAC Lipstick Satin Rebel,
-author: Suvojit Manna,
-tags: MAC Lipstick Satin Rebel,
-publishedAt: Fri Jan 10 2020 14:59:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:02 GMT+0530 (India Standard Time),
----
-
 # [MAC Lipstick Satin Rebel](https://products.checkmycream.com/products/MAC-Lipstick-Satin-Rebel.html)
 
 ### Positive Reviews

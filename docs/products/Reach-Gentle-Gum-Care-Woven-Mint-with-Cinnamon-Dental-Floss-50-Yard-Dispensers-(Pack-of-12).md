@@ -1,12 +1,3 @@
----
-title: Reach Gentle Gum Care, Woven Mint with Cinnamon Dental Floss, 50 Yard Dispensers (Pack of 12),
-description: Reach Gentle Gum Care, Woven Mint with Cinnamon Dental Floss, 50 Yard Dispensers (Pack of 12),
-author: Suvojit Manna,
-tags: Reach Gentle Gum Care, Woven Mint with Cinnamon Dental Floss, 50 Yard Dispensers (Pack of 12),
-publishedAt: Fri Jan 10 2020 15:01:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:05 GMT+0530 (India Standard Time),
----
-
 # [Reach Gentle Gum Care, Woven Mint with Cinnamon Dental Floss, 50 Yard Dispensers (Pack of 12)](https://products.checkmycream.com/products/Reach-Gentle-Gum-Care-Woven-Mint-with-Cinnamon-Dental-Floss-50-Yard-Dispensers-(Pack-of-12).html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Tous Silver Perfume by Tous for women Personal Fragrances,
-description: Tous Silver Perfume by Tous for women Personal Fragrances,
-author: Suvojit Manna,
-tags: Tous Silver Perfume by Tous for women Personal Fragrances,
-publishedAt: Fri Jan 10 2020 14:59:16 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:16 GMT+0530 (India Standard Time),
----
-
 # [Tous Silver Perfume by Tous for women Personal Fragrances](https://products.checkmycream.com/products/Tous-Silver-Perfume-by-Tous-for-women-Personal-Fragrances.html)
 
 ### Positive Reviews

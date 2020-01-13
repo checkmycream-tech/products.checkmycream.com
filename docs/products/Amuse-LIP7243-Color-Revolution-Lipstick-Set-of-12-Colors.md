@@ -1,12 +1,3 @@
----
-title: Amuse LIP7243 Color Revolution Lipstick, Set of 12 Colors,
-description: Amuse LIP7243 Color Revolution Lipstick, Set of 12 Colors,
-author: Suvojit Manna,
-tags: Amuse LIP7243 Color Revolution Lipstick, Set of 12 Colors,
-publishedAt: Fri Jan 10 2020 15:01:06 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:06 GMT+0530 (India Standard Time),
----
-
 # [Amuse LIP7243 Color Revolution Lipstick, Set of 12 Colors](https://products.checkmycream.com/products/Amuse-LIP7243-Color-Revolution-Lipstick-Set-of-12-Colors.html)
 
 ### Positive Reviews

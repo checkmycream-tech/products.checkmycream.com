@@ -1,12 +1,3 @@
----
-title: Joico Ice Hair Finisher Shaping Hair Spray, 9 Ounce,
-description: Joico Ice Hair Finisher Shaping Hair Spray, 9 Ounce,
-author: Suvojit Manna,
-tags: Joico Ice Hair Finisher Shaping Hair Spray, 9 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:08 GMT+0530 (India Standard Time),
----
-
 # [Joico Ice Hair Finisher Shaping Hair Spray, 9 Ounce](https://products.checkmycream.com/products/Joico-Ice-Hair-Finisher-Shaping-Hair-Spray-9-Ounce.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Bvlgari By Bvlgari For Men Eau-de-toilette Spray, 3.4 Ounce,
-description: Bvlgari By Bvlgari For Men Eau-de-toilette Spray, 3.4 Ounce,
-author: Suvojit Manna,
-tags: Bvlgari By Bvlgari For Men Eau-de-toilette Spray, 3.4 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:13 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:13 GMT+0530 (India Standard Time),
----
-
 # [Bvlgari By Bvlgari For Men Eau-de-toilette Spray, 3.4 Ounce](https://products.checkmycream.com/products/Bvlgari-By-Bvlgari-For-Men-Eau-de-toilette-Spray-3.4-Ounce.html)
 
 ### Positive Reviews

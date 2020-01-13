@@ -1,12 +1,3 @@
----
-title: Avon Bubble Delight Vanilla Cream Bubble Bath,
-description: Avon Bubble Delight Vanilla Cream Bubble Bath,
-author: Suvojit Manna,
-tags: Avon Bubble Delight Vanilla Cream Bubble Bath,
-publishedAt: Fri Jan 10 2020 15:00:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:08 GMT+0530 (India Standard Time),
----
-
 # [Avon Bubble Delight Vanilla Cream Bubble Bath](https://products.checkmycream.com/products/Avon-Bubble-Delight-Vanilla-Cream-Bubble-Bath.html)
 
 ### Positive Reviews

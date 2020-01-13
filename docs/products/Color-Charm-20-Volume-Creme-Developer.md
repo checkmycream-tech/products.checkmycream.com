@@ -1,12 +1,3 @@
----
-title: Color Charm 20 Volume Creme Developer,
-description: Color Charm 20 Volume Creme Developer,
-author: Suvojit Manna,
-tags: Color Charm 20 Volume Creme Developer,
-publishedAt: Fri Jan 10 2020 15:00:15 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:15 GMT+0530 (India Standard Time),
----
-
 # [Color Charm 20 Volume Creme Developer](https://products.checkmycream.com/products/Color-Charm-20-Volume-Creme-Developer.html)
 
 ### Positive Reviews

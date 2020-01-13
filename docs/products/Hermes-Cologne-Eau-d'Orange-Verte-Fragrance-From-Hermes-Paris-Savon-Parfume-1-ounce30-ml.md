@@ -1,12 +1,3 @@
----
-title: Hermes Cologne Eau d&#x27;Orange Verte Fragrance From Hermes Paris - Savon Parfume - 1 ounce/30 ml,
-description: Hermes Cologne Eau d&#x27;Orange Verte Fragrance From Hermes Paris - Savon Parfume - 1 ounce/30 ml,
-author: Suvojit Manna,
-tags: Hermes Cologne Eau d&#x27;Orange Verte Fragrance From Hermes Paris - Savon Parfume - 1 ounce/30 ml,
-publishedAt: Fri Jan 10 2020 14:58:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:58:57 GMT+0530 (India Standard Time),
----
-
 # [Hermes Cologne Eau d&#x27;Orange Verte Fragrance From Hermes Paris - Savon Parfume - 1 ounce/30 ml](https://products.checkmycream.com/products/Hermes-Cologne-Eau-d&#x27;Orange-Verte-Fragrance-From-Hermes-Paris-Savon-Parfume-1-ounce30-ml.html)
 
 ### Positive Reviews

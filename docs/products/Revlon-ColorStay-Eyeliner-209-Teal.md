@@ -1,12 +1,3 @@
----
-title: Revlon ColorStay Eyeliner #209 Teal,
-description: Revlon ColorStay Eyeliner #209 Teal,
-author: Suvojit Manna,
-tags: Revlon ColorStay Eyeliner #209 Teal,
-publishedAt: Fri Jan 10 2020 14:59:15 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:15 GMT+0530 (India Standard Time),
----
-
 # [Revlon ColorStay Eyeliner #209 Teal](https://products.checkmycream.com/products/Revlon-ColorStay-Eyeliner-209-Teal.html)
 
 ### Positive Reviews

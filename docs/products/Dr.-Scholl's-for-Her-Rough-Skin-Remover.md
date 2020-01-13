@@ -1,12 +1,3 @@
----
-title: Dr. Scholl&#x27;s for Her Rough Skin Remover,
-description: Dr. Scholl&#x27;s for Her Rough Skin Remover,
-author: Suvojit Manna,
-tags: Dr. Scholl&#x27;s for Her Rough Skin Remover,
-publishedAt: Fri Jan 10 2020 15:00:11 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:11 GMT+0530 (India Standard Time),
----
-
 # [Dr. Scholl&#x27;s for Her Rough Skin Remover](https://products.checkmycream.com/products/Dr.-Scholl&#x27;s-for-Her-Rough-Skin-Remover.html)
 
 ### Positive Reviews

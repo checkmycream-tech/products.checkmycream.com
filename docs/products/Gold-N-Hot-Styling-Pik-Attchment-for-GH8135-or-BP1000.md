@@ -1,12 +1,3 @@
----
-title: Gold N Hot Styling Pik Attchment for GH8135 or BP1000,
-description: Gold N Hot Styling Pik Attchment for GH8135 or BP1000,
-author: Suvojit Manna,
-tags: Gold N Hot Styling Pik Attchment for GH8135 or BP1000,
-publishedAt: Fri Jan 10 2020 15:00:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:08 GMT+0530 (India Standard Time),
----
-
 # [Gold N Hot Styling Pik Attchment for GH8135 or BP1000](https://products.checkmycream.com/products/Gold-N-Hot-Styling-Pik-Attchment-for-GH8135-or-BP1000.html)
 
 ### Positive Reviews

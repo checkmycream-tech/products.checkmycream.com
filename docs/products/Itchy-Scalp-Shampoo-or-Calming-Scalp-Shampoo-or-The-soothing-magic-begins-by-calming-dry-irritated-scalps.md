@@ -1,12 +1,3 @@
----
-title: Itchy Scalp Shampoo | Calming Scalp Shampoo | The soothing magic begins by calming dry irritated scalps,
-description: Itchy Scalp Shampoo | Calming Scalp Shampoo | The soothing magic begins by calming dry irritated scalps,
-author: Suvojit Manna,
-tags: Itchy Scalp Shampoo | Calming Scalp Shampoo | The soothing magic begins by calming dry irritated scalps,
-publishedAt: Fri Jan 10 2020 15:00:13 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:13 GMT+0530 (India Standard Time),
----
-
 # [Itchy Scalp Shampoo | Calming Scalp Shampoo | The soothing magic begins by calming dry irritated scalps](https://products.checkmycream.com/products/Itchy-Scalp-Shampoo-or-Calming-Scalp-Shampoo-or-The-soothing-magic-begins-by-calming-dry-irritated-scalps.html)
 
 ### Positive Reviews

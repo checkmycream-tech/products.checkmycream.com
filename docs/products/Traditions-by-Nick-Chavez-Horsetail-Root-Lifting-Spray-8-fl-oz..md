@@ -1,12 +1,3 @@
----
-title: Traditions by Nick Chavez Horsetail Root Lifting Spray 8 fl oz.,
-description: Traditions by Nick Chavez Horsetail Root Lifting Spray 8 fl oz.,
-author: Suvojit Manna,
-tags: Traditions by Nick Chavez Horsetail Root Lifting Spray 8 fl oz.,
-publishedAt: Fri Jan 10 2020 15:00:13 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:13 GMT+0530 (India Standard Time),
----
-
 # [Traditions by Nick Chavez Horsetail Root Lifting Spray 8 fl oz.](https://products.checkmycream.com/products/Traditions-by-Nick-Chavez-Horsetail-Root-Lifting-Spray-8-fl-oz..html)
 
 ### Positive Reviews

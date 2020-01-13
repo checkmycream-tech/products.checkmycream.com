@@ -1,12 +1,3 @@
----
-title: Diane Duck Bill Hair Clips 24 Pack,
-description: Diane Duck Bill Hair Clips 24 Pack,
-author: Suvojit Manna,
-tags: Diane Duck Bill Hair Clips 24 Pack,
-publishedAt: Fri Jan 10 2020 14:59:18 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:18 GMT+0530 (India Standard Time),
----
-
 # [Diane Duck Bill Hair Clips 24 Pack](https://products.checkmycream.com/products/Diane-Duck-Bill-Hair-Clips-24-Pack.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Avon Ergonomic Retractable Lip Brush,
-description: Avon Ergonomic Retractable Lip Brush,
-author: Suvojit Manna,
-tags: Avon Ergonomic Retractable Lip Brush,
-publishedAt: Fri Jan 10 2020 14:59:44 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:44 GMT+0530 (India Standard Time),
----
-
 # [Avon Ergonomic Retractable Lip Brush](https://products.checkmycream.com/products/Avon-Ergonomic-Retractable-Lip-Brush.html)
 
 ### Positive Reviews

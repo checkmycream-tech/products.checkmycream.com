@@ -1,12 +1,3 @@
----
-title: Pirate Face Tattoo (50) X Sterilized Assorted (rounds/mags/flats) Tubes With Black Rubber Grips 5/8&quot;, 50 Count,
-description: Pirate Face Tattoo (50) X Sterilized Assorted (rounds/mags/flats) Tubes With Black Rubber Grips 5/8&quot;, 50 Count,
-author: Suvojit Manna,
-tags: Pirate Face Tattoo (50) X Sterilized Assorted (rounds/mags/flats) Tubes With Black Rubber Grips 5/8&quot;, 50 Count,
-publishedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
----
-
 # [Pirate Face Tattoo (50) X Sterilized Assorted (rounds/mags/flats) Tubes With Black Rubber Grips 5/8&quot;, 50 Count](https://products.checkmycream.com/products/Pirate-Face-Tattoo-(50)-X-Sterilized-Assorted-(roundsmagsflats)-Tubes-With-Black-Rubber-Grips-58&quot;-50-Count.html)
 
 ### Positive Reviews

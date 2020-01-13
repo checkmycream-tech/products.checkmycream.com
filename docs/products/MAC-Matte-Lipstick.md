@@ -1,12 +1,3 @@
----
-title: MAC Matte Lipstick,
-description: MAC Matte Lipstick,
-author: Suvojit Manna,
-tags: MAC Matte Lipstick,
-publishedAt: Fri Jan 10 2020 15:00:17 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:17 GMT+0530 (India Standard Time),
----
-
 # [MAC Matte Lipstick](https://products.checkmycream.com/products/MAC-Matte-Lipstick.html)
 
 ### Positive Reviews

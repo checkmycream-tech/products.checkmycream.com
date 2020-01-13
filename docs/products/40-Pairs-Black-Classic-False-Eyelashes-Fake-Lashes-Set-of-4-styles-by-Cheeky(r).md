@@ -1,12 +1,3 @@
----
-title: 40 Pairs Black Classic False Eyelashes / Fake Lashes Set of 4 styles by Cheeky®,
-description: 40 Pairs Black Classic False Eyelashes / Fake Lashes Set of 4 styles by Cheeky®,
-author: Suvojit Manna,
-tags: 40 Pairs Black Classic False Eyelashes / Fake Lashes Set of 4 styles by Cheeky®,
-publishedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
----
-
 # [40 Pairs Black Classic False Eyelashes / Fake Lashes Set of 4 styles by Cheeky®](https://products.checkmycream.com/products/40-Pairs-Black-Classic-False-Eyelashes-Fake-Lashes-Set-of-4-styles-by-Cheeky(r).html)
 
 ### Positive Reviews

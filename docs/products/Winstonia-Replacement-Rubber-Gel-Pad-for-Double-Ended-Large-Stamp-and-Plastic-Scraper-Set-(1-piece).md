@@ -1,12 +1,3 @@
----
-title: Winstonia Replacement Rubber Gel Pad for Double-Ended Large Stamp and Plastic Scraper Set (1 piece),
-description: Winstonia Replacement Rubber Gel Pad for Double-Ended Large Stamp and Plastic Scraper Set (1 piece),
-author: Suvojit Manna,
-tags: Winstonia Replacement Rubber Gel Pad for Double-Ended Large Stamp and Plastic Scraper Set (1 piece),
-publishedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
----
-
 # [Winstonia Replacement Rubber Gel Pad for Double-Ended Large Stamp and Plastic Scraper Set (1 piece)](https://products.checkmycream.com/products/Winstonia-Replacement-Rubber-Gel-Pad-for-Double-Ended-Large-Stamp-and-Plastic-Scraper-Set-(1-piece).html)
 
 ### Positive Reviews

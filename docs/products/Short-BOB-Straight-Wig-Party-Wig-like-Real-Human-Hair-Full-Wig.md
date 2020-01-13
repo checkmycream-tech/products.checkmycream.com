@@ -1,12 +1,3 @@
----
-title: Short BOB Straight Wig Party Wig like Real Human Hair Full Wig,
-description: Short BOB Straight Wig Party Wig like Real Human Hair Full Wig,
-author: Suvojit Manna,
-tags: Short BOB Straight Wig Party Wig like Real Human Hair Full Wig,
-publishedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
----
-
 # [Short BOB Straight Wig Party Wig like Real Human Hair Full Wig](https://products.checkmycream.com/products/Short-BOB-Straight-Wig-Party-Wig-like-Real-Human-Hair-Full-Wig.html)
 
 ### Positive Reviews

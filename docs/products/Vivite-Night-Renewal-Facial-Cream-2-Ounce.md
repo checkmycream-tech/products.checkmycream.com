@@ -1,12 +1,3 @@
----
-title: Vivite Night Renewal Facial Cream, 2 Ounce,
-description: Vivite Night Renewal Facial Cream, 2 Ounce,
-author: Suvojit Manna,
-tags: Vivite Night Renewal Facial Cream, 2 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:37 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:37 GMT+0530 (India Standard Time),
----
-
 # [Vivite Night Renewal Facial Cream, 2 Ounce](https://products.checkmycream.com/products/Vivite-Night-Renewal-Facial-Cream-2-Ounce.html)
 
 ### Positive Reviews

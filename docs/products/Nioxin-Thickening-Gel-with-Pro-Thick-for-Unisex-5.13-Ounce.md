@@ -1,12 +1,3 @@
----
-title: Nioxin Thickening Gel with Pro-Thick for Unisex, 5.13 Ounce,
-description: Nioxin Thickening Gel with Pro-Thick for Unisex, 5.13 Ounce,
-author: Suvojit Manna,
-tags: Nioxin Thickening Gel with Pro-Thick for Unisex, 5.13 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:45 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:45 GMT+0530 (India Standard Time),
----
-
 # [Nioxin Thickening Gel with Pro-Thick for Unisex, 5.13 Ounce](https://products.checkmycream.com/products/Nioxin-Thickening-Gel-with-Pro-Thick-for-Unisex-5.13-Ounce.html)
 
 ### Positive Reviews

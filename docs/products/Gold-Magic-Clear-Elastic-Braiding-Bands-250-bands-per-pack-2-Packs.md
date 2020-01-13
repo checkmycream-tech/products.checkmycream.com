@@ -1,12 +1,3 @@
----
-title: Gold Magic Clear Elastic Braiding Bands 250 bands per pack - 2 Packs,
-description: Gold Magic Clear Elastic Braiding Bands 250 bands per pack - 2 Packs,
-author: Suvojit Manna,
-tags: Gold Magic Clear Elastic Braiding Bands 250 bands per pack - 2 Packs,
-publishedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
----
-
 # [Gold Magic Clear Elastic Braiding Bands 250 bands per pack - 2 Packs](https://products.checkmycream.com/products/Gold-Magic-Clear-Elastic-Braiding-Bands-250-bands-per-pack-2-Packs.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: 4 Months Hairfinity Vitamins Healthy Hair Rapid Long Hair Growth - Pack of 4 (60 capsules per bottle),
-description: 4 Months Hairfinity Vitamins Healthy Hair Rapid Long Hair Growth - Pack of 4 (60 capsules per bottle),
-author: Suvojit Manna,
-tags: 4 Months Hairfinity Vitamins Healthy Hair Rapid Long Hair Growth - Pack of 4 (60 capsules per bottle),
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [4 Months Hairfinity Vitamins Healthy Hair Rapid Long Hair Growth - Pack of 4 (60 capsules per bottle)](https://products.checkmycream.com/products/4-Months-Hairfinity-Vitamins-Healthy-Hair-Rapid-Long-Hair-Growth-Pack-of-4-(60-capsules-per-bottle).html)
 
 ### Positive Reviews

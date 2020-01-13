@@ -1,12 +1,3 @@
----
-title: Lights Out Soft Black Sleep EYE MASK Travel RELAXATION SPA,
-description: Lights Out Soft Black Sleep EYE MASK Travel RELAXATION SPA,
-author: Suvojit Manna,
-tags: Lights Out Soft Black Sleep EYE MASK Travel RELAXATION SPA,
-publishedAt: Fri Jan 10 2020 15:00:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:08 GMT+0530 (India Standard Time),
----
-
 # [Lights Out Soft Black Sleep EYE MASK Travel RELAXATION SPA](https://products.checkmycream.com/products/Lights-Out-Soft-Black-Sleep-EYE-MASK-Travel-RELAXATION-SPA.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Conair 3-in-1 Neck and Back Massager,
-description: Conair 3-in-1 Neck and Back Massager,
-author: Suvojit Manna,
-tags: Conair 3-in-1 Neck and Back Massager,
-publishedAt: Fri Jan 10 2020 15:00:10 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:10 GMT+0530 (India Standard Time),
----
-
 # [Conair 3-in-1 Neck and Back Massager](https://products.checkmycream.com/products/Conair-3-in-1-Neck-and-Back-Massager.html)
 
 ### Positive Reviews

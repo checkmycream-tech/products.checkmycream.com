@@ -1,12 +1,3 @@
----
-title: ETA Pink Double Heart Glamour Girl Makeup Color Kit BR by ETA Cosmetics,
-description: ETA Pink Double Heart Glamour Girl Makeup Color Kit BR by ETA Cosmetics,
-author: Suvojit Manna,
-tags: ETA Pink Double Heart Glamour Girl Makeup Color Kit BR by ETA Cosmetics,
-publishedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
----
-
 # [ETA Pink Double Heart Glamour Girl Makeup Color Kit BR by ETA Cosmetics](https://products.checkmycream.com/products/ETA-Pink-Double-Heart-Glamour-Girl-Makeup-Color-Kit-BR-by-ETA-Cosmetics.html)
 
 ### Positive Reviews

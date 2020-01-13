@@ -1,12 +1,3 @@
----
-title: Gucci Gucci Women&#x27;s EDT Eau De Toilette Spray - GG4551506,
-description: Gucci Gucci Women&#x27;s EDT Eau De Toilette Spray - GG4551506,
-author: Suvojit Manna,
-tags: Gucci Gucci Women&#x27;s EDT Eau De Toilette Spray - GG4551506,
-publishedAt: Fri Jan 10 2020 14:59:33 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:33 GMT+0530 (India Standard Time),
----
-
 # [Gucci Gucci Women&#x27;s EDT Eau De Toilette Spray - GG4551506](https://products.checkmycream.com/products/Gucci-Gucci-Women&#x27;s-EDT-Eau-De-Toilette-Spray-GG4551506.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: 155 CND - VINYLUX TUTTI FRUTTI Weekly Polish Nail Deep Pink Coat Lacquer 0.5oz,
-description: 155 CND - VINYLUX TUTTI FRUTTI Weekly Polish Nail Deep Pink Coat Lacquer 0.5oz,
-author: Suvojit Manna,
-tags: 155 CND - VINYLUX TUTTI FRUTTI Weekly Polish Nail Deep Pink Coat Lacquer 0.5oz,
-publishedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
----
-
 # [155 CND - VINYLUX TUTTI FRUTTI Weekly Polish Nail Deep Pink Coat Lacquer 0.5oz](https://products.checkmycream.com/products/155-CND-VINYLUX-TUTTI-FRUTTI-Weekly-Polish-Nail-Deep-Pink-Coat-Lacquer-0.5oz.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Guess Seductive I&#x27;m Yours Eau De Toilette Spray for Women, 2.5 Ounce,
-description: Guess Seductive I&#x27;m Yours Eau De Toilette Spray for Women, 2.5 Ounce,
-author: Suvojit Manna,
-tags: Guess Seductive I&#x27;m Yours Eau De Toilette Spray for Women, 2.5 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:12 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:12 GMT+0530 (India Standard Time),
----
-
 # [Guess Seductive I&#x27;m Yours Eau De Toilette Spray for Women, 2.5 Ounce](https://products.checkmycream.com/products/Guess-Seductive-I&#x27;m-Yours-Eau-De-Toilette-Spray-for-Women-2.5-Ounce.html)
 
 ### Positive Reviews

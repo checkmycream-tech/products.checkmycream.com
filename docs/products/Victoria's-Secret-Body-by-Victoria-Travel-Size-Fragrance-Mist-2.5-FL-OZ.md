@@ -1,12 +1,3 @@
----
-title: Victoria&#x27;s Secret Body by Victoria Travel Size Fragrance Mist 2.5 FL OZ,
-description: Victoria&#x27;s Secret Body by Victoria Travel Size Fragrance Mist 2.5 FL OZ,
-author: Suvojit Manna,
-tags: Victoria&#x27;s Secret Body by Victoria Travel Size Fragrance Mist 2.5 FL OZ,
-publishedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
----
-
 # [Victoria&#x27;s Secret Body by Victoria Travel Size Fragrance Mist 2.5 FL OZ](https://products.checkmycream.com/products/Victoria&#x27;s-Secret-Body-by-Victoria-Travel-Size-Fragrance-Mist-2.5-FL-OZ.html)
 
 ### Positive Reviews

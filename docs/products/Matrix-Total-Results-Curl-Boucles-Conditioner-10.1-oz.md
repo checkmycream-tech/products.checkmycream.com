@@ -1,12 +1,3 @@
----
-title: Matrix Total Results Curl Boucles Conditioner 10.1 oz,
-description: Matrix Total Results Curl Boucles Conditioner 10.1 oz,
-author: Suvojit Manna,
-tags: Matrix Total Results Curl Boucles Conditioner 10.1 oz,
-publishedAt: Fri Jan 10 2020 15:00:10 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:10 GMT+0530 (India Standard Time),
----
-
 # [Matrix Total Results Curl Boucles Conditioner 10.1 oz](https://products.checkmycream.com/products/Matrix-Total-Results-Curl-Boucles-Conditioner-10.1-oz.html)
 
 ### Positive Reviews

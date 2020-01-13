@@ -1,12 +1,3 @@
----
-title: Myrurgia Maja Women Soap, 3 Count,
-description: Myrurgia Maja Women Soap, 3 Count,
-author: Suvojit Manna,
-tags: Myrurgia Maja Women Soap, 3 Count,
-publishedAt: Fri Jan 10 2020 14:59:15 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:15 GMT+0530 (India Standard Time),
----
-
 # [Myrurgia Maja Women Soap, 3 Count](https://products.checkmycream.com/products/Myrurgia-Maja-Women-Soap-3-Count.html)
 
 ### Positive Reviews

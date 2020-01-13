@@ -1,12 +1,3 @@
----
-title: Blackseed Soap With Shea Butter,
-description: Blackseed Soap With Shea Butter,
-author: Suvojit Manna,
-tags: Blackseed Soap With Shea Butter,
-publishedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
----
-
 # [Blackseed Soap With Shea Butter](https://products.checkmycream.com/products/Blackseed-Soap-With-Shea-Butter.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Kirkland Minoxidil 5 percent Extra Strength Hair Regrowth For Men, 6 Month Supply, 2 Ounce Bottle,
-description: Kirkland Minoxidil 5 percent Extra Strength Hair Regrowth For Men, 6 Month Supply, 2 Ounce Bottle,
-author: Suvojit Manna,
-tags: Kirkland Minoxidil 5 percent Extra Strength Hair Regrowth For Men, 6 Month Supply, 2 Ounce Bottle,
-publishedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
----
-
 # [Kirkland Minoxidil 5 percent Extra Strength Hair Regrowth For Men, 6 Month Supply, 2 Ounce Bottle](https://products.checkmycream.com/products/Kirkland-Minoxidil-5-percent-Extra-Strength-Hair-Regrowth-For-Men-6-Month-Supply-2-Ounce-Bottle.html)
 
 ### Positive Reviews

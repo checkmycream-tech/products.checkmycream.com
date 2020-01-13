@@ -1,12 +1,3 @@
----
-title: betty - Color for the Hair Down There!,
-description: betty - Color for the Hair Down There!,
-author: Suvojit Manna,
-tags: betty - Color for the Hair Down There!,
-publishedAt: Fri Jan 10 2020 14:59:51 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:51 GMT+0530 (India Standard Time),
----
-
 # [betty - Color for the Hair Down There!](https://products.checkmycream.com/products/betty-Color-for-the-Hair-Down-There!.html)
 
 ### Positive Reviews

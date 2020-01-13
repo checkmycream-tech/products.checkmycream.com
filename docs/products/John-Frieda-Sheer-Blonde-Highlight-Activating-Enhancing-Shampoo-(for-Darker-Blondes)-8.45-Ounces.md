@@ -1,12 +1,3 @@
----
-title: John Frieda Sheer Blonde Highlight Activating Enhancing Shampoo (for Darker Blondes) , 8.45 Ounces,
-description: John Frieda Sheer Blonde Highlight Activating Enhancing Shampoo (for Darker Blondes) , 8.45 Ounces,
-author: Suvojit Manna,
-tags: John Frieda Sheer Blonde Highlight Activating Enhancing Shampoo (for Darker Blondes) , 8.45 Ounces,
-publishedAt: Fri Jan 10 2020 15:00:14 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:14 GMT+0530 (India Standard Time),
----
-
 # [John Frieda Sheer Blonde Highlight Activating Enhancing Shampoo (for Darker Blondes) , 8.45 Ounces](https://products.checkmycream.com/products/John-Frieda-Sheer-Blonde-Highlight-Activating-Enhancing-Shampoo-(for-Darker-Blondes)-8.45-Ounces.html)
 
 ### Positive Reviews

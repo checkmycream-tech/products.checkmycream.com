@@ -1,12 +1,3 @@
----
-title: Veribel Large Dye Brush,
-description: Veribel Large Dye Brush,
-author: Suvojit Manna,
-tags: Veribel Large Dye Brush,
-publishedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
----
-
 # [Veribel Large Dye Brush](https://products.checkmycream.com/products/Veribel-Large-Dye-Brush.html)
 
 ### Positive Reviews

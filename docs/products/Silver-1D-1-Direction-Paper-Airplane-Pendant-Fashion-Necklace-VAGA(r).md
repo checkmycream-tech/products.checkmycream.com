@@ -1,12 +1,3 @@
----
-title: Silver 1D 1 Direction Paper Airplane Pendant Fashion Necklace VAGA®,
-description: Silver 1D 1 Direction Paper Airplane Pendant Fashion Necklace VAGA®,
-author: Suvojit Manna,
-tags: Silver 1D 1 Direction Paper Airplane Pendant Fashion Necklace VAGA®,
-publishedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
----
-
 # [Silver 1D 1 Direction Paper Airplane Pendant Fashion Necklace VAGA®](https://products.checkmycream.com/products/Silver-1D-1-Direction-Paper-Airplane-Pendant-Fashion-Necklace-VAGA(r).html)
 
 ### Positive Reviews

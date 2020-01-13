@@ -1,12 +1,3 @@
----
-title: Diane by Fromm Jumbo End Wraps, 2.5 X 4 Inches, 1000 Sheets,
-description: Diane by Fromm Jumbo End Wraps, 2.5 X 4 Inches, 1000 Sheets,
-author: Suvojit Manna,
-tags: Diane by Fromm Jumbo End Wraps, 2.5 X 4 Inches, 1000 Sheets,
-publishedAt: Fri Jan 10 2020 14:59:25 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:25 GMT+0530 (India Standard Time),
----
-
 # [Diane by Fromm Jumbo End Wraps, 2.5 X 4 Inches, 1000 Sheets](https://products.checkmycream.com/products/Diane-by-Fromm-Jumbo-End-Wraps-2.5-X-4-Inches-1000-Sheets.html)
 
 ### Positive Reviews

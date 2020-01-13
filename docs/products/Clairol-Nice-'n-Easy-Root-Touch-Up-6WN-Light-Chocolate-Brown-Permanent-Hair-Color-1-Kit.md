@@ -1,12 +1,3 @@
----
-title: Clairol Nice &#x27;n Easy Root Touch-Up, 6WN Light Chocolate Brown, Permanent Hair Color, 1 Kit,
-description: Clairol Nice &#x27;n Easy Root Touch-Up, 6WN Light Chocolate Brown, Permanent Hair Color, 1 Kit,
-author: Suvojit Manna,
-tags: Clairol Nice &#x27;n Easy Root Touch-Up, 6WN Light Chocolate Brown, Permanent Hair Color, 1 Kit,
-publishedAt: Fri Jan 10 2020 14:59:51 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:51 GMT+0530 (India Standard Time),
----
-
 # [Clairol Nice &#x27;n Easy Root Touch-Up, 6WN Light Chocolate Brown, Permanent Hair Color, 1 Kit](https://products.checkmycream.com/products/Clairol-Nice-&#x27;n-Easy-Root-Touch-Up-6WN-Light-Chocolate-Brown-Permanent-Hair-Color-1-Kit.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Hard Candy Glitter Glue &amp; Brush, 311 Show Girl&#x27;s Secret,
-description: Hard Candy Glitter Glue &amp; Brush, 311 Show Girl&#x27;s Secret,
-author: Suvojit Manna,
-tags: Hard Candy Glitter Glue &amp; Brush, 311 Show Girl&#x27;s Secret,
-publishedAt: Fri Jan 10 2020 15:00:32 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:32 GMT+0530 (India Standard Time),
----
-
 # [Hard Candy Glitter Glue &amp; Brush, 311 Show Girl&#x27;s Secret](https://products.checkmycream.com/products/Hard-Candy-Glitter-Glue-and-Brush-311-Show-Girl&#x27;s-Secret.html)
 
 ### Positive Reviews

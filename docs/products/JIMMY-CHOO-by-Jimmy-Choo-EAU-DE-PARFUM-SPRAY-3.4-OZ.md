@@ -1,12 +1,3 @@
----
-title: JIMMY CHOO by Jimmy Choo EAU DE PARFUM SPRAY 3.4 OZ,
-description: JIMMY CHOO by Jimmy Choo EAU DE PARFUM SPRAY 3.4 OZ,
-author: Suvojit Manna,
-tags: JIMMY CHOO by Jimmy Choo EAU DE PARFUM SPRAY 3.4 OZ,
-publishedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
----
-
 # [JIMMY CHOO by Jimmy Choo EAU DE PARFUM SPRAY 3.4 OZ](https://products.checkmycream.com/products/JIMMY-CHOO-by-Jimmy-Choo-EAU-DE-PARFUM-SPRAY-3.4-OZ.html)
 
 ### Positive Reviews

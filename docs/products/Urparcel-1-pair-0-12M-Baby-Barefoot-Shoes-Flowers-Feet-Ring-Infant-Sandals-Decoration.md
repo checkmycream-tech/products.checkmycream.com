@@ -1,12 +1,3 @@
----
-title: Urparcel 1 pair 0-12M Baby Barefoot Shoes Flowers Feet Ring Infant Sandals Decoration,
-description: Urparcel 1 pair 0-12M Baby Barefoot Shoes Flowers Feet Ring Infant Sandals Decoration,
-author: Suvojit Manna,
-tags: Urparcel 1 pair 0-12M Baby Barefoot Shoes Flowers Feet Ring Infant Sandals Decoration,
-publishedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
----
-
 # [Urparcel 1 pair 0-12M Baby Barefoot Shoes Flowers Feet Ring Infant Sandals Decoration](https://products.checkmycream.com/products/Urparcel-1-pair-0-12M-Baby-Barefoot-Shoes-Flowers-Feet-Ring-Infant-Sandals-Decoration.html)
 
 ### Positive Reviews

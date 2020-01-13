@@ -1,12 +1,3 @@
----
-title: Philosophy Living Grace Spray Fragrance, 2 Ounce,
-description: Philosophy Living Grace Spray Fragrance, 2 Ounce,
-author: Suvojit Manna,
-tags: Philosophy Living Grace Spray Fragrance, 2 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:32 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:32 GMT+0530 (India Standard Time),
----
-
 # [Philosophy Living Grace Spray Fragrance, 2 Ounce](https://products.checkmycream.com/products/Philosophy-Living-Grace-Spray-Fragrance-2-Ounce.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Moroccanoil Clarifying Shampoo, 8.5 Ounce,
-description: Moroccanoil Clarifying Shampoo, 8.5 Ounce,
-author: Suvojit Manna,
-tags: Moroccanoil Clarifying Shampoo, 8.5 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:29 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:29 GMT+0530 (India Standard Time),
----
-
 # [Moroccanoil Clarifying Shampoo, 8.5 Ounce](https://products.checkmycream.com/products/Moroccanoil-Clarifying-Shampoo-8.5-Ounce.html)
 
 ### Positive Reviews

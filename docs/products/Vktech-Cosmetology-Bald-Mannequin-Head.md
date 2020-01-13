@@ -1,12 +1,3 @@
----
-title: Vktech Cosmetology Bald Mannequin Head,
-description: Vktech Cosmetology Bald Mannequin Head,
-author: Suvojit Manna,
-tags: Vktech Cosmetology Bald Mannequin Head,
-publishedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
----
-
 # [Vktech Cosmetology Bald Mannequin Head](https://products.checkmycream.com/products/Vktech-Cosmetology-Bald-Mannequin-Head.html)
 
 ### Positive Reviews

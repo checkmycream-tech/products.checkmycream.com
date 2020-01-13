@@ -1,12 +1,3 @@
----
-title: Lot of 3 - Avon Glimmersticks Eye Liner Cosmic Brown,
-description: Lot of 3 - Avon Glimmersticks Eye Liner Cosmic Brown,
-author: Suvojit Manna,
-tags: Lot of 3 - Avon Glimmersticks Eye Liner Cosmic Brown,
-publishedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
----
-
 # [Lot of 3 - Avon Glimmersticks Eye Liner Cosmic Brown](https://products.checkmycream.com/products/Lot-of-3-Avon-Glimmersticks-Eye-Liner-Cosmic-Brown.html)
 
 ### Positive Reviews

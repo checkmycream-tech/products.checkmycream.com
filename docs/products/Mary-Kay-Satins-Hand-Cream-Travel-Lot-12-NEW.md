@@ -1,12 +1,3 @@
----
-title: Mary Kay Satins Hand Cream Travel Lot 12 NEW,
-description: Mary Kay Satins Hand Cream Travel Lot 12 NEW,
-author: Suvojit Manna,
-tags: Mary Kay Satins Hand Cream Travel Lot 12 NEW,
-publishedAt: Fri Jan 10 2020 14:59:45 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:45 GMT+0530 (India Standard Time),
----
-
 # [Mary Kay Satins Hand Cream Travel Lot 12 NEW](https://products.checkmycream.com/products/Mary-Kay-Satins-Hand-Cream-Travel-Lot-12-NEW.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: bareMinerals Smoothing Face Brush, 1.6 Ounce,
-description: bareMinerals Smoothing Face Brush, 1.6 Ounce,
-author: Suvojit Manna,
-tags: bareMinerals Smoothing Face Brush, 1.6 Ounce,
-publishedAt: Fri Jan 10 2020 15:01:06 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:06 GMT+0530 (India Standard Time),
----
-
 # [bareMinerals Smoothing Face Brush, 1.6 Ounce](https://products.checkmycream.com/products/bareMinerals-Smoothing-Face-Brush-1.6-Ounce.html)
 
 ### Positive Reviews

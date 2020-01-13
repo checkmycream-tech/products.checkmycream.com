@@ -1,12 +1,3 @@
----
-title: Tory Burch 0.24 oz / 7 ml Eau De Parfum MINIATURE,
-description: Tory Burch 0.24 oz / 7 ml Eau De Parfum MINIATURE,
-author: Suvojit Manna,
-tags: Tory Burch 0.24 oz / 7 ml Eau De Parfum MINIATURE,
-publishedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
----
-
 # [Tory Burch 0.24 oz / 7 ml Eau De Parfum MINIATURE](https://products.checkmycream.com/products/Tory-Burch-0.24-oz-7-ml-Eau-De-Parfum-MINIATURE.html)
 
 ### Positive Reviews

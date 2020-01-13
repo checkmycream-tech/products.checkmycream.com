@@ -1,12 +1,3 @@
----
-title: Just a Trim Compact Hair Trimmer,
-description: Just a Trim Compact Hair Trimmer,
-author: Suvojit Manna,
-tags: Just a Trim Compact Hair Trimmer,
-publishedAt: Fri Jan 10 2020 14:59:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:58 GMT+0530 (India Standard Time),
----
-
 # [Just a Trim Compact Hair Trimmer](https://products.checkmycream.com/products/Just-a-Trim-Compact-Hair-Trimmer.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Lipstick Case 3pcs Set Lipstick Case w/Mirror,Hi-End Japanese Textiles Fabric with Floral Design ,Random Colors, Assorted 3.5&quot;L x 1.25&quot;W Holds 1pc Standard Lipstick ,Super Value ,100% Satisfaction Guaranteed !,
-description: Lipstick Case 3pcs Set Lipstick Case w/Mirror,Hi-End Japanese Textiles Fabric with Floral Design ,Random Colors, Assorted 3.5&quot;L x 1.25&quot;W Holds 1pc Standard Lipstick ,Super Value ,100% Satisfaction Guaranteed !,
-author: Suvojit Manna,
-tags: Lipstick Case 3pcs Set Lipstick Case w/Mirror,Hi-End Japanese Textiles Fabric with Floral Design ,Random Colors, Assorted 3.5&quot;L x 1.25&quot;W Holds 1pc Standard Lipstick ,Super Value ,100% Satisfaction Guaranteed !,
-publishedAt: Fri Jan 10 2020 14:59:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:57 GMT+0530 (India Standard Time),
----
-
 # [Lipstick Case 3pcs Set Lipstick Case w/Mirror,Hi-End Japanese Textiles Fabric with Floral Design ,Random Colors, Assorted 3.5&quot;L x 1.25&quot;W Holds 1pc Standard Lipstick ,Super Value ,100% Satisfaction Guaranteed !](https://products.checkmycream.com/products/Lipstick-Case-3pcs-Set-Lipstick-Case-wMirrorHi-End-Japanese-Textiles-Fabric-with-Floral-Design-Random-Colors-Assorted-3.5&quot;L-x-1.25&quot;W-Holds-1pc-Standard-Lipstick-Super-Value-100percent-Satisfaction-Guaranteed-!.html)
 
 ### Positive Reviews

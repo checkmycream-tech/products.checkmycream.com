@@ -1,12 +1,3 @@
----
-title: NYX PROFESSIONAL MAKEUP Matte Lipstick,
-description: NYX PROFESSIONAL MAKEUP Matte Lipstick,
-author: Suvojit Manna,
-tags: NYX PROFESSIONAL MAKEUP Matte Lipstick,
-publishedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
----
-
 # [NYX PROFESSIONAL MAKEUP Matte Lipstick](https://products.checkmycream.com/products/NYX-PROFESSIONAL-MAKEUP-Matte-Lipstick.html)
 
 ### Positive Reviews

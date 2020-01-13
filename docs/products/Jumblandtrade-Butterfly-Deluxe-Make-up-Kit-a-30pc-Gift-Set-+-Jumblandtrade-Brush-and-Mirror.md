@@ -1,12 +1,3 @@
----
-title: Jumbl&amp;trade; Butterfly Deluxe Make up Kit a 30pc Gift Set + Jumbl&amp;trade; Brush and Mirror,
-description: Jumbl&amp;trade; Butterfly Deluxe Make up Kit a 30pc Gift Set + Jumbl&amp;trade; Brush and Mirror,
-author: Suvojit Manna,
-tags: Jumbl&amp;trade; Butterfly Deluxe Make up Kit a 30pc Gift Set + Jumbl&amp;trade; Brush and Mirror,
-publishedAt: Fri Jan 10 2020 15:01:04 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:04 GMT+0530 (India Standard Time),
----
-
 # [Jumbl&amp;trade; Butterfly Deluxe Make up Kit a 30pc Gift Set + Jumbl&amp;trade; Brush and Mirror](https://products.checkmycream.com/products/Jumblandtrade-Butterfly-Deluxe-Make-up-Kit-a-30pc-Gift-Set-+-Jumblandtrade-Brush-and-Mirror.html)
 
 ### Positive Reviews

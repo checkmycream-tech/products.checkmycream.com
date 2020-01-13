@@ -1,12 +1,3 @@
----
-title: Swiss Army By Swiss Army For Men. Aftershave 3.4 Ounces,
-description: Swiss Army By Swiss Army For Men. Aftershave 3.4 Ounces,
-author: Suvojit Manna,
-tags: Swiss Army By Swiss Army For Men. Aftershave 3.4 Ounces,
-publishedAt: Fri Jan 10 2020 14:59:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:05 GMT+0530 (India Standard Time),
----
-
 # [Swiss Army By Swiss Army For Men. Aftershave 3.4 Ounces](https://products.checkmycream.com/products/Swiss-Army-By-Swiss-Army-For-Men.-Aftershave-3.4-Ounces.html)
 
 ### Positive Reviews

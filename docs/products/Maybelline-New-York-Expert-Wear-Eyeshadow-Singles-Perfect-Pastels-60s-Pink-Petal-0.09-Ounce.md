@@ -1,12 +1,3 @@
----
-title: Maybelline New York Expert Wear Eyeshadow Singles, Perfect Pastels 60s Pink Petal, 0.09 Ounce,
-description: Maybelline New York Expert Wear Eyeshadow Singles, Perfect Pastels 60s Pink Petal, 0.09 Ounce,
-author: Suvojit Manna,
-tags: Maybelline New York Expert Wear Eyeshadow Singles, Perfect Pastels 60s Pink Petal, 0.09 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:58 GMT+0530 (India Standard Time),
----
-
 # [Maybelline New York Expert Wear Eyeshadow Singles, Perfect Pastels 60s Pink Petal, 0.09 Ounce](https://products.checkmycream.com/products/Maybelline-New-York-Expert-Wear-Eyeshadow-Singles-Perfect-Pastels-60s-Pink-Petal-0.09-Ounce.html)
 
 ### Positive Reviews

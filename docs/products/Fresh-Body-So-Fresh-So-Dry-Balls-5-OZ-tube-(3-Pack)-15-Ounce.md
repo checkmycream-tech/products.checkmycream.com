@@ -1,12 +1,3 @@
----
-title: Fresh Body So Fresh So Dry Balls, 5 OZ tube (3 Pack)- 15 Ounce,
-description: Fresh Body So Fresh So Dry Balls, 5 OZ tube (3 Pack)- 15 Ounce,
-author: Suvojit Manna,
-tags: Fresh Body So Fresh So Dry Balls, 5 OZ tube (3 Pack)- 15 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
----
-
 # [Fresh Body So Fresh So Dry Balls, 5 OZ tube (3 Pack)- 15 Ounce](https://products.checkmycream.com/products/Fresh-Body-So-Fresh-So-Dry-Balls-5-OZ-tube-(3-Pack)-15-Ounce.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: RHX 100pcs Skin Care Facial Compressed Mask Paper Make Up Beauty Easy DIY Home,
-description: RHX 100pcs Skin Care Facial Compressed Mask Paper Make Up Beauty Easy DIY Home,
-author: Suvojit Manna,
-tags: RHX 100pcs Skin Care Facial Compressed Mask Paper Make Up Beauty Easy DIY Home,
-publishedAt: Fri Jan 10 2020 15:00:38 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:38 GMT+0530 (India Standard Time),
----
-
 # [RHX 100pcs Skin Care Facial Compressed Mask Paper Make Up Beauty Easy DIY Home](https://products.checkmycream.com/products/RHX-100pcs-Skin-Care-Facial-Compressed-Mask-Paper-Make-Up-Beauty-Easy-DIY-Home.html)
 
 ### Positive Reviews

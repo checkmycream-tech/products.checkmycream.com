@@ -1,12 +1,3 @@
----
-title: White Crystal Bronze Metal Alloy flower / butterfly hair claws clips,
-description: White Crystal Bronze Metal Alloy flower / butterfly hair claws clips,
-author: Suvojit Manna,
-tags: White Crystal Bronze Metal Alloy flower / butterfly hair claws clips,
-publishedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
----
-
 # [White Crystal Bronze Metal Alloy flower / butterfly hair claws clips](https://products.checkmycream.com/products/White-Crystal-Bronze-Metal-Alloy-flower-butterfly-hair-claws-clips.html)
 
 ### Positive Reviews

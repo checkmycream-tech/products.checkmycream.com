@@ -1,12 +1,3 @@
----
-title: &quot;On the Money&quot; 10sec Blade Setter,
-description: &quot;On the Money&quot; 10sec Blade Setter,
-author: Suvojit Manna,
-tags: &quot;On the Money&quot; 10sec Blade Setter,
-publishedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
----
-
 # [&quot;On the Money&quot; 10sec Blade Setter](https://products.checkmycream.com/products/&quot;On-the-Money&quot;-10sec-Blade-Setter.html)
 
 ### Positive Reviews

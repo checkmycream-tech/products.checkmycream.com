@@ -1,12 +1,3 @@
----
-title: Kerastase Nutritive Bain Oleo Curl Shampoo (select option/size),
-description: Kerastase Nutritive Bain Oleo Curl Shampoo (select option/size),
-author: Suvojit Manna,
-tags: Kerastase Nutritive Bain Oleo Curl Shampoo (select option/size),
-publishedAt: Fri Jan 10 2020 14:59:04 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:04 GMT+0530 (India Standard Time),
----
-
 # [Kerastase Nutritive Bain Oleo Curl Shampoo (select option/size)](https://products.checkmycream.com/products/Kerastase-Nutritive-Bain-Oleo-Curl-Shampoo-(select-optionsize).html)
 
 ### Positive Reviews

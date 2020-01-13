@@ -1,12 +1,3 @@
----
-title: White Musk/Jovan Cologne Spray 3.25 Oz (W),
-description: White Musk/Jovan Cologne Spray 3.25 Oz (W),
-author: Suvojit Manna,
-tags: White Musk/Jovan Cologne Spray 3.25 Oz (W),
-publishedAt: Fri Jan 10 2020 14:59:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:05 GMT+0530 (India Standard Time),
----
-
 # [White Musk/Jovan Cologne Spray 3.25 Oz (W)](https://products.checkmycream.com/products/White-MuskJovan-Cologne-Spray-3.25-Oz-(W).html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: 16oz Chamberlain Golden Touch Lotion Original Moisturizer 16oz,
-description: 16oz Chamberlain Golden Touch Lotion Original Moisturizer 16oz,
-author: Suvojit Manna,
-tags: 16oz Chamberlain Golden Touch Lotion Original Moisturizer 16oz,
-publishedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
----
-
 # [16oz Chamberlain Golden Touch Lotion Original Moisturizer 16oz](https://products.checkmycream.com/products/16oz-Chamberlain-Golden-Touch-Lotion-Original-Moisturizer-16oz.html)
 
 ### Positive Reviews

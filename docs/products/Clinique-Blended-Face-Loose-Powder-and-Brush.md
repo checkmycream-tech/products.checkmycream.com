@@ -1,12 +1,3 @@
----
-title: Clinique Blended Face Loose Powder and Brush,
-description: Clinique Blended Face Loose Powder and Brush,
-author: Suvojit Manna,
-tags: Clinique Blended Face Loose Powder and Brush,
-publishedAt: Fri Jan 10 2020 14:59:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:00 GMT+0530 (India Standard Time),
----
-
 # [Clinique Blended Face Loose Powder and Brush](https://products.checkmycream.com/products/Clinique-Blended-Face-Loose-Powder-and-Brush.html)
 
 ### Positive Reviews

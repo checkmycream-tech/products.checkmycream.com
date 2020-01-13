@@ -1,12 +1,3 @@
----
-title: JOJOBA OIL Golden Pure &amp; Organic You Pick Size,
-description: JOJOBA OIL Golden Pure &amp; Organic You Pick Size,
-author: Suvojit Manna,
-tags: JOJOBA OIL Golden Pure &amp; Organic You Pick Size,
-publishedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
----
-
 # [JOJOBA OIL Golden Pure &amp; Organic You Pick Size](https://products.checkmycream.com/products/JOJOBA-OIL-Golden-Pure-and-Organic-You-Pick-Size.html)
 
 ### Positive Reviews

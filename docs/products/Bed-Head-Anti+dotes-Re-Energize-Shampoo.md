@@ -1,12 +1,3 @@
----
-title: Bed Head Anti+dotes Re-Energize Shampoo,
-description: Bed Head Anti+dotes Re-Energize Shampoo,
-author: Suvojit Manna,
-tags: Bed Head Anti+dotes Re-Energize Shampoo,
-publishedAt: Fri Jan 10 2020 14:59:52 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:52 GMT+0530 (India Standard Time),
----
-
 # [Bed Head Anti+dotes Re-Energize Shampoo](https://products.checkmycream.com/products/Bed-Head-Anti+dotes-Re-Energize-Shampoo.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: PRO GOLD MEDIUM CARBIDE BIT. TAPERED BARREL BIT. FITS 3/32,
-description: PRO GOLD MEDIUM CARBIDE BIT. TAPERED BARREL BIT. FITS 3/32,
-author: Suvojit Manna,
-tags: PRO GOLD MEDIUM CARBIDE BIT. TAPERED BARREL BIT. FITS 3/32,
-publishedAt: Fri Jan 10 2020 15:00:12 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:12 GMT+0530 (India Standard Time),
----
-
 # [PRO GOLD MEDIUM CARBIDE BIT. TAPERED BARREL BIT. FITS 3/32](https://products.checkmycream.com/products/PRO-GOLD-MEDIUM-CARBIDE-BIT.-TAPERED-BARREL-BIT.-FITS-332.html)
 
 ### Positive Reviews

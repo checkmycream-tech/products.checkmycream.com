@@ -1,12 +1,3 @@
----
-title: Leegoal Fashion Women Lady Peacock Full Crystal Rhinestones Hairpin Hair Clip Gold (gold),
-description: Leegoal Fashion Women Lady Peacock Full Crystal Rhinestones Hairpin Hair Clip Gold (gold),
-author: Suvojit Manna,
-tags: Leegoal Fashion Women Lady Peacock Full Crystal Rhinestones Hairpin Hair Clip Gold (gold),
-publishedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
----
-
 # [Leegoal Fashion Women Lady Peacock Full Crystal Rhinestones Hairpin Hair Clip Gold (gold)](https://products.checkmycream.com/products/Leegoal-Fashion-Women-Lady-Peacock-Full-Crystal-Rhinestones-Hairpin-Hair-Clip-Gold-(gold).html)
 
 ### Positive Reviews

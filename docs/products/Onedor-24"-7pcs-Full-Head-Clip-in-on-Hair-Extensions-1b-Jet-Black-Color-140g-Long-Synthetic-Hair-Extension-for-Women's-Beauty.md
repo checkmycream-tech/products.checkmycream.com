@@ -1,12 +1,3 @@
----
-title: Onedor 24&quot; 7pcs Full Head Clip in on Hair Extensions 1b Jet Black Color 140g Long Synthetic Hair Extension for Women&#x27;s Beauty,
-description: Onedor 24&quot; 7pcs Full Head Clip in on Hair Extensions 1b Jet Black Color 140g Long Synthetic Hair Extension for Women&#x27;s Beauty,
-author: Suvojit Manna,
-tags: Onedor 24&quot; 7pcs Full Head Clip in on Hair Extensions 1b Jet Black Color 140g Long Synthetic Hair Extension for Women&#x27;s Beauty,
-publishedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
----
-
 # [Onedor 24&quot; 7pcs Full Head Clip in on Hair Extensions 1b Jet Black Color 140g Long Synthetic Hair Extension for Women&#x27;s Beauty](https://products.checkmycream.com/products/Onedor-24&quot;-7pcs-Full-Head-Clip-in-on-Hair-Extensions-1b-Jet-Black-Color-140g-Long-Synthetic-Hair-Extension-for-Women&#x27;s-Beauty.html)
 
 ### Positive Reviews

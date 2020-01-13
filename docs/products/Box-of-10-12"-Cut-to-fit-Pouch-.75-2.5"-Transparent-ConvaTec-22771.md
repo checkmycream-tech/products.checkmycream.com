@@ -1,12 +1,3 @@
----
-title: Box of 10 12&quot; Cut-to-fit Pouch .75 - 2.5&quot; Transparent ConvaTec 22771,
-description: Box of 10 12&quot; Cut-to-fit Pouch .75 - 2.5&quot; Transparent ConvaTec 22771,
-author: Suvojit Manna,
-tags: Box of 10 12&quot; Cut-to-fit Pouch .75 - 2.5&quot; Transparent ConvaTec 22771,
-publishedAt: Fri Jan 10 2020 14:59:30 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:30 GMT+0530 (India Standard Time),
----
-
 # [Box of 10 12&quot; Cut-to-fit Pouch .75 - 2.5&quot; Transparent ConvaTec 22771](https://products.checkmycream.com/products/Box-of-10-12&quot;-Cut-to-fit-Pouch-.75-2.5&quot;-Transparent-ConvaTec-22771.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Chaz Dean Wen Sweet Almond Mint Anti-Frizz Styling Cream Cream For Unisex,
-description: Chaz Dean Wen Sweet Almond Mint Anti-Frizz Styling Cream Cream For Unisex,
-author: Suvojit Manna,
-tags: Chaz Dean Wen Sweet Almond Mint Anti-Frizz Styling Cream Cream For Unisex,
-publishedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
----
-
 # [Chaz Dean Wen Sweet Almond Mint Anti-Frizz Styling Cream Cream For Unisex](https://products.checkmycream.com/products/Chaz-Dean-Wen-Sweet-Almond-Mint-Anti-Frizz-Styling-Cream-Cream-For-Unisex.html)
 
 ### Positive Reviews

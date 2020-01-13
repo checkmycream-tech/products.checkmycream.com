@@ -1,12 +1,3 @@
----
-title: Lowpricenice(TM) Women Fashion Gold Metal Punk Unique Head Chain Jewelry Headband,
-description: Lowpricenice(TM) Women Fashion Gold Metal Punk Unique Head Chain Jewelry Headband,
-author: Suvojit Manna,
-tags: Lowpricenice(TM) Women Fashion Gold Metal Punk Unique Head Chain Jewelry Headband,
-publishedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
----
-
 # [Lowpricenice(TM) Women Fashion Gold Metal Punk Unique Head Chain Jewelry Headband](https://products.checkmycream.com/products/Lowpricenice(TM)-Women-Fashion-Gold-Metal-Punk-Unique-Head-Chain-Jewelry-Headband.html)
 
 ### Positive Reviews

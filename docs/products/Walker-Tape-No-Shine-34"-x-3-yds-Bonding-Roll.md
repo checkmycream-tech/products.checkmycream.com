@@ -1,12 +1,3 @@
----
-title: Walker Tape No Shine 3/4&quot; x 3 yds Bonding Roll,
-description: Walker Tape No Shine 3/4&quot; x 3 yds Bonding Roll,
-author: Suvojit Manna,
-tags: Walker Tape No Shine 3/4&quot; x 3 yds Bonding Roll,
-publishedAt: Fri Jan 10 2020 14:59:26 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:26 GMT+0530 (India Standard Time),
----
-
 # [Walker Tape No Shine 3/4&quot; x 3 yds Bonding Roll](https://products.checkmycream.com/products/Walker-Tape-No-Shine-34&quot;-x-3-yds-Bonding-Roll.html)
 
 ### Positive Reviews

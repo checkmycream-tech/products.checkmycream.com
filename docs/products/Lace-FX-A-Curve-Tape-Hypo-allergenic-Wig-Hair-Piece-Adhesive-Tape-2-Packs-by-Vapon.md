@@ -1,12 +1,3 @@
----
-title: Lace FX A Curve Tape Hypo-allergenic Wig Hair Piece Adhesive Tape - 2 Packs by Vapon,
-description: Lace FX A Curve Tape Hypo-allergenic Wig Hair Piece Adhesive Tape - 2 Packs by Vapon,
-author: Suvojit Manna,
-tags: Lace FX A Curve Tape Hypo-allergenic Wig Hair Piece Adhesive Tape - 2 Packs by Vapon,
-publishedAt: Fri Jan 10 2020 15:00:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:00 GMT+0530 (India Standard Time),
----
-
 # [Lace FX A Curve Tape Hypo-allergenic Wig Hair Piece Adhesive Tape - 2 Packs by Vapon](https://products.checkmycream.com/products/Lace-FX-A-Curve-Tape-Hypo-allergenic-Wig-Hair-Piece-Adhesive-Tape-2-Packs-by-Vapon.html)
 
 ### Positive Reviews

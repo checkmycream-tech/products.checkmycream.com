@@ -1,12 +1,3 @@
----
-title: Charlie Gift Set Woman (2 pieces) by Revlon,
-description: Charlie Gift Set Woman (2 pieces) by Revlon,
-author: Suvojit Manna,
-tags: Charlie Gift Set Woman (2 pieces) by Revlon,
-publishedAt: Fri Jan 10 2020 14:59:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:02 GMT+0530 (India Standard Time),
----
-
 # [Charlie Gift Set Woman (2 pieces) by Revlon](https://products.checkmycream.com/products/Charlie-Gift-Set-Woman-(2-pieces)-by-Revlon.html)
 
 ### Positive Reviews

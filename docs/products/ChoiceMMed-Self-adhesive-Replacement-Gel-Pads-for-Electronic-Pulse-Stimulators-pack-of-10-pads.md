@@ -1,12 +1,3 @@
----
-title: ChoiceMMed Self-adhesive Replacement Gel Pads for Electronic Pulse Stimulators （pack of 10 pads）,
-description: ChoiceMMed Self-adhesive Replacement Gel Pads for Electronic Pulse Stimulators （pack of 10 pads）,
-author: Suvojit Manna,
-tags: ChoiceMMed Self-adhesive Replacement Gel Pads for Electronic Pulse Stimulators （pack of 10 pads）,
-publishedAt: Fri Jan 10 2020 15:01:04 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:04 GMT+0530 (India Standard Time),
----
-
 # [ChoiceMMed Self-adhesive Replacement Gel Pads for Electronic Pulse Stimulators （pack of 10 pads）](https://products.checkmycream.com/products/ChoiceMMed-Self-adhesive-Replacement-Gel-Pads-for-Electronic-Pulse-Stimulators-pack-of-10-pads.html)
 
 ### Positive Reviews

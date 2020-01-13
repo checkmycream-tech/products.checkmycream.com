@@ -1,12 +1,3 @@
----
-title: Macadamia Nut Organic Oil Cold Pressed 16 Oz,
-description: Macadamia Nut Organic Oil Cold Pressed 16 Oz,
-author: Suvojit Manna,
-tags: Macadamia Nut Organic Oil Cold Pressed 16 Oz,
-publishedAt: Fri Jan 10 2020 15:00:36 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:36 GMT+0530 (India Standard Time),
----
-
 # [Macadamia Nut Organic Oil Cold Pressed 16 Oz](https://products.checkmycream.com/products/Macadamia-Nut-Organic-Oil-Cold-Pressed-16-Oz.html)
 
 ### Positive Reviews

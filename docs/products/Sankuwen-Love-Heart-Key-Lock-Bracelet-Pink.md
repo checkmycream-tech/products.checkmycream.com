@@ -1,12 +1,3 @@
----
-title: Sankuwen Love Heart Key Lock Bracelet Pink,
-description: Sankuwen Love Heart Key Lock Bracelet Pink,
-author: Suvojit Manna,
-tags: Sankuwen Love Heart Key Lock Bracelet Pink,
-publishedAt: Fri Jan 10 2020 15:01:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:05 GMT+0530 (India Standard Time),
----
-
 # [Sankuwen Love Heart Key Lock Bracelet Pink](https://products.checkmycream.com/products/Sankuwen-Love-Heart-Key-Lock-Bracelet-Pink.html)
 
 ### Positive Reviews

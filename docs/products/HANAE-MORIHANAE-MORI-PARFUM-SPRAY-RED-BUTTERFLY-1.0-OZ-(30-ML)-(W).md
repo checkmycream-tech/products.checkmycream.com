@@ -1,12 +1,3 @@
----
-title: HANAE MORI/HANAE MORI PARFUM SPRAY RED BUTTERFLY 1.0 OZ (30 ML) (W),
-description: HANAE MORI/HANAE MORI PARFUM SPRAY RED BUTTERFLY 1.0 OZ (30 ML) (W),
-author: Suvojit Manna,
-tags: HANAE MORI/HANAE MORI PARFUM SPRAY RED BUTTERFLY 1.0 OZ (30 ML) (W),
-publishedAt: Fri Jan 10 2020 14:59:24 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:24 GMT+0530 (India Standard Time),
----
-
 # [HANAE MORI/HANAE MORI PARFUM SPRAY RED BUTTERFLY 1.0 OZ (30 ML) (W)](https://products.checkmycream.com/products/HANAE-MORIHANAE-MORI-PARFUM-SPRAY-RED-BUTTERFLY-1.0-OZ-(30-ML)-(W).html)
 
 ### Positive Reviews

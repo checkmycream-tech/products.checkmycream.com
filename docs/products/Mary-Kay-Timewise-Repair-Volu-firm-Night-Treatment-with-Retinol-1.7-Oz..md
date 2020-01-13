@@ -1,12 +1,3 @@
----
-title: Mary Kay Timewise Repair Volu-firm Night Treatment with Retinol 1.7 Oz.,
-description: Mary Kay Timewise Repair Volu-firm Night Treatment with Retinol 1.7 Oz.,
-author: Suvojit Manna,
-tags: Mary Kay Timewise Repair Volu-firm Night Treatment with Retinol 1.7 Oz.,
-publishedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
----
-
 # [Mary Kay Timewise Repair Volu-firm Night Treatment with Retinol 1.7 Oz.](https://products.checkmycream.com/products/Mary-Kay-Timewise-Repair-Volu-firm-Night-Treatment-with-Retinol-1.7-Oz..html)
 
 ### Positive Reviews

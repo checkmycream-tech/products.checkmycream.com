@@ -1,12 +1,3 @@
----
-title: Redken Intra Force Hair Densifier Thickening Foam For Thin-Looking Hair 8.5 oz,
-description: Redken Intra Force Hair Densifier Thickening Foam For Thin-Looking Hair 8.5 oz,
-author: Suvojit Manna,
-tags: Redken Intra Force Hair Densifier Thickening Foam For Thin-Looking Hair 8.5 oz,
-publishedAt: Fri Jan 10 2020 15:00:04 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:04 GMT+0530 (India Standard Time),
----
-
 # [Redken Intra Force Hair Densifier Thickening Foam For Thin-Looking Hair 8.5 oz](https://products.checkmycream.com/products/Redken-Intra-Force-Hair-Densifier-Thickening-Foam-For-Thin-Looking-Hair-8.5-oz.html)
 
 ### Positive Reviews

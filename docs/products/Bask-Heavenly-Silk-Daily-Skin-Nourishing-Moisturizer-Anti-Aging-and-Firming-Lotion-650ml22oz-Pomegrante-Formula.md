@@ -1,12 +1,3 @@
----
-title: Bask Heavenly Silk Daily Skin Nourishing Moisturizer Anti-Aging &amp; Firming Lotion 650ml/22oz - Pomegrante Formula,
-description: Bask Heavenly Silk Daily Skin Nourishing Moisturizer Anti-Aging &amp; Firming Lotion 650ml/22oz - Pomegrante Formula,
-author: Suvojit Manna,
-tags: Bask Heavenly Silk Daily Skin Nourishing Moisturizer Anti-Aging &amp; Firming Lotion 650ml/22oz - Pomegrante Formula,
-publishedAt: Fri Jan 10 2020 14:59:23 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:23 GMT+0530 (India Standard Time),
----
-
 # [Bask Heavenly Silk Daily Skin Nourishing Moisturizer Anti-Aging &amp; Firming Lotion 650ml/22oz - Pomegrante Formula](https://products.checkmycream.com/products/Bask-Heavenly-Silk-Daily-Skin-Nourishing-Moisturizer-Anti-Aging-and-Firming-Lotion-650ml22oz-Pomegrante-Formula.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Pack of 6 Salon Sectioning Clip Clamp Hairdressing Styling Hair Tool Crocodile,
-description: Pack of 6 Salon Sectioning Clip Clamp Hairdressing Styling Hair Tool Crocodile,
-author: Suvojit Manna,
-tags: Pack of 6 Salon Sectioning Clip Clamp Hairdressing Styling Hair Tool Crocodile,
-publishedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
----
-
 # [Pack of 6 Salon Sectioning Clip Clamp Hairdressing Styling Hair Tool Crocodile](https://products.checkmycream.com/products/Pack-of-6-Salon-Sectioning-Clip-Clamp-Hairdressing-Styling-Hair-Tool-Crocodile.html)
 
 ### Positive Reviews

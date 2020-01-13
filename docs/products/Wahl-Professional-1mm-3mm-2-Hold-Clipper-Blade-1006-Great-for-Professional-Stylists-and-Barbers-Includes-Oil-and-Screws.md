@@ -1,12 +1,3 @@
----
-title: Wahl Professional 1mm – 3mm 2 Hold Clipper Blade # 1006 – Great for Professional Stylists and Barbers - Includes Oil and Screws,
-description: Wahl Professional 1mm – 3mm 2 Hold Clipper Blade # 1006 – Great for Professional Stylists and Barbers - Includes Oil and Screws,
-author: Suvojit Manna,
-tags: Wahl Professional 1mm – 3mm 2 Hold Clipper Blade # 1006 – Great for Professional Stylists and Barbers - Includes Oil and Screws,
-publishedAt: Fri Jan 10 2020 14:59:06 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:06 GMT+0530 (India Standard Time),
----
-
 # [Wahl Professional 1mm – 3mm 2 Hold Clipper Blade # 1006 – Great for Professional Stylists and Barbers - Includes Oil and Screws](https://products.checkmycream.com/products/Wahl-Professional-1mm-3mm-2-Hold-Clipper-Blade-1006-Great-for-Professional-Stylists-and-Barbers-Includes-Oil-and-Screws.html)
 
 ### Positive Reviews

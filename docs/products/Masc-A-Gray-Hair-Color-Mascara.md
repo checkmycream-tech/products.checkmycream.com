@@ -1,12 +1,3 @@
----
-title: Masc-A-Gray Hair Color Mascara,
-description: Masc-A-Gray Hair Color Mascara,
-author: Suvojit Manna,
-tags: Masc-A-Gray Hair Color Mascara,
-publishedAt: Fri Jan 10 2020 14:59:09 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:09 GMT+0530 (India Standard Time),
----
-
 # [Masc-A-Gray Hair Color Mascara](https://products.checkmycream.com/products/Masc-A-Gray-Hair-Color-Mascara.html)
 
 ### Positive Reviews

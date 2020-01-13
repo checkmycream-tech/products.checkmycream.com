@@ -1,12 +1,3 @@
----
-title: Brut Moisturizing After Shave Balm, Original Fragrance, 4-Ounce Tubes,
-description: Brut Moisturizing After Shave Balm, Original Fragrance, 4-Ounce Tubes,
-author: Suvojit Manna,
-tags: Brut Moisturizing After Shave Balm, Original Fragrance, 4-Ounce Tubes,
-publishedAt: Fri Jan 10 2020 14:59:28 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:28 GMT+0530 (India Standard Time),
----
-
 # [Brut Moisturizing After Shave Balm, Original Fragrance, 4-Ounce Tubes](https://products.checkmycream.com/products/Brut-Moisturizing-After-Shave-Balm-Original-Fragrance-4-Ounce-Tubes.html)
 
 ### Positive Reviews

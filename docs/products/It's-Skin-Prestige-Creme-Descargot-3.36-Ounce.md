@@ -1,12 +1,3 @@
----
-title: It&#x27;s Skin Prestige Creme Descargot, 3.36 Ounce,
-description: It&#x27;s Skin Prestige Creme Descargot, 3.36 Ounce,
-author: Suvojit Manna,
-tags: It&#x27;s Skin Prestige Creme Descargot, 3.36 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:21 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:21 GMT+0530 (India Standard Time),
----
-
 # [It&#x27;s Skin Prestige Creme Descargot, 3.36 Ounce](https://products.checkmycream.com/products/It&#x27;s-Skin-Prestige-Creme-Descargot-3.36-Ounce.html)
 
 ### Positive Reviews

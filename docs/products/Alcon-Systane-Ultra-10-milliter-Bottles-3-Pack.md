@@ -1,12 +1,3 @@
----
-title: Alcon Systane Ultra 10 milliter Bottles 3 Pack,
-description: Alcon Systane Ultra 10 milliter Bottles 3 Pack,
-author: Suvojit Manna,
-tags: Alcon Systane Ultra 10 milliter Bottles 3 Pack,
-publishedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
----
-
 # [Alcon Systane Ultra 10 milliter Bottles 3 Pack](https://products.checkmycream.com/products/Alcon-Systane-Ultra-10-milliter-Bottles-3-Pack.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Tommy Girl Cologne for Women by Tommy Hilfiger,
-description: Tommy Girl Cologne for Women by Tommy Hilfiger,
-author: Suvojit Manna,
-tags: Tommy Girl Cologne for Women by Tommy Hilfiger,
-publishedAt: Fri Jan 10 2020 14:59:26 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:26 GMT+0530 (India Standard Time),
----
-
 # [Tommy Girl Cologne for Women by Tommy Hilfiger](https://products.checkmycream.com/products/Tommy-Girl-Cologne-for-Women-by-Tommy-Hilfiger.html)
 
 ### Positive Reviews

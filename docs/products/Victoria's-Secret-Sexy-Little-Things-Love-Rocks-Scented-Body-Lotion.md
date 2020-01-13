@@ -1,12 +1,3 @@
----
-title: Victoria&#x27;s Secret Sexy Little Things Love Rocks Scented Body Lotion,
-description: Victoria&#x27;s Secret Sexy Little Things Love Rocks Scented Body Lotion,
-author: Suvojit Manna,
-tags: Victoria&#x27;s Secret Sexy Little Things Love Rocks Scented Body Lotion,
-publishedAt: Fri Jan 10 2020 15:00:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:02 GMT+0530 (India Standard Time),
----
-
 # [Victoria&#x27;s Secret Sexy Little Things Love Rocks Scented Body Lotion](https://products.checkmycream.com/products/Victoria&#x27;s-Secret-Sexy-Little-Things-Love-Rocks-Scented-Body-Lotion.html)
 
 ### Positive Reviews

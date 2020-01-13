@@ -1,12 +1,3 @@
----
-title: JOVANA New Women Ladies Winter Warm Knitted Fingerless Gloves Hand Wrist Warmer Mitten (Black),
-description: JOVANA New Women Ladies Winter Warm Knitted Fingerless Gloves Hand Wrist Warmer Mitten (Black),
-author: Suvojit Manna,
-tags: JOVANA New Women Ladies Winter Warm Knitted Fingerless Gloves Hand Wrist Warmer Mitten (Black),
-publishedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
----
-
 # [JOVANA New Women Ladies Winter Warm Knitted Fingerless Gloves Hand Wrist Warmer Mitten (Black)](https://products.checkmycream.com/products/JOVANA-New-Women-Ladies-Winter-Warm-Knitted-Fingerless-Gloves-Hand-Wrist-Warmer-Mitten-(Black).html)
 
 ### Positive Reviews

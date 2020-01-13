@@ -1,12 +1,3 @@
----
-title: Compatible brush heads for normal skin, replacement brushes, 2 refills, 2.5 Ounce,
-description: Compatible brush heads for normal skin, replacement brushes, 2 refills, 2.5 Ounce,
-author: Suvojit Manna,
-tags: Compatible brush heads for normal skin, replacement brushes, 2 refills, 2.5 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [Compatible brush heads for normal skin, replacement brushes, 2 refills, 2.5 Ounce](https://products.checkmycream.com/products/Compatible-brush-heads-for-normal-skin-replacement-brushes-2-refills-2.5-Ounce.html)
 
 ### Positive Reviews

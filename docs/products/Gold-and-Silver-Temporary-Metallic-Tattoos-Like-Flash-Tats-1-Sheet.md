@@ -1,12 +1,3 @@
----
-title: Gold and Silver Temporary Metallic Tattoos, Like Flash Tats - 1 Sheet,
-description: Gold and Silver Temporary Metallic Tattoos, Like Flash Tats - 1 Sheet,
-author: Suvojit Manna,
-tags: Gold and Silver Temporary Metallic Tattoos, Like Flash Tats - 1 Sheet,
-publishedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
----
-
 # [Gold and Silver Temporary Metallic Tattoos, Like Flash Tats - 1 Sheet](https://products.checkmycream.com/products/Gold-and-Silver-Temporary-Metallic-Tattoos-Like-Flash-Tats-1-Sheet.html)
 
 ### Positive Reviews

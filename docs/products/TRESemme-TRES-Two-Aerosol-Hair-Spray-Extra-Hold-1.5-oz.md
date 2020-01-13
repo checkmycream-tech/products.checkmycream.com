@@ -1,12 +1,3 @@
----
-title: TRESemmé TRES Two Aerosol Hair Spray Extra Hold 1.5 oz,
-description: TRESemmé TRES Two Aerosol Hair Spray Extra Hold 1.5 oz,
-author: Suvojit Manna,
-tags: TRESemmé TRES Two Aerosol Hair Spray Extra Hold 1.5 oz,
-publishedAt: Fri Jan 10 2020 14:59:16 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:16 GMT+0530 (India Standard Time),
----
-
 # [TRESemmé TRES Two Aerosol Hair Spray Extra Hold 1.5 oz](https://products.checkmycream.com/products/TRESemme-TRES-Two-Aerosol-Hair-Spray-Extra-Hold-1.5-oz.html)
 
 ### Positive Reviews

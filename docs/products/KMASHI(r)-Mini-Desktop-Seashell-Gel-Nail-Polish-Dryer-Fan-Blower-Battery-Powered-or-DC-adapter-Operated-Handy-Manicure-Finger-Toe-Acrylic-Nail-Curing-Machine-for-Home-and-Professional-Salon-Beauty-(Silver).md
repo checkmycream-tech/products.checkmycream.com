@@ -1,12 +1,3 @@
----
-title: KMASHI® Mini Desktop Seashell Gel Nail Polish Dryer Fan Blower Battery Powered or DC adapter Operated Handy Manicure Finger Toe Acrylic Nail Curing Machine for Home and Professional Salon Beauty (Silver),
-description: KMASHI® Mini Desktop Seashell Gel Nail Polish Dryer Fan Blower Battery Powered or DC adapter Operated Handy Manicure Finger Toe Acrylic Nail Curing Machine for Home and Professional Salon Beauty (Silver),
-author: Suvojit Manna,
-tags: KMASHI® Mini Desktop Seashell Gel Nail Polish Dryer Fan Blower Battery Powered or DC adapter Operated Handy Manicure Finger Toe Acrylic Nail Curing Machine for Home and Professional Salon Beauty (Silver),
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [KMASHI® Mini Desktop Seashell Gel Nail Polish Dryer Fan Blower Battery Powered or DC adapter Operated Handy Manicure Finger Toe Acrylic Nail Curing Machine for Home and Professional Salon Beauty (Silver)](https://products.checkmycream.com/products/KMASHI(r)-Mini-Desktop-Seashell-Gel-Nail-Polish-Dryer-Fan-Blower-Battery-Powered-or-DC-adapter-Operated-Handy-Manicure-Finger-Toe-Acrylic-Nail-Curing-Machine-for-Home-and-Professional-Salon-Beauty-(Silver).html)
 
 ### Positive Reviews

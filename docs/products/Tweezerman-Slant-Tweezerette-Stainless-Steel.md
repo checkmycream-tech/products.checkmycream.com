@@ -1,12 +1,3 @@
----
-title: Tweezerman Slant Tweezerette Stainless Steel,
-description: Tweezerman Slant Tweezerette Stainless Steel,
-author: Suvojit Manna,
-tags: Tweezerman Slant Tweezerette Stainless Steel,
-publishedAt: Fri Jan 10 2020 14:59:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:08 GMT+0530 (India Standard Time),
----
-
 # [Tweezerman Slant Tweezerette Stainless Steel](https://products.checkmycream.com/products/Tweezerman-Slant-Tweezerette-Stainless-Steel.html)
 
 ### Positive Reviews

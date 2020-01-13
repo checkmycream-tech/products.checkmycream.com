@@ -1,12 +1,3 @@
----
-title: Lab Series Skincare For Men: Age Rescue Face Lotion,
-description: Lab Series Skincare For Men: Age Rescue Face Lotion,
-author: Suvojit Manna,
-tags: Lab Series Skincare For Men: Age Rescue Face Lotion,
-publishedAt: Fri Jan 10 2020 14:59:09 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:09 GMT+0530 (India Standard Time),
----
-
 # [Lab Series Skincare For Men: Age Rescue Face Lotion](https://products.checkmycream.com/products/Lab-Series-Skincare-For-Men:-Age-Rescue-Face-Lotion.html)
 
 ### Positive Reviews

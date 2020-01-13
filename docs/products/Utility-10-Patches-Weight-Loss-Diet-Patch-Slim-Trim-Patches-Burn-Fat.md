@@ -1,12 +1,3 @@
----
-title: Utility 10 Patches Weight Loss Diet Patch Slim Trim Patches Burn Fat,
-description: Utility 10 Patches Weight Loss Diet Patch Slim Trim Patches Burn Fat,
-author: Suvojit Manna,
-tags: Utility 10 Patches Weight Loss Diet Patch Slim Trim Patches Burn Fat,
-publishedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
----
-
 # [Utility 10 Patches Weight Loss Diet Patch Slim Trim Patches Burn Fat](https://products.checkmycream.com/products/Utility-10-Patches-Weight-Loss-Diet-Patch-Slim-Trim-Patches-Burn-Fat.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Victoria&#x27;s Secret Angel for Women 4.2 oz Eau de Parfum Spray,
-description: Victoria&#x27;s Secret Angel for Women 4.2 oz Eau de Parfum Spray,
-author: Suvojit Manna,
-tags: Victoria&#x27;s Secret Angel for Women 4.2 oz Eau de Parfum Spray,
-publishedAt: Fri Jan 10 2020 15:00:15 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:15 GMT+0530 (India Standard Time),
----
-
 # [Victoria&#x27;s Secret Angel for Women 4.2 oz Eau de Parfum Spray](https://products.checkmycream.com/products/Victoria&#x27;s-Secret-Angel-for-Women-4.2-oz-Eau-de-Parfum-Spray.html)
 
 ### Positive Reviews

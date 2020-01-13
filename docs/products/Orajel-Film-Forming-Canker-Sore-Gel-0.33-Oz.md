@@ -1,12 +1,3 @@
----
-title: Orajel Film-Forming Canker Sore Gel 0.33 Oz,
-description: Orajel Film-Forming Canker Sore Gel 0.33 Oz,
-author: Suvojit Manna,
-tags: Orajel Film-Forming Canker Sore Gel 0.33 Oz,
-publishedAt: Fri Jan 10 2020 14:59:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:08 GMT+0530 (India Standard Time),
----
-
 # [Orajel Film-Forming Canker Sore Gel 0.33 Oz](https://products.checkmycream.com/products/Orajel-Film-Forming-Canker-Sore-Gel-0.33-Oz.html)
 
 ### Positive Reviews

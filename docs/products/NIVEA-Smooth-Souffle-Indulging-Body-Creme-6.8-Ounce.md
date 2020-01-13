@@ -1,12 +1,3 @@
----
-title: NIVEA Smooth Souffle Indulging Body Creme, 6.8 Ounce,
-description: NIVEA Smooth Souffle Indulging Body Creme, 6.8 Ounce,
-author: Suvojit Manna,
-tags: NIVEA Smooth Souffle Indulging Body Creme, 6.8 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
----
-
 # [NIVEA Smooth Souffle Indulging Body Creme, 6.8 Ounce](https://products.checkmycream.com/products/NIVEA-Smooth-Souffle-Indulging-Body-Creme-6.8-Ounce.html)
 
 ### Positive Reviews

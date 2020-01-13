@@ -1,12 +1,3 @@
----
-title: Spornette Porcupine,
-description: Spornette Porcupine,
-author: Suvojit Manna,
-tags: Spornette Porcupine,
-publishedAt: Fri Jan 10 2020 14:59:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:56 GMT+0530 (India Standard Time),
----
-
 # [Spornette Porcupine](https://products.checkmycream.com/products/Spornette-Porcupine.html)
 
 ### Positive Reviews

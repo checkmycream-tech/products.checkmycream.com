@@ -1,12 +1,3 @@
----
-title: uxcell Women Soft Silicone Eyeliner Assistant Aid Guide Makeup Tool Pink,
-description: uxcell Women Soft Silicone Eyeliner Assistant Aid Guide Makeup Tool Pink,
-author: Suvojit Manna,
-tags: uxcell Women Soft Silicone Eyeliner Assistant Aid Guide Makeup Tool Pink,
-publishedAt: Fri Jan 10 2020 15:00:07 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:07 GMT+0530 (India Standard Time),
----
-
 # [uxcell Women Soft Silicone Eyeliner Assistant Aid Guide Makeup Tool Pink](https://products.checkmycream.com/products/uxcell-Women-Soft-Silicone-Eyeliner-Assistant-Aid-Guide-Makeup-Tool-Pink.html)
 
 ### Positive Reviews

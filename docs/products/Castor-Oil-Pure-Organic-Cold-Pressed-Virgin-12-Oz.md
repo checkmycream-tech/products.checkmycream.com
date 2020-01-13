@@ -1,12 +1,3 @@
----
-title: Castor Oil Pure Organic Cold Pressed Virgin 12 Oz,
-description: Castor Oil Pure Organic Cold Pressed Virgin 12 Oz,
-author: Suvojit Manna,
-tags: Castor Oil Pure Organic Cold Pressed Virgin 12 Oz,
-publishedAt: Fri Jan 10 2020 15:00:16 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:16 GMT+0530 (India Standard Time),
----
-
 # [Castor Oil Pure Organic Cold Pressed Virgin 12 Oz](https://products.checkmycream.com/products/Castor-Oil-Pure-Organic-Cold-Pressed-Virgin-12-Oz.html)
 
 ### Positive Reviews

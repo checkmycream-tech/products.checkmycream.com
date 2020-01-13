@@ -1,12 +1,3 @@
----
-title: Tone Bar Soap, Original,
-description: Tone Bar Soap, Original,
-author: Suvojit Manna,
-tags: Tone Bar Soap, Original,
-publishedAt: Fri Jan 10 2020 14:59:30 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:30 GMT+0530 (India Standard Time),
----
-
 # [Tone Bar Soap, Original](https://products.checkmycream.com/products/Tone-Bar-Soap-Original.html)
 
 ### Positive Reviews

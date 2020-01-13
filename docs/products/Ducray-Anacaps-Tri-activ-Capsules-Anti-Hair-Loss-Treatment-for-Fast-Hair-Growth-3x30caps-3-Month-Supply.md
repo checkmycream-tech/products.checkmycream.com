@@ -1,12 +1,3 @@
----
-title: Ducray Anacaps Tri-activ Capsules Anti Hair Loss Treatment for Fast Hair Growth 3x30caps - 3 Month Supply,
-description: Ducray Anacaps Tri-activ Capsules Anti Hair Loss Treatment for Fast Hair Growth 3x30caps - 3 Month Supply,
-author: Suvojit Manna,
-tags: Ducray Anacaps Tri-activ Capsules Anti Hair Loss Treatment for Fast Hair Growth 3x30caps - 3 Month Supply,
-publishedAt: Fri Jan 10 2020 15:00:14 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:14 GMT+0530 (India Standard Time),
----
-
 # [Ducray Anacaps Tri-activ Capsules Anti Hair Loss Treatment for Fast Hair Growth 3x30caps - 3 Month Supply](https://products.checkmycream.com/products/Ducray-Anacaps-Tri-activ-Capsules-Anti-Hair-Loss-Treatment-for-Fast-Hair-Growth-3x30caps-3-Month-Supply.html)
 
 ### Positive Reviews

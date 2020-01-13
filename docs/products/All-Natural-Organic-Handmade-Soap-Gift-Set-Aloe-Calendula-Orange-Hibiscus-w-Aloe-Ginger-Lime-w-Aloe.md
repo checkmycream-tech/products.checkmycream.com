@@ -1,12 +1,3 @@
----
-title: All Natural / Organic Handmade Soap Gift Set - Aloe Calendula, Orange Hibiscus w/ Aloe, Ginger Lime w/ Aloe,
-description: All Natural / Organic Handmade Soap Gift Set - Aloe Calendula, Orange Hibiscus w/ Aloe, Ginger Lime w/ Aloe,
-author: Suvojit Manna,
-tags: All Natural / Organic Handmade Soap Gift Set - Aloe Calendula, Orange Hibiscus w/ Aloe, Ginger Lime w/ Aloe,
-publishedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
----
-
 # [All Natural / Organic Handmade Soap Gift Set - Aloe Calendula, Orange Hibiscus w/ Aloe, Ginger Lime w/ Aloe](https://products.checkmycream.com/products/All-Natural-Organic-Handmade-Soap-Gift-Set-Aloe-Calendula-Orange-Hibiscus-w-Aloe-Ginger-Lime-w-Aloe.html)
 
 ### Positive Reviews

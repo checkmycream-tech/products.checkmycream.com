@@ -1,12 +1,3 @@
----
-title: Interlocking Banana Combs Hair Clip French Side Combs Holder (White),
-description: Interlocking Banana Combs Hair Clip French Side Combs Holder (White),
-author: Suvojit Manna,
-tags: Interlocking Banana Combs Hair Clip French Side Combs Holder (White),
-publishedAt: Fri Jan 10 2020 15:00:10 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:10 GMT+0530 (India Standard Time),
----
-
 # [Interlocking Banana Combs Hair Clip French Side Combs Holder (White)](https://products.checkmycream.com/products/Interlocking-Banana-Combs-Hair-Clip-French-Side-Combs-Holder-(White).html)
 
 ### Positive Reviews

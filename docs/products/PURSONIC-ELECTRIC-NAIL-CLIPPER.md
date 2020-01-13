@@ -1,12 +1,3 @@
----
-title: PURSONIC ELECTRIC NAIL CLIPPER,
-description: PURSONIC ELECTRIC NAIL CLIPPER,
-author: Suvojit Manna,
-tags: PURSONIC ELECTRIC NAIL CLIPPER,
-publishedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
----
-
 # [PURSONIC ELECTRIC NAIL CLIPPER](https://products.checkmycream.com/products/PURSONIC-ELECTRIC-NAIL-CLIPPER.html)
 
 ### Positive Reviews

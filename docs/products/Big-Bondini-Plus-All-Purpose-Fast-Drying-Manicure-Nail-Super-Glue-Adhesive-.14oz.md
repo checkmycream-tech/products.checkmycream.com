@@ -1,12 +1,3 @@
----
-title: Big Bondini Plus All Purpose Fast Drying Manicure Nail Super Glue Adhesive .14oz,
-description: Big Bondini Plus All Purpose Fast Drying Manicure Nail Super Glue Adhesive .14oz,
-author: Suvojit Manna,
-tags: Big Bondini Plus All Purpose Fast Drying Manicure Nail Super Glue Adhesive .14oz,
-publishedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
----
-
 # [Big Bondini Plus All Purpose Fast Drying Manicure Nail Super Glue Adhesive .14oz](https://products.checkmycream.com/products/Big-Bondini-Plus-All-Purpose-Fast-Drying-Manicure-Nail-Super-Glue-Adhesive-.14oz.html)
 
 ### Positive Reviews

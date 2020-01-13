@@ -1,12 +1,3 @@
----
-title: Professional 15pcs Makeup Foundation Mascara Lip Eyeshadow Eyebrow Brushes Set,
-description: Professional 15pcs Makeup Foundation Mascara Lip Eyeshadow Eyebrow Brushes Set,
-author: Suvojit Manna,
-tags: Professional 15pcs Makeup Foundation Mascara Lip Eyeshadow Eyebrow Brushes Set,
-publishedAt: Fri Jan 10 2020 15:01:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:05 GMT+0530 (India Standard Time),
----
-
 # [Professional 15pcs Makeup Foundation Mascara Lip Eyeshadow Eyebrow Brushes Set](https://products.checkmycream.com/products/Professional-15pcs-Makeup-Foundation-Mascara-Lip-Eyeshadow-Eyebrow-Brushes-Set.html)
 
 ### Positive Reviews

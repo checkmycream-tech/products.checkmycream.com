@@ -1,12 +1,3 @@
----
-title: FantaSea cosmetics Pre-Cut Gauze Facial Masks,
-description: FantaSea cosmetics Pre-Cut Gauze Facial Masks,
-author: Suvojit Manna,
-tags: FantaSea cosmetics Pre-Cut Gauze Facial Masks,
-publishedAt: Fri Jan 10 2020 14:59:44 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:44 GMT+0530 (India Standard Time),
----
-
 # [FantaSea cosmetics Pre-Cut Gauze Facial Masks](https://products.checkmycream.com/products/FantaSea-cosmetics-Pre-Cut-Gauze-Facial-Masks.html)
 
 ### Positive Reviews

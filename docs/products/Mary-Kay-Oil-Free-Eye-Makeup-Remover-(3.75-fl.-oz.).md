@@ -1,12 +1,3 @@
----
-title: Mary Kay Oil-Free Eye Makeup Remover (3.75 fl. oz.),
-description: Mary Kay Oil-Free Eye Makeup Remover (3.75 fl. oz.),
-author: Suvojit Manna,
-tags: Mary Kay Oil-Free Eye Makeup Remover (3.75 fl. oz.),
-publishedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
----
-
 # [Mary Kay Oil-Free Eye Makeup Remover (3.75 fl. oz.)](https://products.checkmycream.com/products/Mary-Kay-Oil-Free-Eye-Makeup-Remover-(3.75-fl.-oz.).html)
 
 ### Positive Reviews

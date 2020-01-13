@@ -1,12 +1,3 @@
----
-title: SOAP SAVER mesh bag Net bar POUCH Shower Scrubby SPONGE,
-description: SOAP SAVER mesh bag Net bar POUCH Shower Scrubby SPONGE,
-author: Suvojit Manna,
-tags: SOAP SAVER mesh bag Net bar POUCH Shower Scrubby SPONGE,
-publishedAt: Fri Jan 10 2020 14:59:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:02 GMT+0530 (India Standard Time),
----
-
 # [SOAP SAVER mesh bag Net bar POUCH Shower Scrubby SPONGE](https://products.checkmycream.com/products/SOAP-SAVER-mesh-bag-Net-bar-POUCH-Shower-Scrubby-SPONGE.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Black Tattoo Machine Footswitch Foot Switch Pedal Controller for Power Supply,
-description: Black Tattoo Machine Footswitch Foot Switch Pedal Controller for Power Supply,
-author: Suvojit Manna,
-tags: Black Tattoo Machine Footswitch Foot Switch Pedal Controller for Power Supply,
-publishedAt: Fri Jan 10 2020 14:59:39 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:39 GMT+0530 (India Standard Time),
----
-
 # [Black Tattoo Machine Footswitch Foot Switch Pedal Controller for Power Supply](https://products.checkmycream.com/products/Black-Tattoo-Machine-Footswitch-Foot-Switch-Pedal-Controller-for-Power-Supply.html)
 
 ### Positive Reviews

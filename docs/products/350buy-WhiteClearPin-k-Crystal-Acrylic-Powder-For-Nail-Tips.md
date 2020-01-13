@@ -1,12 +1,3 @@
----
-title: 350buy White/Clear/Pin k Crystal Acrylic Powder For Nail Tips,
-description: 350buy White/Clear/Pin k Crystal Acrylic Powder For Nail Tips,
-author: Suvojit Manna,
-tags: 350buy White/Clear/Pin k Crystal Acrylic Powder For Nail Tips,
-publishedAt: Fri Jan 10 2020 15:00:32 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:32 GMT+0530 (India Standard Time),
----
-
 # [350buy White/Clear/Pin k Crystal Acrylic Powder For Nail Tips](https://products.checkmycream.com/products/350buy-WhiteClearPin-k-Crystal-Acrylic-Powder-For-Nail-Tips.html)
 
 ### Positive Reviews

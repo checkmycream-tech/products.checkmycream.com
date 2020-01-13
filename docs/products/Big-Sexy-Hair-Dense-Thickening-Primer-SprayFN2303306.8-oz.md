@@ -1,12 +1,3 @@
----
-title: Big Sexy Hair Dense Thickening Primer Spray/FN230330/6.8 oz//,
-description: Big Sexy Hair Dense Thickening Primer Spray/FN230330/6.8 oz//,
-author: Suvojit Manna,
-tags: Big Sexy Hair Dense Thickening Primer Spray/FN230330/6.8 oz//,
-publishedAt: Fri Jan 10 2020 15:00:29 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:29 GMT+0530 (India Standard Time),
----
-
 # [Big Sexy Hair Dense Thickening Primer Spray/FN230330/6.8 oz//](https://products.checkmycream.com/products/Big-Sexy-Hair-Dense-Thickening-Primer-SprayFN2303306.8-oz.html)
 
 ### Positive Reviews

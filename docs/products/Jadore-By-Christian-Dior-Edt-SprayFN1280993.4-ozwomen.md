@@ -1,12 +1,3 @@
----
-title: Jadore By Christian Dior Edt Spray/FN128099/3.4 oz/women/,
-description: Jadore By Christian Dior Edt Spray/FN128099/3.4 oz/women/,
-author: Suvojit Manna,
-tags: Jadore By Christian Dior Edt Spray/FN128099/3.4 oz/women/,
-publishedAt: Fri Jan 10 2020 14:59:10 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:10 GMT+0530 (India Standard Time),
----
-
 # [Jadore By Christian Dior Edt Spray/FN128099/3.4 oz/women/](https://products.checkmycream.com/products/Jadore-By-Christian-Dior-Edt-SprayFN1280993.4-ozwomen.html)
 
 ### Positive Reviews

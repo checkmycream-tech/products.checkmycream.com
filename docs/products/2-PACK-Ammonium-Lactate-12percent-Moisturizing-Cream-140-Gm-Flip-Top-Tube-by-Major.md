@@ -1,12 +1,3 @@
----
-title: [2 PACK] Ammonium Lactate 12% Moisturizing Cream 140 Gm Flip-Top Tube by Major,
-description: [2 PACK] Ammonium Lactate 12% Moisturizing Cream 140 Gm Flip-Top Tube by Major,
-author: Suvojit Manna,
-tags: [2 PACK] Ammonium Lactate 12% Moisturizing Cream 140 Gm Flip-Top Tube by Major,
-publishedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
----
-
 # [[2 PACK] Ammonium Lactate 12% Moisturizing Cream 140 Gm Flip-Top Tube by Major](https://products.checkmycream.com/products/2-PACK-Ammonium-Lactate-12percent-Moisturizing-Cream-140-Gm-Flip-Top-Tube-by-Major.html)
 
 ### Positive Reviews

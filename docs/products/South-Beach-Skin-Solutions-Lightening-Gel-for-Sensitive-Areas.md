@@ -1,12 +1,3 @@
----
-title: South Beach Skin Solutions Lightening Gel for Sensitive Areas,
-description: South Beach Skin Solutions Lightening Gel for Sensitive Areas,
-author: Suvojit Manna,
-tags: South Beach Skin Solutions Lightening Gel for Sensitive Areas,
-publishedAt: Fri Jan 10 2020 15:00:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:03 GMT+0530 (India Standard Time),
----
-
 # [South Beach Skin Solutions Lightening Gel for Sensitive Areas](https://products.checkmycream.com/products/South-Beach-Skin-Solutions-Lightening-Gel-for-Sensitive-Areas.html)
 
 ### Positive Reviews

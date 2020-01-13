@@ -1,12 +1,3 @@
----
-title: Pink Armor Nail Gel As Seen On TV Personal Healthcare / Health Care 0.50oz,
-description: Pink Armor Nail Gel As Seen On TV Personal Healthcare / Health Care 0.50oz,
-author: Suvojit Manna,
-tags: Pink Armor Nail Gel As Seen On TV Personal Healthcare / Health Care 0.50oz,
-publishedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
----
-
 # [Pink Armor Nail Gel As Seen On TV Personal Healthcare / Health Care 0.50oz](https://products.checkmycream.com/products/Pink-Armor-Nail-Gel-As-Seen-On-TV-Personal-Healthcare-Health-Care-0.50oz.html)
 
 ### Positive Reviews

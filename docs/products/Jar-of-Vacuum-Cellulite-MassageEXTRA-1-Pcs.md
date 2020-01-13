@@ -1,12 +1,3 @@
----
-title: Jar of Vacuum Cellulite Massage,/EXTRA 1 Pcs,
-description: Jar of Vacuum Cellulite Massage,/EXTRA 1 Pcs,
-author: Suvojit Manna,
-tags: Jar of Vacuum Cellulite Massage,/EXTRA 1 Pcs,
-publishedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
----
-
 # [Jar of Vacuum Cellulite Massage,/EXTRA 1 Pcs](https://products.checkmycream.com/products/Jar-of-Vacuum-Cellulite-MassageEXTRA-1-Pcs.html)
 
 ### Positive Reviews

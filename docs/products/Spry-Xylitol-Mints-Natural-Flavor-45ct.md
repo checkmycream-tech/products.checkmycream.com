@@ -1,12 +1,3 @@
----
-title: Spry Xylitol Mints, Natural Flavor, 45ct,
-description: Spry Xylitol Mints, Natural Flavor, 45ct,
-author: Suvojit Manna,
-tags: Spry Xylitol Mints, Natural Flavor, 45ct,
-publishedAt: Fri Jan 10 2020 14:59:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:58 GMT+0530 (India Standard Time),
----
-
 # [Spry Xylitol Mints, Natural Flavor, 45ct](https://products.checkmycream.com/products/Spry-Xylitol-Mints-Natural-Flavor-45ct.html)
 
 ### Positive Reviews

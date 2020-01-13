@@ -1,12 +1,3 @@
----
-title: BR Carry All Train Case Makeup Set #AL41 46 Piece Kit,
-description: BR Carry All Train Case Makeup Set #AL41 46 Piece Kit,
-author: Suvojit Manna,
-tags: BR Carry All Train Case Makeup Set #AL41 46 Piece Kit,
-publishedAt: Fri Jan 10 2020 15:00:36 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:36 GMT+0530 (India Standard Time),
----
-
 # [BR Carry All Train Case Makeup Set #AL41 46 Piece Kit](https://products.checkmycream.com/products/BR-Carry-All-Train-Case-Makeup-Set-AL41-46-Piece-Kit.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: ASPEN by Coty - Cologne Spray 4 oz - Men,
-description: ASPEN by Coty - Cologne Spray 4 oz - Men,
-author: Suvojit Manna,
-tags: ASPEN by Coty - Cologne Spray 4 oz - Men,
-publishedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
----
-
 # [ASPEN by Coty - Cologne Spray 4 oz - Men](https://products.checkmycream.com/products/ASPEN-by-Coty-Cologne-Spray-4-oz-Men.html)
 
 ### Positive Reviews

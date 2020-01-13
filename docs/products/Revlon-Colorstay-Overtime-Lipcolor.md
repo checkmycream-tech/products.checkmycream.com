@@ -1,12 +1,3 @@
----
-title: Revlon Colorstay Overtime Lipcolor,
-description: Revlon Colorstay Overtime Lipcolor,
-author: Suvojit Manna,
-tags: Revlon Colorstay Overtime Lipcolor,
-publishedAt: Fri Jan 10 2020 14:59:30 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:30 GMT+0530 (India Standard Time),
----
-
 # [Revlon Colorstay Overtime Lipcolor](https://products.checkmycream.com/products/Revlon-Colorstay-Overtime-Lipcolor.html)
 
 ### Positive Reviews

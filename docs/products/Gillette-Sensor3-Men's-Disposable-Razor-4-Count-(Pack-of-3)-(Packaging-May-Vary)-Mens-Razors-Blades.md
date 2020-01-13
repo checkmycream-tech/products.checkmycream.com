@@ -1,12 +1,3 @@
----
-title: Gillette Sensor3 Men&#x27;s Disposable Razor, 4 Count (Pack of 3) (Packaging May Vary), Mens Razors / Blades,
-description: Gillette Sensor3 Men&#x27;s Disposable Razor, 4 Count (Pack of 3) (Packaging May Vary), Mens Razors / Blades,
-author: Suvojit Manna,
-tags: Gillette Sensor3 Men&#x27;s Disposable Razor, 4 Count (Pack of 3) (Packaging May Vary), Mens Razors / Blades,
-publishedAt: Fri Jan 10 2020 14:59:29 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:29 GMT+0530 (India Standard Time),
----
-
 # [Gillette Sensor3 Men&#x27;s Disposable Razor, 4 Count (Pack of 3) (Packaging May Vary), Mens Razors / Blades](https://products.checkmycream.com/products/Gillette-Sensor3-Men&#x27;s-Disposable-Razor-4-Count-(Pack-of-3)-(Packaging-May-Vary)-Mens-Razors-Blades.html)
 
 ### Positive Reviews

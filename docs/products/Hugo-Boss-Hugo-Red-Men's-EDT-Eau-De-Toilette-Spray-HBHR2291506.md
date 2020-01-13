@@ -1,12 +1,3 @@
----
-title: Hugo Boss Hugo Red Men&#x27;s EDT Eau De Toilette Spray - HBHR2291506,
-description: Hugo Boss Hugo Red Men&#x27;s EDT Eau De Toilette Spray - HBHR2291506,
-author: Suvojit Manna,
-tags: Hugo Boss Hugo Red Men&#x27;s EDT Eau De Toilette Spray - HBHR2291506,
-publishedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
----
-
 # [Hugo Boss Hugo Red Men&#x27;s EDT Eau De Toilette Spray - HBHR2291506](https://products.checkmycream.com/products/Hugo-Boss-Hugo-Red-Men&#x27;s-EDT-Eau-De-Toilette-Spray-HBHR2291506.html)
 
 ### Positive Reviews

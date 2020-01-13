@@ -1,12 +1,3 @@
----
-title: Change New Fashion Knitted Warm Men Scarf Fall/winter Wrap Muti-color Stripes (Black),
-description: Change New Fashion Knitted Warm Men Scarf Fall/winter Wrap Muti-color Stripes (Black),
-author: Suvojit Manna,
-tags: Change New Fashion Knitted Warm Men Scarf Fall/winter Wrap Muti-color Stripes (Black),
-publishedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
----
-
 # [Change New Fashion Knitted Warm Men Scarf Fall/winter Wrap Muti-color Stripes (Black)](https://products.checkmycream.com/products/Change-New-Fashion-Knitted-Warm-Men-Scarf-Fallwinter-Wrap-Muti-color-Stripes-(Black).html)
 
 ### Positive Reviews

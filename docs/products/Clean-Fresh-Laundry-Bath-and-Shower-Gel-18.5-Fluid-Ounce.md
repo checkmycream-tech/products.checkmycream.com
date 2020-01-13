@@ -1,12 +1,3 @@
----
-title: Clean Fresh Laundry, Bath and Shower Gel, 18.5 Fluid Ounce,
-description: Clean Fresh Laundry, Bath and Shower Gel, 18.5 Fluid Ounce,
-author: Suvojit Manna,
-tags: Clean Fresh Laundry, Bath and Shower Gel, 18.5 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 14:59:51 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:51 GMT+0530 (India Standard Time),
----
-
 # [Clean Fresh Laundry, Bath and Shower Gel, 18.5 Fluid Ounce](https://products.checkmycream.com/products/Clean-Fresh-Laundry-Bath-and-Shower-Gel-18.5-Fluid-Ounce.html)
 
 ### Positive Reviews

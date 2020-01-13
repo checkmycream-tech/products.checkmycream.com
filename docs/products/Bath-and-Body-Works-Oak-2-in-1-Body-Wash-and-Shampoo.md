@@ -1,12 +1,3 @@
----
-title: Bath and Body Works Oak 2 in 1 Body Wash and Shampoo,
-description: Bath and Body Works Oak 2 in 1 Body Wash and Shampoo,
-author: Suvojit Manna,
-tags: Bath and Body Works Oak 2 in 1 Body Wash and Shampoo,
-publishedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
----
-
 # [Bath and Body Works Oak 2 in 1 Body Wash and Shampoo](https://products.checkmycream.com/products/Bath-and-Body-Works-Oak-2-in-1-Body-Wash-and-Shampoo.html)
 
 ### Positive Reviews

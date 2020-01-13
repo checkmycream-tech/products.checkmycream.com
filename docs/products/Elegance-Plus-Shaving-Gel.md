@@ -1,12 +1,3 @@
----
-title: Elegance Plus Shaving Gel,
-description: Elegance Plus Shaving Gel,
-author: Suvojit Manna,
-tags: Elegance Plus Shaving Gel,
-publishedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
----
-
 # [Elegance Plus Shaving Gel](https://products.checkmycream.com/products/Elegance-Plus-Shaving-Gel.html)
 
 ### Positive Reviews

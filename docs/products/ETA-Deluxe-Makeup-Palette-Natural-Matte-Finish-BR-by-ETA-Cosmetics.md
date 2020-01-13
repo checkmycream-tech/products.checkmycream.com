@@ -1,12 +1,3 @@
----
-title: ETA Deluxe Makeup Palette Natural Matte Finish BR by ETA Cosmetics,
-description: ETA Deluxe Makeup Palette Natural Matte Finish BR by ETA Cosmetics,
-author: Suvojit Manna,
-tags: ETA Deluxe Makeup Palette Natural Matte Finish BR by ETA Cosmetics,
-publishedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
----
-
 # [ETA Deluxe Makeup Palette Natural Matte Finish BR by ETA Cosmetics](https://products.checkmycream.com/products/ETA-Deluxe-Makeup-Palette-Natural-Matte-Finish-BR-by-ETA-Cosmetics.html)
 
 ### Positive Reviews

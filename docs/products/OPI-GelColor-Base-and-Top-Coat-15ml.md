@@ -1,12 +1,3 @@
----
-title: OPI GelColor Base &amp; Top Coat 15ml,
-description: OPI GelColor Base &amp; Top Coat 15ml,
-author: Suvojit Manna,
-tags: OPI GelColor Base &amp; Top Coat 15ml,
-publishedAt: Fri Jan 10 2020 15:00:17 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:17 GMT+0530 (India Standard Time),
----
-
 # [OPI GelColor Base &amp; Top Coat 15ml](https://products.checkmycream.com/products/OPI-GelColor-Base-and-Top-Coat-15ml.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Perfect Beauty Round Metal Double Cosmetic Sharpener - Made in Germany,
-description: Perfect Beauty Round Metal Double Cosmetic Sharpener - Made in Germany,
-author: Suvojit Manna,
-tags: Perfect Beauty Round Metal Double Cosmetic Sharpener - Made in Germany,
-publishedAt: Fri Jan 10 2020 14:59:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:08 GMT+0530 (India Standard Time),
----
-
 # [Perfect Beauty Round Metal Double Cosmetic Sharpener - Made in Germany](https://products.checkmycream.com/products/Perfect-Beauty-Round-Metal-Double-Cosmetic-Sharpener-Made-in-Germany.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Gillette Fusion Proglide Styler + Fusion Proglide Sensitive Shave Gel 7 Oz,
-description: Gillette Fusion Proglide Styler + Fusion Proglide Sensitive Shave Gel 7 Oz,
-author: Suvojit Manna,
-tags: Gillette Fusion Proglide Styler + Fusion Proglide Sensitive Shave Gel 7 Oz,
-publishedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
----
-
 # [Gillette Fusion Proglide Styler + Fusion Proglide Sensitive Shave Gel 7 Oz](https://products.checkmycream.com/products/Gillette-Fusion-Proglide-Styler-+-Fusion-Proglide-Sensitive-Shave-Gel-7-Oz.html)
 
 ### Positive Reviews

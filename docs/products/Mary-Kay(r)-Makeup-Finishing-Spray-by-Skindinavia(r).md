@@ -1,12 +1,3 @@
----
-title: Mary Kay® Makeup Finishing Spray by Skindinävia®,
-description: Mary Kay® Makeup Finishing Spray by Skindinävia®,
-author: Suvojit Manna,
-tags: Mary Kay® Makeup Finishing Spray by Skindinävia®,
-publishedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
----
-
 # [Mary Kay® Makeup Finishing Spray by Skindinävia®](https://products.checkmycream.com/products/Mary-Kay(r)-Makeup-Finishing-Spray-by-Skindinavia(r).html)
 
 ### Positive Reviews

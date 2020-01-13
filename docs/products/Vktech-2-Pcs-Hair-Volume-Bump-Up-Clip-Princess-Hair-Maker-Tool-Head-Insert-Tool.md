@@ -1,12 +1,3 @@
----
-title: Vktech 2 Pcs Hair Volume Bump Up Clip Princess Hair Maker Tool Head Insert Tool,
-description: Vktech 2 Pcs Hair Volume Bump Up Clip Princess Hair Maker Tool Head Insert Tool,
-author: Suvojit Manna,
-tags: Vktech 2 Pcs Hair Volume Bump Up Clip Princess Hair Maker Tool Head Insert Tool,
-publishedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:42 GMT+0530 (India Standard Time),
----
-
 # [Vktech 2 Pcs Hair Volume Bump Up Clip Princess Hair Maker Tool Head Insert Tool](https://products.checkmycream.com/products/Vktech-2-Pcs-Hair-Volume-Bump-Up-Clip-Princess-Hair-Maker-Tool-Head-Insert-Tool.html)
 
 ### Positive Reviews

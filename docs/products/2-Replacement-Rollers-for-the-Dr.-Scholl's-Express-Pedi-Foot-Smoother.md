@@ -1,12 +1,3 @@
----
-title: 2 Replacement Rollers for the Dr. Scholl&#x27;s Express Pedi Foot Smoother,
-description: 2 Replacement Rollers for the Dr. Scholl&#x27;s Express Pedi Foot Smoother,
-author: Suvojit Manna,
-tags: 2 Replacement Rollers for the Dr. Scholl&#x27;s Express Pedi Foot Smoother,
-publishedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
----
-
 # [2 Replacement Rollers for the Dr. Scholl&#x27;s Express Pedi Foot Smoother](https://products.checkmycream.com/products/2-Replacement-Rollers-for-the-Dr.-Scholl&#x27;s-Express-Pedi-Foot-Smoother.html)
 
 ### Positive Reviews

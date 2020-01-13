@@ -1,12 +1,3 @@
----
-title: eos - Smooth Sphere Lip Balm Blueberry Acai,
-description: eos - Smooth Sphere Lip Balm Blueberry Acai,
-author: Suvojit Manna,
-tags: eos - Smooth Sphere Lip Balm Blueberry Acai,
-publishedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
----
-
 # [eos - Smooth Sphere Lip Balm Blueberry Acai](https://products.checkmycream.com/products/eos-Smooth-Sphere-Lip-Balm-Blueberry-Acai.html)
 
 ### Positive Reviews

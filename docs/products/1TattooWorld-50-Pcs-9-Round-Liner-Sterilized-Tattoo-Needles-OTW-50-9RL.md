@@ -1,12 +1,3 @@
----
-title: 1TattooWorld 50 Pcs 9 Round Liner Sterilized Tattoo Needles, OTW-50-9RL,
-description: 1TattooWorld 50 Pcs 9 Round Liner Sterilized Tattoo Needles, OTW-50-9RL,
-author: Suvojit Manna,
-tags: 1TattooWorld 50 Pcs 9 Round Liner Sterilized Tattoo Needles, OTW-50-9RL,
-publishedAt: Fri Jan 10 2020 14:59:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:57 GMT+0530 (India Standard Time),
----
-
 # [1TattooWorld 50 Pcs 9 Round Liner Sterilized Tattoo Needles, OTW-50-9RL](https://products.checkmycream.com/products/1TattooWorld-50-Pcs-9-Round-Liner-Sterilized-Tattoo-Needles-OTW-50-9RL.html)
 
 ### Positive Reviews

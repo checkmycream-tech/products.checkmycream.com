@@ -1,12 +1,3 @@
----
-title: Harmony Gelish Top-it-off &quot;Top Coat Gel .5oz&quot; Ship Now,
-description: Harmony Gelish Top-it-off &quot;Top Coat Gel .5oz&quot; Ship Now,
-author: Suvojit Manna,
-tags: Harmony Gelish Top-it-off &quot;Top Coat Gel .5oz&quot; Ship Now,
-publishedAt: Fri Jan 10 2020 15:00:15 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:15 GMT+0530 (India Standard Time),
----
-
 # [Harmony Gelish Top-it-off &quot;Top Coat Gel .5oz&quot; Ship Now](https://products.checkmycream.com/products/Harmony-Gelish-Top-it-off-&quot;Top-Coat-Gel-.5oz&quot;-Ship-Now.html)
 
 ### Positive Reviews

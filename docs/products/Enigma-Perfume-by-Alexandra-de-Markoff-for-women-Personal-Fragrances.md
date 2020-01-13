@@ -1,12 +1,3 @@
----
-title: Enigma Perfume by Alexandra de Markoff for women Personal Fragrances,
-description: Enigma Perfume by Alexandra de Markoff for women Personal Fragrances,
-author: Suvojit Manna,
-tags: Enigma Perfume by Alexandra de Markoff for women Personal Fragrances,
-publishedAt: Fri Jan 10 2020 14:59:06 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:06 GMT+0530 (India Standard Time),
----
-
 # [Enigma Perfume by Alexandra de Markoff for women Personal Fragrances](https://products.checkmycream.com/products/Enigma-Perfume-by-Alexandra-de-Markoff-for-women-Personal-Fragrances.html)
 
 ### Positive Reviews

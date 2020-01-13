@@ -1,12 +1,3 @@
----
-title: MAC matte lipstick PLEASE ME,
-description: MAC matte lipstick PLEASE ME,
-author: Suvojit Manna,
-tags: MAC matte lipstick PLEASE ME,
-publishedAt: Fri Jan 10 2020 14:59:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:02 GMT+0530 (India Standard Time),
----
-
 # [MAC matte lipstick PLEASE ME](https://products.checkmycream.com/products/MAC-matte-lipstick-PLEASE-ME.html)
 
 ### Positive Reviews

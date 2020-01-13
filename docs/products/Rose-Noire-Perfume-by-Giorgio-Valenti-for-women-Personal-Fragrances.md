@@ -1,12 +1,3 @@
----
-title: Rose Noire Perfume by Giorgio Valenti for women Personal Fragrances,
-description: Rose Noire Perfume by Giorgio Valenti for women Personal Fragrances,
-author: Suvojit Manna,
-tags: Rose Noire Perfume by Giorgio Valenti for women Personal Fragrances,
-publishedAt: Fri Jan 10 2020 14:59:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:01 GMT+0530 (India Standard Time),
----
-
 # [Rose Noire Perfume by Giorgio Valenti for women Personal Fragrances](https://products.checkmycream.com/products/Rose-Noire-Perfume-by-Giorgio-Valenti-for-women-Personal-Fragrances.html)
 
 ### Positive Reviews

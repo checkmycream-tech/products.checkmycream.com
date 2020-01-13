@@ -1,12 +1,3 @@
----
-title: CICI&amp;SISI Large Wave Acrylic Makeup Brush Holder Organizer,
-description: CICI&amp;SISI Large Wave Acrylic Makeup Brush Holder Organizer,
-author: Suvojit Manna,
-tags: CICI&amp;SISI Large Wave Acrylic Makeup Brush Holder Organizer,
-publishedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
----
-
 # [CICI&amp;SISI Large Wave Acrylic Makeup Brush Holder Organizer](https://products.checkmycream.com/products/CICIandSISI-Large-Wave-Acrylic-Makeup-Brush-Holder-Organizer.html)
 
 ### Positive Reviews

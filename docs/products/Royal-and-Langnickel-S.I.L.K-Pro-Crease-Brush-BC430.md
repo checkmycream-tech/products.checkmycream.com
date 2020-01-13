@@ -1,12 +1,3 @@
----
-title: Royal &amp; Langnickel S.I.L.K Pro Crease Brush BC430,
-description: Royal &amp; Langnickel S.I.L.K Pro Crease Brush BC430,
-author: Suvojit Manna,
-tags: Royal &amp; Langnickel S.I.L.K Pro Crease Brush BC430,
-publishedAt: Fri Jan 10 2020 14:59:42 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:42 GMT+0530 (India Standard Time),
----
-
 # [Royal &amp; Langnickel S.I.L.K Pro Crease Brush BC430](https://products.checkmycream.com/products/Royal-and-Langnickel-S.I.L.K-Pro-Crease-Brush-BC430.html)
 
 ### Positive Reviews

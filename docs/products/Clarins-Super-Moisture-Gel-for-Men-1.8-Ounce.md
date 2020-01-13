@@ -1,12 +1,3 @@
----
-title: Clarins Super Moisture Gel for Men, 1.8 Ounce,
-description: Clarins Super Moisture Gel for Men, 1.8 Ounce,
-author: Suvojit Manna,
-tags: Clarins Super Moisture Gel for Men, 1.8 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:08 GMT+0530 (India Standard Time),
----
-
 # [Clarins Super Moisture Gel for Men, 1.8 Ounce](https://products.checkmycream.com/products/Clarins-Super-Moisture-Gel-for-Men-1.8-Ounce.html)
 
 ### Positive Reviews

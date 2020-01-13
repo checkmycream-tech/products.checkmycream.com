@@ -1,12 +1,3 @@
----
-title: Glowby: Set of 4 BOW GLOWBY (1 pink, 1 green, 1 white, and 1 blue) LED Fiber Optic Light-Up Hair Barette,
-description: Glowby: Set of 4 BOW GLOWBY (1 pink, 1 green, 1 white, and 1 blue) LED Fiber Optic Light-Up Hair Barette,
-author: Suvojit Manna,
-tags: Glowby: Set of 4 BOW GLOWBY (1 pink, 1 green, 1 white, and 1 blue) LED Fiber Optic Light-Up Hair Barette,
-publishedAt: Fri Jan 10 2020 15:00:21 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:21 GMT+0530 (India Standard Time),
----
-
 # [Glowby: Set of 4 BOW GLOWBY (1 pink, 1 green, 1 white, and 1 blue) LED Fiber Optic Light-Up Hair Barette](https://products.checkmycream.com/products/Glowby:-Set-of-4-BOW-GLOWBY-(1-pink-1-green-1-white-and-1-blue)-LED-Fiber-Optic-Light-Up-Hair-Barette.html)
 
 ### Positive Reviews

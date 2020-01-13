@@ -1,12 +1,3 @@
----
-title: Aveeno Nourish + Conditioner,
-description: Aveeno Nourish + Conditioner,
-author: Suvojit Manna,
-tags: Aveeno Nourish + Conditioner,
-publishedAt: Fri Jan 10 2020 14:59:32 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:32 GMT+0530 (India Standard Time),
----
-
 # [Aveeno Nourish + Conditioner](https://products.checkmycream.com/products/Aveeno-Nourish-+-Conditioner.html)
 
 ### Positive Reviews

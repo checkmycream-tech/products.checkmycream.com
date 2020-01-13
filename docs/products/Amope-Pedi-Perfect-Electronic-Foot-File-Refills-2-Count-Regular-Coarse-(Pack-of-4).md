@@ -1,12 +1,3 @@
----
-title: Amopé Pedi Perfect Electronic Foot File Refills, 2 Count, Regular Coarse (Pack of 4),
-description: Amopé Pedi Perfect Electronic Foot File Refills, 2 Count, Regular Coarse (Pack of 4),
-author: Suvojit Manna,
-tags: Amopé Pedi Perfect Electronic Foot File Refills, 2 Count, Regular Coarse (Pack of 4),
-publishedAt: Fri Jan 10 2020 15:01:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:05 GMT+0530 (India Standard Time),
----
-
 # [Amopé Pedi Perfect Electronic Foot File Refills, 2 Count, Regular Coarse (Pack of 4)](https://products.checkmycream.com/products/Amope-Pedi-Perfect-Electronic-Foot-File-Refills-2-Count-Regular-Coarse-(Pack-of-4).html)
 
 ### Positive Reviews

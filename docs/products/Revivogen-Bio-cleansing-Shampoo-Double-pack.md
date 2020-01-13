@@ -1,12 +1,3 @@
----
-title: Revivogen Bio-cleansing Shampoo, Double pack,
-description: Revivogen Bio-cleansing Shampoo, Double pack,
-author: Suvojit Manna,
-tags: Revivogen Bio-cleansing Shampoo, Double pack,
-publishedAt: Fri Jan 10 2020 15:00:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:01 GMT+0530 (India Standard Time),
----
-
 # [Revivogen Bio-cleansing Shampoo, Double pack](https://products.checkmycream.com/products/Revivogen-Bio-cleansing-Shampoo-Double-pack.html)
 
 ### Positive Reviews

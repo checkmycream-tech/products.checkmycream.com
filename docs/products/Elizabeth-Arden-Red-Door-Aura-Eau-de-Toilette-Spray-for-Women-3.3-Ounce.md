@@ -1,12 +1,3 @@
----
-title: Elizabeth Arden Red Door Aura Eau de Toilette Spray for Women, 3.3 Ounce,
-description: Elizabeth Arden Red Door Aura Eau de Toilette Spray for Women, 3.3 Ounce,
-author: Suvojit Manna,
-tags: Elizabeth Arden Red Door Aura Eau de Toilette Spray for Women, 3.3 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
----
-
 # [Elizabeth Arden Red Door Aura Eau de Toilette Spray for Women, 3.3 Ounce](https://products.checkmycream.com/products/Elizabeth-Arden-Red-Door-Aura-Eau-de-Toilette-Spray-for-Women-3.3-Ounce.html)
 
 ### Positive Reviews

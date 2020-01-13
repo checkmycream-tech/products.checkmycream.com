@@ -1,12 +1,3 @@
----
-title: 10 NEW Assorted Indoor Tanning Bed Lotion Packets From Australian Gold California Tan Swedish Beauty Designer Skin Supre Devoted Creations &amp; many more Top Selling Lotion Brands in the Industry 10 Pack Sample Packettes,
-description: 10 NEW Assorted Indoor Tanning Bed Lotion Packets From Australian Gold California Tan Swedish Beauty Designer Skin Supre Devoted Creations &amp; many more Top Selling Lotion Brands in the Industry 10 Pack Sample Packettes,
-author: Suvojit Manna,
-tags: 10 NEW Assorted Indoor Tanning Bed Lotion Packets From Australian Gold California Tan Swedish Beauty Designer Skin Supre Devoted Creations &amp; many more Top Selling Lotion Brands in the Industry 10 Pack Sample Packettes,
-publishedAt: Fri Jan 10 2020 14:59:51 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:51 GMT+0530 (India Standard Time),
----
-
 # [10 NEW Assorted Indoor Tanning Bed Lotion Packets From Australian Gold California Tan Swedish Beauty Designer Skin Supre Devoted Creations &amp; many more Top Selling Lotion Brands in the Industry 10 Pack Sample Packettes](https://products.checkmycream.com/products/10-NEW-Assorted-Indoor-Tanning-Bed-Lotion-Packets-From-Australian-Gold-California-Tan-Swedish-Beauty-Designer-Skin-Supre-Devoted-Creations-and-many-more-Top-Selling-Lotion-Brands-in-the-Industry-10-Pack-Sample-Packettes.html)
 
 ### Positive Reviews

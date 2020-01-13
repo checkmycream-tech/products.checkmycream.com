@@ -1,12 +1,3 @@
----
-title: Eminence Monoi Age Corrective Exfoliating Cleanser - 8.4 oz,
-description: Eminence Monoi Age Corrective Exfoliating Cleanser - 8.4 oz,
-author: Suvojit Manna,
-tags: Eminence Monoi Age Corrective Exfoliating Cleanser - 8.4 oz,
-publishedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
----
-
 # [Eminence Monoi Age Corrective Exfoliating Cleanser - 8.4 oz](https://products.checkmycream.com/products/Eminence-Monoi-Age-Corrective-Exfoliating-Cleanser-8.4-oz.html)
 
 ### Positive Reviews

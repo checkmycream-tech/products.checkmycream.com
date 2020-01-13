@@ -1,12 +1,3 @@
----
-title: Mary Kay Make Up Brush Cleaner, 6oz,
-description: Mary Kay Make Up Brush Cleaner, 6oz,
-author: Suvojit Manna,
-tags: Mary Kay Make Up Brush Cleaner, 6oz,
-publishedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
----
-
 # [Mary Kay Make Up Brush Cleaner, 6oz](https://products.checkmycream.com/products/Mary-Kay-Make-Up-Brush-Cleaner-6oz.html)
 
 ### Positive Reviews

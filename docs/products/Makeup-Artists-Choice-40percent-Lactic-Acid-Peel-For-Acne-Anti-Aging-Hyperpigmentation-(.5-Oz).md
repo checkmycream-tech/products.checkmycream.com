@@ -1,12 +1,3 @@
----
-title: Makeup Artists Choice 40% Lactic Acid Peel For Acne, Anti Aging, Hyperpigmentation (.5 Oz),
-description: Makeup Artists Choice 40% Lactic Acid Peel For Acne, Anti Aging, Hyperpigmentation (.5 Oz),
-author: Suvojit Manna,
-tags: Makeup Artists Choice 40% Lactic Acid Peel For Acne, Anti Aging, Hyperpigmentation (.5 Oz),
-publishedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
----
-
 # [Makeup Artists Choice 40% Lactic Acid Peel For Acne, Anti Aging, Hyperpigmentation (.5 Oz)](https://products.checkmycream.com/products/Makeup-Artists-Choice-40percent-Lactic-Acid-Peel-For-Acne-Anti-Aging-Hyperpigmentation-(.5-Oz).html)
 
 ### Positive Reviews

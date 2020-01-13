@@ -1,12 +1,3 @@
----
-title: Andoer 1 Pair Black Magnetic Fake Cheater Ear Expander Taper Plug Stretcher 4g 5mm,
-description: Andoer 1 Pair Black Magnetic Fake Cheater Ear Expander Taper Plug Stretcher 4g 5mm,
-author: Suvojit Manna,
-tags: Andoer 1 Pair Black Magnetic Fake Cheater Ear Expander Taper Plug Stretcher 4g 5mm,
-publishedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
----
-
 # [Andoer 1 Pair Black Magnetic Fake Cheater Ear Expander Taper Plug Stretcher 4g 5mm](https://products.checkmycream.com/products/Andoer-1-Pair-Black-Magnetic-Fake-Cheater-Ear-Expander-Taper-Plug-Stretcher-4g-5mm.html)
 
 ### Positive Reviews

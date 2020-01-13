@@ -1,12 +1,3 @@
----
-title: ASSEM 12W UV Nail Lamp Light LED Nail Dryer and Curing, Fast Drying and Fast Curing, Timing Control Display,
-description: ASSEM 12W UV Nail Lamp Light LED Nail Dryer and Curing, Fast Drying and Fast Curing, Timing Control Display,
-author: Suvojit Manna,
-tags: ASSEM 12W UV Nail Lamp Light LED Nail Dryer and Curing, Fast Drying and Fast Curing, Timing Control Display,
-publishedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
----
-
 # [ASSEM 12W UV Nail Lamp Light LED Nail Dryer and Curing, Fast Drying and Fast Curing, Timing Control Display](https://products.checkmycream.com/products/ASSEM-12W-UV-Nail-Lamp-Light-LED-Nail-Dryer-and-Curing-Fast-Drying-and-Fast-Curing-Timing-Control-Display.html)
 
 ### Positive Reviews

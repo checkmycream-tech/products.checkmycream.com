@@ -1,12 +1,3 @@
----
-title: Revlon Colorstay Ultimate Liquid Lipstick - Platinum Petal (005),
-description: Revlon Colorstay Ultimate Liquid Lipstick - Platinum Petal (005),
-author: Suvojit Manna,
-tags: Revlon Colorstay Ultimate Liquid Lipstick - Platinum Petal (005),
-publishedAt: Fri Jan 10 2020 14:59:37 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:37 GMT+0530 (India Standard Time),
----
-
 # [Revlon Colorstay Ultimate Liquid Lipstick - Platinum Petal (005)](https://products.checkmycream.com/products/Revlon-Colorstay-Ultimate-Liquid-Lipstick-Platinum-Petal-(005).html)
 
 ### Positive Reviews

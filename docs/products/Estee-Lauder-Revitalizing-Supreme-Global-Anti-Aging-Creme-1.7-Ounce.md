@@ -1,12 +1,3 @@
----
-title: Estee Lauder Revitalizing Supreme Global Anti-Aging Creme, 1.7 Ounce,
-description: Estee Lauder Revitalizing Supreme Global Anti-Aging Creme, 1.7 Ounce,
-author: Suvojit Manna,
-tags: Estee Lauder Revitalizing Supreme Global Anti-Aging Creme, 1.7 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:18 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:18 GMT+0530 (India Standard Time),
----
-
 # [Estee Lauder Revitalizing Supreme Global Anti-Aging Creme, 1.7 Ounce](https://products.checkmycream.com/products/Estee-Lauder-Revitalizing-Supreme-Global-Anti-Aging-Creme-1.7-Ounce.html)
 
 ### Positive Reviews

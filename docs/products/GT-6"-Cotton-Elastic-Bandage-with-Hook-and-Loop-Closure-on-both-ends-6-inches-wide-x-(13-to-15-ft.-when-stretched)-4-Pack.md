@@ -1,12 +1,3 @@
----
-title: GT 6&quot; Cotton Elastic Bandage with Hook &amp; Loop Closure on both ends, 6 inches wide x (13 to 15 ft. when stretched), 4 Pack,
-description: GT 6&quot; Cotton Elastic Bandage with Hook &amp; Loop Closure on both ends, 6 inches wide x (13 to 15 ft. when stretched), 4 Pack,
-author: Suvojit Manna,
-tags: GT 6&quot; Cotton Elastic Bandage with Hook &amp; Loop Closure on both ends, 6 inches wide x (13 to 15 ft. when stretched), 4 Pack,
-publishedAt: Fri Jan 10 2020 15:00:45 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:45 GMT+0530 (India Standard Time),
----
-
 # [GT 6&quot; Cotton Elastic Bandage with Hook &amp; Loop Closure on both ends, 6 inches wide x (13 to 15 ft. when stretched), 4 Pack](https://products.checkmycream.com/products/GT-6&quot;-Cotton-Elastic-Bandage-with-Hook-and-Loop-Closure-on-both-ends-6-inches-wide-x-(13-to-15-ft.-when-stretched)-4-Pack.html)
 
 ### Positive Reviews

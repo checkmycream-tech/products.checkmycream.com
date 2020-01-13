@@ -1,12 +1,3 @@
----
-title: Donna Karan Be Delicious Eau So Intense Women Eau De Parfum Spray,
-description: Donna Karan Be Delicious Eau So Intense Women Eau De Parfum Spray,
-author: Suvojit Manna,
-tags: Donna Karan Be Delicious Eau So Intense Women Eau De Parfum Spray,
-publishedAt: Fri Jan 10 2020 15:00:30 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:30 GMT+0530 (India Standard Time),
----
-
 # [Donna Karan Be Delicious Eau So Intense Women Eau De Parfum Spray](https://products.checkmycream.com/products/Donna-Karan-Be-Delicious-Eau-So-Intense-Women-Eau-De-Parfum-Spray.html)
 
 ### Positive Reviews

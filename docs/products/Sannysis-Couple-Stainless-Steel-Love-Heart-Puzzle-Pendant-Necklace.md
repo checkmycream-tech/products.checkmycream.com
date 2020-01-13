@@ -1,12 +1,3 @@
----
-title: Sannysis Couple Stainless Steel Love Heart Puzzle Pendant Necklace,
-description: Sannysis Couple Stainless Steel Love Heart Puzzle Pendant Necklace,
-author: Suvojit Manna,
-tags: Sannysis Couple Stainless Steel Love Heart Puzzle Pendant Necklace,
-publishedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
----
-
 # [Sannysis Couple Stainless Steel Love Heart Puzzle Pendant Necklace](https://products.checkmycream.com/products/Sannysis-Couple-Stainless-Steel-Love-Heart-Puzzle-Pendant-Necklace.html)
 
 ### Positive Reviews

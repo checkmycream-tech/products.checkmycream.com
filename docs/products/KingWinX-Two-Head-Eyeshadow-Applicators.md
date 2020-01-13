@@ -1,12 +1,3 @@
----
-title: KingWinX Two Head Eyeshadow Applicators,
-description: KingWinX Two Head Eyeshadow Applicators,
-author: Suvojit Manna,
-tags: KingWinX Two Head Eyeshadow Applicators,
-publishedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
----
-
 # [KingWinX Two Head Eyeshadow Applicators](https://products.checkmycream.com/products/KingWinX-Two-Head-Eyeshadow-Applicators.html)
 
 ### Positive Reviews

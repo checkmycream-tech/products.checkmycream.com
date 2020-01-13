@@ -1,12 +1,3 @@
----
-title: Salerm Vegetable Placenta Restructurer 4 Applications Big Sale,
-description: Salerm Vegetable Placenta Restructurer 4 Applications Big Sale,
-author: Suvojit Manna,
-tags: Salerm Vegetable Placenta Restructurer 4 Applications Big Sale,
-publishedAt: Fri Jan 10 2020 14:59:15 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:15 GMT+0530 (India Standard Time),
----
-
 # [Salerm Vegetable Placenta Restructurer 4 Applications Big Sale](https://products.checkmycream.com/products/Salerm-Vegetable-Placenta-Restructurer-4-Applications-Big-Sale.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Basic Dental Instruments Set Mirror Explorer C. Plier By Aromaticworld,
-description: Basic Dental Instruments Set Mirror Explorer C. Plier By Aromaticworld,
-author: Suvojit Manna,
-tags: Basic Dental Instruments Set Mirror Explorer C. Plier By Aromaticworld,
-publishedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
----
-
 # [Basic Dental Instruments Set Mirror Explorer C. Plier By Aromaticworld](https://products.checkmycream.com/products/Basic-Dental-Instruments-Set-Mirror-Explorer-C.-Plier-By-Aromaticworld.html)
 
 ### Positive Reviews

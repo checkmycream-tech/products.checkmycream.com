@@ -1,12 +1,3 @@
----
-title: Yellow Beeswax Bees Wax Organic Pastilles Beads Premium Prime Grade A 100% Pure 16 oz, 1 LB, 454 g,
-description: Yellow Beeswax Bees Wax Organic Pastilles Beads Premium Prime Grade A 100% Pure 16 oz, 1 LB, 454 g,
-author: Suvojit Manna,
-tags: Yellow Beeswax Bees Wax Organic Pastilles Beads Premium Prime Grade A 100% Pure 16 oz, 1 LB, 454 g,
-publishedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
----
-
 # [Yellow Beeswax Bees Wax Organic Pastilles Beads Premium Prime Grade A 100% Pure 16 oz, 1 LB, 454 g](https://products.checkmycream.com/products/Yellow-Beeswax-Bees-Wax-Organic-Pastilles-Beads-Premium-Prime-Grade-A-100percent-Pure-16-oz-1-LB-454-g.html)
 
 ### Positive Reviews

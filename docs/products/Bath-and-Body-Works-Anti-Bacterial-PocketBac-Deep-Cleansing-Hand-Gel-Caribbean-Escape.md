@@ -1,12 +1,3 @@
----
-title: Bath and Body Works Anti-Bacterial PocketBac Deep Cleansing Hand Gel Caribbean Escape,
-description: Bath and Body Works Anti-Bacterial PocketBac Deep Cleansing Hand Gel Caribbean Escape,
-author: Suvojit Manna,
-tags: Bath and Body Works Anti-Bacterial PocketBac Deep Cleansing Hand Gel Caribbean Escape,
-publishedAt: Fri Jan 10 2020 14:59:51 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:51 GMT+0530 (India Standard Time),
----
-
 # [Bath and Body Works Anti-Bacterial PocketBac Deep Cleansing Hand Gel Caribbean Escape](https://products.checkmycream.com/products/Bath-and-Body-Works-Anti-Bacterial-PocketBac-Deep-Cleansing-Hand-Gel-Caribbean-Escape.html)
 
 ### Positive Reviews

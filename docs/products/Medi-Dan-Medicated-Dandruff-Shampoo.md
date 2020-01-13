@@ -1,12 +1,3 @@
----
-title: Medi-Dan Medicated Dandruff Shampoo,
-description: Medi-Dan Medicated Dandruff Shampoo,
-author: Suvojit Manna,
-tags: Medi-Dan Medicated Dandruff Shampoo,
-publishedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
----
-
 # [Medi-Dan Medicated Dandruff Shampoo](https://products.checkmycream.com/products/Medi-Dan-Medicated-Dandruff-Shampoo.html)
 
 ### Positive Reviews

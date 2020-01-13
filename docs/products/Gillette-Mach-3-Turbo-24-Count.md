@@ -1,12 +1,3 @@
----
-title: Gillette Mach 3 Turbo 24 Count,
-description: Gillette Mach 3 Turbo 24 Count,
-author: Suvojit Manna,
-tags: Gillette Mach 3 Turbo 24 Count,
-publishedAt: Fri Jan 10 2020 15:01:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:05 GMT+0530 (India Standard Time),
----
-
 # [Gillette Mach 3 Turbo 24 Count](https://products.checkmycream.com/products/Gillette-Mach-3-Turbo-24-Count.html)
 
 ### Positive Reviews

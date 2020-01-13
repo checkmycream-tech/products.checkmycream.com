@@ -1,12 +1,3 @@
----
-title: Botanical Beauty Moringa Oil for Face, Body, Hair, 0.5 fl. oz.,
-description: Botanical Beauty Moringa Oil for Face, Body, Hair, 0.5 fl. oz.,
-author: Suvojit Manna,
-tags: Botanical Beauty Moringa Oil for Face, Body, Hair, 0.5 fl. oz.,
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [Botanical Beauty Moringa Oil for Face, Body, Hair, 0.5 fl. oz.](https://products.checkmycream.com/products/Botanical-Beauty-Moringa-Oil-for-Face-Body-Hair-0.5-fl.-oz..html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: 92 Pcs Multicolor Elastic Hair Tie Ponytail Holder for Little Girl,
-description: 92 Pcs Multicolor Elastic Hair Tie Ponytail Holder for Little Girl,
-author: Suvojit Manna,
-tags: 92 Pcs Multicolor Elastic Hair Tie Ponytail Holder for Little Girl,
-publishedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
----
-
 # [92 Pcs Multicolor Elastic Hair Tie Ponytail Holder for Little Girl](https://products.checkmycream.com/products/92-Pcs-Multicolor-Elastic-Hair-Tie-Ponytail-Holder-for-Little-Girl.html)
 
 ### Positive Reviews

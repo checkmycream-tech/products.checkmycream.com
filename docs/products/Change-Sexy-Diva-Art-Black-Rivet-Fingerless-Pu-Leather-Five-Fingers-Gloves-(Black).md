@@ -1,12 +1,3 @@
----
-title: Change Sexy Diva Art Black Rivet Fingerless Pu Leather Five Fingers Gloves (Black),
-description: Change Sexy Diva Art Black Rivet Fingerless Pu Leather Five Fingers Gloves (Black),
-author: Suvojit Manna,
-tags: Change Sexy Diva Art Black Rivet Fingerless Pu Leather Five Fingers Gloves (Black),
-publishedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
----
-
 # [Change Sexy Diva Art Black Rivet Fingerless Pu Leather Five Fingers Gloves (Black)](https://products.checkmycream.com/products/Change-Sexy-Diva-Art-Black-Rivet-Fingerless-Pu-Leather-Five-Fingers-Gloves-(Black).html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: TOOGOO(R) Useful Easy To Use Eyebrow Stencil Makeup KIt DIY Template Stencil Shaping Tool,
-description: TOOGOO(R) Useful Easy To Use Eyebrow Stencil Makeup KIt DIY Template Stencil Shaping Tool,
-author: Suvojit Manna,
-tags: TOOGOO(R) Useful Easy To Use Eyebrow Stencil Makeup KIt DIY Template Stencil Shaping Tool,
-publishedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
----
-
 # [TOOGOO(R) Useful Easy To Use Eyebrow Stencil Makeup KIt DIY Template Stencil Shaping Tool](https://products.checkmycream.com/products/TOOGOO(R)-Useful-Easy-To-Use-Eyebrow-Stencil-Makeup-KIt-DIY-Template-Stencil-Shaping-Tool.html)
 
 ### Positive Reviews

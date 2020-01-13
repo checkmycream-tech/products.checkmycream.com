@@ -1,12 +1,3 @@
----
-title: Vivo Per Lei Cleanser Set (Milk, Toner, Foaming),
-description: Vivo Per Lei Cleanser Set (Milk, Toner, Foaming),
-author: Suvojit Manna,
-tags: Vivo Per Lei Cleanser Set (Milk, Toner, Foaming),
-publishedAt: Fri Jan 10 2020 15:00:31 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:31 GMT+0530 (India Standard Time),
----
-
 # [Vivo Per Lei Cleanser Set (Milk, Toner, Foaming)](https://products.checkmycream.com/products/Vivo-Per-Lei-Cleanser-Set-(Milk-Toner-Foaming).html)
 
 ### Positive Reviews

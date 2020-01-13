@@ -1,12 +1,3 @@
----
-title: BeautyFit BeautyBum Muscle Toning Lotion for Women,
-description: BeautyFit BeautyBum Muscle Toning Lotion for Women,
-author: Suvojit Manna,
-tags: BeautyFit BeautyBum Muscle Toning Lotion for Women,
-publishedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
----
-
 # [BeautyFit BeautyBum Muscle Toning Lotion for Women](https://products.checkmycream.com/products/BeautyFit-BeautyBum-Muscle-Toning-Lotion-for-Women.html)
 
 ### Positive Reviews

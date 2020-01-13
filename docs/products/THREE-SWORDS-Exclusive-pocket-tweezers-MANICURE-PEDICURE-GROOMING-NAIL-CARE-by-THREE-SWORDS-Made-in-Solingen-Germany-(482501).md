@@ -1,12 +1,3 @@
----
-title: THREE SWORDS - Exclusive pocket tweezers - MANICURE - PEDICURE - GROOMING – NAIL CARE by THREE SWORDS - Made in Solingen / Germany (482501),
-description: THREE SWORDS - Exclusive pocket tweezers - MANICURE - PEDICURE - GROOMING – NAIL CARE by THREE SWORDS - Made in Solingen / Germany (482501),
-author: Suvojit Manna,
-tags: THREE SWORDS - Exclusive pocket tweezers - MANICURE - PEDICURE - GROOMING – NAIL CARE by THREE SWORDS - Made in Solingen / Germany (482501),
-publishedAt: Fri Jan 10 2020 15:00:17 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:17 GMT+0530 (India Standard Time),
----
-
 # [THREE SWORDS - Exclusive pocket tweezers - MANICURE - PEDICURE - GROOMING – NAIL CARE by THREE SWORDS - Made in Solingen / Germany (482501)](https://products.checkmycream.com/products/THREE-SWORDS-Exclusive-pocket-tweezers-MANICURE-PEDICURE-GROOMING-NAIL-CARE-by-THREE-SWORDS-Made-in-Solingen-Germany-(482501).html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Saloniture Blow Dryer &amp; Hair Iron Holder - Salon Appliance Rack w/ Clamp,
-description: Saloniture Blow Dryer &amp; Hair Iron Holder - Salon Appliance Rack w/ Clamp,
-author: Suvojit Manna,
-tags: Saloniture Blow Dryer &amp; Hair Iron Holder - Salon Appliance Rack w/ Clamp,
-publishedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
----
-
 # [Saloniture Blow Dryer &amp; Hair Iron Holder - Salon Appliance Rack w/ Clamp](https://products.checkmycream.com/products/Saloniture-Blow-Dryer-and-Hair-Iron-Holder-Salon-Appliance-Rack-w-Clamp.html)
 
 ### Positive Reviews

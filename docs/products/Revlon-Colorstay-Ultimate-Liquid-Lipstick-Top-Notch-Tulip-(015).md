@@ -1,12 +1,3 @@
----
-title: Revlon Colorstay Ultimate Liquid Lipstick - Top Notch Tulip (015),
-description: Revlon Colorstay Ultimate Liquid Lipstick - Top Notch Tulip (015),
-author: Suvojit Manna,
-tags: Revlon Colorstay Ultimate Liquid Lipstick - Top Notch Tulip (015),
-publishedAt: Fri Jan 10 2020 14:59:37 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:37 GMT+0530 (India Standard Time),
----
-
 # [Revlon Colorstay Ultimate Liquid Lipstick - Top Notch Tulip (015)](https://products.checkmycream.com/products/Revlon-Colorstay-Ultimate-Liquid-Lipstick-Top-Notch-Tulip-(015).html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Ragalta RPT-7000 Aluminum Body Facial Beauty Trimmer,
-description: Ragalta RPT-7000 Aluminum Body Facial Beauty Trimmer,
-author: Suvojit Manna,
-tags: Ragalta RPT-7000 Aluminum Body Facial Beauty Trimmer,
-publishedAt: Fri Jan 10 2020 15:00:07 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:07 GMT+0530 (India Standard Time),
----
-
 # [Ragalta RPT-7000 Aluminum Body Facial Beauty Trimmer](https://products.checkmycream.com/products/Ragalta-RPT-7000-Aluminum-Body-Facial-Beauty-Trimmer.html)
 
 ### Positive Reviews

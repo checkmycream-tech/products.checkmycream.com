@@ -1,12 +1,3 @@
----
-title: Gelish Gel Nail Polish Under Her Spell Lacquer Salon MY NIGHTLY CRAVING Pink,
-description: Gelish Gel Nail Polish Under Her Spell Lacquer Salon MY NIGHTLY CRAVING Pink,
-author: Suvojit Manna,
-tags: Gelish Gel Nail Polish Under Her Spell Lacquer Salon MY NIGHTLY CRAVING Pink,
-publishedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
----
-
 # [Gelish Gel Nail Polish Under Her Spell Lacquer Salon MY NIGHTLY CRAVING Pink](https://products.checkmycream.com/products/Gelish-Gel-Nail-Polish-Under-Her-Spell-Lacquer-Salon-MY-NIGHTLY-CRAVING-Pink.html)
 
 ### Positive Reviews

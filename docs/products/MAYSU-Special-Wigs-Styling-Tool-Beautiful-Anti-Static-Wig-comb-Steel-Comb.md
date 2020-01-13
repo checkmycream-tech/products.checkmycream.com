@@ -1,12 +1,3 @@
----
-title: MAYSU Special Wigs Styling Tool Beautiful Anti- Static Wig comb Steel Comb,
-description: MAYSU Special Wigs Styling Tool Beautiful Anti- Static Wig comb Steel Comb,
-author: Suvojit Manna,
-tags: MAYSU Special Wigs Styling Tool Beautiful Anti- Static Wig comb Steel Comb,
-publishedAt: Fri Jan 10 2020 15:00:37 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:37 GMT+0530 (India Standard Time),
----
-
 # [MAYSU Special Wigs Styling Tool Beautiful Anti- Static Wig comb Steel Comb](https://products.checkmycream.com/products/MAYSU-Special-Wigs-Styling-Tool-Beautiful-Anti-Static-Wig-comb-Steel-Comb.html)
 
 ### Positive Reviews

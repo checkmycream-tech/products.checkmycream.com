@@ -1,12 +1,3 @@
----
-title: Super Numb 1x10g Tubes Strong Quality Tattoo Numbing Cream Anesthetic,
-description: Super Numb 1x10g Tubes Strong Quality Tattoo Numbing Cream Anesthetic,
-author: Suvojit Manna,
-tags: Super Numb 1x10g Tubes Strong Quality Tattoo Numbing Cream Anesthetic,
-publishedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
----
-
 # [Super Numb 1x10g Tubes Strong Quality Tattoo Numbing Cream Anesthetic](https://products.checkmycream.com/products/Super-Numb-1x10g-Tubes-Strong-Quality-Tattoo-Numbing-Cream-Anesthetic.html)
 
 ### Positive Reviews

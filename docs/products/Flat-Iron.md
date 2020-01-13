@@ -1,12 +1,3 @@
----
-title: Flat Iron,
-description: Flat Iron,
-author: Suvojit Manna,
-tags: Flat Iron,
-publishedAt: Fri Jan 10 2020 14:59:38 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:38 GMT+0530 (India Standard Time),
----
-
 # [Flat Iron](https://products.checkmycream.com/products/Flat-Iron.html)
 
 ### Positive Reviews

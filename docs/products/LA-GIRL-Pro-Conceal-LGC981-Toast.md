@@ -1,12 +1,3 @@
----
-title: LA GIRL Pro Conceal - LGC981 Toast,
-description: LA GIRL Pro Conceal - LGC981 Toast,
-author: Suvojit Manna,
-tags: LA GIRL Pro Conceal - LGC981 Toast,
-publishedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
----
-
 # [LA GIRL Pro Conceal - LGC981 Toast](https://products.checkmycream.com/products/LA-GIRL-Pro-Conceal-LGC981-Toast.html)
 
 ### Positive Reviews

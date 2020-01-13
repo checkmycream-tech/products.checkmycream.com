@@ -1,12 +1,3 @@
----
-title: Ben Nye Camel Mojave Luxury Powders - 1.5oz MHV,
-description: Ben Nye Camel Mojave Luxury Powders - 1.5oz MHV,
-author: Suvojit Manna,
-tags: Ben Nye Camel Mojave Luxury Powders - 1.5oz MHV,
-publishedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
----
-
 # [Ben Nye Camel Mojave Luxury Powders - 1.5oz MHV](https://products.checkmycream.com/products/Ben-Nye-Camel-Mojave-Luxury-Powders-1.5oz-MHV.html)
 
 ### Positive Reviews

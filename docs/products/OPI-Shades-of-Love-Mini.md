@@ -1,12 +1,3 @@
----
-title: OPI Shades of Love Mini,
-description: OPI Shades of Love Mini,
-author: Suvojit Manna,
-tags: OPI Shades of Love Mini,
-publishedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:57 GMT+0530 (India Standard Time),
----
-
 # [OPI Shades of Love Mini](https://products.checkmycream.com/products/OPI-Shades-of-Love-Mini.html)
 
 ### Positive Reviews

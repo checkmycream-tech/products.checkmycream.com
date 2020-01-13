@@ -1,12 +1,3 @@
----
-title: Jadore By Christian Dior For Women. Eau De Toilette Spray 3.4 Ounces(Packaging may vary),
-description: Jadore By Christian Dior For Women. Eau De Toilette Spray 3.4 Ounces(Packaging may vary),
-author: Suvojit Manna,
-tags: Jadore By Christian Dior For Women. Eau De Toilette Spray 3.4 Ounces(Packaging may vary),
-publishedAt: Fri Jan 10 2020 14:59:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:05 GMT+0530 (India Standard Time),
----
-
 # [Jadore By Christian Dior For Women. Eau De Toilette Spray 3.4 Ounces(Packaging may vary)](https://products.checkmycream.com/products/Jadore-By-Christian-Dior-For-Women.-Eau-De-Toilette-Spray-3.4-Ounces(Packaging-may-vary).html)
 
 ### Positive Reviews

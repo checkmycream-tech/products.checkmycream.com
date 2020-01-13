@@ -1,12 +1,3 @@
----
-title: Elizabeth Taylor Diamonds and Emeralds Eau De Toilette Spray, 3.3 Ounce,
-description: Elizabeth Taylor Diamonds and Emeralds Eau De Toilette Spray, 3.3 Ounce,
-author: Suvojit Manna,
-tags: Elizabeth Taylor Diamonds and Emeralds Eau De Toilette Spray, 3.3 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
----
-
 # [Elizabeth Taylor Diamonds and Emeralds Eau De Toilette Spray, 3.3 Ounce](https://products.checkmycream.com/products/Elizabeth-Taylor-Diamonds-and-Emeralds-Eau-De-Toilette-Spray-3.3-Ounce.html)
 
 ### Positive Reviews

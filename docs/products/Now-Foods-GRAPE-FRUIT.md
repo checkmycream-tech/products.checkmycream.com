@@ -1,12 +1,3 @@
----
-title: Now Foods GRAPE FRUIT,
-description: Now Foods GRAPE FRUIT,
-author: Suvojit Manna,
-tags: Now Foods GRAPE FRUIT,
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [Now Foods GRAPE FRUIT](https://products.checkmycream.com/products/Now-Foods-GRAPE-FRUIT.html)
 
 ### Positive Reviews

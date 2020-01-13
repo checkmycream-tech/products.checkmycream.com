@@ -1,12 +1,3 @@
----
-title: Gucci Gucci Flora Gracious Tuberose Eau De Toilette Spray, 3.3 Ounce,
-description: Gucci Gucci Flora Gracious Tuberose Eau De Toilette Spray, 3.3 Ounce,
-author: Suvojit Manna,
-tags: Gucci Gucci Flora Gracious Tuberose Eau De Toilette Spray, 3.3 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:20 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:20 GMT+0530 (India Standard Time),
----
-
 # [Gucci Gucci Flora Gracious Tuberose Eau De Toilette Spray, 3.3 Ounce](https://products.checkmycream.com/products/Gucci-Gucci-Flora-Gracious-Tuberose-Eau-De-Toilette-Spray-3.3-Ounce.html)
 
 ### Positive Reviews

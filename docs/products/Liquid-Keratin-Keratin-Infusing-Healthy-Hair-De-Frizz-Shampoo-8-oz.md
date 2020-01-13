@@ -1,12 +1,3 @@
----
-title: Liquid Keratin Keratin Infusing Healthy Hair De-Frizz Shampoo 8 oz,
-description: Liquid Keratin Keratin Infusing Healthy Hair De-Frizz Shampoo 8 oz,
-author: Suvojit Manna,
-tags: Liquid Keratin Keratin Infusing Healthy Hair De-Frizz Shampoo 8 oz,
-publishedAt: Fri Jan 10 2020 15:00:06 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:06 GMT+0530 (India Standard Time),
----
-
 # [Liquid Keratin Keratin Infusing Healthy Hair De-Frizz Shampoo 8 oz](https://products.checkmycream.com/products/Liquid-Keratin-Keratin-Infusing-Healthy-Hair-De-Frizz-Shampoo-8-oz.html)
 
 ### Positive Reviews

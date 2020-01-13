@@ -1,12 +1,3 @@
----
-title: Ralph Lauren The Big Pony Collection # 1 Eau de Toilette Spray for Women, 3.4 Ounce,
-description: Ralph Lauren The Big Pony Collection # 1 Eau de Toilette Spray for Women, 3.4 Ounce,
-author: Suvojit Manna,
-tags: Ralph Lauren The Big Pony Collection # 1 Eau de Toilette Spray for Women, 3.4 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:20 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:20 GMT+0530 (India Standard Time),
----
-
 # [Ralph Lauren The Big Pony Collection # 1 Eau de Toilette Spray for Women, 3.4 Ounce](https://products.checkmycream.com/products/Ralph-Lauren-The-Big-Pony-Collection-1-Eau-de-Toilette-Spray-for-Women-3.4-Ounce.html)
 
 ### Positive Reviews

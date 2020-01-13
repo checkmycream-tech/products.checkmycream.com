@@ -1,12 +1,3 @@
----
-title: Carolina Herrera 212 Spray,
-description: Carolina Herrera 212 Spray,
-author: Suvojit Manna,
-tags: Carolina Herrera 212 Spray,
-publishedAt: Fri Jan 10 2020 14:59:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:03 GMT+0530 (India Standard Time),
----
-
 # [Carolina Herrera 212 Spray](https://products.checkmycream.com/products/Carolina-Herrera-212-Spray.html)
 
 ### Positive Reviews

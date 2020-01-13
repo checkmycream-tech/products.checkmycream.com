@@ -1,12 +1,3 @@
----
-title: Deity Serum Gro Scalp Treatment 4oz,
-description: Deity Serum Gro Scalp Treatment 4oz,
-author: Suvojit Manna,
-tags: Deity Serum Gro Scalp Treatment 4oz,
-publishedAt: Fri Jan 10 2020 14:59:15 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:15 GMT+0530 (India Standard Time),
----
-
 # [Deity Serum Gro Scalp Treatment 4oz](https://products.checkmycream.com/products/Deity-Serum-Gro-Scalp-Treatment-4oz.html)
 
 ### Positive Reviews

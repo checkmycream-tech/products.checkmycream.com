@@ -1,12 +1,3 @@
----
-title: Estee Lauder Pure Color Long Lasting Lipstick - Rubellite (Promo Packaging),
-description: Estee Lauder Pure Color Long Lasting Lipstick - Rubellite (Promo Packaging),
-author: Suvojit Manna,
-tags: Estee Lauder Pure Color Long Lasting Lipstick - Rubellite (Promo Packaging),
-publishedAt: Fri Jan 10 2020 14:59:07 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:07 GMT+0530 (India Standard Time),
----
-
 # [Estee Lauder Pure Color Long Lasting Lipstick - Rubellite (Promo Packaging)](https://products.checkmycream.com/products/Estee-Lauder-Pure-Color-Long-Lasting-Lipstick-Rubellite-(Promo-Packaging).html)
 
 ### Positive Reviews

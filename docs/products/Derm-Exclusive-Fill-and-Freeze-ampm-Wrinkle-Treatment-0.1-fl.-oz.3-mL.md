@@ -1,12 +1,3 @@
----
-title: Derm Exclusive Fill &amp; Freeze am/pm Wrinkle Treatment 0.1 fl. oz./3 mL,
-description: Derm Exclusive Fill &amp; Freeze am/pm Wrinkle Treatment 0.1 fl. oz./3 mL,
-author: Suvojit Manna,
-tags: Derm Exclusive Fill &amp; Freeze am/pm Wrinkle Treatment 0.1 fl. oz./3 mL,
-publishedAt: Fri Jan 10 2020 15:01:07 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:07 GMT+0530 (India Standard Time),
----
-
 # [Derm Exclusive Fill &amp; Freeze am/pm Wrinkle Treatment 0.1 fl. oz./3 mL](https://products.checkmycream.com/products/Derm-Exclusive-Fill-and-Freeze-ampm-Wrinkle-Treatment-0.1-fl.-oz.3-mL.html)
 
 ### Positive Reviews

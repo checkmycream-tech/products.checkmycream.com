@@ -1,12 +1,3 @@
----
-title: Zaditor Antihistamine Eye Itch Relief Drops, 5 ml bottle 3 Count,
-description: Zaditor Antihistamine Eye Itch Relief Drops, 5 ml bottle 3 Count,
-author: Suvojit Manna,
-tags: Zaditor Antihistamine Eye Itch Relief Drops, 5 ml bottle 3 Count,
-publishedAt: Fri Jan 10 2020 15:01:07 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:07 GMT+0530 (India Standard Time),
----
-
 # [Zaditor Antihistamine Eye Itch Relief Drops, 5 ml bottle 3 Count](https://products.checkmycream.com/products/Zaditor-Antihistamine-Eye-Itch-Relief-Drops-5-ml-bottle-3-Count.html)
 
 ### Positive Reviews

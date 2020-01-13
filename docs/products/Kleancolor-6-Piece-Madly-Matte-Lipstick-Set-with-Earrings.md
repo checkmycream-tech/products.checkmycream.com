@@ -1,12 +1,3 @@
----
-title: Kleancolor 6 Piece Madly Matte Lipstick Set with Earrings,
-description: Kleancolor 6 Piece Madly Matte Lipstick Set with Earrings,
-author: Suvojit Manna,
-tags: Kleancolor 6 Piece Madly Matte Lipstick Set with Earrings,
-publishedAt: Fri Jan 10 2020 15:01:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:08 GMT+0530 (India Standard Time),
----
-
 # [Kleancolor 6 Piece Madly Matte Lipstick Set with Earrings](https://products.checkmycream.com/products/Kleancolor-6-Piece-Madly-Matte-Lipstick-Set-with-Earrings.html)
 
 ### Positive Reviews

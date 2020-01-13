@@ -1,12 +1,3 @@
----
-title: Kiss InstaWave Automatic Curler With FREE One-N-Only Argan Oil Hydrating Mask 1oz.,
-description: Kiss InstaWave Automatic Curler With FREE One-N-Only Argan Oil Hydrating Mask 1oz.,
-author: Suvojit Manna,
-tags: Kiss InstaWave Automatic Curler With FREE One-N-Only Argan Oil Hydrating Mask 1oz.,
-publishedAt: Fri Jan 10 2020 15:01:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:05 GMT+0530 (India Standard Time),
----
-
 # [Kiss InstaWave Automatic Curler With FREE One-N-Only Argan Oil Hydrating Mask 1oz.](https://products.checkmycream.com/products/Kiss-InstaWave-Automatic-Curler-With-FREE-One-N-Only-Argan-Oil-Hydrating-Mask-1oz..html)
 
 ### Positive Reviews

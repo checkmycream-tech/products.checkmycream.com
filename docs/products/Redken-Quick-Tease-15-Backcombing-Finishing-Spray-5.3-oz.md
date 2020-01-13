@@ -1,12 +1,3 @@
----
-title: Redken Quick Tease 15 Backcombing Finishing Spray - 5.3 oz,
-description: Redken Quick Tease 15 Backcombing Finishing Spray - 5.3 oz,
-author: Suvojit Manna,
-tags: Redken Quick Tease 15 Backcombing Finishing Spray - 5.3 oz,
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [Redken Quick Tease 15 Backcombing Finishing Spray - 5.3 oz](https://products.checkmycream.com/products/Redken-Quick-Tease-15-Backcombing-Finishing-Spray-5.3-oz.html)
 
 ### Positive Reviews

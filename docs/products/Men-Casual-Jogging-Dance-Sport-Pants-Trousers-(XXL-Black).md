@@ -1,12 +1,3 @@
----
-title: Men Casual Jogging Dance Sport Pants Trousers (XXL, Black),
-description: Men Casual Jogging Dance Sport Pants Trousers (XXL, Black),
-author: Suvojit Manna,
-tags: Men Casual Jogging Dance Sport Pants Trousers (XXL, Black),
-publishedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
----
-
 # [Men Casual Jogging Dance Sport Pants Trousers (XXL, Black)](https://products.checkmycream.com/products/Men-Casual-Jogging-Dance-Sport-Pants-Trousers-(XXL-Black).html)
 
 ### Positive Reviews

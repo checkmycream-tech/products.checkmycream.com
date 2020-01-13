@@ -1,12 +1,3 @@
----
-title: MAC Lipstick Angel, Soft Pink, Frost,
-description: MAC Lipstick Angel, Soft Pink, Frost,
-author: Suvojit Manna,
-tags: MAC Lipstick Angel, Soft Pink, Frost,
-publishedAt: Fri Jan 10 2020 14:59:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:01 GMT+0530 (India Standard Time),
----
-
 # [MAC Lipstick Angel, Soft Pink, Frost](https://products.checkmycream.com/products/MAC-Lipstick-Angel-Soft-Pink-Frost.html)
 
 ### Positive Reviews

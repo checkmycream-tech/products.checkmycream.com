@@ -1,12 +1,3 @@
----
-title: Hair U Wear Wash + Wear Moist Shampoo (8.5floz),
-description: Hair U Wear Wash + Wear Moist Shampoo (8.5floz),
-author: Suvojit Manna,
-tags: Hair U Wear Wash + Wear Moist Shampoo (8.5floz),
-publishedAt: Fri Jan 10 2020 14:59:16 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:16 GMT+0530 (India Standard Time),
----
-
 # [Hair U Wear Wash + Wear Moist Shampoo (8.5floz)](https://products.checkmycream.com/products/Hair-U-Wear-Wash-+-Wear-Moist-Shampoo-(8.5floz).html)
 
 ### Positive Reviews

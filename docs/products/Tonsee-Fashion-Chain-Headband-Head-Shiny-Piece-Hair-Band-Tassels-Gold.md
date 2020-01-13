@@ -1,12 +1,3 @@
----
-title: Tonsee Fashion Chain Headband Head Shiny Piece Hair Band Tassels Gold,
-description: Tonsee Fashion Chain Headband Head Shiny Piece Hair Band Tassels Gold,
-author: Suvojit Manna,
-tags: Tonsee Fashion Chain Headband Head Shiny Piece Hair Band Tassels Gold,
-publishedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:02 GMT+0530 (India Standard Time),
----
-
 # [Tonsee Fashion Chain Headband Head Shiny Piece Hair Band Tassels Gold](https://products.checkmycream.com/products/Tonsee-Fashion-Chain-Headband-Head-Shiny-Piece-Hair-Band-Tassels-Gold.html)
 
 ### Positive Reviews

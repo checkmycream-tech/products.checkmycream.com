@@ -1,12 +1,3 @@
----
-title: Organic Pure Carrier Oils Cold Pressed 16 Oz/1 Pint,
-description: Organic Pure Carrier Oils Cold Pressed 16 Oz/1 Pint,
-author: Suvojit Manna,
-tags: Organic Pure Carrier Oils Cold Pressed 16 Oz/1 Pint,
-publishedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
----
-
 # [Organic Pure Carrier Oils Cold Pressed 16 Oz/1 Pint](https://products.checkmycream.com/products/Organic-Pure-Carrier-Oils-Cold-Pressed-16-Oz1-Pint.html)
 
 ### Positive Reviews

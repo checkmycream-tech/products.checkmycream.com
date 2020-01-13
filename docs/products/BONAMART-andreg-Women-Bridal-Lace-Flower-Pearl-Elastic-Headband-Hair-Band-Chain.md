@@ -1,12 +1,3 @@
----
-title: BONAMART &amp;reg; Women Bridal Lace Flower Pearl Elastic Headband Hair Band Chain,
-description: BONAMART &amp;reg; Women Bridal Lace Flower Pearl Elastic Headband Hair Band Chain,
-author: Suvojit Manna,
-tags: BONAMART &amp;reg; Women Bridal Lace Flower Pearl Elastic Headband Hair Band Chain,
-publishedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
----
-
 # [BONAMART &amp;reg; Women Bridal Lace Flower Pearl Elastic Headband Hair Band Chain](https://products.checkmycream.com/products/BONAMART-andreg-Women-Bridal-Lace-Flower-Pearl-Elastic-Headband-Hair-Band-Chain.html)
 
 ### Positive Reviews

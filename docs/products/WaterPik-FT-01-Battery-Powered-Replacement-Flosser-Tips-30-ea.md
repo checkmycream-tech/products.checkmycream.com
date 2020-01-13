@@ -1,12 +1,3 @@
----
-title: WaterPik FT-01 Battery Powered Replacement Flosser Tips - 30 ea,
-description: WaterPik FT-01 Battery Powered Replacement Flosser Tips - 30 ea,
-author: Suvojit Manna,
-tags: WaterPik FT-01 Battery Powered Replacement Flosser Tips - 30 ea,
-publishedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
----
-
 # [WaterPik FT-01 Battery Powered Replacement Flosser Tips - 30 ea](https://products.checkmycream.com/products/WaterPik-FT-01-Battery-Powered-Replacement-Flosser-Tips-30-ea.html)
 
 ### Positive Reviews

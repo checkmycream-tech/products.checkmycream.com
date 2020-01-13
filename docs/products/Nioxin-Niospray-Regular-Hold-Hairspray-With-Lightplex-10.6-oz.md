@@ -1,12 +1,3 @@
----
-title: Nioxin Niospray Regular Hold Hairspray With Lightplex 10.6 oz,
-description: Nioxin Niospray Regular Hold Hairspray With Lightplex 10.6 oz,
-author: Suvojit Manna,
-tags: Nioxin Niospray Regular Hold Hairspray With Lightplex 10.6 oz,
-publishedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
----
-
 # [Nioxin Niospray Regular Hold Hairspray With Lightplex 10.6 oz](https://products.checkmycream.com/products/Nioxin-Niospray-Regular-Hold-Hairspray-With-Lightplex-10.6-oz.html)
 
 ### Positive Reviews

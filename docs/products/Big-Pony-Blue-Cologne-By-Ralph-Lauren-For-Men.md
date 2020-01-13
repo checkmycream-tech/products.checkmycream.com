@@ -1,12 +1,3 @@
----
-title: Big Pony Blue Cologne By Ralph Lauren For Men,
-description: Big Pony Blue Cologne By Ralph Lauren For Men,
-author: Suvojit Manna,
-tags: Big Pony Blue Cologne By Ralph Lauren For Men,
-publishedAt: Fri Jan 10 2020 14:59:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:55 GMT+0530 (India Standard Time),
----
-
 # [Big Pony Blue Cologne By Ralph Lauren For Men](https://products.checkmycream.com/products/Big-Pony-Blue-Cologne-By-Ralph-Lauren-For-Men.html)
 
 ### Positive Reviews

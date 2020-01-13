@@ -1,12 +1,3 @@
----
-title: Herrera By Carolina Herrera Edt Spray/FN126497/1.7 oz/men/,
-description: Herrera By Carolina Herrera Edt Spray/FN126497/1.7 oz/men/,
-author: Suvojit Manna,
-tags: Herrera By Carolina Herrera Edt Spray/FN126497/1.7 oz/men/,
-publishedAt: Fri Jan 10 2020 14:59:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:03 GMT+0530 (India Standard Time),
----
-
 # [Herrera By Carolina Herrera Edt Spray/FN126497/1.7 oz/men/](https://products.checkmycream.com/products/Herrera-By-Carolina-Herrera-Edt-SprayFN1264971.7-ozmen.html)
 
 ### Positive Reviews

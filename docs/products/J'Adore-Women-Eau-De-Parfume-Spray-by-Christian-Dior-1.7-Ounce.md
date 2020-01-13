@@ -1,12 +1,3 @@
----
-title: J&#x27;Adore Women Eau De Parfume Spray by Christian Dior, 1.7 Ounce,
-description: J&#x27;Adore Women Eau De Parfume Spray by Christian Dior, 1.7 Ounce,
-author: Suvojit Manna,
-tags: J&#x27;Adore Women Eau De Parfume Spray by Christian Dior, 1.7 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:00 GMT+0530 (India Standard Time),
----
-
 # [J&#x27;Adore Women Eau De Parfume Spray by Christian Dior, 1.7 Ounce](https://products.checkmycream.com/products/J&#x27;Adore-Women-Eau-De-Parfume-Spray-by-Christian-Dior-1.7-Ounce.html)
 
 ### Positive Reviews

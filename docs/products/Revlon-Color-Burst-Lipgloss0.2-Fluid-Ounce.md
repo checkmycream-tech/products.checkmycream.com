@@ -1,12 +1,3 @@
----
-title: Revlon Color Burst Lipgloss,0.2 Fluid Ounce,
-description: Revlon Color Burst Lipgloss,0.2 Fluid Ounce,
-author: Suvojit Manna,
-tags: Revlon Color Burst Lipgloss,0.2 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 15:00:22 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:22 GMT+0530 (India Standard Time),
----
-
 # [Revlon Color Burst Lipgloss,0.2 Fluid Ounce](https://products.checkmycream.com/products/Revlon-Color-Burst-Lipgloss0.2-Fluid-Ounce.html)
 
 ### Positive Reviews

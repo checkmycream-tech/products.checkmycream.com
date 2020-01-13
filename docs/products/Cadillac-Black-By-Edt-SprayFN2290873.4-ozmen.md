@@ -1,12 +1,3 @@
----
-title: Cadillac Black By Edt Spray/FN229087/3.4 oz/men/,
-description: Cadillac Black By Edt Spray/FN229087/3.4 oz/men/,
-author: Suvojit Manna,
-tags: Cadillac Black By Edt Spray/FN229087/3.4 oz/men/,
-publishedAt: Fri Jan 10 2020 15:00:29 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:29 GMT+0530 (India Standard Time),
----
-
 # [Cadillac Black By Edt Spray/FN229087/3.4 oz/men/](https://products.checkmycream.com/products/Cadillac-Black-By-Edt-SprayFN2290873.4-ozmen.html)
 
 ### Positive Reviews

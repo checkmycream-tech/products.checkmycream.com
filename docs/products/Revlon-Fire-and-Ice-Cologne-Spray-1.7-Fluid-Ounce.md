@@ -1,12 +1,3 @@
----
-title: Revlon Fire and Ice Cologne Spray, 1.7 Fluid Ounce,
-description: Revlon Fire and Ice Cologne Spray, 1.7 Fluid Ounce,
-author: Suvojit Manna,
-tags: Revlon Fire and Ice Cologne Spray, 1.7 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 14:59:31 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:31 GMT+0530 (India Standard Time),
----
-
 # [Revlon Fire and Ice Cologne Spray, 1.7 Fluid Ounce](https://products.checkmycream.com/products/Revlon-Fire-and-Ice-Cologne-Spray-1.7-Fluid-Ounce.html)
 
 ### Positive Reviews

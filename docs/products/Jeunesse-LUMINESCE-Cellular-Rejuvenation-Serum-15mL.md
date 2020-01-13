@@ -1,12 +1,3 @@
----
-title: Jeunesse LUMINESCE Cellular Rejuvenation Serum -  15mL,
-description: Jeunesse LUMINESCE Cellular Rejuvenation Serum -  15mL,
-author: Suvojit Manna,
-tags: Jeunesse LUMINESCE Cellular Rejuvenation Serum -  15mL,
-publishedAt: Fri Jan 10 2020 15:01:06 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:06 GMT+0530 (India Standard Time),
----
-
 # [Jeunesse LUMINESCE Cellular Rejuvenation Serum -  15mL](https://products.checkmycream.com/products/Jeunesse-LUMINESCE-Cellular-Rejuvenation-Serum-15mL.html)
 
 ### Positive Reviews

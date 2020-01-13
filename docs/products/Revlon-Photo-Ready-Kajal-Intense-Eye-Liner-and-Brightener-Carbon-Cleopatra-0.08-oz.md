@@ -1,12 +1,3 @@
----
-title: Revlon Photo Ready Kajal Intense Eye Liner &amp; Brightener - Carbon Cleopatra - 0.08 oz,
-description: Revlon Photo Ready Kajal Intense Eye Liner &amp; Brightener - Carbon Cleopatra - 0.08 oz,
-author: Suvojit Manna,
-tags: Revlon Photo Ready Kajal Intense Eye Liner &amp; Brightener - Carbon Cleopatra - 0.08 oz,
-publishedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
----
-
 # [Revlon Photo Ready Kajal Intense Eye Liner &amp; Brightener - Carbon Cleopatra - 0.08 oz](https://products.checkmycream.com/products/Revlon-Photo-Ready-Kajal-Intense-Eye-Liner-and-Brightener-Carbon-Cleopatra-0.08-oz.html)
 
 ### Positive Reviews

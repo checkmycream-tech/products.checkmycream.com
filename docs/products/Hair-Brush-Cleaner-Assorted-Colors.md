@@ -1,12 +1,3 @@
----
-title: Hair Brush Cleaner, Assorted Colors,
-description: Hair Brush Cleaner, Assorted Colors,
-author: Suvojit Manna,
-tags: Hair Brush Cleaner, Assorted Colors,
-publishedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
----
-
 # [Hair Brush Cleaner, Assorted Colors](https://products.checkmycream.com/products/Hair-Brush-Cleaner-Assorted-Colors.html)
 
 ### Positive Reviews

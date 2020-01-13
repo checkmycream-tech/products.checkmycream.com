@@ -1,12 +1,3 @@
----
-title: Hugo Boss HUGO Fragrance Collection,
-description: Hugo Boss HUGO Fragrance Collection,
-author: Suvojit Manna,
-tags: Hugo Boss HUGO Fragrance Collection,
-publishedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:40 GMT+0530 (India Standard Time),
----
-
 # [Hugo Boss HUGO Fragrance Collection](https://products.checkmycream.com/products/Hugo-Boss-HUGO-Fragrance-Collection.html)
 
 ### Positive Reviews

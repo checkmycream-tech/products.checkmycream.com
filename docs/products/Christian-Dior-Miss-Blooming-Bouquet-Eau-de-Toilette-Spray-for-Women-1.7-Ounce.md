@@ -1,12 +1,3 @@
----
-title: Christian Dior Miss Blooming Bouquet Eau de Toilette Spray for Women, 1.7 Ounce,
-description: Christian Dior Miss Blooming Bouquet Eau de Toilette Spray for Women, 1.7 Ounce,
-author: Suvojit Manna,
-tags: Christian Dior Miss Blooming Bouquet Eau de Toilette Spray for Women, 1.7 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:38 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:38 GMT+0530 (India Standard Time),
----
-
 # [Christian Dior Miss Blooming Bouquet Eau de Toilette Spray for Women, 1.7 Ounce](https://products.checkmycream.com/products/Christian-Dior-Miss-Blooming-Bouquet-Eau-de-Toilette-Spray-for-Women-1.7-Ounce.html)
 
 ### Positive Reviews

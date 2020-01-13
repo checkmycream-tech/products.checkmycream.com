@@ -1,12 +1,3 @@
----
-title: KLOUD City® Professional Hair Cutting Scissors Shears,
-description: KLOUD City® Professional Hair Cutting Scissors Shears,
-author: Suvojit Manna,
-tags: KLOUD City® Professional Hair Cutting Scissors Shears,
-publishedAt: Fri Jan 10 2020 15:01:04 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:04 GMT+0530 (India Standard Time),
----
-
 # [KLOUD City® Professional Hair Cutting Scissors Shears](https://products.checkmycream.com/products/KLOUD-City(r)-Professional-Hair-Cutting-Scissors-Shears.html)
 
 ### Positive Reviews

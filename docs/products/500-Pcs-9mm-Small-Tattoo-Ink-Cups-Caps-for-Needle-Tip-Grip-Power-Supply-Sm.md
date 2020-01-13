@@ -1,12 +1,3 @@
----
-title: 500 Pcs 9mm Small Tattoo Ink Cups Caps for Needle Tip Grip Power Supply Sm,
-description: 500 Pcs 9mm Small Tattoo Ink Cups Caps for Needle Tip Grip Power Supply Sm,
-author: Suvojit Manna,
-tags: 500 Pcs 9mm Small Tattoo Ink Cups Caps for Needle Tip Grip Power Supply Sm,
-publishedAt: Fri Jan 10 2020 15:00:30 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:30 GMT+0530 (India Standard Time),
----
-
 # [500 Pcs 9mm Small Tattoo Ink Cups Caps for Needle Tip Grip Power Supply Sm](https://products.checkmycream.com/products/500-Pcs-9mm-Small-Tattoo-Ink-Cups-Caps-for-Needle-Tip-Grip-Power-Supply-Sm.html)
 
 ### Positive Reviews

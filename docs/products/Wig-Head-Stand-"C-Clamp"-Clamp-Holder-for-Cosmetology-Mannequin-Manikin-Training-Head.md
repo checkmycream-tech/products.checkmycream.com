@@ -1,12 +1,3 @@
----
-title: Wig Head Stand - &quot;C-Clamp&quot; Clamp Holder for Cosmetology Mannequin Manikin Training Head,
-description: Wig Head Stand - &quot;C-Clamp&quot; Clamp Holder for Cosmetology Mannequin Manikin Training Head,
-author: Suvojit Manna,
-tags: Wig Head Stand - &quot;C-Clamp&quot; Clamp Holder for Cosmetology Mannequin Manikin Training Head,
-publishedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
----
-
 # [Wig Head Stand - &quot;C-Clamp&quot; Clamp Holder for Cosmetology Mannequin Manikin Training Head](https://products.checkmycream.com/products/Wig-Head-Stand-&quot;C-Clamp&quot;-Clamp-Holder-for-Cosmetology-Mannequin-Manikin-Training-Head.html)
 
 ### Positive Reviews

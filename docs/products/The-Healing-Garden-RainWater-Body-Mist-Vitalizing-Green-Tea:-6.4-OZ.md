@@ -1,12 +1,3 @@
----
-title: The Healing Garden RainWater Body Mist - Vitalizing Green Tea: 6.4 OZ,
-description: The Healing Garden RainWater Body Mist - Vitalizing Green Tea: 6.4 OZ,
-author: Suvojit Manna,
-tags: The Healing Garden RainWater Body Mist - Vitalizing Green Tea: 6.4 OZ,
-publishedAt: Fri Jan 10 2020 14:59:30 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:30 GMT+0530 (India Standard Time),
----
-
 # [The Healing Garden RainWater Body Mist - Vitalizing Green Tea: 6.4 OZ](https://products.checkmycream.com/products/The-Healing-Garden-RainWater-Body-Mist-Vitalizing-Green-Tea:-6.4-OZ.html)
 
 ### Positive Reviews

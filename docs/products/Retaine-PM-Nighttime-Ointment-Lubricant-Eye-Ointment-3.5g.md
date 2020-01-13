@@ -1,12 +1,3 @@
----
-title: Retaine PM Nighttime Ointment Lubricant Eye Ointment 3.5g,
-description: Retaine PM Nighttime Ointment Lubricant Eye Ointment 3.5g,
-author: Suvojit Manna,
-tags: Retaine PM Nighttime Ointment Lubricant Eye Ointment 3.5g,
-publishedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
----
-
 # [Retaine PM Nighttime Ointment Lubricant Eye Ointment 3.5g](https://products.checkmycream.com/products/Retaine-PM-Nighttime-Ointment-Lubricant-Eye-Ointment-3.5g.html)
 
 ### Positive Reviews

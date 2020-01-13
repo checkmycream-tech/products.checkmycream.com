@@ -1,12 +1,3 @@
----
-title: Sexy Hair Concepts Curly Sexy Hair Curling Creme, 5.1 oz,
-description: Sexy Hair Concepts Curly Sexy Hair Curling Creme, 5.1 oz,
-author: Suvojit Manna,
-tags: Sexy Hair Concepts Curly Sexy Hair Curling Creme, 5.1 oz,
-publishedAt: Fri Jan 10 2020 14:59:39 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:39 GMT+0530 (India Standard Time),
----
-
 # [Sexy Hair Concepts Curly Sexy Hair Curling Creme, 5.1 oz](https://products.checkmycream.com/products/Sexy-Hair-Concepts-Curly-Sexy-Hair-Curling-Creme-5.1-oz.html)
 
 ### Positive Reviews

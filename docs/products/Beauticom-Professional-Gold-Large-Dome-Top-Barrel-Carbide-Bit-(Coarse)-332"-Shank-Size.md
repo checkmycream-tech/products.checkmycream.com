@@ -1,12 +1,3 @@
----
-title: Beauticom Professional Gold Large Dome Top Barrel Carbide Bit (Coarse) 3/32&quot; Shank Size,
-description: Beauticom Professional Gold Large Dome Top Barrel Carbide Bit (Coarse) 3/32&quot; Shank Size,
-author: Suvojit Manna,
-tags: Beauticom Professional Gold Large Dome Top Barrel Carbide Bit (Coarse) 3/32&quot; Shank Size,
-publishedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
----
-
 # [Beauticom Professional Gold Large Dome Top Barrel Carbide Bit (Coarse) 3/32&quot; Shank Size](https://products.checkmycream.com/products/Beauticom-Professional-Gold-Large-Dome-Top-Barrel-Carbide-Bit-(Coarse)-332&quot;-Shank-Size.html)
 
 ### Positive Reviews

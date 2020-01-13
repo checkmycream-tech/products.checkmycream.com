@@ -1,12 +1,3 @@
----
-title: Opi Swiss Shades Cuckoo For This Color (Green) 0.5 oz.,
-description: Opi Swiss Shades Cuckoo For This Color (Green) 0.5 oz.,
-author: Suvojit Manna,
-tags: Opi Swiss Shades Cuckoo For This Color (Green) 0.5 oz.,
-publishedAt: Fri Jan 10 2020 14:59:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:58 GMT+0530 (India Standard Time),
----
-
 # [Opi Swiss Shades Cuckoo For This Color (Green) 0.5 oz.](https://products.checkmycream.com/products/Opi-Swiss-Shades-Cuckoo-For-This-Color-(Green)-0.5-oz..html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Vanilla Fields By Coty Cologne Spray Mini/FN210679/.375 oz/women/,
-description: Vanilla Fields By Coty Cologne Spray Mini/FN210679/.375 oz/women/,
-author: Suvojit Manna,
-tags: Vanilla Fields By Coty Cologne Spray Mini/FN210679/.375 oz/women/,
-publishedAt: Fri Jan 10 2020 15:00:07 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:07 GMT+0530 (India Standard Time),
----
-
 # [Vanilla Fields By Coty Cologne Spray Mini/FN210679/.375 oz/women/](https://products.checkmycream.com/products/Vanilla-Fields-By-Coty-Cologne-Spray-MiniFN210679.375-ozwomen.html)
 
 ### Positive Reviews

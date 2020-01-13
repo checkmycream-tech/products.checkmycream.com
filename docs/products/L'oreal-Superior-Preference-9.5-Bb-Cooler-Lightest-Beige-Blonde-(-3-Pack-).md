@@ -1,12 +1,3 @@
----
-title: L&#x27;oreal Superior Preference 9.5 Bb Cooler Lightest Beige Blonde ( 3 Pack ),
-description: L&#x27;oreal Superior Preference 9.5 Bb Cooler Lightest Beige Blonde ( 3 Pack ),
-author: Suvojit Manna,
-tags: L&#x27;oreal Superior Preference 9.5 Bb Cooler Lightest Beige Blonde ( 3 Pack ),
-publishedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:19 GMT+0530 (India Standard Time),
----
-
 # [L&#x27;oreal Superior Preference 9.5 Bb Cooler Lightest Beige Blonde ( 3 Pack )](https://products.checkmycream.com/products/L&#x27;oreal-Superior-Preference-9.5-Bb-Cooler-Lightest-Beige-Blonde-(-3-Pack-).html)
 
 ### Positive Reviews

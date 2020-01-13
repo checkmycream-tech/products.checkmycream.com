@@ -1,12 +1,3 @@
----
-title: HDE Men&#x27;s Rechargeable Cordless Travel Shaver Razor Electric Precision Trimmer Groomer- Carbon Fiber Gray,
-description: HDE Men&#x27;s Rechargeable Cordless Travel Shaver Razor Electric Precision Trimmer Groomer- Carbon Fiber Gray,
-author: Suvojit Manna,
-tags: HDE Men&#x27;s Rechargeable Cordless Travel Shaver Razor Electric Precision Trimmer Groomer- Carbon Fiber Gray,
-publishedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
----
-
 # [HDE Men&#x27;s Rechargeable Cordless Travel Shaver Razor Electric Precision Trimmer Groomer- Carbon Fiber Gray](https://products.checkmycream.com/products/HDE-Men&#x27;s-Rechargeable-Cordless-Travel-Shaver-Razor-Electric-Precision-Trimmer-Groomer-Carbon-Fiber-Gray.html)
 
 ### Positive Reviews

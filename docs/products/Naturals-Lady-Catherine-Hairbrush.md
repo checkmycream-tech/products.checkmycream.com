@@ -1,12 +1,3 @@
----
-title: Naturals Lady Catherine Hairbrush,
-description: Naturals Lady Catherine Hairbrush,
-author: Suvojit Manna,
-tags: Naturals Lady Catherine Hairbrush,
-publishedAt: Fri Jan 10 2020 14:59:38 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:38 GMT+0530 (India Standard Time),
----
-
 # [Naturals Lady Catherine Hairbrush](https://products.checkmycream.com/products/Naturals-Lady-Catherine-Hairbrush.html)
 
 ### Positive Reviews

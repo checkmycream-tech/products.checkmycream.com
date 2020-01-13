@@ -1,12 +1,3 @@
----
-title: Goody Colour Collection Metallic Finish Bobby Pin,
-description: Goody Colour Collection Metallic Finish Bobby Pin,
-author: Suvojit Manna,
-tags: Goody Colour Collection Metallic Finish Bobby Pin,
-publishedAt: Fri Jan 10 2020 14:59:32 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:32 GMT+0530 (India Standard Time),
----
-
 # [Goody Colour Collection Metallic Finish Bobby Pin](https://products.checkmycream.com/products/Goody-Colour-Collection-Metallic-Finish-Bobby-Pin.html)
 
 ### Positive Reviews

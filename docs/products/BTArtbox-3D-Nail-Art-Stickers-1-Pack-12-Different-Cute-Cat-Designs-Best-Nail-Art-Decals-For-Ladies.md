@@ -1,12 +1,3 @@
----
-title: BTArtbox 3D Nail Art Stickers 1 Pack 12 Different Cute Cat Designs Best Nail Art Decals For Ladies,
-description: BTArtbox 3D Nail Art Stickers 1 Pack 12 Different Cute Cat Designs Best Nail Art Decals For Ladies,
-author: Suvojit Manna,
-tags: BTArtbox 3D Nail Art Stickers 1 Pack 12 Different Cute Cat Designs Best Nail Art Decals For Ladies,
-publishedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
----
-
 # [BTArtbox 3D Nail Art Stickers 1 Pack 12 Different Cute Cat Designs Best Nail Art Decals For Ladies](https://products.checkmycream.com/products/BTArtbox-3D-Nail-Art-Stickers-1-Pack-12-Different-Cute-Cat-Designs-Best-Nail-Art-Decals-For-Ladies.html)
 
 ### Positive Reviews

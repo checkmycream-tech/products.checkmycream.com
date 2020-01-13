@@ -1,12 +1,3 @@
----
-title: L&#x27;oreal Serie Expert Fibreceutic Fibreceutic (Fibre Filling) Serum (3 bottles of 15 ml),
-description: L&#x27;oreal Serie Expert Fibreceutic Fibreceutic (Fibre Filling) Serum (3 bottles of 15 ml),
-author: Suvojit Manna,
-tags: L&#x27;oreal Serie Expert Fibreceutic Fibreceutic (Fibre Filling) Serum (3 bottles of 15 ml),
-publishedAt: Fri Jan 10 2020 15:00:09 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:09 GMT+0530 (India Standard Time),
----
-
 # [L&#x27;oreal Serie Expert Fibreceutic Fibreceutic (Fibre Filling) Serum (3 bottles of 15 ml)](https://products.checkmycream.com/products/L&#x27;oreal-Serie-Expert-Fibreceutic-Fibreceutic-(Fibre-Filling)-Serum-(3-bottles-of-15-ml).html)
 
 ### Positive Reviews

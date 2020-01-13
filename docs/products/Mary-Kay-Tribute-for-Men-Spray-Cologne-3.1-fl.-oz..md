@@ -1,12 +1,3 @@
----
-title: Mary Kay Tribute for Men Spray Cologne 3.1 fl. oz.,
-description: Mary Kay Tribute for Men Spray Cologne 3.1 fl. oz.,
-author: Suvojit Manna,
-tags: Mary Kay Tribute for Men Spray Cologne 3.1 fl. oz.,
-publishedAt: Fri Jan 10 2020 15:00:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:00 GMT+0530 (India Standard Time),
----
-
 # [Mary Kay Tribute for Men Spray Cologne 3.1 fl. oz.](https://products.checkmycream.com/products/Mary-Kay-Tribute-for-Men-Spray-Cologne-3.1-fl.-oz..html)
 
 ### Positive Reviews

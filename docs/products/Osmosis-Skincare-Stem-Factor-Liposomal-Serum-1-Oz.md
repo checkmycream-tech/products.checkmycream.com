@@ -1,12 +1,3 @@
----
-title: Osmosis Skincare Stem Factor Liposomal Serum, 1 Oz,
-description: Osmosis Skincare Stem Factor Liposomal Serum, 1 Oz,
-author: Suvojit Manna,
-tags: Osmosis Skincare Stem Factor Liposomal Serum, 1 Oz,
-publishedAt: Fri Jan 10 2020 15:00:17 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:17 GMT+0530 (India Standard Time),
----
-
 # [Osmosis Skincare Stem Factor Liposomal Serum, 1 Oz](https://products.checkmycream.com/products/Osmosis-Skincare-Stem-Factor-Liposomal-Serum-1-Oz.html)
 
 ### Positive Reviews

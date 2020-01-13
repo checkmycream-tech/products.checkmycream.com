@@ -1,12 +1,3 @@
----
-title: Bath &amp; Body Works Japanese Cherry Blossom Signature Collection Body Lotion 8 fl oz (236 ml) - New Formula (2 Pack),
-description: Bath &amp; Body Works Japanese Cherry Blossom Signature Collection Body Lotion 8 fl oz (236 ml) - New Formula (2 Pack),
-author: Suvojit Manna,
-tags: Bath &amp; Body Works Japanese Cherry Blossom Signature Collection Body Lotion 8 fl oz (236 ml) - New Formula (2 Pack),
-publishedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
----
-
 # [Bath &amp; Body Works Japanese Cherry Blossom Signature Collection Body Lotion 8 fl oz (236 ml) - New Formula (2 Pack)](https://products.checkmycream.com/products/Bath-and-Body-Works-Japanese-Cherry-Blossom-Signature-Collection-Body-Lotion-8-fl-oz-(236-ml)-New-Formula-(2-Pack).html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: NYX Slim Lip Liner Pencil - Deep Purple - SLP 808,
-description: NYX Slim Lip Liner Pencil - Deep Purple - SLP 808,
-author: Suvojit Manna,
-tags: NYX Slim Lip Liner Pencil - Deep Purple - SLP 808,
-publishedAt: Fri Jan 10 2020 14:59:39 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:39 GMT+0530 (India Standard Time),
----
-
 # [NYX Slim Lip Liner Pencil - Deep Purple - SLP 808](https://products.checkmycream.com/products/NYX-Slim-Lip-Liner-Pencil-Deep-Purple-SLP-808.html)
 
 ### Positive Reviews

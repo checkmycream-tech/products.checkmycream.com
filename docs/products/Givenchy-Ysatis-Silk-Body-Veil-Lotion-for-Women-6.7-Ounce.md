@@ -1,12 +1,3 @@
----
-title: Givenchy Ysatis Silk Body Veil Lotion for Women, 6.7 Ounce,
-description: Givenchy Ysatis Silk Body Veil Lotion for Women, 6.7 Ounce,
-author: Suvojit Manna,
-tags: Givenchy Ysatis Silk Body Veil Lotion for Women, 6.7 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:20 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:20 GMT+0530 (India Standard Time),
----
-
 # [Givenchy Ysatis Silk Body Veil Lotion for Women, 6.7 Ounce](https://products.checkmycream.com/products/Givenchy-Ysatis-Silk-Body-Veil-Lotion-for-Women-6.7-Ounce.html)
 
 ### Positive Reviews

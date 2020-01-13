@@ -1,12 +1,3 @@
----
-title: Garnier Fructis Triple Nutrition Nutrient Spray 4.2oz (6 Pack),
-description: Garnier Fructis Triple Nutrition Nutrient Spray 4.2oz (6 Pack),
-author: Suvojit Manna,
-tags: Garnier Fructis Triple Nutrition Nutrient Spray 4.2oz (6 Pack),
-publishedAt: Fri Jan 10 2020 15:01:04 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:04 GMT+0530 (India Standard Time),
----
-
 # [Garnier Fructis Triple Nutrition Nutrient Spray 4.2oz (6 Pack)](https://products.checkmycream.com/products/Garnier-Fructis-Triple-Nutrition-Nutrient-Spray-4.2oz-(6-Pack).html)
 
 ### Positive Reviews

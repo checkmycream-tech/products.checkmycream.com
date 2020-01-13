@@ -1,12 +1,3 @@
----
-title: Youth Dew Eau de Parfum for Women by Estée Lauder,
-description: Youth Dew Eau de Parfum for Women by Estée Lauder,
-author: Suvojit Manna,
-tags: Youth Dew Eau de Parfum for Women by Estée Lauder,
-publishedAt: Fri Jan 10 2020 15:00:07 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:07 GMT+0530 (India Standard Time),
----
-
 # [Youth Dew Eau de Parfum for Women by Estée Lauder](https://products.checkmycream.com/products/Youth-Dew-Eau-de-Parfum-for-Women-by-Estee-Lauder.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Dermal Repair Cream,
-description: Dermal Repair Cream,
-author: Suvojit Manna,
-tags: Dermal Repair Cream,
-publishedAt: Fri Jan 10 2020 14:59:17 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:17 GMT+0530 (India Standard Time),
----
-
 # [Dermal Repair Cream](https://products.checkmycream.com/products/Dermal-Repair-Cream.html)
 
 ### Positive Reviews

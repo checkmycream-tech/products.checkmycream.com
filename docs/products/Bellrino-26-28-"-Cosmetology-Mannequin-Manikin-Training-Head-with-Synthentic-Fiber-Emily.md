@@ -1,12 +1,3 @@
----
-title: Bellrino 26 - 28 &quot; Cosmetology Mannequin Manikin Training Head with Synthentic Fiber - Emily,
-description: Bellrino 26 - 28 &quot; Cosmetology Mannequin Manikin Training Head with Synthentic Fiber - Emily,
-author: Suvojit Manna,
-tags: Bellrino 26 - 28 &quot; Cosmetology Mannequin Manikin Training Head with Synthentic Fiber - Emily,
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [Bellrino 26 - 28 &quot; Cosmetology Mannequin Manikin Training Head with Synthentic Fiber - Emily](https://products.checkmycream.com/products/Bellrino-26-28-&quot;-Cosmetology-Mannequin-Manikin-Training-Head-with-Synthentic-Fiber-Emily.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Kojie San Whitening Face Cream, 30g,
-description: Kojie San Whitening Face Cream, 30g,
-author: Suvojit Manna,
-tags: Kojie San Whitening Face Cream, 30g,
-publishedAt: Fri Jan 10 2020 15:00:17 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:17 GMT+0530 (India Standard Time),
----
-
 # [Kojie San Whitening Face Cream, 30g](https://products.checkmycream.com/products/Kojie-San-Whitening-Face-Cream-30g.html)
 
 ### Positive Reviews

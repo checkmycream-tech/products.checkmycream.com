@@ -1,12 +1,3 @@
----
-title: Clinique 3 Piece Long Last Lipstick Trio Set,
-description: Clinique 3 Piece Long Last Lipstick Trio Set,
-author: Suvojit Manna,
-tags: Clinique 3 Piece Long Last Lipstick Trio Set,
-publishedAt: Fri Jan 10 2020 14:59:52 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:52 GMT+0530 (India Standard Time),
----
-
 # [Clinique 3 Piece Long Last Lipstick Trio Set](https://products.checkmycream.com/products/Clinique-3-Piece-Long-Last-Lipstick-Trio-Set.html)
 
 ### Positive Reviews

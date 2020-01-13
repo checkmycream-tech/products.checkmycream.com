@@ -1,12 +1,3 @@
----
-title: Vanderbilt By Gloria Vanderbilt Edt Spray/FN120277/3.4 oz/women/,
-description: Vanderbilt By Gloria Vanderbilt Edt Spray/FN120277/3.4 oz/women/,
-author: Suvojit Manna,
-tags: Vanderbilt By Gloria Vanderbilt Edt Spray/FN120277/3.4 oz/women/,
-publishedAt: Fri Jan 10 2020 14:59:32 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:32 GMT+0530 (India Standard Time),
----
-
 # [Vanderbilt By Gloria Vanderbilt Edt Spray/FN120277/3.4 oz/women/](https://products.checkmycream.com/products/Vanderbilt-By-Gloria-Vanderbilt-Edt-SprayFN1202773.4-ozwomen.html)
 
 ### Positive Reviews

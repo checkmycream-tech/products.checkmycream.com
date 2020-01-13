@@ -1,12 +1,3 @@
----
-title: Style Sexy Hair Hard up Gel - Shine 9 / Hold 10, 10.2-ounce (Pack of 2) 100% more Free,
-description: Style Sexy Hair Hard up Gel - Shine 9 / Hold 10, 10.2-ounce (Pack of 2) 100% more Free,
-author: Suvojit Manna,
-tags: Style Sexy Hair Hard up Gel - Shine 9 / Hold 10, 10.2-ounce (Pack of 2) 100% more Free,
-publishedAt: Fri Jan 10 2020 15:01:06 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:06 GMT+0530 (India Standard Time),
----
-
 # [Style Sexy Hair Hard up Gel - Shine 9 / Hold 10, 10.2-ounce (Pack of 2) 100% more Free](https://products.checkmycream.com/products/Style-Sexy-Hair-Hard-up-Gel-Shine-9-Hold-10-10.2-ounce-(Pack-of-2)-100percent-more-Free.html)
 
 ### Positive Reviews

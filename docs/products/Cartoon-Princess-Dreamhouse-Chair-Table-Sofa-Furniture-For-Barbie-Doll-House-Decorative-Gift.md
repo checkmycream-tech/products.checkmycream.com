@@ -1,12 +1,3 @@
----
-title: Cartoon Princess Dreamhouse Chair Table Sofa Furniture For Barbie Doll House Decorative Gift,
-description: Cartoon Princess Dreamhouse Chair Table Sofa Furniture For Barbie Doll House Decorative Gift,
-author: Suvojit Manna,
-tags: Cartoon Princess Dreamhouse Chair Table Sofa Furniture For Barbie Doll House Decorative Gift,
-publishedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
----
-
 # [Cartoon Princess Dreamhouse Chair Table Sofa Furniture For Barbie Doll House Decorative Gift](https://products.checkmycream.com/products/Cartoon-Princess-Dreamhouse-Chair-Table-Sofa-Furniture-For-Barbie-Doll-House-Decorative-Gift.html)
 
 ### Positive Reviews

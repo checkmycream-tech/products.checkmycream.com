@@ -1,12 +1,3 @@
----
-title: Soft &#x27;N Style Sparkler Bottle, 12 oz,
-description: Soft &#x27;N Style Sparkler Bottle, 12 oz,
-author: Suvojit Manna,
-tags: Soft &#x27;N Style Sparkler Bottle, 12 oz,
-publishedAt: Fri Jan 10 2020 14:59:34 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:34 GMT+0530 (India Standard Time),
----
-
 # [Soft &#x27;N Style Sparkler Bottle, 12 oz](https://products.checkmycream.com/products/Soft-&#x27;N-Style-Sparkler-Bottle-12-oz.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Ch L&#x27;eau Carolina Herrera (new) By Carolina Herrera Eau Fraiche Spray/FN218221/1.7 oz/women/,
-description: Ch L&#x27;eau Carolina Herrera (new) By Carolina Herrera Eau Fraiche Spray/FN218221/1.7 oz/women/,
-author: Suvojit Manna,
-tags: Ch L&#x27;eau Carolina Herrera (new) By Carolina Herrera Eau Fraiche Spray/FN218221/1.7 oz/women/,
-publishedAt: Fri Jan 10 2020 15:00:11 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:11 GMT+0530 (India Standard Time),
----
-
 # [Ch L&#x27;eau Carolina Herrera (new) By Carolina Herrera Eau Fraiche Spray/FN218221/1.7 oz/women/](https://products.checkmycream.com/products/Ch-L&#x27;eau-Carolina-Herrera-(new)-By-Carolina-Herrera-Eau-Fraiche-SprayFN2182211.7-ozwomen.html)
 
 ### Positive Reviews

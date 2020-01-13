@@ -1,12 +1,3 @@
----
-title: Alaffia Everyday Coconut Coconut Water Face Toner, 12 oz,
-description: Alaffia Everyday Coconut Coconut Water Face Toner, 12 oz,
-author: Suvojit Manna,
-tags: Alaffia Everyday Coconut Coconut Water Face Toner, 12 oz,
-publishedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
----
-
 # [Alaffia Everyday Coconut Coconut Water Face Toner, 12 oz](https://products.checkmycream.com/products/Alaffia-Everyday-Coconut-Coconut-Water-Face-Toner-12-oz.html)
 
 ### Positive Reviews

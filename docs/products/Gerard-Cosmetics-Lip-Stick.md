@@ -1,12 +1,3 @@
----
-title: Gerard Cosmetics Lip Stick,
-description: Gerard Cosmetics Lip Stick,
-author: Suvojit Manna,
-tags: Gerard Cosmetics Lip Stick,
-publishedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
----
-
 # [Gerard Cosmetics Lip Stick](https://products.checkmycream.com/products/Gerard-Cosmetics-Lip-Stick.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Wintergreen Essential Oil. 100% Pure, Undiluted, Therapeutic Grade.,
-description: Wintergreen Essential Oil. 100% Pure, Undiluted, Therapeutic Grade.,
-author: Suvojit Manna,
-tags: Wintergreen Essential Oil. 100% Pure, Undiluted, Therapeutic Grade.,
-publishedAt: Fri Jan 10 2020 15:00:14 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:14 GMT+0530 (India Standard Time),
----
-
 # [Wintergreen Essential Oil. 100% Pure, Undiluted, Therapeutic Grade.](https://products.checkmycream.com/products/Wintergreen-Essential-Oil.-100percent-Pure-Undiluted-Therapeutic-Grade..html)
 
 ### Positive Reviews

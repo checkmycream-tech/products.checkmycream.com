@@ -1,12 +1,3 @@
----
-title: Mia Secret XTRABOND No-Burn Acid-free Primer 1/2 oz. for Acrylic and UV Gels,
-description: Mia Secret XTRABOND No-Burn Acid-free Primer 1/2 oz. for Acrylic and UV Gels,
-author: Suvojit Manna,
-tags: Mia Secret XTRABOND No-Burn Acid-free Primer 1/2 oz. for Acrylic and UV Gels,
-publishedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
----
-
 # [Mia Secret XTRABOND No-Burn Acid-free Primer 1/2 oz. for Acrylic and UV Gels](https://products.checkmycream.com/products/Mia-Secret-XTRABOND-No-Burn-Acid-free-Primer-12-oz.-for-Acrylic-and-UV-Gels.html)
 
 ### Positive Reviews

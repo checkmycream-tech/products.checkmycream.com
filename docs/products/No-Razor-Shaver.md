@@ -1,12 +1,3 @@
----
-title: No Razor Shaver,
-description: No Razor Shaver,
-author: Suvojit Manna,
-tags: No Razor Shaver,
-publishedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
----
-
 # [No Razor Shaver](https://products.checkmycream.com/products/No-Razor-Shaver.html)
 
 ### Positive Reviews

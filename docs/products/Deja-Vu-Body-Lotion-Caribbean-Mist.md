@@ -1,12 +1,3 @@
----
-title: Deja Vu Body Lotion Caribbean Mist,
-description: Deja Vu Body Lotion Caribbean Mist,
-author: Suvojit Manna,
-tags: Deja Vu Body Lotion Caribbean Mist,
-publishedAt: Fri Jan 10 2020 15:00:21 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:21 GMT+0530 (India Standard Time),
----
-
 # [Deja Vu Body Lotion Caribbean Mist](https://products.checkmycream.com/products/Deja-Vu-Body-Lotion-Caribbean-Mist.html)
 
 ### Positive Reviews

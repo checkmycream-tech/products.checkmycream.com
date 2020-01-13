@@ -1,12 +1,3 @@
----
-title: BRAUN 32S Series 3 Foil &amp; Cutter Cassette Replacement,
-description: BRAUN 32S Series 3 Foil &amp; Cutter Cassette Replacement,
-author: Suvojit Manna,
-tags: BRAUN 32S Series 3 Foil &amp; Cutter Cassette Replacement,
-publishedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
----
-
 # [BRAUN 32S Series 3 Foil &amp; Cutter Cassette Replacement](https://products.checkmycream.com/products/BRAUN-32S-Series-3-Foil-and-Cutter-Cassette-Replacement.html)
 
 ### Positive Reviews

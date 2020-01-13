@@ -1,12 +1,3 @@
----
-title: Touch By Fred Hayman For Women,
-description: Touch By Fred Hayman For Women,
-author: Suvojit Manna,
-tags: Touch By Fred Hayman For Women,
-publishedAt: Fri Jan 10 2020 14:59:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:05 GMT+0530 (India Standard Time),
----
-
 # [Touch By Fred Hayman For Women](https://products.checkmycream.com/products/Touch-By-Fred-Hayman-For-Women.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: COVERGIRL Cheekers Blendable Powder Bronzer Golden Tan, .12 oz,
-description: COVERGIRL Cheekers Blendable Powder Bronzer Golden Tan, .12 oz,
-author: Suvojit Manna,
-tags: COVERGIRL Cheekers Blendable Powder Bronzer Golden Tan, .12 oz,
-publishedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
----
-
 # [COVERGIRL Cheekers Blendable Powder Bronzer Golden Tan, .12 oz](https://products.checkmycream.com/products/COVERGIRL-Cheekers-Blendable-Powder-Bronzer-Golden-Tan-.12-oz.html)
 
 ### Positive Reviews

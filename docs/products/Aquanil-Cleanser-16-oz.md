@@ -1,12 +1,3 @@
----
-title: Aquanil Cleanser 16 oz,
-description: Aquanil Cleanser 16 oz,
-author: Suvojit Manna,
-tags: Aquanil Cleanser 16 oz,
-publishedAt: Fri Jan 10 2020 15:00:14 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:14 GMT+0530 (India Standard Time),
----
-
 # [Aquanil Cleanser 16 oz](https://products.checkmycream.com/products/Aquanil-Cleanser-16-oz.html)
 
 ### Positive Reviews

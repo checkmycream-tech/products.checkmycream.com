@@ -1,12 +1,3 @@
----
-title: Bath Body Works Black Amethyst Body Lotion 8.0 oz,
-description: Bath Body Works Black Amethyst Body Lotion 8.0 oz,
-author: Suvojit Manna,
-tags: Bath Body Works Black Amethyst Body Lotion 8.0 oz,
-publishedAt: Fri Jan 10 2020 15:00:32 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:32 GMT+0530 (India Standard Time),
----
-
 # [Bath Body Works Black Amethyst Body Lotion 8.0 oz](https://products.checkmycream.com/products/Bath-Body-Works-Black-Amethyst-Body-Lotion-8.0-oz.html)
 
 ### Positive Reviews

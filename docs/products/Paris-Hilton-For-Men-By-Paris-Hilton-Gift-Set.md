@@ -1,12 +1,3 @@
----
-title: Paris Hilton For Men By Paris Hilton Gift Set,
-description: Paris Hilton For Men By Paris Hilton Gift Set,
-author: Suvojit Manna,
-tags: Paris Hilton For Men By Paris Hilton Gift Set,
-publishedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:35 GMT+0530 (India Standard Time),
----
-
 # [Paris Hilton For Men By Paris Hilton Gift Set](https://products.checkmycream.com/products/Paris-Hilton-For-Men-By-Paris-Hilton-Gift-Set.html)
 
 ### Positive Reviews

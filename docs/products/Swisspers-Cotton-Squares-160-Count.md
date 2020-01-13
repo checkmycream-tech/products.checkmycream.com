@@ -1,12 +1,3 @@
----
-title: Swisspers Cotton Squares, 160 Count,
-description: Swisspers Cotton Squares, 160 Count,
-author: Suvojit Manna,
-tags: Swisspers Cotton Squares, 160 Count,
-publishedAt: Fri Jan 10 2020 14:59:32 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:32 GMT+0530 (India Standard Time),
----
-
 # [Swisspers Cotton Squares, 160 Count](https://products.checkmycream.com/products/Swisspers-Cotton-Squares-160-Count.html)
 
 ### Positive Reviews

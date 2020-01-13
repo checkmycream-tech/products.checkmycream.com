@@ -1,12 +1,3 @@
----
-title: TDI Hair Knot Sealer 4.0 oz,
-description: TDI Hair Knot Sealer 4.0 oz,
-author: Suvojit Manna,
-tags: TDI Hair Knot Sealer 4.0 oz,
-publishedAt: Fri Jan 10 2020 14:59:25 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:25 GMT+0530 (India Standard Time),
----
-
 # [TDI Hair Knot Sealer 4.0 oz](https://products.checkmycream.com/products/TDI-Hair-Knot-Sealer-4.0-oz.html)
 
 ### Positive Reviews

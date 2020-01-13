@@ -1,12 +1,3 @@
----
-title: Alba Botanica Hawaiian Shampoo,
-description: Alba Botanica Hawaiian Shampoo,
-author: Suvojit Manna,
-tags: Alba Botanica Hawaiian Shampoo,
-publishedAt: Fri Jan 10 2020 15:00:28 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:28 GMT+0530 (India Standard Time),
----
-
 # [Alba Botanica Hawaiian Shampoo](https://products.checkmycream.com/products/Alba-Botanica-Hawaiian-Shampoo.html)
 
 ### Positive Reviews

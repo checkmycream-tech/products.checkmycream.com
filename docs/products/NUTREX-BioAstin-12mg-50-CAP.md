@@ -1,12 +1,3 @@
----
-title: NUTREX BioAstin 12mg - 50 CAP,
-description: NUTREX BioAstin 12mg - 50 CAP,
-author: Suvojit Manna,
-tags: NUTREX BioAstin 12mg - 50 CAP,
-publishedAt: Fri Jan 10 2020 15:00:45 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:45 GMT+0530 (India Standard Time),
----
-
 # [NUTREX BioAstin 12mg - 50 CAP](https://products.checkmycream.com/products/NUTREX-BioAstin-12mg-50-CAP.html)
 
 ### Positive Reviews

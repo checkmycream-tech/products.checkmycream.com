@@ -1,12 +1,3 @@
----
-title: KMS California Color Vitality Blond Shampoo (select option/size),
-description: KMS California Color Vitality Blond Shampoo (select option/size),
-author: Suvojit Manna,
-tags: KMS California Color Vitality Blond Shampoo (select option/size),
-publishedAt: Fri Jan 10 2020 15:00:11 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:11 GMT+0530 (India Standard Time),
----
-
 # [KMS California Color Vitality Blond Shampoo (select option/size)](https://products.checkmycream.com/products/KMS-California-Color-Vitality-Blond-Shampoo-(select-optionsize).html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Hi &amp; Dri Anti Perspirant Deodorant Roll On Powder Fresh,
-description: Hi &amp; Dri Anti Perspirant Deodorant Roll On Powder Fresh,
-author: Suvojit Manna,
-tags: Hi &amp; Dri Anti Perspirant Deodorant Roll On Powder Fresh,
-publishedAt: Fri Jan 10 2020 15:00:31 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:31 GMT+0530 (India Standard Time),
----
-
 # [Hi &amp; Dri Anti Perspirant Deodorant Roll On Powder Fresh](https://products.checkmycream.com/products/Hi-and-Dri-Anti-Perspirant-Deodorant-Roll-On-Powder-Fresh.html)
 
 ### Positive Reviews

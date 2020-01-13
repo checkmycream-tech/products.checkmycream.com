@@ -1,12 +1,3 @@
----
-title: Maybelline New York Colorsensational Pearls Lipcolor, 0.15 Ounce,
-description: Maybelline New York Colorsensational Pearls Lipcolor, 0.15 Ounce,
-author: Suvojit Manna,
-tags: Maybelline New York Colorsensational Pearls Lipcolor, 0.15 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:00 GMT+0530 (India Standard Time),
----
-
 # [Maybelline New York Colorsensational Pearls Lipcolor, 0.15 Ounce](https://products.checkmycream.com/products/Maybelline-New-York-Colorsensational-Pearls-Lipcolor-0.15-Ounce.html)
 
 ### Positive Reviews

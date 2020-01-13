@@ -1,12 +1,3 @@
----
-title: ZPS Women Pure Candy Long Crinkle Soft Scarf (Red),
-description: ZPS Women Pure Candy Long Crinkle Soft Scarf (Red),
-author: Suvojit Manna,
-tags: ZPS Women Pure Candy Long Crinkle Soft Scarf (Red),
-publishedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
----
-
 # [ZPS Women Pure Candy Long Crinkle Soft Scarf (Red)](https://products.checkmycream.com/products/ZPS-Women-Pure-Candy-Long-Crinkle-Soft-Scarf-(Red).html)
 
 ### Positive Reviews

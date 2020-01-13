@@ -1,12 +1,3 @@
----
-title: Right Guard Sport 3-D Odor Defense, Antiperspirant &amp; Deodorant Aerosol 6 oz (170 g),
-description: Right Guard Sport 3-D Odor Defense, Antiperspirant &amp; Deodorant Aerosol 6 oz (170 g),
-author: Suvojit Manna,
-tags: Right Guard Sport 3-D Odor Defense, Antiperspirant &amp; Deodorant Aerosol 6 oz (170 g),
-publishedAt: Fri Jan 10 2020 14:58:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:58:58 GMT+0530 (India Standard Time),
----
-
 # [Right Guard Sport 3-D Odor Defense, Antiperspirant &amp; Deodorant Aerosol 6 oz (170 g)](https://products.checkmycream.com/products/Right-Guard-Sport-3-D-Odor-Defense-Antiperspirant-and-Deodorant-Aerosol-6-oz-(170-g).html)
 
 ### Positive Reviews

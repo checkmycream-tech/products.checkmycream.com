@@ -1,12 +1,3 @@
----
-title: B United Jeans by Benetton for Women. Eau De Toilette Spray 3.3-Ounces,
-description: B United Jeans by Benetton for Women. Eau De Toilette Spray 3.3-Ounces,
-author: Suvojit Manna,
-tags: B United Jeans by Benetton for Women. Eau De Toilette Spray 3.3-Ounces,
-publishedAt: Fri Jan 10 2020 14:59:33 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:33 GMT+0530 (India Standard Time),
----
-
 # [B United Jeans by Benetton for Women. Eau De Toilette Spray 3.3-Ounces](https://products.checkmycream.com/products/B-United-Jeans-by-Benetton-for-Women.-Eau-De-Toilette-Spray-3.3-Ounces.html)
 
 ### Positive Reviews

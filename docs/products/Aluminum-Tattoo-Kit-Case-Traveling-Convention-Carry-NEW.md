@@ -1,12 +1,3 @@
----
-title: Aluminum Tattoo Kit Case Traveling Convention Carry NEW,
-description: Aluminum Tattoo Kit Case Traveling Convention Carry NEW,
-author: Suvojit Manna,
-tags: Aluminum Tattoo Kit Case Traveling Convention Carry NEW,
-publishedAt: Fri Jan 10 2020 15:00:06 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:06 GMT+0530 (India Standard Time),
----
-
 # [Aluminum Tattoo Kit Case Traveling Convention Carry NEW](https://products.checkmycream.com/products/Aluminum-Tattoo-Kit-Case-Traveling-Convention-Carry-NEW.html)
 
 ### Positive Reviews

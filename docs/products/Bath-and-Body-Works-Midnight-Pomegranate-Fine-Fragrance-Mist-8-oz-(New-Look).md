@@ -1,12 +1,3 @@
----
-title: Bath &amp; Body Works Midnight Pomegranate Fine Fragrance Mist 8 oz (New Look),
-description: Bath &amp; Body Works Midnight Pomegranate Fine Fragrance Mist 8 oz (New Look),
-author: Suvojit Manna,
-tags: Bath &amp; Body Works Midnight Pomegranate Fine Fragrance Mist 8 oz (New Look),
-publishedAt: Fri Jan 10 2020 15:00:18 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:18 GMT+0530 (India Standard Time),
----
-
 # [Bath &amp; Body Works Midnight Pomegranate Fine Fragrance Mist 8 oz (New Look)](https://products.checkmycream.com/products/Bath-and-Body-Works-Midnight-Pomegranate-Fine-Fragrance-Mist-8-oz-(New-Look).html)
 
 ### Positive Reviews

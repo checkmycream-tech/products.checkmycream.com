@@ -1,12 +1,3 @@
----
-title: Wahl Shaver Charger Cord,
-description: Wahl Shaver Charger Cord,
-author: Suvojit Manna,
-tags: Wahl Shaver Charger Cord,
-publishedAt: Fri Jan 10 2020 15:00:29 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:29 GMT+0530 (India Standard Time),
----
-
 # [Wahl Shaver Charger Cord](https://products.checkmycream.com/products/Wahl-Shaver-Charger-Cord.html)
 
 ### Positive Reviews

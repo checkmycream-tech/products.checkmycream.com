@@ -1,12 +1,3 @@
----
-title: Creative Nail Scrubfresh Coat, 8 Fluid Ounce,
-description: Creative Nail Scrubfresh Coat, 8 Fluid Ounce,
-author: Suvojit Manna,
-tags: Creative Nail Scrubfresh Coat, 8 Fluid Ounce,
-publishedAt: Fri Jan 10 2020 15:00:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:02 GMT+0530 (India Standard Time),
----
-
 # [Creative Nail Scrubfresh Coat, 8 Fluid Ounce](https://products.checkmycream.com/products/Creative-Nail-Scrubfresh-Coat-8-Fluid-Ounce.html)
 
 ### Positive Reviews

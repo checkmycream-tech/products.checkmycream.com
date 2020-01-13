@@ -1,12 +1,3 @@
----
-title: Pantene Repair &amp; Protect Shampoo, 21.1 Fl Oz, 21.100-Fluid Ounce,
-description: Pantene Repair &amp; Protect Shampoo, 21.1 Fl Oz, 21.100-Fluid Ounce,
-author: Suvojit Manna,
-tags: Pantene Repair &amp; Protect Shampoo, 21.1 Fl Oz, 21.100-Fluid Ounce,
-publishedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
----
-
 # [Pantene Repair &amp; Protect Shampoo, 21.1 Fl Oz, 21.100-Fluid Ounce](https://products.checkmycream.com/products/Pantene-Repair-and-Protect-Shampoo-21.1-Fl-Oz-21.100-Fluid-Ounce.html)
 
 ### Positive Reviews

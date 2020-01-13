@@ -1,12 +1,3 @@
----
-title: Bioderma Sebium Purifying and Foaming Cleansing Gel (For Combination/Oily Skin) - 200ml/6.7oz,
-description: Bioderma Sebium Purifying and Foaming Cleansing Gel (For Combination/Oily Skin) - 200ml/6.7oz,
-author: Suvojit Manna,
-tags: Bioderma Sebium Purifying and Foaming Cleansing Gel (For Combination/Oily Skin) - 200ml/6.7oz,
-publishedAt: Fri Jan 10 2020 14:59:22 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:22 GMT+0530 (India Standard Time),
----
-
 # [Bioderma Sebium Purifying and Foaming Cleansing Gel (For Combination/Oily Skin) - 200ml/6.7oz](https://products.checkmycream.com/products/Bioderma-Sebium-Purifying-and-Foaming-Cleansing-Gel-(For-CombinationOily-Skin)-200ml6.7oz.html)
 
 ### Positive Reviews

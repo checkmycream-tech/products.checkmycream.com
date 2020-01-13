@@ -1,12 +1,3 @@
----
-title: Pack Of 6, 2 Ounce Amber Glass Bottles For Essential Oils With Glass Eye Droppers from Earth&#x27;s Essentials,
-description: Pack Of 6, 2 Ounce Amber Glass Bottles For Essential Oils With Glass Eye Droppers from Earth&#x27;s Essentials,
-author: Suvojit Manna,
-tags: Pack Of 6, 2 Ounce Amber Glass Bottles For Essential Oils With Glass Eye Droppers from Earth&#x27;s Essentials,
-publishedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
----
-
 # [Pack Of 6, 2 Ounce Amber Glass Bottles For Essential Oils With Glass Eye Droppers from Earth&#x27;s Essentials](https://products.checkmycream.com/products/Pack-Of-6-2-Ounce-Amber-Glass-Bottles-For-Essential-Oils-With-Glass-Eye-Droppers-from-Earth&#x27;s-Essentials.html)
 
 ### Positive Reviews

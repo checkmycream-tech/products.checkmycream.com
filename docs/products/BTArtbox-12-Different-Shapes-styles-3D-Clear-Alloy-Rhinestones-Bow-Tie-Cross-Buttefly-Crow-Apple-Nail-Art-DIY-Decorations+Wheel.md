@@ -1,12 +1,3 @@
----
-title: BTArtbox 12 Different Shapes styles 3D Clear Alloy Rhinestones Bow Tie Cross Buttefly Crow Apple Nail Art DIY Decorations+Wheel,
-description: BTArtbox 12 Different Shapes styles 3D Clear Alloy Rhinestones Bow Tie Cross Buttefly Crow Apple Nail Art DIY Decorations+Wheel,
-author: Suvojit Manna,
-tags: BTArtbox 12 Different Shapes styles 3D Clear Alloy Rhinestones Bow Tie Cross Buttefly Crow Apple Nail Art DIY Decorations+Wheel,
-publishedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
----
-
 # [BTArtbox 12 Different Shapes styles 3D Clear Alloy Rhinestones Bow Tie Cross Buttefly Crow Apple Nail Art DIY Decorations+Wheel](https://products.checkmycream.com/products/BTArtbox-12-Different-Shapes-styles-3D-Clear-Alloy-Rhinestones-Bow-Tie-Cross-Buttefly-Crow-Apple-Nail-Art-DIY-Decorations+Wheel.html)
 
 ### Positive Reviews

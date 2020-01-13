@@ -1,12 +1,3 @@
----
-title: Scalpmaster Barber Jacket &amp; Cutting Cape Set, Black,
-description: Scalpmaster Barber Jacket &amp; Cutting Cape Set, Black,
-author: Suvojit Manna,
-tags: Scalpmaster Barber Jacket &amp; Cutting Cape Set, Black,
-publishedAt: Fri Jan 10 2020 14:59:11 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:11 GMT+0530 (India Standard Time),
----
-
 # [Scalpmaster Barber Jacket &amp; Cutting Cape Set, Black](https://products.checkmycream.com/products/Scalpmaster-Barber-Jacket-and-Cutting-Cape-Set-Black.html)
 
 ### Positive Reviews

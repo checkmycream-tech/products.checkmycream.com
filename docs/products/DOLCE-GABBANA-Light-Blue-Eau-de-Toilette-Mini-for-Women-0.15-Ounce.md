@@ -1,12 +1,3 @@
----
-title: DOLCE GABBANA Light Blue Eau de Toilette Mini for Women, 0.15 Ounce,
-description: DOLCE GABBANA Light Blue Eau de Toilette Mini for Women, 0.15 Ounce,
-author: Suvojit Manna,
-tags: DOLCE GABBANA Light Blue Eau de Toilette Mini for Women, 0.15 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:01 GMT+0530 (India Standard Time),
----
-
 # [DOLCE GABBANA Light Blue Eau de Toilette Mini for Women, 0.15 Ounce](https://products.checkmycream.com/products/DOLCE-GABBANA-Light-Blue-Eau-de-Toilette-Mini-for-Women-0.15-Ounce.html)
 
 ### Positive Reviews

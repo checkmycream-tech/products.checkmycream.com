@@ -1,12 +1,3 @@
----
-title: ACE Goody Handle Comb for Men 65909, Black,
-description: ACE Goody Handle Comb for Men 65909, Black,
-author: Suvojit Manna,
-tags: ACE Goody Handle Comb for Men 65909, Black,
-publishedAt: Fri Jan 10 2020 14:59:07 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:07 GMT+0530 (India Standard Time),
----
-
 # [ACE Goody Handle Comb for Men 65909, Black](https://products.checkmycream.com/products/ACE-Goody-Handle-Comb-for-Men-65909-Black.html)
 
 ### Positive Reviews

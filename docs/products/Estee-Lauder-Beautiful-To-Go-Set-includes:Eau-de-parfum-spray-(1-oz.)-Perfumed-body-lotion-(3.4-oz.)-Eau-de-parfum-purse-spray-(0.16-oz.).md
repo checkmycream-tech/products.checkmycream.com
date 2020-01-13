@@ -1,12 +1,3 @@
----
-title: Estee Lauder Beautiful To Go &#x3D; Set includes:Eau de parfum spray (1 oz.)&#x3D; Perfumed body lotion (3.4 oz.) &#x3D; Eau de parfum purse spray (0.16 oz.),
-description: Estee Lauder Beautiful To Go &#x3D; Set includes:Eau de parfum spray (1 oz.)&#x3D; Perfumed body lotion (3.4 oz.) &#x3D; Eau de parfum purse spray (0.16 oz.),
-author: Suvojit Manna,
-tags: Estee Lauder Beautiful To Go &#x3D; Set includes:Eau de parfum spray (1 oz.)&#x3D; Perfumed body lotion (3.4 oz.) &#x3D; Eau de parfum purse spray (0.16 oz.),
-publishedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
----
-
 # [Estee Lauder Beautiful To Go &#x3D; Set includes:Eau de parfum spray (1 oz.)&#x3D; Perfumed body lotion (3.4 oz.) &#x3D; Eau de parfum purse spray (0.16 oz.)](https://products.checkmycream.com/products/Estee-Lauder-Beautiful-To-Go-Set-includes:Eau-de-parfum-spray-(1-oz.)-Perfumed-body-lotion-(3.4-oz.)-Eau-de-parfum-purse-spray-(0.16-oz.).html)
 
 ### Positive Reviews

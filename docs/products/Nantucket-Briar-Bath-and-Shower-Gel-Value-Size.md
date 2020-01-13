@@ -1,12 +1,3 @@
----
-title: Nantucket Briar - Bath &amp; Shower Gel - Value Size,
-description: Nantucket Briar - Bath &amp; Shower Gel - Value Size,
-author: Suvojit Manna,
-tags: Nantucket Briar - Bath &amp; Shower Gel - Value Size,
-publishedAt: Fri Jan 10 2020 14:59:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:00 GMT+0530 (India Standard Time),
----
-
 # [Nantucket Briar - Bath &amp; Shower Gel - Value Size](https://products.checkmycream.com/products/Nantucket-Briar-Bath-and-Shower-Gel-Value-Size.html)
 
 ### Positive Reviews

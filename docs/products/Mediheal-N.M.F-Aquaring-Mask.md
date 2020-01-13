@@ -1,12 +1,3 @@
----
-title: Mediheal N.M.F Aquaring Mask,
-description: Mediheal N.M.F Aquaring Mask,
-author: Suvojit Manna,
-tags: Mediheal N.M.F Aquaring Mask,
-publishedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
----
-
 # [Mediheal N.M.F Aquaring Mask](https://products.checkmycream.com/products/Mediheal-N.M.F-Aquaring-Mask.html)
 
 ### Positive Reviews

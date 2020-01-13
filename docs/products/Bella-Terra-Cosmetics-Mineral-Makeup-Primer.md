@@ -1,12 +1,3 @@
----
-title: Bella Terra Cosmetics Mineral Makeup Primer,
-description: Bella Terra Cosmetics Mineral Makeup Primer,
-author: Suvojit Manna,
-tags: Bella Terra Cosmetics Mineral Makeup Primer,
-publishedAt: Fri Jan 10 2020 15:00:36 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:36 GMT+0530 (India Standard Time),
----
-
 # [Bella Terra Cosmetics Mineral Makeup Primer](https://products.checkmycream.com/products/Bella-Terra-Cosmetics-Mineral-Makeup-Primer.html)
 
 ### Positive Reviews

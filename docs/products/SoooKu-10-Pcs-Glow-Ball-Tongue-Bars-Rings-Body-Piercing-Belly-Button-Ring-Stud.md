@@ -1,12 +1,3 @@
----
-title: SoooKu 10 Pcs Glow Ball Tongue Bars Rings Body Piercing Belly Button Ring Stud,
-description: SoooKu 10 Pcs Glow Ball Tongue Bars Rings Body Piercing Belly Button Ring Stud,
-author: Suvojit Manna,
-tags: SoooKu 10 Pcs Glow Ball Tongue Bars Rings Body Piercing Belly Button Ring Stud,
-publishedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:59 GMT+0530 (India Standard Time),
----
-
 # [SoooKu 10 Pcs Glow Ball Tongue Bars Rings Body Piercing Belly Button Ring Stud](https://products.checkmycream.com/products/SoooKu-10-Pcs-Glow-Ball-Tongue-Bars-Rings-Body-Piercing-Belly-Button-Ring-Stud.html)
 
 ### Positive Reviews

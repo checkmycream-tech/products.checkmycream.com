@@ -1,12 +1,3 @@
----
-title: Arm Massage Shaper - Calorie Off (Black),
-description: Arm Massage Shaper - Calorie Off (Black),
-author: Suvojit Manna,
-tags: Arm Massage Shaper - Calorie Off (Black),
-publishedAt: Fri Jan 10 2020 15:00:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:08 GMT+0530 (India Standard Time),
----
-
 # [Arm Massage Shaper - Calorie Off (Black)](https://products.checkmycream.com/products/Arm-Massage-Shaper-Calorie-Off-(Black).html)
 
 ### Positive Reviews

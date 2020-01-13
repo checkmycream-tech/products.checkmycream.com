@@ -1,12 +1,3 @@
----
-title: Thymes Olive Leaf Hand Wash,
-description: Thymes Olive Leaf Hand Wash,
-author: Suvojit Manna,
-tags: Thymes Olive Leaf Hand Wash,
-publishedAt: Fri Jan 10 2020 14:59:43 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:43 GMT+0530 (India Standard Time),
----
-
 # [Thymes Olive Leaf Hand Wash](https://products.checkmycream.com/products/Thymes-Olive-Leaf-Hand-Wash.html)
 
 ### Positive Reviews

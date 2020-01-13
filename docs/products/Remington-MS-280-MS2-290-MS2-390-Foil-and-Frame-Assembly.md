@@ -1,12 +1,3 @@
----
-title: Remington MS-280, MS2-290, MS2-390 Foil and Frame Assembly,
-description: Remington MS-280, MS2-290, MS2-390 Foil and Frame Assembly,
-author: Suvojit Manna,
-tags: Remington MS-280, MS2-290, MS2-390 Foil and Frame Assembly,
-publishedAt: Fri Jan 10 2020 14:59:16 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:16 GMT+0530 (India Standard Time),
----
-
 # [Remington MS-280, MS2-290, MS2-390 Foil and Frame Assembly](https://products.checkmycream.com/products/Remington-MS-280-MS2-290-MS2-390-Foil-and-Frame-Assembly.html)
 
 ### Positive Reviews

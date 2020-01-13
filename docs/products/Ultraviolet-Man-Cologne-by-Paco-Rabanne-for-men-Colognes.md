@@ -1,12 +1,3 @@
----
-title: Ultraviolet Man Cologne by Paco Rabanne for men Colognes,
-description: Ultraviolet Man Cologne by Paco Rabanne for men Colognes,
-author: Suvojit Manna,
-tags: Ultraviolet Man Cologne by Paco Rabanne for men Colognes,
-publishedAt: Fri Jan 10 2020 14:59:16 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:16 GMT+0530 (India Standard Time),
----
-
 # [Ultraviolet Man Cologne by Paco Rabanne for men Colognes](https://products.checkmycream.com/products/Ultraviolet-Man-Cologne-by-Paco-Rabanne-for-men-Colognes.html)
 
 ### Positive Reviews

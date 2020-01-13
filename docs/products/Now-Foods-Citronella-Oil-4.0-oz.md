@@ -1,12 +1,3 @@
----
-title: Now Foods Citronella Oil, 4.0 oz,
-description: Now Foods Citronella Oil, 4.0 oz,
-author: Suvojit Manna,
-tags: Now Foods Citronella Oil, 4.0 oz,
-publishedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:33 GMT+0530 (India Standard Time),
----
-
 # [Now Foods Citronella Oil, 4.0 oz](https://products.checkmycream.com/products/Now-Foods-Citronella-Oil-4.0-oz.html)
 
 ### Positive Reviews

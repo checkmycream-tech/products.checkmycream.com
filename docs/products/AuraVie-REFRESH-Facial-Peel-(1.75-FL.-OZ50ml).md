@@ -1,12 +1,3 @@
----
-title: AuraVie REFRESH Facial Peel (1.75 FL. OZ/50ml),
-description: AuraVie REFRESH Facial Peel (1.75 FL. OZ/50ml),
-author: Suvojit Manna,
-tags: AuraVie REFRESH Facial Peel (1.75 FL. OZ/50ml),
-publishedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:39 GMT+0530 (India Standard Time),
----
-
 # [AuraVie REFRESH Facial Peel (1.75 FL. OZ/50ml)](https://products.checkmycream.com/products/AuraVie-REFRESH-Facial-Peel-(1.75-FL.-OZ50ml).html)
 
 ### Positive Reviews

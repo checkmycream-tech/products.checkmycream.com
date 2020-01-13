@@ -1,12 +1,3 @@
----
-title: Oribe Magnificent Volume Conditioner for Unisex, 6.8 Ounce,
-description: Oribe Magnificent Volume Conditioner for Unisex, 6.8 Ounce,
-author: Suvojit Manna,
-tags: Oribe Magnificent Volume Conditioner for Unisex, 6.8 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:33 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:33 GMT+0530 (India Standard Time),
----
-
 # [Oribe Magnificent Volume Conditioner for Unisex, 6.8 Ounce](https://products.checkmycream.com/products/Oribe-Magnificent-Volume-Conditioner-for-Unisex-6.8-Ounce.html)
 
 ### Positive Reviews

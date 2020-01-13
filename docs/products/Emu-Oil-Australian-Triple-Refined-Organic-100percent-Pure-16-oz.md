@@ -1,12 +1,3 @@
----
-title: Emu Oil Australian Triple Refined Organic 100% Pure 16 oz,
-description: Emu Oil Australian Triple Refined Organic 100% Pure 16 oz,
-author: Suvojit Manna,
-tags: Emu Oil Australian Triple Refined Organic 100% Pure 16 oz,
-publishedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
----
-
 # [Emu Oil Australian Triple Refined Organic 100% Pure 16 oz](https://products.checkmycream.com/products/Emu-Oil-Australian-Triple-Refined-Organic-100percent-Pure-16-oz.html)
 
 ### Positive Reviews

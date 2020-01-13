@@ -1,12 +1,3 @@
----
-title: TIGI Bed Head Creative Genius Styling Gel 8 Ounces (Pack of 3),
-description: TIGI Bed Head Creative Genius Styling Gel 8 Ounces (Pack of 3),
-author: Suvojit Manna,
-tags: TIGI Bed Head Creative Genius Styling Gel 8 Ounces (Pack of 3),
-publishedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:53 GMT+0530 (India Standard Time),
----
-
 # [TIGI Bed Head Creative Genius Styling Gel 8 Ounces (Pack of 3)](https://products.checkmycream.com/products/TIGI-Bed-Head-Creative-Genius-Styling-Gel-8-Ounces-(Pack-of-3).html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Janecrafts (Set of 12pcs) 7&quot; Extra Wide Fashion Ruffle Flexsible Cotton Yoga Sports Headband for Teens Women Girls Hair Band Mix in 12 Colors,
-description: Janecrafts (Set of 12pcs) 7&quot; Extra Wide Fashion Ruffle Flexsible Cotton Yoga Sports Headband for Teens Women Girls Hair Band Mix in 12 Colors,
-author: Suvojit Manna,
-tags: Janecrafts (Set of 12pcs) 7&quot; Extra Wide Fashion Ruffle Flexsible Cotton Yoga Sports Headband for Teens Women Girls Hair Band Mix in 12 Colors,
-publishedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:56 GMT+0530 (India Standard Time),
----
-
 # [Janecrafts (Set of 12pcs) 7&quot; Extra Wide Fashion Ruffle Flexsible Cotton Yoga Sports Headband for Teens Women Girls Hair Band Mix in 12 Colors](https://products.checkmycream.com/products/Janecrafts-(Set-of-12pcs)-7&quot;-Extra-Wide-Fashion-Ruffle-Flexsible-Cotton-Yoga-Sports-Headband-for-Teens-Women-Girls-Hair-Band-Mix-in-12-Colors.html)
 
 ### Positive Reviews

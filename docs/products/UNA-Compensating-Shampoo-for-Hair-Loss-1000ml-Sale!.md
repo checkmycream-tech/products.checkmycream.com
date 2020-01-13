@@ -1,12 +1,3 @@
----
-title: UNA Compensating Shampoo for Hair Loss 1000ml Sale!,
-description: UNA Compensating Shampoo for Hair Loss 1000ml Sale!,
-author: Suvojit Manna,
-tags: UNA Compensating Shampoo for Hair Loss 1000ml Sale!,
-publishedAt: Fri Jan 10 2020 14:59:16 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:16 GMT+0530 (India Standard Time),
----
-
 # [UNA Compensating Shampoo for Hair Loss 1000ml Sale!](https://products.checkmycream.com/products/UNA-Compensating-Shampoo-for-Hair-Loss-1000ml-Sale!.html)
 
 ### Positive Reviews

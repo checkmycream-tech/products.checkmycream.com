@@ -1,12 +1,3 @@
----
-title: NYKKOLA Leopard Bottle of 2-in-1 Black Waterproof Liquid Eyeliner and Pen,
-description: NYKKOLA Leopard Bottle of 2-in-1 Black Waterproof Liquid Eyeliner and Pen,
-author: Suvojit Manna,
-tags: NYKKOLA Leopard Bottle of 2-in-1 Black Waterproof Liquid Eyeliner and Pen,
-publishedAt: Fri Jan 10 2020 15:01:07 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:07 GMT+0530 (India Standard Time),
----
-
 # [NYKKOLA Leopard Bottle of 2-in-1 Black Waterproof Liquid Eyeliner and Pen](https://products.checkmycream.com/products/NYKKOLA-Leopard-Bottle-of-2-in-1-Black-Waterproof-Liquid-Eyeliner-and-Pen.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Woody&#x27;s Daily Conditioner for Men,
-description: Woody&#x27;s Daily Conditioner for Men,
-author: Suvojit Manna,
-tags: Woody&#x27;s Daily Conditioner for Men,
-publishedAt: Fri Jan 10 2020 14:59:06 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:06 GMT+0530 (India Standard Time),
----
-
 # [Woody&#x27;s Daily Conditioner for Men](https://products.checkmycream.com/products/Woody&#x27;s-Daily-Conditioner-for-Men.html)
 
 ### Positive Reviews

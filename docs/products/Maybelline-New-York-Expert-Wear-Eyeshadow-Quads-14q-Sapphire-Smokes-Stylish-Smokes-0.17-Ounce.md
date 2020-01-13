@@ -1,12 +1,3 @@
----
-title: Maybelline New York Expert Wear Eyeshadow Quads, 14q Sapphire Smokes Stylish Smokes, 0.17 Ounce,
-description: Maybelline New York Expert Wear Eyeshadow Quads, 14q Sapphire Smokes Stylish Smokes, 0.17 Ounce,
-author: Suvojit Manna,
-tags: Maybelline New York Expert Wear Eyeshadow Quads, 14q Sapphire Smokes Stylish Smokes, 0.17 Ounce,
-publishedAt: Fri Jan 10 2020 14:59:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:58 GMT+0530 (India Standard Time),
----
-
 # [Maybelline New York Expert Wear Eyeshadow Quads, 14q Sapphire Smokes Stylish Smokes, 0.17 Ounce](https://products.checkmycream.com/products/Maybelline-New-York-Expert-Wear-Eyeshadow-Quads-14q-Sapphire-Smokes-Stylish-Smokes-0.17-Ounce.html)
 
 ### Positive Reviews

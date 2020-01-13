@@ -1,12 +1,3 @@
----
-title: John Frieda Frizz-Ease Go Curlier Heat-Activated Spray 3.50 oz,
-description: John Frieda Frizz-Ease Go Curlier Heat-Activated Spray 3.50 oz,
-author: Suvojit Manna,
-tags: John Frieda Frizz-Ease Go Curlier Heat-Activated Spray 3.50 oz,
-publishedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
----
-
 # [John Frieda Frizz-Ease Go Curlier Heat-Activated Spray 3.50 oz](https://products.checkmycream.com/products/John-Frieda-Frizz-Ease-Go-Curlier-Heat-Activated-Spray-3.50-oz.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Nioxin Volumizing Reflectives Niospray Extra Hold,
-description: Nioxin Volumizing Reflectives Niospray Extra Hold,
-author: Suvojit Manna,
-tags: Nioxin Volumizing Reflectives Niospray Extra Hold,
-publishedAt: Fri Jan 10 2020 14:59:39 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:39 GMT+0530 (India Standard Time),
----
-
 # [Nioxin Volumizing Reflectives Niospray Extra Hold](https://products.checkmycream.com/products/Nioxin-Volumizing-Reflectives-Niospray-Extra-Hold.html)
 
 ### Positive Reviews

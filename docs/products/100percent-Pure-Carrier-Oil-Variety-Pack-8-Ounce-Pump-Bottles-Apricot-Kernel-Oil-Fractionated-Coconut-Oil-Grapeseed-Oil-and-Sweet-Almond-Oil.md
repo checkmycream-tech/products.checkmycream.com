@@ -1,12 +1,3 @@
----
-title: 100% Pure Carrier Oil Variety Pack--8 Ounce Pump Bottles--Apricot Kernel Oil, Fractionated Coconut Oil, Grapeseed Oil and Sweet Almond Oil,
-description: 100% Pure Carrier Oil Variety Pack--8 Ounce Pump Bottles--Apricot Kernel Oil, Fractionated Coconut Oil, Grapeseed Oil and Sweet Almond Oil,
-author: Suvojit Manna,
-tags: 100% Pure Carrier Oil Variety Pack--8 Ounce Pump Bottles--Apricot Kernel Oil, Fractionated Coconut Oil, Grapeseed Oil and Sweet Almond Oil,
-publishedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
----
-
 # [100% Pure Carrier Oil Variety Pack--8 Ounce Pump Bottles--Apricot Kernel Oil, Fractionated Coconut Oil, Grapeseed Oil and Sweet Almond Oil](https://products.checkmycream.com/products/100percent-Pure-Carrier-Oil-Variety-Pack-8-Ounce-Pump-Bottles-Apricot-Kernel-Oil-Fractionated-Coconut-Oil-Grapeseed-Oil-and-Sweet-Almond-Oil.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: bareMinerals Original Prime Time Foundation Primer .5 oz. 2 pack - Equals full size by Bare Escentuals,
-description: bareMinerals Original Prime Time Foundation Primer .5 oz. 2 pack - Equals full size by Bare Escentuals,
-author: Suvojit Manna,
-tags: bareMinerals Original Prime Time Foundation Primer .5 oz. 2 pack - Equals full size by Bare Escentuals,
-publishedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
----
-
 # [bareMinerals Original Prime Time Foundation Primer .5 oz. 2 pack - Equals full size by Bare Escentuals](https://products.checkmycream.com/products/bareMinerals-Original-Prime-Time-Foundation-Primer-.5-oz.-2-pack-Equals-full-size-by-Bare-Escentuals.html)
 
 ### Positive Reviews

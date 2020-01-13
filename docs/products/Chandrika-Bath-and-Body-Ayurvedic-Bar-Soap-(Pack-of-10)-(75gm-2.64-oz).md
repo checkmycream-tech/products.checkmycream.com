@@ -1,12 +1,3 @@
----
-title: Chandrika Bath and Body Ayurvedic Bar Soap (Pack of 10) (75gm / 2.64 oz),
-description: Chandrika Bath and Body Ayurvedic Bar Soap (Pack of 10) (75gm / 2.64 oz),
-author: Suvojit Manna,
-tags: Chandrika Bath and Body Ayurvedic Bar Soap (Pack of 10) (75gm / 2.64 oz),
-publishedAt: Fri Jan 10 2020 14:59:28 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:28 GMT+0530 (India Standard Time),
----
-
 # [Chandrika Bath and Body Ayurvedic Bar Soap (Pack of 10) (75gm / 2.64 oz)](https://products.checkmycream.com/products/Chandrika-Bath-and-Body-Ayurvedic-Bar-Soap-(Pack-of-10)-(75gm-2.64-oz).html)
 
 ### Positive Reviews

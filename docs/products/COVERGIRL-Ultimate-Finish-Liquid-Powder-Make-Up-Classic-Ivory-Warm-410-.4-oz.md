@@ -1,12 +1,3 @@
----
-title: COVERGIRL Ultimate Finish Liquid Powder Make Up Classic Ivory Warm 410, .4 oz,
-description: COVERGIRL Ultimate Finish Liquid Powder Make Up Classic Ivory Warm 410, .4 oz,
-author: Suvojit Manna,
-tags: COVERGIRL Ultimate Finish Liquid Powder Make Up Classic Ivory Warm 410, .4 oz,
-publishedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:41 GMT+0530 (India Standard Time),
----
-
 # [COVERGIRL Ultimate Finish Liquid Powder Make Up Classic Ivory Warm 410, .4 oz](https://products.checkmycream.com/products/COVERGIRL-Ultimate-Finish-Liquid-Powder-Make-Up-Classic-Ivory-Warm-410-.4-oz.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Wonder Cloth Make-Up Remover (3 Pack),
-description: Wonder Cloth Make-Up Remover (3 Pack),
-author: Suvojit Manna,
-tags: Wonder Cloth Make-Up Remover (3 Pack),
-publishedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
----
-
 # [Wonder Cloth Make-Up Remover (3 Pack)](https://products.checkmycream.com/products/Wonder-Cloth-Make-Up-Remover-(3-Pack).html)
 
 ### Positive Reviews

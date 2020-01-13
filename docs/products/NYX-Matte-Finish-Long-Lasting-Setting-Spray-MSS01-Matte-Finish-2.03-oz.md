@@ -1,12 +1,3 @@
----
-title: NYX Matte Finish Long Lasting Setting Spray MSS01 Matte Finish 2.03 oz,
-description: NYX Matte Finish Long Lasting Setting Spray MSS01 Matte Finish 2.03 oz,
-author: Suvojit Manna,
-tags: NYX Matte Finish Long Lasting Setting Spray MSS01 Matte Finish 2.03 oz,
-publishedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:43 GMT+0530 (India Standard Time),
----
-
 # [NYX Matte Finish Long Lasting Setting Spray MSS01 Matte Finish 2.03 oz](https://products.checkmycream.com/products/NYX-Matte-Finish-Long-Lasting-Setting-Spray-MSS01-Matte-Finish-2.03-oz.html)
 
 ### Positive Reviews

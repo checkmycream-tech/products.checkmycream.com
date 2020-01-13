@@ -1,12 +1,3 @@
----
-title: Ardell False Eyelashes 6 pack DuraLash Naturals Medium Black Individual Lashes by Kodiake,
-description: Ardell False Eyelashes 6 pack DuraLash Naturals Medium Black Individual Lashes by Kodiake,
-author: Suvojit Manna,
-tags: Ardell False Eyelashes 6 pack DuraLash Naturals Medium Black Individual Lashes by Kodiake,
-publishedAt: Fri Jan 10 2020 14:59:26 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:26 GMT+0530 (India Standard Time),
----
-
 # [Ardell False Eyelashes 6 pack DuraLash Naturals Medium Black Individual Lashes by Kodiake](https://products.checkmycream.com/products/Ardell-False-Eyelashes-6-pack-DuraLash-Naturals-Medium-Black-Individual-Lashes-by-Kodiake.html)
 
 ### Positive Reviews

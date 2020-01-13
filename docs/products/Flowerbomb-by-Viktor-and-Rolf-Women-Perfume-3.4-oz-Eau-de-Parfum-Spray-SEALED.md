@@ -1,12 +1,3 @@
----
-title: Flowerbomb by Viktor &amp; Rolf Women Perfume 3.4 oz Eau de Parfum Spray SEALED,
-description: Flowerbomb by Viktor &amp; Rolf Women Perfume 3.4 oz Eau de Parfum Spray SEALED,
-author: Suvojit Manna,
-tags: Flowerbomb by Viktor &amp; Rolf Women Perfume 3.4 oz Eau de Parfum Spray SEALED,
-publishedAt: Fri Jan 10 2020 14:59:50 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:50 GMT+0530 (India Standard Time),
----
-
 # [Flowerbomb by Viktor &amp; Rolf Women Perfume 3.4 oz Eau de Parfum Spray SEALED](https://products.checkmycream.com/products/Flowerbomb-by-Viktor-and-Rolf-Women-Perfume-3.4-oz-Eau-de-Parfum-Spray-SEALED.html)
 
 ### Positive Reviews

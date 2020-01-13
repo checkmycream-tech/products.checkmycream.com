@@ -1,12 +1,3 @@
----
-title: Interceuticals Betterwoman Herbal Urinary and Bladder Support for Women -- 40 Capsules,
-description: Interceuticals Betterwoman Herbal Urinary and Bladder Support for Women -- 40 Capsules,
-author: Suvojit Manna,
-tags: Interceuticals Betterwoman Herbal Urinary and Bladder Support for Women -- 40 Capsules,
-publishedAt: Fri Jan 10 2020 14:59:07 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:07 GMT+0530 (India Standard Time),
----
-
 # [Interceuticals Betterwoman Herbal Urinary and Bladder Support for Women -- 40 Capsules](https://products.checkmycream.com/products/Interceuticals-Betterwoman-Herbal-Urinary-and-Bladder-Support-for-Women-40-Capsules.html)
 
 ### Positive Reviews

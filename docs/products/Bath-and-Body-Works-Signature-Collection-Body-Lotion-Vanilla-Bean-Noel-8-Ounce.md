@@ -1,12 +1,3 @@
----
-title: Bath &amp; Body Works, Signature Collection Body Lotion, Vanilla Bean Noel, 8 Ounce,
-description: Bath &amp; Body Works, Signature Collection Body Lotion, Vanilla Bean Noel, 8 Ounce,
-author: Suvojit Manna,
-tags: Bath &amp; Body Works, Signature Collection Body Lotion, Vanilla Bean Noel, 8 Ounce,
-publishedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:03 GMT+0530 (India Standard Time),
----
-
 # [Bath &amp; Body Works, Signature Collection Body Lotion, Vanilla Bean Noel, 8 Ounce](https://products.checkmycream.com/products/Bath-and-Body-Works-Signature-Collection-Body-Lotion-Vanilla-Bean-Noel-8-Ounce.html)
 
 ### Positive Reviews

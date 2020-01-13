@@ -1,12 +1,3 @@
----
-title: CRICKET Volumizer Static Free Brush,
-description: CRICKET Volumizer Static Free Brush,
-author: Suvojit Manna,
-tags: CRICKET Volumizer Static Free Brush,
-publishedAt: Fri Jan 10 2020 14:59:12 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:12 GMT+0530 (India Standard Time),
----
-
 # [CRICKET Volumizer Static Free Brush](https://products.checkmycream.com/products/CRICKET-Volumizer-Static-Free-Brush.html)
 
 ### Positive Reviews

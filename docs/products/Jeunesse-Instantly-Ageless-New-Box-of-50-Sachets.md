@@ -1,12 +1,3 @@
----
-title: Jeunesse Instantly Ageless New Box of 50 Sachets,
-description: Jeunesse Instantly Ageless New Box of 50 Sachets,
-author: Suvojit Manna,
-tags: Jeunesse Instantly Ageless New Box of 50 Sachets,
-publishedAt: Fri Jan 10 2020 15:01:08 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:08 GMT+0530 (India Standard Time),
----
-
 # [Jeunesse Instantly Ageless New Box of 50 Sachets](https://products.checkmycream.com/products/Jeunesse-Instantly-Ageless-New-Box-of-50-Sachets.html)
 
 ### Positive Reviews

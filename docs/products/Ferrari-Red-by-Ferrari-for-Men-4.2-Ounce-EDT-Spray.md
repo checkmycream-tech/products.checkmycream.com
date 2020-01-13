@@ -1,12 +1,3 @@
----
-title: Ferrari Red by Ferrari for Men - 4.2 Ounce EDT Spray,
-description: Ferrari Red by Ferrari for Men - 4.2 Ounce EDT Spray,
-author: Suvojit Manna,
-tags: Ferrari Red by Ferrari for Men - 4.2 Ounce EDT Spray,
-publishedAt: Fri Jan 10 2020 14:59:24 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:24 GMT+0530 (India Standard Time),
----
-
 # [Ferrari Red by Ferrari for Men - 4.2 Ounce EDT Spray](https://products.checkmycream.com/products/Ferrari-Red-by-Ferrari-for-Men-4.2-Ounce-EDT-Spray.html)
 
 ### Positive Reviews

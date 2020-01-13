@@ -1,12 +1,3 @@
----
-title: 10 pcs x Cleavage Control Magic Bra Clips (10 Different Colors),
-description: 10 pcs x Cleavage Control Magic Bra Clips (10 Different Colors),
-author: Suvojit Manna,
-tags: 10 pcs x Cleavage Control Magic Bra Clips (10 Different Colors),
-publishedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:34 GMT+0530 (India Standard Time),
----
-
 # [10 pcs x Cleavage Control Magic Bra Clips (10 Different Colors)](https://products.checkmycream.com/products/10-pcs-x-Cleavage-Control-Magic-Bra-Clips-(10-Different-Colors).html)
 
 ### Positive Reviews

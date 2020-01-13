@@ -1,12 +1,3 @@
----
-title: ABC Pro Black Handle Eyelash Curler Portable Eye Curling Clip Makeup Cosmetic Tools,
-description: ABC Pro Black Handle Eyelash Curler Portable Eye Curling Clip Makeup Cosmetic Tools,
-author: Suvojit Manna,
-tags: ABC Pro Black Handle Eyelash Curler Portable Eye Curling Clip Makeup Cosmetic Tools,
-publishedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:54 GMT+0530 (India Standard Time),
----
-
 # [ABC Pro Black Handle Eyelash Curler Portable Eye Curling Clip Makeup Cosmetic Tools](https://products.checkmycream.com/products/ABC-Pro-Black-Handle-Eyelash-Curler-Portable-Eye-Curling-Clip-Makeup-Cosmetic-Tools.html)
 
 ### Positive Reviews

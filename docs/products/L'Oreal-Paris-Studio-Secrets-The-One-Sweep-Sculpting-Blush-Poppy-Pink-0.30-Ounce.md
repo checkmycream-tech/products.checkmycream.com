@@ -1,12 +1,3 @@
----
-title: L&#x27;Oreal Paris Studio Secrets The One Sweep Sculpting Blush, Poppy, Pink, 0.30 Ounce,
-description: L&#x27;Oreal Paris Studio Secrets The One Sweep Sculpting Blush, Poppy, Pink, 0.30 Ounce,
-author: Suvojit Manna,
-tags: L&#x27;Oreal Paris Studio Secrets The One Sweep Sculpting Blush, Poppy, Pink, 0.30 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:06 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:06 GMT+0530 (India Standard Time),
----
-
 # [L&#x27;Oreal Paris Studio Secrets The One Sweep Sculpting Blush, Poppy, Pink, 0.30 Ounce](https://products.checkmycream.com/products/L&#x27;Oreal-Paris-Studio-Secrets-The-One-Sweep-Sculpting-Blush-Poppy-Pink-0.30-Ounce.html)
 
 ### Positive Reviews

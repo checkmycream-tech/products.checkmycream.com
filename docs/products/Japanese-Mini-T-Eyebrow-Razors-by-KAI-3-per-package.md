@@ -1,12 +1,3 @@
----
-title: Japanese Mini-T Eyebrow Razors by KAI - 3 per package,
-description: Japanese Mini-T Eyebrow Razors by KAI - 3 per package,
-author: Suvojit Manna,
-tags: Japanese Mini-T Eyebrow Razors by KAI - 3 per package,
-publishedAt: Fri Jan 10 2020 14:59:21 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:21 GMT+0530 (India Standard Time),
----
-
 # [Japanese Mini-T Eyebrow Razors by KAI - 3 per package](https://products.checkmycream.com/products/Japanese-Mini-T-Eyebrow-Razors-by-KAI-3-per-package.html)
 
 ### Positive Reviews

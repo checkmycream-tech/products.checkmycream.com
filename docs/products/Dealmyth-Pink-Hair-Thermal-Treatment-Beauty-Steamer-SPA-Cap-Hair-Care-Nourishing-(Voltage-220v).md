@@ -1,12 +1,3 @@
----
-title: Dealmyth Pink Hair Thermal Treatment Beauty Steamer SPA Cap Hair Care Nourishing (Voltage 220v),
-description: Dealmyth Pink Hair Thermal Treatment Beauty Steamer SPA Cap Hair Care Nourishing (Voltage 220v),
-author: Suvojit Manna,
-tags: Dealmyth Pink Hair Thermal Treatment Beauty Steamer SPA Cap Hair Care Nourishing (Voltage 220v),
-publishedAt: Fri Jan 10 2020 15:00:20 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:20 GMT+0530 (India Standard Time),
----
-
 # [Dealmyth Pink Hair Thermal Treatment Beauty Steamer SPA Cap Hair Care Nourishing (Voltage 220v)](https://products.checkmycream.com/products/Dealmyth-Pink-Hair-Thermal-Treatment-Beauty-Steamer-SPA-Cap-Hair-Care-Nourishing-(Voltage-220v).html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: Vera Wang 4 Pc Set for Women with 3.4 Oz Eau De Parfum Spray/ Shower Gel/ Body Lotion,
-description: Vera Wang 4 Pc Set for Women with 3.4 Oz Eau De Parfum Spray/ Shower Gel/ Body Lotion,
-author: Suvojit Manna,
-tags: Vera Wang 4 Pc Set for Women with 3.4 Oz Eau De Parfum Spray/ Shower Gel/ Body Lotion,
-publishedAt: Fri Jan 10 2020 15:00:31 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:31 GMT+0530 (India Standard Time),
----
-
 # [Vera Wang 4 Pc Set for Women with 3.4 Oz Eau De Parfum Spray/ Shower Gel/ Body Lotion](https://products.checkmycream.com/products/Vera-Wang-4-Pc-Set-for-Women-with-3.4-Oz-Eau-De-Parfum-Spray-Shower-Gel-Body-Lotion.html)
 
 ### Positive Reviews

@@ -1,12 +1,3 @@
----
-title: LADNVO 2 x Bottles Top Coat Primer Base Gel Nail Art UV Gel Polish,
-description: LADNVO 2 x Bottles Top Coat Primer Base Gel Nail Art UV Gel Polish,
-author: Suvojit Manna,
-tags: LADNVO 2 x Bottles Top Coat Primer Base Gel Nail Art UV Gel Polish,
-publishedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:47 GMT+0530 (India Standard Time),
----
-
 # [LADNVO 2 x Bottles Top Coat Primer Base Gel Nail Art UV Gel Polish](https://products.checkmycream.com/products/LADNVO-2-x-Bottles-Top-Coat-Primer-Base-Gel-Nail-Art-UV-Gel-Polish.html)
 
 ### Positive Reviews

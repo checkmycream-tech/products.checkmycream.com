@@ -1,12 +1,3 @@
----
-title: Heritage Store Vegetable Glycerin Skin Care Product, Organically Grown, 8 Ounce,
-description: Heritage Store Vegetable Glycerin Skin Care Product, Organically Grown, 8 Ounce,
-author: Suvojit Manna,
-tags: Heritage Store Vegetable Glycerin Skin Care Product, Organically Grown, 8 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:36 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:36 GMT+0530 (India Standard Time),
----
-
 # [Heritage Store Vegetable Glycerin Skin Care Product, Organically Grown, 8 Ounce](https://products.checkmycream.com/products/Heritage-Store-Vegetable-Glycerin-Skin-Care-Product-Organically-Grown-8-Ounce.html)
 
 ### Positive Reviews

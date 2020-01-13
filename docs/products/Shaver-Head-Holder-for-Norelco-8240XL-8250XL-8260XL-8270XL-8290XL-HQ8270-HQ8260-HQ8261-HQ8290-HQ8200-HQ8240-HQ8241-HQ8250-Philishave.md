@@ -1,12 +1,3 @@
----
-title: Shaver Head Holder for Norelco 8240XL 8250XL 8260XL 8270XL 8290XL HQ8270 HQ8260 HQ8261 HQ8290 HQ8200 HQ8240 HQ8241 HQ8250 Philishave,
-description: Shaver Head Holder for Norelco 8240XL 8250XL 8260XL 8270XL 8290XL HQ8270 HQ8260 HQ8261 HQ8290 HQ8200 HQ8240 HQ8241 HQ8250 Philishave,
-author: Suvojit Manna,
-tags: Shaver Head Holder for Norelco 8240XL 8250XL 8260XL 8270XL 8290XL HQ8270 HQ8260 HQ8261 HQ8290 HQ8200 HQ8240 HQ8241 HQ8250 Philishave,
-publishedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:52 GMT+0530 (India Standard Time),
----
-
 # [Shaver Head Holder for Norelco 8240XL 8250XL 8260XL 8270XL 8290XL HQ8270 HQ8260 HQ8261 HQ8290 HQ8200 HQ8240 HQ8241 HQ8250 Philishave](https://products.checkmycream.com/products/Shaver-Head-Holder-for-Norelco-8240XL-8250XL-8260XL-8270XL-8290XL-HQ8270-HQ8260-HQ8261-HQ8290-HQ8200-HQ8240-HQ8241-HQ8250-Philishave.html)
 
 ### Positive Reviews

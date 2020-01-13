@@ -1,12 +1,3 @@
----
-title: Rebecca Lujan Summer Sexy Mesh Cutout Sweetheart Neckline Short Sleeve Skater Dress,
-description: Rebecca Lujan Summer Sexy Mesh Cutout Sweetheart Neckline Short Sleeve Skater Dress,
-author: Suvojit Manna,
-tags: Rebecca Lujan Summer Sexy Mesh Cutout Sweetheart Neckline Short Sleeve Skater Dress,
-publishedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:58 GMT+0530 (India Standard Time),
----
-
 # [Rebecca Lujan Summer Sexy Mesh Cutout Sweetheart Neckline Short Sleeve Skater Dress](https://products.checkmycream.com/products/Rebecca-Lujan-Summer-Sexy-Mesh-Cutout-Sweetheart-Neckline-Short-Sleeve-Skater-Dress.html)
 
 ### Positive Reviews

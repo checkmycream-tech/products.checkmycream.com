@@ -1,12 +1,3 @@
----
-title: e.l.f. Eyelash Curler,
-description: e.l.f. Eyelash Curler,
-author: Suvojit Manna,
-tags: e.l.f. Eyelash Curler,
-publishedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:00 GMT+0530 (India Standard Time),
----
-
 # [e.l.f. Eyelash Curler](https://products.checkmycream.com/products/e.l.f.-Eyelash-Curler.html)
 
 ### Positive Reviews

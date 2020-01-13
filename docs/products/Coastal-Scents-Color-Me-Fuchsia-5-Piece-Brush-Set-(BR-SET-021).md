@@ -1,12 +1,3 @@
----
-title: Coastal Scents Color Me Fuchsia 5 Piece Brush Set (BR-SET-021),
-description: Coastal Scents Color Me Fuchsia 5 Piece Brush Set (BR-SET-021),
-author: Suvojit Manna,
-tags: Coastal Scents Color Me Fuchsia 5 Piece Brush Set (BR-SET-021),
-publishedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
----
-
 # [Coastal Scents Color Me Fuchsia 5 Piece Brush Set (BR-SET-021)](https://products.checkmycream.com/products/Coastal-Scents-Color-Me-Fuchsia-5-Piece-Brush-Set-(BR-SET-021).html)
 
 ### Positive Reviews

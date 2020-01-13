@@ -1,12 +1,3 @@
----
-title: Wisedeal 1pc Lady women girls Fashion Metal Leaf Elastic Hair head band hoop accessory tie hairbands headbands turban,
-description: Wisedeal 1pc Lady women girls Fashion Metal Leaf Elastic Hair head band hoop accessory tie hairbands headbands turban,
-author: Suvojit Manna,
-tags: Wisedeal 1pc Lady women girls Fashion Metal Leaf Elastic Hair head band hoop accessory tie hairbands headbands turban,
-publishedAt: Fri Jan 10 2020 15:00:37 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:37 GMT+0530 (India Standard Time),
----
-
 # [Wisedeal 1pc Lady women girls Fashion Metal Leaf Elastic Hair head band hoop accessory tie hairbands headbands turban](https://products.checkmycream.com/products/Wisedeal-1pc-Lady-women-girls-Fashion-Metal-Leaf-Elastic-Hair-head-band-hoop-accessory-tie-hairbands-headbands-turban.html)
 
 ### Positive Reviews

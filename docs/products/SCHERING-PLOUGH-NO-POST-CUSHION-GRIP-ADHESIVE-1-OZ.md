@@ -1,12 +1,3 @@
----
-title: SCHERING-PLOUGH NO POST CUSHION GRIP ADHESIVE 1 OZ,
-description: SCHERING-PLOUGH NO POST CUSHION GRIP ADHESIVE 1 OZ,
-author: Suvojit Manna,
-tags: SCHERING-PLOUGH NO POST CUSHION GRIP ADHESIVE 1 OZ,
-publishedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:01:01 GMT+0530 (India Standard Time),
----
-
 # [SCHERING-PLOUGH NO POST CUSHION GRIP ADHESIVE 1 OZ](https://products.checkmycream.com/products/SCHERING-PLOUGH-NO-POST-CUSHION-GRIP-ADHESIVE-1-OZ.html)
 
 ### Positive Reviews

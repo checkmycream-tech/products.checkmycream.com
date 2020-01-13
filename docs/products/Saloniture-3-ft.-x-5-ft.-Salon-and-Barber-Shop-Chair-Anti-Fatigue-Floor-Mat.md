@@ -1,12 +1,3 @@
----
-title: Saloniture 3 ft. x 5 ft. Salon &amp; Barber Shop Chair Anti-Fatigue Floor Mat,
-description: Saloniture 3 ft. x 5 ft. Salon &amp; Barber Shop Chair Anti-Fatigue Floor Mat,
-author: Suvojit Manna,
-tags: Saloniture 3 ft. x 5 ft. Salon &amp; Barber Shop Chair Anti-Fatigue Floor Mat,
-publishedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
----
-
 # [Saloniture 3 ft. x 5 ft. Salon &amp; Barber Shop Chair Anti-Fatigue Floor Mat](https://products.checkmycream.com/products/Saloniture-3-ft.-x-5-ft.-Salon-and-Barber-Shop-Chair-Anti-Fatigue-Floor-Mat.html)
 
 ### Positive Reviews

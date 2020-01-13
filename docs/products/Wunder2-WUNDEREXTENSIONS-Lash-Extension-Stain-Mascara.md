@@ -1,12 +1,3 @@
----
-title: Wunder2 WUNDEREXTENSIONS Lash Extension Stain Mascara,
-description: Wunder2 WUNDEREXTENSIONS Lash Extension Stain Mascara,
-author: Suvojit Manna,
-tags: Wunder2 WUNDEREXTENSIONS Lash Extension Stain Mascara,
-publishedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
----
-
 # [Wunder2 WUNDEREXTENSIONS Lash Extension Stain Mascara](https://products.checkmycream.com/products/Wunder2-WUNDEREXTENSIONS-Lash-Extension-Stain-Mascara.html)
 
 ### Positive Reviews

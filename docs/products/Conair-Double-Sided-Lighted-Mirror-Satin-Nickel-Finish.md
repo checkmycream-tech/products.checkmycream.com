@@ -1,12 +1,3 @@
----
-title: Conair Double-Sided Lighted Mirror, Satin Nickel Finish,
-description: Conair Double-Sided Lighted Mirror, Satin Nickel Finish,
-author: Suvojit Manna,
-tags: Conair Double-Sided Lighted Mirror, Satin Nickel Finish,
-publishedAt: Fri Jan 10 2020 14:59:26 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:26 GMT+0530 (India Standard Time),
----
-
 # [Conair Double-Sided Lighted Mirror, Satin Nickel Finish](https://products.checkmycream.com/products/Conair-Double-Sided-Lighted-Mirror-Satin-Nickel-Finish.html)
 
 ### Positive Reviews

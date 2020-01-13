@@ -1,12 +1,3 @@
----
-title: Axe Revitalizing Shower Gel, Black Chill 16 oz,
-description: Axe Revitalizing Shower Gel, Black Chill 16 oz,
-author: Suvojit Manna,
-tags: Axe Revitalizing Shower Gel, Black Chill 16 oz,
-publishedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:46 GMT+0530 (India Standard Time),
----
-
 # [Axe Revitalizing Shower Gel, Black Chill 16 oz](https://products.checkmycream.com/products/Axe-Revitalizing-Shower-Gel-Black-Chill-16-oz.html)
 
 ### Positive Reviews

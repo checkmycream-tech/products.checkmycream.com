@@ -1,12 +1,3 @@
----
-title: Dead Sea Warehouse - Amazing Minerals Dead Sea Bath Salts, Temporary Relief From Dry Itchy Skin, Aches &amp; Pains, Exfoliates &amp; Moisturizes, 100% Full Mineral (5 Pounds),
-description: Dead Sea Warehouse - Amazing Minerals Dead Sea Bath Salts, Temporary Relief From Dry Itchy Skin, Aches &amp; Pains, Exfoliates &amp; Moisturizes, 100% Full Mineral (5 Pounds),
-author: Suvojit Manna,
-tags: Dead Sea Warehouse - Amazing Minerals Dead Sea Bath Salts, Temporary Relief From Dry Itchy Skin, Aches &amp; Pains, Exfoliates &amp; Moisturizes, 100% Full Mineral (5 Pounds),
-publishedAt: Fri Jan 10 2020 15:00:12 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:12 GMT+0530 (India Standard Time),
----
-
 # [Dead Sea Warehouse - Amazing Minerals Dead Sea Bath Salts, Temporary Relief From Dry Itchy Skin, Aches &amp; Pains, Exfoliates &amp; Moisturizes, 100% Full Mineral (5 Pounds)](https://products.checkmycream.com/products/Dead-Sea-Warehouse-Amazing-Minerals-Dead-Sea-Bath-Salts-Temporary-Relief-From-Dry-Itchy-Skin-Aches-and-Pains-Exfoliates-and-Moisturizes-100percent-Full-Mineral-(5-Pounds).html)
 
 ### Positive Reviews

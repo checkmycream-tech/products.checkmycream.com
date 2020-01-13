@@ -1,12 +1,3 @@
----
-title: Empress Re-Gro Strengthening Shampoo - 8.5 0z.,
-description: Empress Re-Gro Strengthening Shampoo - 8.5 0z.,
-author: Suvojit Manna,
-tags: Empress Re-Gro Strengthening Shampoo - 8.5 0z.,
-publishedAt: Fri Jan 10 2020 15:00:02 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:02 GMT+0530 (India Standard Time),
----
-
 # [Empress Re-Gro Strengthening Shampoo - 8.5 0z.](https://products.checkmycream.com/products/Empress-Re-Gro-Strengthening-Shampoo-8.5-0z..html)
 
 ### Positive Reviews

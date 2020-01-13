@@ -1,12 +1,3 @@
----
-title: Stainless Steel Eyebrow Moustache Facial Nose Ear Hair Curved Edge Scissors by Vetmed USA,
-description: Stainless Steel Eyebrow Moustache Facial Nose Ear Hair Curved Edge Scissors by Vetmed USA,
-author: Suvojit Manna,
-tags: Stainless Steel Eyebrow Moustache Facial Nose Ear Hair Curved Edge Scissors by Vetmed USA,
-publishedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:48 GMT+0530 (India Standard Time),
----
-
 # [Stainless Steel Eyebrow Moustache Facial Nose Ear Hair Curved Edge Scissors by Vetmed USA](https://products.checkmycream.com/products/Stainless-Steel-Eyebrow-Moustache-Facial-Nose-Ear-Hair-Curved-Edge-Scissors-by-Vetmed-USA.html)
 
 ### Positive Reviews

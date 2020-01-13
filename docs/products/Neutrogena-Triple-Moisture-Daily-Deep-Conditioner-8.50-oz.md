@@ -1,12 +1,3 @@
----
-title: Neutrogena Triple Moisture Daily Deep Conditioner 8.50 oz,
-description: Neutrogena Triple Moisture Daily Deep Conditioner 8.50 oz,
-author: Suvojit Manna,
-tags: Neutrogena Triple Moisture Daily Deep Conditioner 8.50 oz,
-publishedAt: Fri Jan 10 2020 14:59:14 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:14 GMT+0530 (India Standard Time),
----
-
 # [Neutrogena Triple Moisture Daily Deep Conditioner 8.50 oz](https://products.checkmycream.com/products/Neutrogena-Triple-Moisture-Daily-Deep-Conditioner-8.50-oz.html)
 
 ### Positive Reviews

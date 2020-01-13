@@ -1,12 +1,3 @@
----
-title: Titan Classic Spandex Dome Cap (BLACK), #11162,
-description: Titan Classic Spandex Dome Cap (BLACK), #11162,
-author: Suvojit Manna,
-tags: Titan Classic Spandex Dome Cap (BLACK), #11162,
-publishedAt: Fri Jan 10 2020 15:00:05 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:05 GMT+0530 (India Standard Time),
----
-
 # [Titan Classic Spandex Dome Cap (BLACK), #11162](https://products.checkmycream.com/products/Titan-Classic-Spandex-Dome-Cap-(BLACK)-11162.html)
 
 ### Positive Reviews

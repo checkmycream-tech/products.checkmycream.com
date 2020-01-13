@@ -1,12 +1,3 @@
----
-title: MINI SOAP BAR 0.85 OZ EACH (pack of 100),
-description: MINI SOAP BAR 0.85 OZ EACH (pack of 100),
-author: Suvojit Manna,
-tags: MINI SOAP BAR 0.85 OZ EACH (pack of 100),
-publishedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:44 GMT+0530 (India Standard Time),
----
-
 # [MINI SOAP BAR 0.85 OZ EACH (pack of 100)](https://products.checkmycream.com/products/MINI-SOAP-BAR-0.85-OZ-EACH-(pack-of-100).html)
 
 ### Positive Reviews

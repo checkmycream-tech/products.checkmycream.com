@@ -1,12 +1,3 @@
----
-title: SENSATIONNEL 100% REMI HUMAN HAIR GODDESS REMI 3 WAY PART CLOSURE (1B) 10-12&quot;,
-description: SENSATIONNEL 100% REMI HUMAN HAIR GODDESS REMI 3 WAY PART CLOSURE (1B) 10-12&quot;,
-author: Suvojit Manna,
-tags: SENSATIONNEL 100% REMI HUMAN HAIR GODDESS REMI 3 WAY PART CLOSURE (1B) 10-12&quot;,
-publishedAt: Fri Jan 10 2020 15:00:45 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:45 GMT+0530 (India Standard Time),
----
-
 # [SENSATIONNEL 100% REMI HUMAN HAIR GODDESS REMI 3 WAY PART CLOSURE (1B) 10-12&quot;](https://products.checkmycream.com/products/SENSATIONNEL-100percent-REMI-HUMAN-HAIR-GODDESS-REMI-3-WAY-PART-CLOSURE-(1B)-10-12&quot;.html)
 
 ### Positive Reviews

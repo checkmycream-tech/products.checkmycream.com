@@ -1,12 +1,3 @@
----
-title: Beauty Treats Darling Diamond Lip Gloss Set 6 Colors,
-description: Beauty Treats Darling Diamond Lip Gloss Set 6 Colors,
-author: Suvojit Manna,
-tags: Beauty Treats Darling Diamond Lip Gloss Set 6 Colors,
-publishedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:49 GMT+0530 (India Standard Time),
----
-
 # [Beauty Treats Darling Diamond Lip Gloss Set 6 Colors](https://products.checkmycream.com/products/Beauty-Treats-Darling-Diamond-Lip-Gloss-Set-6-Colors.html)
 
 ### Positive Reviews

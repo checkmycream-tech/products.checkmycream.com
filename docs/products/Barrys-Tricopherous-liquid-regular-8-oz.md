@@ -1,12 +1,3 @@
----
-title: Barrys Tricopherous liquid regular - 8 oz,
-description: Barrys Tricopherous liquid regular - 8 oz,
-author: Suvojit Manna,
-tags: Barrys Tricopherous liquid regular - 8 oz,
-publishedAt: Fri Jan 10 2020 14:59:09 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 14:59:09 GMT+0530 (India Standard Time),
----
-
 # [Barrys Tricopherous liquid regular - 8 oz](https://products.checkmycream.com/products/Barrys-Tricopherous-liquid-regular-8-oz.html)
 
 ### Positive Reviews

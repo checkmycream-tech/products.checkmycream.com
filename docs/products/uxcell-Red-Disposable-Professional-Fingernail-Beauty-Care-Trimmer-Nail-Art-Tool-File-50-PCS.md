@@ -1,12 +1,3 @@
----
-title: uxcell Red Disposable Professional Fingernail Beauty Care Trimmer Nail Art Tool File 50 PCS,
-description: uxcell Red Disposable Professional Fingernail Beauty Care Trimmer Nail Art Tool File 50 PCS,
-author: Suvojit Manna,
-tags: uxcell Red Disposable Professional Fingernail Beauty Care Trimmer Nail Art Tool File 50 PCS,
-publishedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:50 GMT+0530 (India Standard Time),
----
-
 # [uxcell Red Disposable Professional Fingernail Beauty Care Trimmer Nail Art Tool File 50 PCS](https://products.checkmycream.com/products/uxcell-Red-Disposable-Professional-Fingernail-Beauty-Care-Trimmer-Nail-Art-Tool-File-50-PCS.html)
 
 ### Positive Reviews

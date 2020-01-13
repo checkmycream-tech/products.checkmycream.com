@@ -1,12 +1,3 @@
----
-title: TIGI Bed Head Perfect Eyeliner, Black, 0.04 Ounce,
-description: TIGI Bed Head Perfect Eyeliner, Black, 0.04 Ounce,
-author: Suvojit Manna,
-tags: TIGI Bed Head Perfect Eyeliner, Black, 0.04 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:10 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:10 GMT+0530 (India Standard Time),
----
-
 # [TIGI Bed Head Perfect Eyeliner, Black, 0.04 Ounce](https://products.checkmycream.com/products/TIGI-Bed-Head-Perfect-Eyeliner-Black-0.04-Ounce.html)
 
 ### Positive Reviews

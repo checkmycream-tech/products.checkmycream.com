@@ -1,12 +1,3 @@
----
-title: Bath &amp; Body Works Forever Midnight Body Lotion 10 oz (295 ML),
-description: Bath &amp; Body Works Forever Midnight Body Lotion 10 oz (295 ML),
-author: Suvojit Manna,
-tags: Bath &amp; Body Works Forever Midnight Body Lotion 10 oz (295 ML),
-publishedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:51 GMT+0530 (India Standard Time),
----
-
 # [Bath &amp; Body Works Forever Midnight Body Lotion 10 oz (295 ML)](https://products.checkmycream.com/products/Bath-and-Body-Works-Forever-Midnight-Body-Lotion-10-oz-(295-ML).html)
 
 ### Positive Reviews

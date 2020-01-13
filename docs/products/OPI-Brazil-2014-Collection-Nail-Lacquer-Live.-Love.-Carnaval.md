@@ -1,12 +1,3 @@
----
-title: OPI Brazil 2014 Collection Nail Lacquer, Live. Love. Carnaval,
-description: OPI Brazil 2014 Collection Nail Lacquer, Live. Love. Carnaval,
-author: Suvojit Manna,
-tags: OPI Brazil 2014 Collection Nail Lacquer, Live. Love. Carnaval,
-publishedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
----
-
 # [OPI Brazil 2014 Collection Nail Lacquer, Live. Love. Carnaval](https://products.checkmycream.com/products/OPI-Brazil-2014-Collection-Nail-Lacquer-Live.-Love.-Carnaval.html)
 
 ### Positive Reviews

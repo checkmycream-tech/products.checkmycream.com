@@ -1,12 +1,3 @@
----
-title: OPI Gel Nail Color, Taupe-Less Beach, .5 Ounce,
-description: OPI Gel Nail Color, Taupe-Less Beach, .5 Ounce,
-author: Suvojit Manna,
-tags: OPI Gel Nail Color, Taupe-Less Beach, .5 Ounce,
-publishedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
-modifiedAt: Fri Jan 10 2020 15:00:55 GMT+0530 (India Standard Time),
----
-
 # [OPI Gel Nail Color, Taupe-Less Beach, .5 Ounce](https://products.checkmycream.com/products/OPI-Gel-Nail-Color-Taupe-Less-Beach-.5-Ounce.html)
 
 ### Positive Reviews
