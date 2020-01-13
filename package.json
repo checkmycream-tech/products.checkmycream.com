@@ -4,6 +4,7 @@
   "license": "MIT",
   "private": true,
   "scripts": {
+    "docs:build": "npm run build",
     "dev": "vuepress dev docs --port 8089 ",
     "generate": "cd scripts ; node --max_old_space_size=8000 generateMarkdown.js",
     "build": "node --max_old_space_size=28096 ./node_modules/.bin/vuepress build docs -d public",
