@@ -1,22 +1,14 @@
 const fs = require('fs');
-const slugify = require('slugify');
-const handlebars = require('handlebars');
-
-
-const hbs = {
-    render(data, name) {
-        const template = fs.readFileSync(`./${name}.hbs`).toString();
-        console.log({ template });
-        return handlebars.compile(template)(Object.assign( {}, data));
-    },
-};
+const slug = require('sluglife');
+const hbs = require('./hbs');
 
 const baseUrl = '../docs';
-const dataFilePath = '/home/ubuntu/products-dump/product_reviews';
+const dataFilePath = '/Users/manjeshpv/Documents/product_reviews';
 
 const seoInformation = (_post) => {
     const post = _post;
-    post.slug = slugify(post.title);
+    post.slug = slug(post.title, {'mode': 'rfc3986'});
+    console.log(post.slug)
     post.author = 'Suvojit Manna';
     post.seo = {
         title: post.title,

@@ -1,0 +1,23 @@
+const path = require('path');
+const fs = require('fs');
+const parser = require('xml2json');
+
+const hbs = require('./hbs');
+
+const root = path.normalize(`${__dirname}/..`);
+
+const xml = fs.readFileSync(`${root}/public/sitemap.xml`).toString();
+
+const json = parser.toJson(xml);
+
+const html = hbs.render({ links:  JSON.parse(json).urlset.url.map(x => x.loc) }, 'home')
+console.log(html);
+
+fs.writeFileSync(`${root}/public/home.html`, html);
+// reading index file
+const index = fs
+    .readFileSync(`${root}/public/index.html`).toString();
+
+// writing index file
+fs
+    .writeFileSync(`${root}/public/index.html`, index.replace('checkmycreamhomepage', html));
