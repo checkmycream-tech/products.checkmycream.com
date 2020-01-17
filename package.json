@@ -8,10 +8,9 @@
     "dev": "vuepress dev docs --port 8089 ",
     "generate": "cd scripts ; node --max_old_space_size=8000 generateMarkdown.js",
     "build": "node --max_old_space_size=28096 ./node_modules/.bin/vuepress build docs -d public; node scripts/generate-homepage.js",
-    "postbuild": "vuepress-sitemap -H https://products.checkmycream.com -d public; node scripts/generate-homepage.js"
+    "postbuild": "vuepress-sitemap -H https://products.checkmycream.com -d public; sleep 5s; node scripts/generate-homepage.js"
   },
   "devDependencies": {
-    "@limdongjin/vuepress-plugin-simple-seo": "^1.0.4-alpha.5",
     "chalk": "^3.0.0",
     "commander": "^4.0.1",
     "esm": "^3.2.25",

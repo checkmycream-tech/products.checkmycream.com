@@ -1,10 +1,9 @@
-const path = require('path');
 const fs = require('fs');
 const parser = require('xml2json');
 
 const hbs = require('./hbs');
 
-const root = path.normalize(`${__dirname}/..`);
+const root = require('./config');
 
 const xml = fs.readFileSync(`${root}/public/sitemap.xml`).toString();
 

@@ -1,9 +1,10 @@
 const fs = require('fs');
 const handlebars = require('handlebars');
+const { root } = require('./config');
 
 const hbs = {
     render(data, name) {
-        const template = fs.readFileSync(`./${name}.hbs`).toString();
+        const template = fs.readFileSync(`${root}/${name}.hbs`).toString();
         console.log({ template });
         return handlebars.compile(template)(Object.assign( {}, data));
     },
